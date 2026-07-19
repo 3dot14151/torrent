@@ -1,26 +1,26 @@
 https://t.me/izofen
-###  Публикация: 1877444   (1073926) от 
+###  Публикация: 1881718   (1077000) от 
 
-Андрей Макаревич - 9 (2026) [MP3|320 Kbps] <Rock>
+Электропартизаны - Оркестр Меланхолия (2026) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Мы будем петь
-2. Песенка о добре и зле
-3. Диалог на фоне бесконечной ночи (Посвящение В.П.Аксёнову)
-4. Весенняя(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+Альбом совместных песен с разными исполнителями — теми, кто близок по духу и интересен группе. При этом все песни — авторские, «электропартизанские», хоть и написаны специально для дуэтов.01. Темное время суток (4:54)
+  02. Будничный момент (3:23)
+  03. Город футуристов (4:02)
+  04. Больше не повторится (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:173A08326B6482404D6619A704C445FD19C3E38E
+magnet:?xt=urn:btih:4D347C173513C3763FE1C29BB7BC425EF49AD0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +28,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874845   (1072157) от 
+###  Публикация: 1880881   (1076733) от 
 
-Найк Борзов - Артишок. Часть 1 (2026) [MP3|320 Kbps] <Rock, Electronic>
+ЗакЛинания & popCup - Мрачный Memories (2026) [MP3|320 Kbps] <Punk, Electronica, Psychedelic>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1072157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Хорошего дня
-2. Галлюцинация (The Whip Remix)
-3. Пророчество (Naik x Gerda Remix)
-4. Слышу тьму (Sad Space Remix)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:39:12
+Part.1:
+01 - Солнце сгорело (3:40)
+02 - Побудь со мной (4:32)
+03 - Так не бывает (4:39)(   Читать дальше...   )Жанр: Punk, Electronica, PsychedelicПродолжительность: 00:58:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B674784DA035A8FF9ED8A38925B0EADBCEC8ECF1
+magnet:?xt=urn:btih:6057A3E6D41CAE1B84C1961503E652D86527DB66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,28 +57,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874816   (1072133) от 
+###  Публикация: 1880294   (1076299) от 08.07.2026
 
-Владимир Кузьмин - Держите ритм (2026) [MP3|320 Kbps] <Rock>
+Х.. забей - Сущность богинь (2026) [MP3|320 Kbps] <Russion Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1072133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Держите ритм
-2. Плюс один
-3. Мои друзья
-4. Девяностые(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:06
+01. Под горку [00:00:28]
+02. Репетирую [00:01:19]
+03. Идиллия [00:00:52]
+04. В одежде [00:00:39](   Читать дальше...   )Жанр: Russion Punk RockПродолжительность: 00:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEB970EE4318744AC6E5B22AF8831B90466CF9DF
+magnet:?xt=urn:btih:8C4C92FF5A86EE5E378485D3E56B8E95BC7A3391
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,144 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874368   (1071702) от 01.06.2026
+###  Публикация: 1878684   (1075083) от 
 
-Dmitry Spirin - En Vivo En Buenos Aires (2026) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1071702.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Границы гетто (live)
-2. Причина для ненависти (live)
-3. Кто-то из нас двоих/самый счастливый человек на земле (live)
-4. Властелины вселенной (live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DF8CE33FE0C51EE11DB87D200651ACE3FE4182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872876   (1070772) от 24.05.2026
-
-Азон - К Свету! (2026) [MP3|320 Kbps] <Punk Rock>
+Naprimer (Например) - Не бросай нас (2026) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1070772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. К Свету!
-2. Запрети!
-3. Приезжай в Подольск
-4. Классный Новый Мир(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:25:41
+01. Не бросай нас (Микс 2026)
+02. Ни о чём
+03. Навсегда вдвоём
+04. Надо на русском (Часть 1)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D9F7924C70CFFFEBD4D05CEA88CB220E062A315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871050   (1069358) от 15.05.2026
-
-ГОРШЕНЕВ - Фауст-2. Первый акт (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1069358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пробуждение
-2. Императорский дворец
-3. Маскарад
-4. Дворцовый сад(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8A6217F9D7FBBF56D3E1DCA6936B78D9E88B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867453   (1066998) от 25.04.2026
-
-МПТРИ - Безалкогольный (2004) Reissue, 2026 [MP3|320 Kbps] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вот теперь каким я стал
-2. Песенка
-3. Либидо
-4. Амундсен(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B771C9EB7880A7A050D88923148E509F4642B007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867225   (1066783) от 24.04.2026
-
-Lumen - Любовь и Красота (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066783.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ваще
-2. Можно!
-3. Один в поле
-4. Пластилин(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CF0411F756573F559C955682ECC7057EB74243
+magnet:?xt=urn:btih:263A0F0E72ECD35C0E4F650D08292F8E15AFD633
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,35 +579,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858681   (1060599) от 12.03.2026
-
-Dmitry Spirin (ex-Тараканы) - Чужие (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1060599.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Равнодушие
-2. Лапти
-3. Домой
-4. Спойлер(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630E975B0CF6C817CD241CB6D9968DAEEB4F0B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857901   (1060100) от 09.03.2026
 
 Злая Рыба - 2 Albums (2026) [MP3|320 Kbps] <Alternative Rock, Punk>
@@ -745,6 +600,151 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E772C9F3F0887D68B7546D27FFD0E42B30BD6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857226   (1059585) от 04.03.2026
+
+Константин Кинчев - Я (2026) [MP3|320 Kbps] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 У свободы нет выходных [00:04:41]
+02 Кто бы мог подумать [00:04:08]
+03 Вертикаль [00:04:45]
+04 Стучусь [00:05:26](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6738D4B9CB1BFCDC4E1349DAE5CCB9CD57858323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856744   (1059207) от 01.03.2026
+
+Половина Красного - Генератор сна (2026) [MP3|320 Kbps] <Modern Metal, Alternative Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Карнавал [00:03:36]
+2. Разлом [00:03:27]
+3. Сон [00:03:48]
+4. Лай [00:03:38](   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, ElectronicПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1554A8182F988F18ACDF50FB465872BB0FFEF107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856469   (1059081) от 28.02.2026
+
+Neverlove - SEXMETAL 2 (2026) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вперёд, Натуралы! [00:03:18]
+02. Крокодил [00:03:51]
+03. Вальс Предателей [00:02:48]
+04. Sexugroza [00:02:53](   Читать дальше...   )Жанр: Hard-Rock, Glam-MetalПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1079ECEFBD1372B7F50267D2DF0453890A627CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855567   (1058185) от 24.02.2026
+
+Гевал - 5 Releases (2009-2016) [MP3|320 Kbps] <Industrial-Metal, Gothic-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Гевал - 2009 - Гевал
+Гевал - 2009 - Пергам
+Гевал - 2010 - Третий Рим (Single)(   Читать дальше...   )Жанр: Industrial-Metal, Gothic-MetalПродолжительность: 5 CD, 02:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B86A3013F0E86D24CE21D90929C366B698159D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855375   (1057911) от 22.02.2026
+
+igo - 3 Albums (2012-2026) AI-generated content [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Без тебя...
+2025 - Театр теней
+2026 - Alter EgoЖанр: Heavy MetalПродолжительность: 3 CD, 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9683B376C91C1B54908723EA160802F79A2FB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

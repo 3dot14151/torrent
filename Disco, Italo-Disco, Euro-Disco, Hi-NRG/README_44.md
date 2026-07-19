@@ -1,32 +1,3 @@
-###  Публикация: 1431753   (166934) от 14.12.2020
-
-Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supercontinent (4:18)
-02. Afromerica (5:53)
-03. Hunky Funky Lion (4:15)
-04. Revelation (3:31)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12DAA98AF3999FA0B7A19F11695C4DA2F1E9D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516203   (166881) от 10.12.2021
 
 Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -743,6 +714,35 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5A4A7AB2FEBB180E89D7418CBC9B0029DBDC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272545   (142999) от 28.12.2018
+
+Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick De Moore - It's Love (Maxi Version) (6:19)
+02. Dario Silver - Lonely In The Name Of Love (5:06)
+03. Dario Silver - Electric Heartbeat (6:36)
+04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

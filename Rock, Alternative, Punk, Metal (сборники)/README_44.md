@@ -1,3 +1,90 @@
+###  Публикация: 968170   (158213) от 22.12.2015
+
+VA - Рок Марафон: Выпуск 12 (2015) [MP3|192-320 кб/с] <Rock, Alternative, Progressiv, Classic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Outlands - Eclipse
+002. Reenact - Rock Nation
+003. Coin - Time Machine
+004. DVSR - Life and Death(   Читать дальше...   )Жанр: Rock, Alternative, Progressiv, ClassicПродолжительность: 10:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A6F607AA7CD52088B860EC5EF4F7B500765239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433332   (158090) от 20.12.2020
+
+Middle of the Road - 20 Greatest Hits (1971-73) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Chirpy Chirpy Cheep Cheep (1971) (02:57)
+02-Tweedle Dee, Tweedle Dum (1971) (03:12)
+03-Yellow River (1971) (02:51)
+04-Sacramento (A Wonderful Town) (1971) (02:56)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B9BF035FFEB55E9CF49D48A33527BFD87D7EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968417   (156595) от 23.12.2015
+
+VA - Tomorrow Never Dies (2015) [MP3|320 кб/с] <Altrnative, Indie Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myka Relocate - Hide the Truth
+002. Siamese - Tomorrow Never Dies
+003. All That Remains - Victory Lap
+004. Mellowtoy - Destroy Yourself(   Читать дальше...   )Жанр: Altrnative, Indie RockПродолжительность: 08:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699959217529FAF527BB152A8B7B3DE6A612ECC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085802   (156458) от 22.12.2016
 
 VA - Empire Records - Guitar Pro (2016) [MP3|320 Kbps] <Pop Rock>
@@ -664,93 +751,6 @@ VA - Rock Blues Ballads Compilation (2021) [MP3|320 Kbps] <Rock, Blues, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F28802446F0912C687781A9213444CACEB481E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272521   (141153) от 29.12.2018
-
-VA - Amaranthine: Hard Rock & Metal Collection (2018) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mindwars - The Fourth Turning
-002. Splendidula - Dollywood
-003. Flipzyde - Witness The Sickness
-004. Heavy Kind - Sneaky Moves(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAD7E1CBC4DE130C533D644B0AB3AD40E0488DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195116   (141150) от 29.12.2017
-
-VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7Б - Солнцу решать
-02. СерьГа - Сказочный лес
-03. 25-17 - Она не такая, как все
-04. Casual - Сквозь дым(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970585   (140513) от 30.12.2015
-
-VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Ace of Spades (02:49)
-02. Angel Witch - Angel Witch (03:26)
-03. The Michael Schenker Group - Armed and Ready (04:09)
-04. Accept - Balls to the Wall (05:44)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 09:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D1551329679FA1E117ECCC55CD88FE13E0F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

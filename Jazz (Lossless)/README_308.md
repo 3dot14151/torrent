@@ -1,119 +1,3 @@
-###  Публикация: 1694343   (120928) от 25.01.2024
-
-Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shark Skin Suit (3:58)
-02. Samosas & Kingfishers (5:15)
-03. A Day In L.A. (4:20)
-04. Killzoni (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E72E28684FCBC364151980F5D0DEFA5E7EB165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694497   (120781) от 26.01.2024
-
-Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [3:04]
-02. Blue Skies [3:53]
-03. Let's Fall in Love [3:59]
-04. What Are You Doing the Rest of Your Life? [4:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1947BD684FAD26F60F5E6CB6AAEEAC07C39F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694745   (120780) от 26.01.2024
-
-Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [9:00]
-02. Nunca Mas [5:30]
-03. Marissea [7:43]
-04. Para Nosotros [8:03](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1574A6F11D2333AD16E516E74E69D27D68A07F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694746   (120779) от 26.01.2024
-
-Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Because of You [2:41]
-02. Swinging on the Moon [2:21]
-03. Blues in the Night [3:38]
-04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694496   (120775) от 26.01.2024
 
 Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ VA - Best of Burlesque (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAB9366F1A67DD972A82FC1BBB49CAF246A5E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695923   (119939) от 31.01.2024
+
+Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pasolini [5:31]
+02. Very Early [4:58]
+03. Estate [5:48]
+04. Maybe Yes [3:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F056921F6CB3C904292D481CEBA0E34E3AF87E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695921   (119936) от 31.01.2024
+
+VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clever Motion - Play This Chords (Original Mix) (3:26)
+02. Dave Belford - Everest (Original Mix) (3:26)
+03. Karim Azak - Give You Devotion (Original Mix) (3:27)
+04. David Alaba - Nu Moves (Original Mix) (3:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4403AFE80769B223B1A33E542C3141185C42F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695719   (119934) от 31.01.2024
+
+Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 'Guys' from Ipanema [5:04]
+02. Donna Lee [6:22]
+03. Pithecanthropus Erectus [8:38]
+04. Children's Song (Nen Neko Bocchan/On Seisei) [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49F0F7A52AA85B32F4CBC0EC413E4AE399A754D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695916   (119930) от 31.01.2024
+
+VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eJazz Artistry - I Can't Stop Loving You (4:22)
+02. Kool&Klean - Begin Again (4:34)
+03. Chillaxing Jazz Kollektion - Beautiful Day (4:11)
+04. Chillaxing Jazz Kollektion - Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1026421   (704166) от 15.06.2016
-
-Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lessoning [09:52]
- 02.Nanshi [06:13]
- 03.Changing [08:32]
- 04.One Up [05:29](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9763B6BF7889A9954F1A4F888468FDD2A589C9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026402   (704165) от 15.06.2016
-
-Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me [06:08]
- 02. Coffee Time [06:10]
- 03. Etnia [05:29]
- 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026418   (704163) от 15.06.2016
-
-Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Secret Love [10:51]
- 02.Airegin [05:35]
- 03.Confirmation [07:35]
- 04.Four [08:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3002A2B64EC4035F1384419336E3429D49914C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026424   (704162) от 15.06.2016
-
-Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perdido / Wahoo [13:45]
- 02.Old Folks [04:33]
- 03.Out Of Nowhere [12:12]
- 04.Loverman [04:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402119   (703947) от 13.08.2020
 
 Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -742,6 +626,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C9E8374522375A2180822084FE059299B4B85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132476   (701282) от 09.05.2017
+
+Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Me Loose [04:30]
+02. Thai Silk [04:31]
+03. Greasy Greens [04:39]
+04. Tempo's Birthday [02:52](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F930145D3294A96F65C62815095A583CD3158F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132472   (701276) от 09.05.2017
+
+Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stick Up The Band [07:14]
+02. Lullaby Of Birdland [09:50]
+03. Indiana [06:57]
+04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132479   (701270) от 09.05.2017
+
+Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fables of Faubus [04:28]
+02. Black light [03:42]
+03. Song with orange [02:38]
+04. Carolyn [05:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93C3B76D0C69A0E9E779158EF6664EF70977C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132478   (701160) от 09.05.2017
+
+Smoking Time Jazz Club - Ain't We Fortunate! (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Orleans Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downtown Doin's (2:55)
+02. Snag It (4:19)
+03. Southern Sunsets (3:14)
+04. Copenhagen (2:42)(   Читать дальше...   )Жанр: New Orleans Jazz, Big Band, SwingПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095D02DF7C0EBB9C5B01986439E5A1D790532452
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1586002   (217672) от 25.10.2022
+
+Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lavender Haze (03:22)
+2. Maroon (03:38)
+3. Anti-Hero (03:20)
+4. Snow On The Beach (feat. Lana Del Rey) (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A895C4614AC780EFFF5BE5BFAC28D9671556549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084981   (216708) от 20.12.2016
 
 Soraya Arnelas - Universe In Me (2013) [MP3|320 Kbps] <Europop, Eurodance>
@@ -714,35 +743,6 @@ VA - Romantic Collection. Mystique (2000) [OGG Vorbis|480 Kbps] <New Age, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3542489BAD550EC91306C2164E7B78F9C3C8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611738   (207496) от 13.02.2023
-
-VA - Romantic Collection. Cinema (2005) [OGG Vorbis|480 Kbps] <Jazz, Stage & Screen, Soundtrack>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai–	Un Homme Et Une Femme
-02. Nino Rota–	Love Theme From The Godfather
-03. Henry Mancini & His Orchestra–	The Windmills Of Your Mind
-04. Francis Lai–	Love Story(   Читать дальше...   )Жанр: Jazz, Stage & Screen, SoundtrackПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D1BF3E482943868F6D8CC672EF718E1C8886E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

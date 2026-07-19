@@ -1,3 +1,32 @@
+###  Публикация: 1605800   (1044761) от 19.01.2023
+
+Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Thinking About You
+02. 9 A.M. (The Comfort Zone)
+03. Failing In Love Again
+04. A Better Love(   Читать дальше...   )Жанр: Electronic, Pop, EuropopПродолжительность: 03:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8423DABD62C70808AC7166CB0D53F581F2289BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605706   (1044734) от 19.01.2023
 
 CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro House>
@@ -716,35 +745,6 @@ VA - I Singoli di Sanremo 2023 (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E68FE84CFDCE992FADCE51A3950581038FB1C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611724   (1040761) от 13.02.2023
-
-VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2 (2005) [OGG Vorbis|480 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hervé Roy–	Emmanuelle
-02. Francis Lai, Nicole Croisille–	Un Homme Et Une Femme
-03. Nicoletta–	Mamy Blue
-04. Mireille Mathieu–	Une Histoire D’amour(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

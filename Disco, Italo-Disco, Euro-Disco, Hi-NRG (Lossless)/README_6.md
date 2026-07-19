@@ -1,3 +1,90 @@
+###  Публикация: 1373035   (880084) от 06.04.2020
+
+Eruption - Disco Stars (2019) Bootleg [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 One Way Ticket 3:37
+02 Raising My Family 3:41
+03 Mr. Pilot Man 3:36
+04 Step Runnin 3:08(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C3493D18589874D7C940211734CD87F664287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373781   (876815) от 08.04.2020
+
+VA - Italo Nites Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Record Playerz - Italomatic (6:27)
+02. Ziggy Phunk - Lost Treasures (6:17)
+03. Rayko - Inchi (6:46)
+04. Chris Massey feat. Mike Grubert - Castro Beat (7:30)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 01:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E1A1B9E3BE39BBE1A69FDB3C246F939A235C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373779   (876617) от 08.04.2020
+
+VA - Italodisco Rarities (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wol Vo - Born Again (3:13)
+02. Jay & Jason - Breaking (6:01)
+03. Jay & Jason - Do You Want (5:38)
+04. Wol Vo - Forever (3:46)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 02:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6991F74E6F189F6202B74E192EA1090F7C478A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997642   (873560) от 17.03.2016
 
 Joy - The Original Maxi-Singles Collection and B'Sides (2015) [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -659,93 +746,6 @@ Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC57D33478DC3AC383F02F908913F491120E1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197024   (818778) от 05.01.2018
-
-Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch (3:50)
-02. Kisses Are The Doctor's Order (3:29)
-03. Chinese Girls (3:40)
-04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503774   (817632) от 20.10.2021
-
-Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerrone's Paradise (Long Version Instrumental)
-02. Je Suis Music (Long Version Instrumental)
-03. Give Me Love (Long Version Instrumental)
-04. Midnite Lady (Long Version Instrumental)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6312ABF591B7A8ADA8D4B52D443D861080B90BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117621   (816897) от 23.03.2017
-
-Mr. Zivago - Tell By Your Eyes (Covers) (1993) [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell By Your Eyes 6:24
-02. Say Yes 4:23
-03. Alive 4:17
-04. Show The Love 4:54(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0085B98A3874257369F26DBC06D2412AFE913D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

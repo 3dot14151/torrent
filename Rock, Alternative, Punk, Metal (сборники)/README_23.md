@@ -1,3 +1,90 @@
+###  Публикация: 1030254   (673680) от 30.06.2016
+
+W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X.T.C. Riders
+02. Miss You
+03. Skin Walker
+04. Shotgun(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF5EBFDBEA66F32DFBE97D4E3EFFF12511CA936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993805   (672542) от 23.05.2017
+
+VA - Russian Metal Ballads (2016) [MP3|197-320 кб/с] <Rock, Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adventus - Небеса (03:15)
+02. Ультиматум - Хозяин Царства Слёз (06:27)
+03. Легенда - С Тобой Навсегда (04:19)
+04. Ангел-Хранитель - Художник (05:09)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 03:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7361870825DC5897EB023B79A86CBD672BBA3FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128124   (672428) от 23.05.2017
+
+VA - Greatest Ever! Rock The Collection Vol.1 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Marilyn Manson - The Beautiful People  3:43
+002.  Monster Magnet - Space Lord  5:58
+003.  Atomic Rooster - I Can't Take No More  3:33
+004.  Queens Of The Stone Age - Go With The Flow  3:09(   Читать дальше...   )Жанр: RockПродолжительность: 11:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA373ECC643FA52583F88D341B4F5705911DCE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290912   (672331) от 23.03.2019
 
 VA - Ashes Of My Enemies: Hard Rock And Metall Compilation (2019) [MP3|320 Kbps] <Hard Rock, Metall>
@@ -661,93 +748,6 @@ VA - Alternative Digest June 2017 Mix (2017) [MP3|192-320 Kbps] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1FA4B05BD43F5B6AF81A4BA6E471A09271E4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031649   (651483) от 04.07.2016
-
-Cliff Richard - The Hits (2015) [MP3|320 Kbps] <Pop, Rock, Rock'n'Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Suede Shoes
-02. Early in the Morning
-03. I Gotta Know
-04. Sway(   Читать дальше...   )Жанр: Pop, Rock, Rock'n'RollПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA911321009335C5ED7A5C5B9A39601B12C5ABFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905270   (651439) от 05.06.2015
-
-VA - Alterportal HITS 15 Vol. 81 -  May (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stellar Revival - The Crazy Ones
-02. Marigold - The Hunter
-03. Lindemann - Praise Abort
-04. Coal Chamber - Light In The Shadows(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C523A4A09683D3478F459C487251F953B35CDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031533   (651361) от 04.07.2016
-
-Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven And Hell
-02. Rainbow In The Dark
-03. Along Comes A Spider
-04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
 ```
 
 https://mybot314.ru/tekegram_catalog/

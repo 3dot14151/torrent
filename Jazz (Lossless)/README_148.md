@@ -1,119 +1,3 @@
-###  Публикация: 1152247   (567503) от 22.07.2017
-
-Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Seven [06:51]
-02. How Sweet [07:40]
-03. Don't Worry 'Bout it Baby, Here I Am [06:46]
-04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555661   (567491) от 05.06.2022
-
-Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. And We Listened [5:45]
-02. The Fugue [3:28]
-03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304051   (567452) от 24.05.2019
-
-Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflections (1:10)
-02. The Odyssey (6:03)
-03. The Peacemaker (0:38)
-04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304107   (567446) от 24.05.2019
-
-Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567446.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Home Cookin':
-01. See See Rider [6:36]
-02. Sugar Hill [5:20]
-03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555663   (567344) от 05.06.2022
 
 Pearl Django - Live (2019) Modern Hot Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
@@ -770,6 +654,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77433F2E973652AD63F24DF27D25F1A3FB5D740B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152782   (563746) от 24.07.2017
+
+Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563746.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bag's Groove [04:47]
+02. Memory Of Dick [05:38]
+03. Milestones [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D9573E3676D0F2F347BCD525DC94956EA94E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152777   (563745) от 24.07.2017
+
+Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder Why [05:26]
+02. My Funny Valentine [04:41]
+03. Moonray [05:06]
+04. The Nearness Of You [04:05](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769C291230E3431E80BD358400F82ED0C2541F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152548   (563742) от 24.07.2017
+
+Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Future Jazz, Leftfield>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumbler (feat. Mara von Ferne) (4:35)
+02. Break Loose (feat. Mara von Ferne) (3:59)
+03. The Sphere (5:02)
+04. Mice in Kindergarten (5:41)(   Читать дальше...   )Жанр: Electronic, Future Jazz, LeftfieldПродолжительность: 00: 41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E0BCFEF4378DD27C2C7FAB78DB9B6569B58462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152679   (563635) от 24.07.2017
+
+Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Songs Without Words:
+01. Songs Without Words: I. Aria [07:04]
+02. Songs Without Words: II. Ballad [06:00]
+03. Songs Without Words: III. Tango [05:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 03:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2AD587E4DCFA8BF7C1A7AF98C112E2AA62F1E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 756832   (921050) от 14.02.2014
-
-Бесплатные образцы / Free Samples (2012) BDRip [1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня отчислена из юридической школы и вынуждена раздавать бесплатные образцы мороженого, чтобы иметь средства к существованию. Работа и так повергает ее в депрессию, а тут еще какой-то молодой человек начинает оказывать недвусмысленные знаки внимания...Производство: СШАЖанр: Драма, КомедияРежиссер: Джей ГэммиллАктеры: Джесс Вейкслер, Джесси Айзенберг, Джейсон Риттер, Хэлли Фейффер, Типпи Хедрен, Кейр О’Доннелл, Джоселин Донахью, Уитни Эйбл, Эбен Костбар, Джордан ДэвисПеревод: Многоголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EA6D13B9D6D3E4B15EEC40CC22EE72B5D9AEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096236   (921044) от 23.01.2017
 
 PDF Checkpoint 1.7.18 [En]
@@ -714,6 +688,35 @@ Meteor Burn - Comic Book (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1289DD94F8676D75DCBABE2BFFADFF685975D74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096204   (920852) от 23.01.2017
+
+VA - Armada Chill (2017) [FLAC|Lossless|WEB|tracks] <Downtempo, Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lejon - Dusk Till Dawn [03:45]
+02 Pablo Nouvelle - You Don't Understand (feat. ALX) [02:47]
+03 Mashti & Jean von Baden feat. Eivor - Waiting [03:31]
+04 Kinobe - Slip Into Something More Comfortable (Stephan Hague Mix) [03:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEEE9D14E4872FD907EE47D16A3FF90CAB506FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

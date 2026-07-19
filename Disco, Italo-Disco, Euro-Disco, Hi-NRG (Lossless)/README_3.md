@@ -1,3 +1,90 @@
+###  Публикация: 1470935   (1015412) от 18.05.2021
+
+Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rasputin [00:03:41]
+02. Daddy Cool [00:03:28]
+03. Rasputin [00:03:06]
+04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471201   (1015296) от 19.05.2021
+
+AlimkhanOV A. - Right Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Time (Album Version) (5:24)
+02. Eyes Of Delight (Album Version) (5:55)
+03. Lonely (Album Version) (6:05)
+04. Hot Nights In The City (Album Version) (7:00)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831EB4ED7D483ECA994A5E333E3E7BCDC960891E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472482   (1014359) от 25.05.2021
+
+TQ - Out Of The Shadows - The Album (2014) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi NRG, Synth-pop, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TQ feat. Linda Jo Rizzo - Out Of The Shadows (4:46)
+02. TQ - Let The Night Remain Forever (4:17)
+03. TQ - Let's Go To Tokyo (4:18)
+04. TQ feat. Trans-X - My Fascination (3:35)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-pop, EurodanceПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949A2F08EC2410944D2BDD314CE19D609D3081F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472719   (1014144) от 26.05.2021
 
 Lian Ross & Fancy - Summer Wine (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -667,93 +754,6 @@ Silent Circle - Lost In Space (2019) [FLAC|Lossless|image + .cue] <Eurodance, It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B2740ED9DC8A7B9BB7F3EA4A8DE51C9FE741E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357393   (974331) от 03.02.2020
-
-Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Around My Dream (Extended Version) 5:39
-2 Step By Step 3:42
-3 Love Is Alive 3:49
-4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357381   (974328) от 03.02.2020
-
-Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Wild, Wild Western
-2 I Won't Forget
-3 Champagne For The Boy
-4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357388   (974266) от 03.02.2020
-
-Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974266.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Don't Talk To The Snake 8:02
-2 Let's Start Now 7:32
-3 Africa 5:37
-4 Agent Of Liberty 4:22(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
 ```
 
 https://mybot314.ru/tekegram_catalog/

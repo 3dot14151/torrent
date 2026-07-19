@@ -1,3 +1,61 @@
+###  Публикация: 907446   (638082) от 12.06.2015
+
+Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Away I go
+02. Never Givin' Up
+03. Miss Elainious
+04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541274   (636871) от 07.04.2022
+
+King Mountain - 4 Albums (2020-2022) [MP3|320 Kbps] <Heavy Blues Rock, Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Sacrifice [00:05:50]
+02. Tempest At The Gate [00:03:29]
+03. Burning Walls [00:04:05]
+04. King Of The Mountain [00:06:12](   Читать дальше...   )Жанр: Heavy Blues Rock, Hard Rock, Stoner RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654F693CBEF71E227ED3DE12C6AB2AE91C15D5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519924   (633464) от 08.07.2012
 
 Oxygen - Final Warning (2012) [MP3|320 кб/с]<Melodic Hard Rock/AOR>
@@ -726,64 +784,6 @@ Styx - 15 Альбомов (1972-2005) [MP3|320 кб/с]<progressive rock, hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D880EEFA5B89A677D932941201A284609DC22D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911023   (620677) от 21.06.2015
-
-Twist Of Fate - Of Love And Lunacy (2015) [MP3|320 кб/с]<Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay the Same Intro
-02. Stay the Same
-03. The Road so Far
-04. Encased in Ice(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A2C8341CFE9024FDB4380D584F2EB95EDFD8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911016   (620675) от 21.06.2015
-
-Mount - Mount (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pop Stars
-02. Not That Into This
-03. I Stutter Too!
-04. Dig'n Holes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23A71508FF94CA3B390F75C70B618DAABADEE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

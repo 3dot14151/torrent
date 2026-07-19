@@ -1,32 +1,3 @@
-###  Публикация: 1381206   (827739) от 06.05.2020
-
-Redlight King - Moonshine (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lift The Curse
-02. Champion
-03. Long Way To Heaven
-04. Not Dead Yet(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFE954C79EF6C59DC48553D8621AC46E31D143D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006639   (827173) от 12.04.2016
 
 Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
@@ -740,6 +711,35 @@ Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007638   (819650) от 16.04.2016
+
+VA - It’s A Rockabilly Riot! Vol. 1 (2016) [MP3|320 кб/с] <Neo Rockabilly, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Retrobaits - Your Squeezes Don't Leave Me
+02. Jack Rabbit Slim - Next Time
+03. The Bullets - Somebody Else
+04. Lew Lewis & The Twilight Trio - If You're Gonna Love Me(   Читать дальше...   )Жанр: Neo Rockabilly, RockabillyПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D9FB331260873C7778EA00D5C1C499F2D28EC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

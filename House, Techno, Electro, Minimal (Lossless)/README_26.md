@@ -1,3 +1,177 @@
+###  Публикация: 1521350   (766102) от 01.01.2022
+
+VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakou Mizik – Sanba Yo Pran Pale (DJ Koze Remix Radio Edit) (05:13)
+02. Alan Fitzpatrick – Warning Signs (CamelPhat Remix) (03:14)
+03. Eli & Fur – Come Back Around (Maya Jane Coles Remix) (03:42)
+04. CRi – Stranger (DJ BORING Remix) (04:35)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 03:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0D4E78C4C6B98C43563D562DD2C56284CA3150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214116   (765810) от 20.03.2018
+
+Kohl - Learned Ethics / Imposed Ethics (2018) Umor-Rex [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Possibility Of The Infinite (04:16)
+ 02. Moral Supposition (08:54)
+ 03. Moral Autonomy (05:41)
+ 04. The Inquisition (05:45)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203943D9D03E05C2EDB493C945B158A8EAB6556B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279704   (765463) от 30.01.2019
+
+VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Mullholland (7:53)
+02. Kaliber - A1 (3:47)
+03. Claude VonStroke - Who Is Afraid of Detroit (5:43)
+04. John Tejada - The End of it All (6:25)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279695   (765461) от 30.01.2019
+
+VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seiichiro Tanaka - Evening Glow (4:58)
+02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
+03. Soda Inc. - Morning Prayer (4:12)
+04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214333   (764975) от 21.03.2018
+
+Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1138 (04:49)
+02. Axum (04:52)
+03. Ark (04:16)
+04. Nazca (04:16)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54035612822B1E21B5363528F559A3C9901A1FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214426   (764926) от 21.03.2018
+
+VA - Anjunadeep In Miami 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer - After Earth (7:37)
+02. Alex Metric & Ten Ven - Otic (7:16)
+03. Martin Roth - Guude Laune (6:45)
+04. Eli & Fur - White Sails (6:17)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28CD8CF7F97E55E0E76D54DB0DCE4BF563E1B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214387   (764901) от 21.03.2018
 
 GusGus - Lies Are More Flexible (2018) Soyuz Music [FLAC|Lossless|tracks + .cue] <House, Synthpop, Tech House, Techno>
@@ -569,178 +743,6 @@ Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281132   (755201) от 06.02.2019
-
-E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Question (05:26)
- 02. Overcast (05:39)
- 03. Wishing Still (08:34)
- 04. Insomnia (03:21)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259B2F6F5028A590FC5B9C36F7D14ECA8F06FA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522955   (755171) от 09.01.2022
-
-Sascha Dive - Back 2 Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispering Voices (Original Mix) (6:30)
-02. This Is My Journey (Original Mix) (7:06)
-03. My Life (Original Mix) (7:03)
-04. In the Darkness  (feat Messy MC) (Original Mix)  (7:33)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C833E1FA959E6F7AF31A8584AF2F347967D14A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281407   (753594) от 07.02.2019
-
-Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambrose (07:25)
- 02. Individual (07:06)Жанр: Dub Techno, Electro, TechnoПродолжительность: 00:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281339   (753492) от 07.02.2019
-
-Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon (04:03)
- 02. Parsec (06:19)
- 03. Currents (06:16)
- 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322371   (752317) от 12.04.2011
-
-R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On (Radio Mix) (03:23)
-02. Shine On (Spencer & Hill Radio Edit) (03:02)
-03. Shine On (Soft House Radio Mix) (03:21)
-04. Shine On (Mondo Radio Edit) (03:22)(   Читать дальше...   )Жанр: House / ElectroПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216257   (751358) от 30.03.2018
-
-VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jobe - Jobe Presents Authentic Steyoyoke #012 (Continuos DJ Mix) (01:02:32)
-02. Jobe - Lissome (Original Mix) (08:30)
-03. Dahu - How Do They Know (Nick Devon Remix) (07:04)
-04. Pysh, Sincz - Kawalerskie (Original Mix) (06:21)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
 ```
 
 https://mybot314.ru/tekegram_catalog/

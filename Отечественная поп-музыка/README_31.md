@@ -1,32 +1,3 @@
-###  Публикация: 489070   (101824) от 28.04.2012
-
-Анне Вески - Звездная коллекция (2000) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позади крутой поворот (4:33)
-02. Пора домой (4:26)
-03. Продлись, счастье (4:16)
-04. Привет, мой старый дом (4:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33671E7DEF2FBD78BBE1B9C9970FD9691F865D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483955   (89262) от 18.04.2012
 
 5sta Family - Зачем ?(2012) [MP3|320 kbps]<Pop | RnB>
@@ -772,6 +743,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F270BA5D89240E06EF019920210A27192EA3BBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787457   (68795) от 25.03.2025
+
+Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo (2:55)
+02. Mamma Mia (3:36)
+03. Knowing Me, Knowing You (3:40)
+04. I Have a Dream (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA872A5E9AB9928BE4304A74364E62BB96391900
 ```
 
 https://mybot314.ru/tekegram_catalog/

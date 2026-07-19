@@ -1,119 +1,3 @@
-###  Публикация: 1396858   (744200) от 17.07.2020
-
-Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azan [3:38]
-02. All Deliberate Speed [7:36]
-03. Elvin Elpus [5:53]
-04. Soon After [3:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756F5350BB7779CBE5176C0C3BEF570C4A4DCDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396861   (744199) от 17.07.2020
-
-Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dog Bottom [2:41]
-02. Heebie Jeebies [3:04]
-03. On the Sunny Side of the Street [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C104B1619E6286AA85BEBE75562AE3B62865C1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396883   (744130) от 17.07.2020
-
-VA - Sunday Morning Snooze: Relaxing Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Giuffre - Ictus (2:47)
-02. All Star Sextet - I Can't Get Started (3:37)
-03. Clifford Brown - Sweet Clifford (1:48)
-04. George Russell - Lydiot (8:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF317E55FEBEDE8142AADC53C3261FF7EE418835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282662   (743844) от 13.02.2019
-
-Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daybreak [5:19]
-02. Baroque Steps [6:40]
-03. Nighttime [11:02]
-04. Wind Chant [10:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BF84C9DEDD11F2BA2E1666F98FEE5CA88FA6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282627   (743841) от 13.02.2019
 
 Lou Donaldson - Four Classic Albums (1957 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -745,6 +629,122 @@ Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282859   (741237) от 15.02.2019
+
+Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellotone [6:01]
+02. The Midgets [9:25]
+03. Whirly-Bird [4:07]
+04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283105   (741236) от 15.02.2019
+
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283104   (741235) от 15.02.2019
+
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283107   (741234) от 15.02.2019
+
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
 ```
 
 https://mybot314.ru/tekegram_catalog/

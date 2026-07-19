@@ -1,32 +1,3 @@
-###  Публикация: 1415568   (376860) от 12.10.2020
-
-J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernadette, Reach Out I'll Be There, Butterfly Suite  (15:37)
-02. Relationships  (5:47)
-03. Midnight Dancer  (4:56)
-04. Dance My Life Away  (6:30)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327354   (376730) от 24.09.2019
 
 Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -745,6 +716,35 @@ Haddaway - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9C1F3C66A2213A34AE24EE6513C25A31B19F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071347   (361816) от 09.11.2016
+
+Saint Tropez - 4 Albums (1977-1982) LP [MP3|320 Kbps] <Funk Soul, Disco, Erotic-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и многие диско-группы 70-х «Saint Tropez» были продюсерским детищем, в данном случае двух американских продюсеров Лорена Райндера и Майкла Льюиса. Они уже были известными с диско-группами «El Coco» и «Le Pamplemousse». Все выпущенные альбомы были чрезвычайно успешны. Тематически связаны одной концепцией чувственной диско-симфонии, сильны своими оркестровыми аранжировками (   Читать дальше...   )Список альбомов:
+1977 - Je T'Aime
+1978 - Belle De Jour
+1982 - Femmes Fatales(   Читать дальше...   )Жанр: Funk Soul, Disco, Erotic-DiscoПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C70FF4361EB81F55008A17890ABC14C472E0F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

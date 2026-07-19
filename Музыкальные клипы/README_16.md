@@ -1,3 +1,172 @@
+###  Публикация: 667889   (725525) от 14.06.2013
+
+100 Gods of Rock (vol.2.) (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audioslave - Your Time Has Come
+02. Him - Wings Of A Butterfly
+03. The Rolling Stones - Streets Of Love
+04. U2 - Sometimes You Can't Make It On Your Own(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 07:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199A65D1E56D3D07F7FD029BF040ED103CD8BA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398397   (724990) от 02.08.2020
+
+Коррозия Металла & Анна Сулла - Навстречу Зла (2014) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное видео исключительно посвящено - Апокалипсическому и огненному,  кровавому перформансу в Киеве ЕВРОМАЙДАН 2013-14.
+    В кадре: ПАУК-акустика, Анна Сулла -вокал, Джек ВОРОБЕЙ -вокал, Дмитрий БЕРСЕРК - соло гитара, ТАНЦОР - барабаны.Жанр: Thrash, Punk, OiПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490F76AD8DA33AAD0407D9E9A8113EFCF447DBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023210   (721613) от 06.06.2016
+
+Стас Михайлов - Сборник видеоклипов (2014-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Джиган ft. Стас Михайлов - Любовь-наркоз
+2.  Стас Михайлов - Девочка-лето
+3.  Стас Михайлов - Золотое сердце
+4.  Стас Михайлов - Любовь запретная(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534A67403F0E6234899588B9B8647EE6DBA61841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327132   (721372) от 23.04.2011
+
+Верка Сердючка полная видеоколлекция / Verka Serduchka complete the video collection (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
+</div>
+
+
+###  Подробнее
+
+В представленном DVD альбоме самые известные и любимые песни Верки Сердючки. Среди них «Я попала на любовь», «Я только с мороза», «Чита дрита» и другие песни. Альбом включает караоке самых любимых песен.Жанр: Музыкальное видео / КараокеПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2156DC26B89B3E1BAA1160C9405348D2EB5E92AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285251   (720705) от 26.02.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
+01. Thunder - She's So Fine
+02. Sebastian Bach - Tunnelvision
+03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669765   (717497) от 18.06.2013
+
+VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD.1.
+Продолжительность: 01:01:23 
+
+00. Intro(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BE91100491833E1E75F5AFF0FA6BD4ECDF5252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669592   (717388) от 18.06.2013
 
 Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
@@ -527,171 +696,6 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509939   (672568) от 13.06.2012
-
-DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE700591969F2A3EC492D13EA277FAA1AD284CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510106   (670648) от 14.06.2012
-
-Millenium Extended (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5128C6A391A534A01784F8D3AEF31673DF59E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510681   (670309) от 14.06.2012
-
-Сборник видеоклипов Millenium Extended (2012) [H.264] DVDrip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F71292376DA6106D268D5AC74221666AD9C6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223986   (667962) от 08.05.2018
-
-Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sexy Car Chag Rock Mix для этого лета !! Просто лучшее! Наслаждайтесь и ВКЛЮЧИТЕ ЗВУК! Отличное сочетание музыки драйва, чтобы быть счастливым и расслабиться на шоссе. Сексуальные девушки! Винтажные и спортивные автомобили!Жанр: Pop, RockПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00F134045436C7D656788E058C1B2CE39A474DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511266   (667212) от 16.06.2012
-
-DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CA9C3934377F632DD84EC28829E5162F7F2B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511827   (665981) от 17.06.2012
-
-Сборник видеоклипов Millenium Dance 7 - (2012) DVDRipH.264
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Elena Gheorghe - Midnight Sun
-02 Dina Gabri - Naughty Boy
-03 Corina feat.JJ - No Sleepin
-04 Juan Magan - Mariah
-05 September - Cry For You
-06 Ida Corr - What Goes Around Comes Around
-07 Taio Cruz - Break Your Heart
-08 Alexandra Stan - Lollipop
-09 Radio Killer - Lonely Heart
-10 Milk and Sugar vs Vaya Con Dios - Hey Nah Neh Nah(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

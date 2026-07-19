@@ -1,121 +1,3 @@
-###  Публикация: 949404   (377587) от 23.10.2015
-
-Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.To Be Continued [05:13]
- 02.By Chance [05:30]
- 03.Indigo [04:17]
- 04.Beyond [03:52](   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B77D8EF93912AA915E14D2309BE81708F362A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949594   (377417) от 23.10.2015
-
-VA - Smooth Jazz Relaxing (2015) [FLAC|tracks]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominic Miller - Air (feat. Danny Gottlieb, Richard Drexler) (04:55)
-02. Eumir Deodato - I Want You More (feat. Novecento, Al Jarreau) (04:09)
-03. Novecento - Vision (feat. Danny Gottlieb, Wayne Dockerty) (04:39)
-04. Alfredo Golino - Delicious (feat. Maurizio Fiordiliso) (04:48)(   Читать дальше...   )Производство: J.jazzЖанр: Smooth JazzПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6A09AC9104EC1EA43597220648223CA9C8239B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254179   (377387) от 12.10.2018
-
-Stan Getz - The Girl from Ipanema - The Bossa Nova Years (1984) 4CD, 1989, Verve Records [FLAC|Lossless|tracks + .cue] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377387.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Desafinado (5:53)
- 02. Samba Dees Days (3:36)
- 03. O Pato (The Duck) (2:32)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: CD1 - 01:07:16
-CD2 - 00:46:46
-CD3 - 00:52:47
-CD4 - 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3010FDF1F305D7EFF304953C8DCA3595749F9434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327328   (376848) от 24.09.2019
-
-Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now's the Time [9:03]
-02. How Insensitive (Insensatez) [26:04]
-03. Medley [31:58]Жанр: Hard Bop, Soul Jazz, Guitar JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CAC5A24F062AC3A2E84C1FE6CEB2E049A595B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175845   (376784) от 19.10.2017
 
 Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -753,6 +635,122 @@ Curtis Fuller - Soul Trombone & Cabin In The Sky (1961, 1962) 2011, Universal[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C1BC6F6693FA760FD70CB672DFDA7748E5CED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069457   (374162) от 04.11.2016
+
+Count Basie & His Orchestra - 1 O'Clock Jump (1958) 1992, LaserLight[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues [03:49]
+ 02.Indian Summer [03:15]
+ 03.Who, Me? [04:27]
+ 04.Jumpin' At The Woodside [04:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E7F2E4DE98AD714042EBB901452C2D36481CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069458   (374152) от 04.11.2016
+
+Michel Camilo & Tomatito - Spain Forever (2016) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Agua e Vinho [05:58]
+ 02.Our Spanish Love Song [04:38]
+ 03.Oblivion [06:13]
+ 04.Gnoissienne No.1 [06:00](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F375E6DA2C5DC25A45EAA7A648AD7B60921B55C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069197   (373986) от 04.11.2016
+
+Dave Brubeck - Truth Is Fallen (1971) 1998, Atlantic[FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prelude/Merciful Men Are Taken Away [11:09]
+ 02.Truth Is Fallen [07:57]
+ 03.Oh, That My Head Were Waters/Speak Out (duet)/I Called and No One Answered [06:08]
+ 04.Yea Truth Faileth [02:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705A09FED63242B66EA66DEBDE21F8FCD6EE81D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069469   (373862) от 04.11.2016
+
+Rebekka Bakken - Most Personal (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373862.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.A Whole Lot Of Angels [03:34]
+02.No Easy Way [04:46]
+03.Cover Me With Snow [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A505E8972704B58525F49D0776C7C9A0973B42D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

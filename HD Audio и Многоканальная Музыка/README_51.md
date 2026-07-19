@@ -1,90 +1,3 @@
-###  Публикация: 1628810   (241807) от 24.04.2023
-
-Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241807.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Do I
-A2 Shouldn't Do That
-A3 Your Appetite
-A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624583   (241806) от 07.04.2023
-
-Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241806.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		On The Beach - На берегу	5:04
-A2		Little Blonde Plaits - Маленькие светлые косички	4:17
-A3		Giverny	5:39
-A4		Lucky Day - Удачный день	3:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B71C09DB794D48807AFC21DFE38A10A7567B362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625380   (241702) от 10.04.2023
-
-Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side-A
-
-01. Rocket
-02. Believer(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625088   (241674) от 10.04.2023
 
 Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
@@ -607,35 +520,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590239   (239802) от 17.04.2023
-
-Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
-1992 - Laughing On Judgement Day
-1994 - Behind Closed Doors
-1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059810   (239608) от 24.04.2022
 
 Пикник - Иероглиф (1987) Repress 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Goth Rock>
@@ -745,6 +629,122 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:377807057B1E5E3B09C4CFFB907E7458C84EB9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638659   (238977) от 09.06.2023
+
+Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beseech — шведская готик-метал-группа из города Бурос, основанная в 1992 году, прекратившая существование в 2006 году и воссоединившаяся в конце 2013-го.1998 - ...From A Bleeding Heart
+2000 - Black Emotions
+2002 - Souls Highway
+2004 - DramaЖанр: Gothic MetalПродолжительность: 04:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572611   (238954) от 27.08.2022
+
+Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
+1984 - Wings of Tomorrow
+1986 - The Final Countdown
+1988 - Out of This World(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628540   (238933) от 23.04.2023
+
+Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238933.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Computerwelt 5:05
+A2 Taschenrechner 5:00
+A3 Nummern 3:00
+(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087724   (238862) от 27.04.2022
+
+Блестящие - Новое и лучшее (1999) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чао, Бамбино!
+02. Милый рулевой (RMX)
+03. Новый год
+04. Неоткрытое письмо(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

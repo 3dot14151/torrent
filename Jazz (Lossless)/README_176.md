@@ -1,119 +1,3 @@
-###  Публикация: 939997   (471523) от 23.09.2015
-
-Jeff Palmer - Island Universe (1995) /Soul Note/[APE|image+.cue]<Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.All Cracked Up [06:23]
-02.Loop Hole [06:26]
-03.Spot Check [07:08]
-04.Amerigo [09:02](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E04BAF699028C482774548D0B916EFEA4A36970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057997   (471447) от 30.09.2016
-
-Orrin Evans - Liberation Blues (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Devil Eyes [09:23]
- 02.Juanita [05:37]
- 03.A Lil' D.A.B. a do Ya [05:49]
- 04.A Free Man? [06:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147C6177723F8F614AC8B14FB37B85F0FECCCDBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058141   (471435) от 30.09.2016
-
-Art Blakey And His Jazz Messengers - Chippin' In (1990) [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brain Stormin' [06:33]
- 02.Byrdflight [06:19]
- 03.Hammerhead [06:51]
- 04.Aquarius Rising [05:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B3ADEEEA1640B519A4B9F15C345B72F8129731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939811   (471345) от 23.09.2015
-
-Lyn Stanley - Potions [from the 50s] (2014) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland
-02. Cry Me A River
-03. Fly Me To The Moon
-04. Hey There(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01064283DB0BEDE5E6361EA9861A48D5196E221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406952   (470518) от 05.09.2020
 
 David Sanborn - Anything You Want: The Warner-Reprise-Elektra Years 1975-1999 (2020) 3xCD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Jazz-Funk, Smooth Jazz>
@@ -768,6 +652,122 @@ V.A. - My Girl Light Soothing Jazz Temptations Tunes (2022) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A837BC0B208553C90109423A154752C7CB01F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246021   (467964) от 08.09.2018
+
+AMM - AMMMusic: 1966 (1966) Reissue, 1989 [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Later During a Flaming Riviera Sunset (6:51)
+ 02. Later During a Flaming Riviera Sunset (LP version) (21:07)
+ 03. Ailantus glandulosa (5:32)
+ 04. In the Realm of Nothing Whatever (13:22)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9B8D9B14B65238DCB5666EC172A80688CD7DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246013   (467896) от 08.09.2018
+
+Kenny Drew - Four Classic Albums (1953 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467896.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Yesterdays (Introducing the Kenny Drew Trio) [5:24]
+02. Stella by Starlight (Introducing the Kenny Drew Trio) [2:31]
+03. Gloria (Introducing the Kenny Drew Trio) [3:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CCA61FCE92CD2D1971601EAA951DC84F432330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245959   (467659) от 08.09.2018
+
+Giuseppe Milici Quartet - Jazz Tribute to Michael Jackson (2010) [FLAC|Lossless|image + .cue] <Smooth Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467659.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Liberian Girl
+2 You Are Not Alone
+3 Another Part of Me
+4 Billie Jean(   Читать дальше...   )Жанр: Smooth Jazz, Crossover JazzПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C8F1D7DA77395FA369A0B65BF2D34C91AE57F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161411   (467646) от 28.08.2017
+
+VA - Forum West - Modern Jazz From West Germany: Wewerka Archive 1962-1968 (2004) Sonar Kollektiv [APE|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Lauth Sextet / Intrada [02:23]
+02. Hans Koller Ensemble / Mingus Privat [03:52]
+03. Joe Haider Septet / Straight Out [05:35]
+04. Hans Koller Ensemble / Casa Loma [02:51](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Bop, Hard BopПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647E946836530C96AC9138AC58FB3F25C4373393
 ```
 
 https://mybot314.ru/tekegram_catalog/

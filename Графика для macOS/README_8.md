@@ -291,32 +291,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 206662   (747175) от 03.06.2010
-
-onOne Software Plug-In Suite 5.1 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_747175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plug-In Suite 5.1 включает в себя 6 Photoshop плагинов для максимальной помощи Photoshop. Genuine Fractals 6.0.6 Professional & Standard Editions для высококачественного увеличения, PhotoTools 2.5.3 Professional & Standard Editions, Mask Pro 4.1.8, PhotoFrame 4.5.1 Professional & Standard Editions для улучшения последнего штриха к фотографиям, PhotoTune 3.0.2 для профессионального качественного исправление окраски и FocalPoint для добавления размытия выделенному и виньеток к вашим фотографиям.Язык интерфейса: только английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524592   (743856) от 16.01.2022
 
 Magic Hider PRO 1.4.3 [Multi]
@@ -685,6 +659,32 @@ PaintCode for Sketch - Плагин - генератор кода для Sketch.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC0E62BE9B85FD24BA601D2A37994C743FB6F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283829   (731712) от 18.02.2019
+
+ApolloOne - Photo Video Viewer 2.3.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731712.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne- разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 16.02.2019Разработчик: Anogeissus LtdПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BF7A6A122A931BB85D1E86E02219BFA27D907D
 ```
 
 https://mybot314.ru/tekegram_catalog/

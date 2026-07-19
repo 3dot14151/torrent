@@ -1,119 +1,3 @@
-###  Публикация: 1194272   (157923) от 24.12.2017
-
-Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persona [06:07]
-02. Don't Forget The Poet [04:58]
-03. Child Of The Real And Ideal [05:41]
-04. Coralie [05:40](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600452   (157853) от 27.12.2022
-
-Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Si tu savais [2:47]
-02. Eveline [2:16]
-03. Diminishing [3:18]
-04. Mike [2:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA50B69916341DF5DD0BE92F455E1357A697A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676426   (157728) от 13.11.2023
-
-Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Here [2:24]
-02. Salsa For Luisito [6:56]
-03. The Dirty Ground [4:50]
-04. New Muse [6:06](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333F54659EC55D7AD6B593CD790F74F1008BD03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433686   (157434) от 21.12.2020
-
-Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power to Spirit (07:11)
-02. Funktokomatik (04:26)
-03. Truth to Power (05:24)
-04. The Radiance of Pure Reality (05:36)(   Читать дальше...   )Жанр: Eclectic FusionПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968130   (157401) от 23.12.2015
 
 Eddie Cano & His Quintet - Brought Back Live From P.J.'s (1967) 2014, Universal[FLAC|tracks+.cue] <Afro-Cuban Jazz, Latin Jazz>
@@ -745,6 +629,122 @@ Ahmad Jamal - Ballades (2019) Jazz Village [FLAC|Lossless|tracks + .cue] <Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E29B0203D4A407276E40D93B1B9F48C10B13254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194639   (155687) от 25.12.2017
+
+Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight (03:44)
+02. Baby Lone (03:47)
+03. That's Right! (03:19)
+04. Stay Swing (03:33)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346964   (155484) от 21.12.2019
+
+Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Feel So Young [3:24]
+02. Pennies from Heaven [3:18]
+03. It Had to Be You [3:08]
+04. When You're Smiling [3:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346960   (155448) от 21.12.2019
+
+Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tu Ase Turpa Ikavi
+02. Plane Song
+03. Belfast
+04. Nine Million Bicycles(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8578F32168CA16952CC221D92E940DDB0D0C4214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433826   (155040) от 22.12.2020
+
+Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n' Easy [3:37]
+02. Body and Soul [6:27]
+03. But Not for Me [5:42]
+04. Moonglow [3:57](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B764CBCB7E600C216999069EE0285AC6AA5F93D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

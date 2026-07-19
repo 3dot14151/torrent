@@ -1,29 +1,3 @@
-###  Публикация: 1514468   (216453) от 03.12.2021
-
-Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во мраке далекого будущего есть только война. Warhammer 40,000: Battlesector – это бесконечные взрывы и хруст костей, отвага и смерть. Это динамичная и зрелищная пошаговая стратегия, которая перенесет вас на поля сражений 41-го тысячелетия. Собирайте войска, развивайте армию, отправляйте в бой могучих героев и бейтесь за победу, применяя тактические приемы, мощные (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Lab GamesЖанр: Пошаговая тактическая стратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5937EE4ED5F070F3C331ACA099B8E8FF4DD42B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514097   (216240) от 03.12.2021
 
 Combat Mission Cold War (2021) [Multi] (1.02.00) License SKIDROW
@@ -667,6 +641,32 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FEF727B4B1B60B13AE9ED7B9947BF1D788F8C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086275   (151020) от 24.12.2016
+
+Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.10243) SteamRip R.G. Игроманы
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Dawn of War II. Разработанная отмеченной наградами Relic Entertainment, Dawn of War II открывает новую главу знаменитой RTS-серии, перенося игроков на передовые боевые позиции, где им предстоит возглавить элитные ударные силы в миссии по спасению галактики.Тип издания: SteamRipРазработчик: Relic EntertainmentЖанр: Strategy (Real-time),  Add-on (Standalone), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1135583   (679512) от 20.05.2017
-
-Duke Ellington - This Is Jazz (1927 - 1959) 1996, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-O [03:06]
-02. In a Sentimental Mood [03:17]
-03. Stompy Jones [02:41]
-04. Prelude to a Kiss [02:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2748E8A4B90A2261E86BD6A00E7950F3088508D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135578   (679511) от 20.05.2017
-
-Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Star Dust [02:30]
-03. One O'Clock Jump [05:16]
-04. Stormy Weather [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5441C457FA8921AD172D7D088A531DBF5F39A6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135587   (679507) от 20.05.2017
-
-Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin American Sunshine [06:58]
-02. C-Jam Blues [05:13]
-03. Caravan [06:12]
-04. Paris Blues [03:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA00BB5156C8B3837B9C30DB3578AF490C7AE0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135476   (679505) от 20.05.2017
-
-Duke Ellington and His Great Vocalists: Best of the Big Bands (1930-e - 1950-e) 1995, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean a Thing (If It Ain't Got That Swing) (feat. Ivie Anderson) [03:12]
-02. St. Louis Blues (feat. Bing Crosby) [04:33]
-03. I Can't Give You Anything But Love (feat. Ethel Waters) [03:13]
-04. Diga Diga Do (feat. The Mills Brothers) [03:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5B9F444E23DF5A4286942BE1327B404E8D3513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135696   (679424) от 20.05.2017
 
 Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -745,6 +629,122 @@ Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5184BFF10457A6A1F83C0DAA4F75F0E18A196F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135841   (677297) от 21.05.2017
+
+Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 1965, Part 2 (2002) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [04:43]
+02. Meow [04:42]
+03. Passion Flower/Things Ain't What They Used to Be [07:44]
+04. Jeep's Blues [04:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2581B0E7EE42BB1BA6B73B96990A091070981F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135994   (677293) от 21.05.2017
+
+Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [04:41]
+02. I Got It Bad (And That Ain't Good) [02:37]
+03. Perdido  [03:15]
+04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135907   (677288) от 21.05.2017
+
+Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Stem [02:52]
+02. Chelsea Bridge [02:56]
+03. Jump for Joy [02:57]
+04. What Am I Here For? [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA060DC67DA04B8D665481F53B7F59A50C3AAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135998   (677276) от 21.05.2017
+
+Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [02:07]
+02. Comes Once in a Lifetime [01:47]
+03. Sophisticated Lady [03:32]
+04. Chopin's Etude in E [03:00](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1318120D65BEBC1227CE89AFC18BBEEFFB8E22DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

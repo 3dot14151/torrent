@@ -1,3 +1,32 @@
+###  Публикация: 973528   (979212) от 09.01.2016
+
+DJ FEEL - Best 30 Russian Tracks 2015 (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - Shanghai (Original Mix)
+02. DRYM - Zodiac (Original Mix)
+03. Arys - Erazer (Original Mix)
+04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA095F32ABAA3557A97B4D3923076113F4E0DC17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973827   (979209) от 09.01.2016
 
 BlueHarvest 6.3.4 [Multi/Ru]
@@ -682,39 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:825D610899955D8585873694EA87DD48FD2725D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614513   (978973) от 07.02.2013
-
-Inner Missing - Perjury (2013) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sea Of Grey
-2. At High Altitudes
-3. Blindfolded
-4. The Stranglehold Romance
-5. Death On Our Soles
-6. Frigid Stars
-7. Perjury
-8. LifersЖанр: Gothic Doom/Dark MetalПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05776D188B30FABDFD33D5E22B6C007C5C5D0CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

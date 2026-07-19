@@ -1,119 +1,3 @@
-###  Публикация: 1686829   (126212) от 24.12.2023
-
-Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milano [6:09]
-02. Well, You Needn't [6:21]
-03. K.C. Blues [9:14]
-04. A Night in Tunisia [8:00](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686831   (126179) от 24.12.2023
-
-Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora's Theme [6:38]
-02. Morning Song of a Spring Flower [7:05]
-03. All Blues [7:48]
-04. Falling in Love [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12811F8B1191DAEEE9C029BBC9881F1373343864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686787   (126178) от 24.12.2023
-
-Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Barbara [6:51]
-02. Afro Blues [5:33]
-03. Round About Midnight [10:13]
-04. Memphis Green [5:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86707B332CAFE2923B579808418611AAF45A976D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686791   (126177) от 24.12.2023
-
-Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy McNasty [11:03]
-02. Doin' the Thing [11:16]
-03. Kiss Me Right [9:19]
-04. The Gringo [10:55](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 07:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6830A60A29D4D29B898A59BD8C867B54A44BA834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687055   (125730) от 25.12.2023
 
 Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580B1FBD0D18B39C7911165E3588CC440059D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688553   (125018) от 30.12.2023
+
+VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (1929 - 1980) 2023, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima Orch. - What Will Santa Claus Say (When He Finds Everybody Swingin') (3:13)
+02. Bob Crosby's Bob Cats - Blow Blow Thou Winter Winds (2:18)
+03. The Ramblers - Let It Snow! Let It Snow! Let It Snow! (2:32)
+04. Louis Armstrong Orch. - I Hope Gabriel Likes My Music (3:19)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688516   (125000) от 30.12.2023
+
+Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960) 2CD, 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Blues [7:36]
+02. Outburst [4:39]
+03. Left Alone [6:08]
+04. Contour [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688531   (124996) от 30.12.2023
+
+VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosemary Clooney - Christmas Time Is Here (3:12)
+02. The Ken Peplowski Quartet - Have Yourself a Merry Little Christmas (3:40)
+03. The Gene Harris Quartet - I'll Be Home for Christmas (4:49)
+04. Jeannie & Jimmy Cheatham - An Apple, an Orange and a Little Stick Doll (3:39)(   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Mainstream JazzПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6E88F18C0D8C34CE90FC54EA7B2679F09E8116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688677   (124994) от 30.12.2023
+
+#1 Hits Now - Winter Chillout Experience Smooth Beats to Zone Out To(2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Dimension (3:46)
+02. Chill Trance (3:38)
+03. Sense of Freedom (3:50)
+04. New Energy (6:06)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

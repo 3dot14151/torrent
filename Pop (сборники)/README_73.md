@@ -1,90 +1,3 @@
-###  Публикация: 1044536   (563584) от 21.08.2016
-
-VA - Summer Hit Party (2016) [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Wonder - Without You
-02. Uppermost Feat. Jessica Gabrielle - Whisper
-03. Martin Garrix - Bouncybob
-04. Rasmus Skott - Acted Show(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D33A63AAF4D0A11E55D8EC318211EF32280849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152792   (563285) от 24.07.2017
-
-VA - German Top 100 Single Charts 24.07.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563285.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Imagine Dragons – Thunder
-003. Robin Schulz – OK (feat. James Blunt)
-004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F2B8B6F2B01FC5ED84D84F2D39C317A670420C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152762   (563010) от 24.07.2017
-
-VA - Unknown 80's (part VIII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geisha - Calling Your Name - 1987
-02. Safe Sex - Bad Manners (Disco Action Mix) - 1987
-03. Costas Charitodiplomenos - Pictureless - 1984
-04. Mariana - Talk About Love - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058E70651E2F53BA572C478658EFD421415D0D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044694   (562620) от 21.08.2016
 
 VA - Танцевальный Ритм 7 (2016) [MP3|256 Kbps] <Pop>
@@ -757,6 +670,92 @@ VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305931   (555930) от 02.06.2019
+
+VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555930.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samra & Capital Bra - Wieder Lila
+002. Juju - Vermissen (feat. Henning May)
+003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305977   (555873) от 02.06.2019
+
+VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moon Taxi - Now's The Time
+002. Ally Brooke feat. A Boogie Wit Da Hoodie - Lips Don't Lie
+003. Градусы - Не Уходи
+004. Jam & Spoon Feat. Plavka Vs. D - Right In The Night (Rico Bernasconi Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306247   (555829) от 03.06.2019
+
+VA - German Top 50 Party Schlager Charts 03.06.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Andrea Berg - Die geheimen Träumer
+03. Kerstin Ott - Regenbogenfarben
+04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: Pop, Schlager
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F334887E2E9291BDFD827C47DA6AC306D24DAFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

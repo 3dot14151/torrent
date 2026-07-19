@@ -1,3 +1,148 @@
+###  Публикация: 1754096   (103758) от 08.10.2024
+
+Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Wolf [00:03:08]
+02. Did It Again [00:03:12]
+03. Long Time [00:02:56]
+04. Why Wait [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A22819EECE5447726E8071F56BB6914EB9E8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754833   (103695) от 12.10.2024
+
+Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Not For You (Remastered 2022) [00:02:53]
+02. Banks Of The Ohio (Remastered 2022) [00:03:18]
+03. Love Song (Remastered 2022) [00:03:46]
+04. Take Me Home Country Roads (Remastered 2022) [00:03:22](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754821   (103689) от 12.10.2024
+
+Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (Remastered 2022) [00:03:45]
+02. If (Remastered 2022) [00:02:26]
+03. Banks Of The Ohio (Remastered 2022) [00:03:15]
+04. In A Station (Remastered 2022) [00:03:07](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FD470819F1D00B56FE8B545B1F7065C5363A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759797   (103251) от 10.11.2024
+
+Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor Che Muovi Il Sole
+02. Una Come Te
+03. Just Breathe
+04. Sailing(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067610092508485C49251B341E33133DCF333702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759782   (103213) от 10.11.2024
+
+Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Йога или спирт
+02. Гоа
+03. Зелена фея
+04. Качели летящие вверх (Сообщение)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606212EDBDE8F4A8B6E42C3572ED62374153DB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763413   (102809) от 01.12.2024
 
 Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, Pop Rock, Rock>
@@ -630,151 +775,6 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776613   (71186) от 02.02.2025
-
-VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Mraz - I’m Yours (Radio Edit) (3:34)
-02. Ed Sheeran - Perfect (4:23)
-03. Sia - Gimme Love (2:57)
-04. All-4-One - I Swear (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776717   (71131) от 03.02.2025
-
-Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Irréel 2 [00:03:19]
-02 - Abracadabra [00:03:20]
-03 - Mes nuits [00:03:04]
-04 - Démon [00:02:16](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B78860EB53A6109B652CAE0CC0FD0C91D9E4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778648   (70849) от 09.02.2025
-
-Максим Бородін - Якби не ти (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Якби не ти (2:48)
-02. Скажи мені (2:49)
-03. З гори в гору (2:41)
-04. Зозуленька (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780051   (70555) от 16.02.2025
-
-V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gino Santi - Tornero
-02. Claudia Donato - Se Ne Va
-03. Angela Amico - Andiamo Via
-04. Umberto Mariotta - Grande Grande Grande(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782381   (69992) от 01.03.2025
-
-Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rhythm and Blues, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Not That Kind [3:21]
-02 - I'm Outta Love [4:03]
-03 - Cowboys & Kisses [4:41]
-04 - Why'd You Lie to Me [3:43](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, Pop RockПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

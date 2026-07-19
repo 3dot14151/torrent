@@ -1,3 +1,148 @@
+###  Публикация: 1723614   (109420) от 16.05.2024
+
+The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vitamin U [00:03:01]
+02. Got Me Good [00:02:47]
+03. Do You Like Me [00:02:44]
+04. Baby Doll [00:03:22](   Читать дальше...   )Жанр: Power-Pop, RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7343241531784D299828F44E94B4C85C01EBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726782   (108647) от 30.05.2024
+
+Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where We Going (Intro) (1:59)
+02. When It Comes To Loving You (3:52)
+03. Weekender (3:47)
+04. A Message For Broken Hearts (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728669   (108310) от 08.06.2024
+
+Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, Rocket [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Fantastic And The Brown Dirt Cowboy
+02. Tower Of Babel
+03. Bitter Fingers
+04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730506   (107868) от 16.06.2024
+
+VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I’m Good (Blue) (2:55)
+02. LF System - Afraid to Feel (2:57)
+03. Tiësto - 10 - 35 (2:52)
+04. Ava Max - My Head & My Heart (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A254A75AAA00DD5D5A43AB5D78337F077A98CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730500   (107845) от 16.06.2024
+
+GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfortable [00:02:49]
+02. Nu Nu [00:03:06]
+03. I.O.U. [00:02:44]
+04. Don't Stop [00:02:35](   Читать дальше...   )Жанр: R&BПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3C6E1CA2D230CFD8EA49F7966791C759B4EE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730491   (107843) от 16.06.2024
 
 Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
@@ -600,148 +745,6 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6809C8E97A908EA73AEB209337282C89E9217AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742230   (105585) от 10.08.2024
-
-Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slide Down the Wall [00:02:23]
-02. It's Nice to Feel This Way Again [00:02:25]
-03. Beautiful Eyes [00:02:49]
-04. Gone [00:02:17](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1AF1F580C59183B0D742B2D59252CAC087F3E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743322   (105471) от 15.08.2024
-
-VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wale, Rihanna - Bad (Remix)Жанр: PopПродолжительность: 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744846   (105229) от 23.08.2024
-
-Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls on Film (AIR Studio Version - Early Demo) [00:04:00]
-02. Tel Aviv (AIR Studio Version) [00:06:03]
-03. Anyone out There (Manchester Square Demo) [00:04:11]
-04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 2 CD, 02:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264C3FA326FF032D7B64F9FD87D550A7A4E59635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745004   (105199) от 24.08.2024
-
-Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Reflex (Single Version) [00:04:26]
-02. The Reflex (Album Version) (2010 Remaster) [00:05:29]
-03. Make Me Smile (Come up and See Me) (Live) [00:04:58]
-04. The Reflex (Dance Mix) [00:06:34](   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D327F184C535CFDBD97DC21F5329A18D4C85EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745011   (105179) от 24.08.2024
-
-Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <New-Wave, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet Earth (Single Version) [00:04:02]
-02. Late Bar [00:02:57]
-03. Planet Earth (Night Version) [00:06:18]
-04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New-Wave, Synth-pop, DiscoПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7F55982875440633B1F3D2742F8E54DFC6ADEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

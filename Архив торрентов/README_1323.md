@@ -1,145 +1,3 @@
-###  Публикация: 1215477   (758223) от 26.03.2018
-
-Autism - Empty Kingdoms (1995 - 2007) (2007) Segment [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 14 Minutes Of Fame (04:28)
- 02. Nero - Zero (04:19)
- 03. Wizard Of Cords (06:54)
- 04. Lost In The Sunflowers (04:00)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12156BE2AC9D367834225D4FF38E3929DC6AEB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215463   (758219) от 26.03.2018
-
-Coil performed by VA - …It Just Is (In Memoriam: Jhonn Balance) (2005) Fulldozer Records / Nocharizma [FLAC|Lossless|tracks+.cue] <IDM, Noise, Experimental, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CoH - No Balance (01:09)
- 02. Alva Noto - Odradek (Musick To Play In The Dark) (09:36)
- 03. Schlammpeitziger - Konliktfickfahig (Live) (03:34)
- 04. Goodiny & PCP - Black Sunraiz (07:37)(   Читать дальше...   )Жанр: IDM, Noise, Experimental, Industrial •Продолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F886625B99E41615C2E7B63C65DA14C30317ECF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215437   (758214) от 26.03.2018
-
-Certain Creatures - Nasadiya Sukta (2018) Mysteries Of The Deep [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross Star Woman (05:50)
- 02. Nyau Dust (07:26)
- 03. Golden Circle (05:26)
- 04. Tachyon (05:25)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F35D84E40D4A6273797E6178F3D7D39D7C004FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215473   (758213) от 26.03.2018
-
-Vulva - Birdwatch (1996) Rephlex [FLAC|Lossless|tracks+.cue] <Techno, IDM, Acid>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birdie! Sad Birdie! (05:41)
-02. Wailing Vulvas (07:22)
-03. Hornithology (07:12)
-04. Thrush (06:25)(   Читать дальше...   )Жанр: Techno, IDM, AcidПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C3F577ED5BDAEF383F0B59FE27F141EC8820D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280554   (758206) от 04.02.2019
-
-Вдовы / Widows (2018) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758206.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о жёнах грабителей, погибших при неудачном налёте. Новоиспечённые вдовы берутся сами закончить начатое, разобраться с полицией и конкурентами, а главное — выяснить, кто же подставил их мужей.Производство: Великобритания, США, Regency Enterprises, See-Saw Films, Film4Жанр: Триллер, драма, криминалРежиссер: Стив МакКуинАктеры: Виола Дэвис, Лиам Нисон, Джон Бернтал, Мануэль Рульфо, Коберн Госс, Мишель Родригес, Алехандро Вердин, Бейли Рюз Уолтерс, Элизабет Дебики, Кэрри Кун и др.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced, full), английскиеПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D853A99B07B393DC4F8ACE9B5CFE3637CD083476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280809   (758204) от 04.02.2019
 
 Богемская рапсодия / Bohemian Rhapsody (2018) BDRip [H.264]
@@ -712,6 +570,145 @@ Jóhann Jóhannsson (Johann Johannsson) - Englabörn & Variations (2018) Deutsch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:875FC221107FB2AD7AA3758E4C8D684E1C297E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215642   (757937) от 26.03.2018
+
+Фигурное катание. Чемпионат Мира 2018. Милан (Италия). Показательные выступления (25.03.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757937.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2018 года, воскресенье 16:30 МСК
+Чемпионат Мира по фигурному катанию 2018 года. Милан (Италия)
+Показательные выступления
+Арена: Медиоланум Форум (Милан, Италия)Телекомпания: Матч! Арена HDЖанр: Спорт, ШоуЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E6846AFF19E17F0B9982AA9D1F503AD504C402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215497   (757936) от 26.03.2018
+
+Cyberfox 52.7.2 for Intel + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ACA7AC26E9A3120842065593F735FDD585546D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215454   (757935) от 26.03.2018
+
+Greyhound - Noisewhisperer (2007) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Planet (05:42)
+ 02. Life Forms (04:09)
+ 03. Geräuschzuflussverteileinheiten (05:10)
+ 04. Autoerotic (05:16)(   Читать дальше...   )Жанр: Rhythmic Noise, IndustrialПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C1ADFB734F874127D11FCFFEABA8F8E8ED650C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215583   (757934) от 26.03.2018
+
+Warren G - I Want It All (1999) [MP3|320 Kbps] <Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:38)
+02. Gangsta Love (feat. Kurupt, Nate Dogg & RBX) (4:03)
+03. Why Oh Why (feat. Daz Dillinger & Kurupt) (4:01)
+04. Dollars Make Sense (feat. Crucial Conflict & Kurupt) (4:32)(   Читать дальше...   )Жанр: RapПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF6CFA090DF4501BAAF5D887B309C33456A3257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533020   (757926) от 27.04.2014
+
+BBC. Horizon: Поглотители таблеток / Pill Poppers (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю нашу жизнь нас пичкают таблетками, в среднем конечно, мы съедаем около 14 тысяч штук. Разного размера, цвета и назначения, а также, о ля ля, улучшающие положение дел в постели. Возможно, таблетки спасут вам жизнь или продлят её на десятилетия, а возможно загонят в могилу. Лекарства, по мнению медиков, являются чудом, а с другой стороны – что мы знаем об их механизме воздействия на наш организм? Насколько они безопасны? Наркоманы, конечно же, не в счет, они то знают.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4E81D189ED72249FBF4D948D2942E72B3E598
 ```
 
 https://mybot314.ru/tekegram_catalog/

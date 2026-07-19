@@ -1,32 +1,3 @@
-###  Публикация: 1570598   (438362) от 19.08.2022
-
-Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visitors (The Alien Mix)	6:09
-02. Time	6:26
-03. Dragons Legend (Siegfried's Mix)	6:21
-04. Minoan War	5:53(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570768   (438301) от 19.08.2022
 
 A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
@@ -749,6 +720,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15AA127EBFD6CD36DF8511C4265880911D2502FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578106   (350166) от 21.09.2022
+
+Технология - Лучшие Песни (2001) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, Europop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нажми на кнопку
+02. Странные танцы
+03. Там
+04. Холодный след(   Читать дальше...   )Жанр: Electronic, Synth-pop, EuropopПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AEB2D734B3184F9996E038B2956E197635F1BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

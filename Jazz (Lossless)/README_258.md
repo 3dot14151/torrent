@@ -1,119 +1,3 @@
-###  Публикация: 1641373   (235427) от 22.06.2023
-
-Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [7:41]
-02. Bopping with Bud [7:32]
-03. Agnieszka [9:33]
-04. Tip Top and Tickety Boo [4:36](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AF77EB955BC15CDF2A9B5007EE22A405C5D430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641369   (235419) от 22.06.2023
-
-Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plain Jane [9:58]
-02. You Stepped Out of a Dream [6:24]
-03. Reflections [7:03]
-04. Sonnymoon for Two [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53647442D9353467C2C80C6857F12854683911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618595   (235399) от 12.03.2023
-
-Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [7:35]
-02. Russian Melody [6:17]
-03. I Thought About You [9:41]
-04. Snake Out [7:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879E787E5DC4BCF8FCB69E62187AB2E4E31C09B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530683   (235398) от 12.02.2022
-
-Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindiff [3:11]
-02. Trieste My Love [1:56]
-03. Nisa [2:25]
-04. Blue Bolero [2:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D371D16F9BEDEB46E7DF8FFE334E39264191F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460103   (235369) от 04.04.2021
 
 Chet Baker - As Time Goes By (1986) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
@@ -745,6 +629,122 @@ George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6334A00AD7BA7174619C85EA969C634E84799593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621131   (234783) от 24.03.2023
+
+Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outsider [7:14]
+02. Three Armed Man [5:23]
+03. Barebones [6:46]
+04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642382   (234767) от 27.06.2023
+
+Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocky Scotch [4:41]
+02. Under The Lilacs [5:07]
+03. They Say It's Wonderful [5:49]
+04. Potrezebie [4:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621341   (234753) от 24.03.2023
+
+Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction & 'Go With The National Guard' Jingle [1:49]
+02. Day In, Day Out [2:05]
+03. National Guard Promo & Conversation [1:08]
+04. Midnight Sun [4:38](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDD0BA38768F8929939321F6D48317D2E9BCF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642384   (234736) от 27.06.2023
+
+Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Major Minority [4:22]
+02. Yesterday's Gardenias [6:37]
+03. One Way/Detour [5:02]
+04. Morning Nocturn [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86BDD90A16324DDB64EE56E7559E4E3594FABD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

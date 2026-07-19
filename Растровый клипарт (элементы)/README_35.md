@@ -1,29 +1,3 @@
-###  Публикация: 1791284   (67851) от 13.04.2025
-
-Растровый клипарт - Creative Store - Creative Fabrica - Fall Orange Watercolor Flowers Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние оранжевые акварельные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791291   (67845) от 13.04.2025
 
 Растровый клипарт - STCrafts - Creative Fabrica - Magenta Pink Glitter Flowers Pattern [PNG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A0EDD24B7554B9580A3985FBAB51395AA5DD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792692   (67647) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Wonderland Seamless Patterns [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные узоры на летнюю тему. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CC10A21627805EAD4F78F3869A64D5A5CAF76D
 ```
 
 https://mybot314.ru/tekegram_catalog/

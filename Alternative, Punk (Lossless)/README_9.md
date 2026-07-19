@@ -1,3 +1,119 @@
+###  Публикация: 758081   (914327) от 18.02.2014
+
+Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fluid
+02. Charm
+03. Buried
+04. Nightmare (falling in love)(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A83A613154513DF0078F15AD956046A3E62ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368023   (913921) от 17.03.2020
+
+Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon Rising (03:43)
+02. Wandering Star (03:38)
+03. Come On Outside (04:11)
+04. Blue Moon Rising (The Reflex Revision) (07:39)(   Читать дальше...   )Жанр: Indie Rock, Brit PopПродолжительность: 00:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E087E702156B5718497970215CB568DFD8195F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368796   (907504) от 21.03.2020
+
+Worriers - You or Someone You Know (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - End of the World
+02 - PWR CPLE
+03 - Big Feelings
+04 - Terrible Boyfriend(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE79EAB26E3B65792883EED5FD6F1A9E1829A008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099077   (907192) от 31.01.2017
+
+Sundara Karma - Youth Is Only Ever Fun In Retrospect (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Young Understanding (4:04)
+02. Loveblood (3:48)
+03. Olympia (4:12)
+04. Happy Family (6:02)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E840DFA28D8AFCB521D44956A366EB5234AB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099446   (905023) от 01.02.2017
 
 No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
@@ -627,122 +743,6 @@ Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D06AFF7EAD686A8506AA1CF47D254E49DA2393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102151   (890565) от 09.02.2017
-
-Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photograph (4:20)
- 02. How You Remind Me (3:44)
- 03. Burn It to the Ground (3:31)
- 04. Rockstar (4:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371318   (890189) от 31.03.2020
-
-The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – No One Falls Alone
-02 – Going Back To Stockholm Syndrome
-03 – Clementine
-04 – Straight Into The Bridge(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102668   (889456) от 10.02.2017
-
-R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harborcoat (3:54)
-02. 7 Chinese Bros. (4:18)
-03. So. Central Rain (3:16)
-04. Pretty Persuasion (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435922   (889258) от 08.03.2016
-
-Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (0:30)
-02. Theater (2:42)
-03. Make A Move (3:04)
-04. Get Well (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
 ```
 
 https://mybot314.ru/tekegram_catalog/

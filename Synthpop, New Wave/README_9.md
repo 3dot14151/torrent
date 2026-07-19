@@ -1,32 +1,3 @@
-###  Публикация: 1578106   (350166) от 21.09.2022
-
-Технология - Лучшие Песни (2001) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, Europop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нажми на кнопку
-02. Странные танцы
-03. Там
-04. Холодный след(   Читать дальше...   )Жанр: Electronic, Synth-pop, EuropopПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AEB2D734B3184F9996E038B2956E197635F1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179239   (349217) от 31.10.2017
 
 DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
@@ -740,6 +711,35 @@ Reinhard Lakomy - Das Geheime Leben (1982) LP [MP3|320 Kbps] <Electronic, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C00FC0B0CC6AB64C7B35E49973E820C1143519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335455   (284095) от 04.11.2019
+
+Маяк - Дискография (4 релиза) (2013-2014) [MP3|160-320 Kbps] <Retro Wave,  Lo-Fi, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна 03:01
+02. Смутное время 04:11
+03. Юность 03:41
+04. Смерть боится молодых 03:29Жанр: Retro Wave,  Lo-Fi, SynthwaveПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765713AF64DAB65EBEAF796DF77ACD4653D10030
 ```
 
 https://mybot314.ru/tekegram_catalog/

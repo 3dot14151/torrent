@@ -1,3 +1,32 @@
+###  Публикация: 1679434   (137627) от 25.11.2023
+
+Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus (3:32)
+02. Love Is Blue (3:56)
+03. What’s That Look (3:26)
+04. Romanism (3:08)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679558   (135200) от 26.11.2023
 
 VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
@@ -727,35 +756,6 @@ VA - Ronny's Pop Show 25 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FD217088D258F5767ED23D0B49FF951B4BD86BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690744   (123673) от 09.01.2024
-
-VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep Groove, Nu Disco, Funky, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glz, Venessa Jackson – The Night (M0na-K Remix) 4:24
-02. David Jansen, Pierre Galli – Can’t Get Enough 6:29
-03. Benny Dawson – Falling 7:16
-04. Christian Desnoyers – From Left To Right (Filj Italo Disco Remix) 5:24(   Читать дальше...   )Жанр: Soulful, Deep Groove, Nu Disco, Funky, Indie DanceПродолжительность: 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4171A06E92D6ECD9F8D0EBB7D9786AA604E99D0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

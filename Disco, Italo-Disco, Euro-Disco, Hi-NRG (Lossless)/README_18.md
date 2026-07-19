@@ -1,3 +1,96 @@
+###  Публикация: 1169835   (401510) от 29.09.2017
+
+Юрий Соснин - Для тебя (2015) [FLAC|Lossless|tracks] <Italo-Disco, Spacesynth, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождество (5:23)
+02. Happy New Year ! (4:43)
+03. Иллюзия (4:55)
+04. Digital Dance (4:16)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, InstrumentalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE23F80B8AB008744BECB4727F0D2FD44A019536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566975   (396697) от 29.10.2012
+
+Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Radio 04:02
+02. Love To Love You Baby 04:15
+03. Try Me, I Know We Can Make It 03:18
+04. I Feel Love 03:21
+05. Our Love 03:46
+06. I Remember Yesterday 04:46
+07. I Love You 03:11
+08. Heaven Knows 03:31
+09. Last Dance 04:59
+10. MacArthur Park 03:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171409   (395585) от 05.10.2017
+
+Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (5:15)
+ 02. Gonna Get You (5:20)
+ 03. Hysteria (4:05)
+ 04. Love On The Dance Floor (6:32)(   Читать дальше...   )Жанр: Disco, HouseПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577B7D5D59AA593C8857479F394BFF559EC535DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171616   (393947) от 07.10.2017
 
 Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
@@ -667,93 +760,6 @@ Maxine Nightingale - Lead Me On (2004) [FLAC|Lossless|tracks + .cue] <Rhythm & B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7889C535571FF0509DEB47C5F218501125F61853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329962   (348001) от 07.10.2019
-
-Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Automat 15:58
-➥ 1.a (The) Rise 6:08
-➥ 1.b (The) Advance 4:05
-➥ 1.c (The) Genus 6:35(   Читать дальше...   )Жанр: Disco, ElectroПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF9A9860156531985E59EE0988DAA9B865D218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329928   (347863) от 07.10.2019
-
-Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (4:28)
-02. Radioactivity (From The Ucraine) (6:41)
-03. Ultra Warp (Armaged Don Mix) (5:15)
-04. Theme From Knight Rider (6:23)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8845EB7322C942F3CBAFC7E65264C2F65BF0C2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580538   (342462) от 25.11.2012
-
-Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если перевести с итальянского название диска, то оно звучит как "Только Челентано". В отличии от 3-х боксового сета 2006 года с таким же названием, в сборнике 2011 года лишь один диск. Я бы назвал его "Unicamente Super-Celentano"01. C'e Sempre Un Motivo    [0:05:25]
-02. Io Sono Un Uomo Libero    [0:05:48]
-03. Le Stesse Cose    [0:05:42]
-04. L'Emozione Non Ha voce (Io Non So Parlar D'Amore)    [0:04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

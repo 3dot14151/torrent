@@ -1,3 +1,32 @@
+###  Публикация: 1518025   (157566) от 18.12.2021
+
+Звуковые библиотеки - Sonuscore - Lyrical Cello Phrases v1.2 RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная скрипка соло.
+Эпоха потрясающего звука - ощутите настоящий звук важного инструмента от одного из самых известных в мире производителей скрипок.
+Созданная Антонио Страдивари в 1727 году скрипка Везувий воплощает в себе непревзойденное мастерство итальянских мастеров.
+STRADIVARI VIOLIN воссоздает звучание этого исторического инструмента, на котором мастера-музыканты (   Читать дальше...   )Формат: Kontakt: NICNT, NCW, NKI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC5E0911C1EAC4FBC5FC9A282A0EC5DC3CFEE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346640   (156914) от 20.12.2019
 
 Boom Library - Cinematic Strikes Designed [WAV]
@@ -656,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2F881F3BC9013C02DE0C05D836D83E641693DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712576   (112141) от 03.04.2024
-
-Звуковые библиотеки - Amazon - Blastwave FX Haunted Halloween 300 Scary Sound Effects from Beyond the Grave [FLAC]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные сэмплы звуковых эффектов Хэллоуина  для создания фильмов данной тематики.Формат: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE2FFB2BD850FECA45A780EEF94788AB4052420
 ```
 
 https://mybot314.ru/tekegram_catalog/

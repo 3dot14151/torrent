@@ -1,3 +1,139 @@
+###  Публикация: 705191   (881060) от 14.02.2017
+
+Кошки / Cats (1998) BDRip [ENG]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881060.jpg" />
+</div>
+
+
+###  Подробнее
+
+КОШКИ Эндрю Ллойда Уэббера - один из самых популярных мюзиклов всех времен, впервые "выстрелил" на сцене Вест-Энда в 1981 году. "Память", одна из самых запоминающихся песен постановки, стала классическим хитом. С тех пор КОШКИ побили все мыслимые рекорды и покорили мир. Звездный актерский состав под предводительством Элейн Пэйдж и сэра Джона Миллса, (   Читать дальше...   )Жанр: МюзиклРежиссер: Дэвид МалеАктеры: Джеймс Баррон, Джо Бингхэм, Джейкоб Брент, Кэй Браун, Филлида Краули Смит, Джейсон Гардинер, Джеффри Гаррэтт, Джо ГиббПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72EDCD5DB34E8A965E994F7EE683B349AED7F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764013   (881048) от 08.03.2014
+
+Наутилус Помпилиус - 30 лет под водой (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках празднования 30-летия группы «Наутилус Помпилиус» запланировано три особенных концерта с участием разных составов легендарного коллектива в трёх городах - Москва, Санкт-Петербург, Екатеринбург01. Тутанхамон - "Ю-Питер" совместно с театром клоунады "Лицедеи"
+02. Всего лишь быть - "Ю-Питер" совместно с Максимом Ивановым из рок-группы "Торба-на-Круче"
+03. Кто ещё - "Ю-Питер" совместно Ильёй Разиным из рок-группы "Полюса"
+04. Отход на север - "Ю-Питер" совместно с Ильёй Лагутенко из рок-группы (   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E80BCBDC2A137FA14DAC984614E2B11DAD8C150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641931   (881012) от 10.04.2013
+
+Sarah Brightman - Angel (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D296AD8290D0C9A1D53B022FD5594F30D4465D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642092   (880802) от 10.04.2013
+
+Сборник клипов - VA - Various Music part. 41 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alyona Lanskaya - Solayoh (Belarus) 2013 Eurovision Song Contest 1080p (3:07)
+2. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 1080p (4:09)
+3. BAZUKA - Good For Me 720p (2:53)
+4. BAZUKA - Suck My Ass 720p (2:46)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738D5E68BF365811D3D237D7A24D143533DE37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 136931   (880669) от 21.02.2011
+
+Видеоклипы российских исполнителей / Russian Music Videos [VOB] [DVD5, DVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая подборка из того, что было найдено на DVD.Жанр: Pop, Pop Rock, AlternativeФормат: VOBПродолжительность: 3:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996247   (880639) от 13.03.2016
 
 Квартирник у Маргулиса - Мельница (2016) DVBRip
@@ -581,138 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924CC9911CBEFE3EB902D7DB97842008B1D85B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644050   (873265) от 14.04.2013
-
-Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ReggaeПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374429   (872834) от 10.04.2020
-
-Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374432   (872828) от 10.04.2020
-
-Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Megatherium - God (2020)Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D198ECEFCFA130C4953819247BB22BAFBF6763C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374624   (872579) от 10.04.2020
-
-Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Thrash, Heavy Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Sodom - 2001 - M-16Жанр: Thrash, Heavy MetalПродолжительность: 00:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D222F1EBBFA6262CB6880AE09F178DEA6B0D865F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996784   (871597) от 18.03.2016
-
-Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quebeck Magnetic — концертный видео альбом группы, содержащий 26 композиций и документирующий два концерта состоявшиеся 31 октября и 1 ноября в Квебеке, Канада, на Colisee Pepsi и World Magnetic Tour, включает в себя восьми минутное интервью участников группы и их фанатов.
-
-На концертах были сыграны ставшие классикой композиции с альбомов Kill ’Em All (The Four Horsemen, (   Читать дальше...   )Жанр: Музыка, KонцертРежиссер: Wayne IshamАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert TrujilloПеревод: ОтсутствуетПродолжительность: 03:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571097EC77A13FAD60CFB0AF660B851879C11C60
 ```
 
 https://mybot314.ru/tekegram_catalog/

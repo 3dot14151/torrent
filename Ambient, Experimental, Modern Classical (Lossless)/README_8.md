@@ -1,32 +1,3 @@
-###  Публикация: 1281961   (748430) от 10.02.2019
-
-Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Soundscapes, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine I (1:47)
-02. Two Nebulas: Eye (4:12)
-03. Two Nebulas: Eve (8:52)
-04. Think That Really Was, I (7:30)(   Читать дальше...   )Жанр: Dark Ambient, Dark Jazz, Soundscapes, ExperimentalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84A1384651564862CCC43CE6EEC33FEE7A37703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282105   (746544) от 11.02.2019
 
 Nivhek - After its own death / Walking in a spiral towards the house (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Experimental, Eletronic>
@@ -738,6 +709,35 @@ Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Expe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9348361DDB080B37ACFD97ED0547E2051BC7056B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999662   (705206) от 06.03.2019
+
+Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Shades (08:01)
+ 02. Outside Is Light (07:42)
+ 03. Vocation In Motion (07:02)
+ 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

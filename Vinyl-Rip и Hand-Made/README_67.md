@@ -1,25 +1,25 @@
-###  Публикация: 1699585   (117434) от 15.02.2024
+###  Публикация: 1704613   (114149) от 05.03.2024
 
-Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, Inside Out Music[FLAC|24/192|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
+Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New Wave, Synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Used
-02. In the Flesh
-03. Ashes
-04. Morning on Earth(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:47:00
+Side 1.
+01.Violence Of Summer (Love's Taking Over)
+02.Liberty
+03.Hot Head(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
+magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699826   (117433) от 15.02.2024
+###  Публикация: 1704526   (114145) от 05.03.2024
 
-Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Of Two Beginnings (02:24)
-02. Ending Theme (04:59)
-03. Fandango (05:52)
-04. A Trace of Blood (08:17)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
+01. "Highway to Hell"
+02. "Girls Got Rhythm"
+03. "Walk All Over You"
+04. "Touch Too Much"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
+magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700250   (117224) от 16.02.2024
+###  Публикация: 1704643   (114124) от 05.03.2024
 
-Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
+Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [FLAC 24/96|Lossless|tracks] <Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Road Salt Theme (00:43)
-02. Softly She Cries (04:16)
-03. Conditioned (04:17)
-04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
+Сторона 1.
+01-Счет. The Score (Keith Emerson / Greg Lake)
+02-Учимся летать. Learning To Fly (Keith Emerson / Greg Lake)
+03-Чудо. The Miracle (Keith Emerson / Greg Lake)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
+magnet:?xt=urn:btih:B18BA76BF3E93220BD4BE13EF8CAC3025DE99429
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700149   (117218) от 16.02.2024
+###  Публикация: 1704609   (114120) от 05.03.2024
 
-Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+В. Осеева - Васёк Трубачёв и его товарищи. Инсценировка (1975) [FLAC 24/192|Lossless|tracks] <Инсценировка>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 No Way
-A2 She Likes To Hide
-A3 Sisters
-A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
+Первая часть
+Васек Трубачев и его товарищи
+По повести В. Осеевой (инсценировка Е. Агурова)
+Б. Гуляев, А. Хотченков, А. Комиссаров, П. Подъяпольский, Ю. Савич, А. Бодуков, К. Устюгов, Е. Крючков, Л. Гнилова и др. инстр. ансамбль «Кругозор»Жанр: ИнсценировкаПродолжительность: 00:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
+magnet:?xt=urn:btih:41E739FFB05E4B9DE5F0CAF1DB7A8BD379E41B01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700256   (117217) от 16.02.2024
+###  Публикация: 1704348   (114102) от 05.03.2024
 
-Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Lossless|tracks] <Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Accelerator
-A2 Unfuture
-A3 Restless Boy
-B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
+обработанный (собственный ремастер) концертный CD (запись - Варшава, Польша, 12 февраля 2007 года), который прилагался к концертному DVD.01. Scent of Death [10:02]
+02. Haunting the Obscure [04:59]
+03. Mental Pictures [05:30]
+04. Destiny Falls to Ruin [05:31](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:08:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
+magnet:?xt=urn:btih:CA2FC63CE1C1277C0DD28CD8872CC0437D4B0D97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700102   (117142) от 16.02.2024
+###  Публикация: 1704822   (114033) от 06.03.2024
 
-Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tracks] <Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
-2009 - Marauders
-2011 - Parasites
-2016 - TyrantsЖанр: Thrash/Death MetalПродолжительность: 03:19:28
+Сторона 1:
+01. Зеленый талисман
+Green Talisman (Skorsky / Carmona - Goings - Skorsky)
+02. Сладкий союз(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
+magnet:?xt=urn:btih:C1AE867AF801BAAAB7156E7515019089917E9CF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700658   (117028) от 17.02.2024
+###  Публикация: 1704819   (114032) от 06.03.2024
 
-Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
+Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
-2003 - Regressus
-2004 - Never Ending
-2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
+01. Песня любви (Т. Брасфильд - Р. Линна)
+02. Почему я жду тебя? (Р. Галдри, П. Гейтн - Х. мирка)
+03. Буги зайца (М. Капелл - П. Аймла)
+04. Тоска по родному дому (Г. Каянус - Х. Кяо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
+magnet:?xt=urn:btih:84F483AB2C85AC102D526839462FBD988F197511
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700648   (117011) от 17.02.2024
+###  Публикация: 1704948   (114020) от 06.03.2024
 
-Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+Вальдо де лос Риос - Волшебная Музыка (1979) [FLAC 24/192|Lossless|tracks] <Modern Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die Macht
-02. Willenlos
-03. Ikarus
-04. Sage Ja!(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
+Сторона 1:
+01. Все говорят (из к/ф Полночный ковбой)
+Everybody's Talkin' (F. Neil)
+02. Жан(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
+magnet:?xt=urn:btih:22EDB0F1F0C0D21B87443ABE4128229D8A20371B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,27 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700462   (117008) от 17.02.2024
+###  Публикация: 1704952   (114018) от 06.03.2024
 
-Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Вахтанг Кикабидзе - Пока сердце поет (1979) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
-1999 - Soulburner
-2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
+Сторона 1:
+01. Пока сердце поёт (А. Ованов – Н. Арешидзе)
+02. Ты сама ко мне придёшь (Г. Каландадзе – П. Грузинский)
+03. Куда ушли вы, молодые годы (Н. Адилашвили – В. Гоголашвили)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:33:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
+magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700673   (116849) от 18.02.2024
+###  Публикация: 1705071   (113997) от 07.03.2024
 
-Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sternzeit (1. Strophe)
-02. Kling Glöckchen Klingelingeling
-03. Leise Rieselt Der Schnee
-04. O Tannenbaum(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
+Side 1.
+01.The Endless Enigma (Part One) (Emerson – Lake)
+02.Fugue (Emerson)
+03.The Endless Enigma (Part Two) (Emerson – Lake)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
+magnet:?xt=urn:btih:018E67962A302C3D49C479902155EFD3BE49917E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700800   (116847) от 18.02.2024
+###  Публикация: 1704959   (113987) от 07.03.2024
 
-Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+ВИА «ABC» под управлением Ангело Владковича (Югославия) - ABC (1975) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die Filmrolle
-02. Zauberer
-03. Hört Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
+Сторона 1:
+01. Ватерлоо (Б.Андерсон)
+02. Мечты (И.Швагер)
+03. Какая она красивая (Д.Паце)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
+magnet:?xt=urn:btih:F76BCE4ACB02973B7909510EFAF84EBA4FF652A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700860   (116830) от 18.02.2024
+###  Публикация: 1705074   (113973) от 07.03.2024
 
-Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
+VA - With love to children (С любовью к детям) (1991) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Das Uhrwerk
-02. Luftschiff
-03. Ich Will Alles
-04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
+Side 1:
+01. Love Is Such A Lonely Word (D. Bohlen) – Blue System
+02. Big Time (Muller – G+M Koppehelle) – C. C. Catch
+03. Sole (G. Castelli – G. Gaste) – Gino Castelli(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:59:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
+magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700717   (116829) от 18.02.2024
+###  Публикация: 1705093   (113963) от 07.03.2024
 
-Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eva
-02. Maschine
-03. Gib Mir Mehr
-04. Sternenschiff(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
+magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701220   (116527) от 20.02.2024
+###  Публикация: 1705087   (113958) от 07.03.2024
 
-Лариса Мондрус - Поет Лариса Мондрус (1970) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Retro>
+Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Синий Лён
-(Р. Паулс – А. Круклис, перевод А. Дмоховский)
-A2 Озёрный Край
-(Р. Паулс - З. Пурвс, перевод А. Дмоховский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:04
+Сторона 1
+Modern Age Rock'N'Roll
+01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
+Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
+magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701224   (116500) от 20.02.2024
+###  Публикация: 1705095   (113952) от 07.03.2024
 
-Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Das Meer
-02. Seenot
-03. Für Immer
-04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
+Сторона 1:
+01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
+02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
+03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
+magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701200   (116499) от 20.02.2024
+###  Публикация: 1705133   (113925) от 08.03.2024
 
-Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
+ВИА «Веселые ребята» - Любовь – огромная страна (1974) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vorhang Auf
-02. Puppenspieler
-03. Spiegelbild
-04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
+Сторона 1:
+01. Любовь - огромная страна (Б. Рычков - Л. Дербенев)
+02. Я к тебе не подойду (Д. Тухманов - Л. Дербенев, И. Шаферан)
+03. Отчего (Ю. Антонов - Т. Сашко)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
+magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701230   (116485) от 20.02.2024
+###  Публикация: 1705356   (113898) от 08.03.2024
 
-Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+VA - Для вас, женщины! Деловая женщина (1988) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Das Licht (Intro)
-02. Herzwerk
-03. Stark 2012
-04. So Wie Du Warst(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:39
+Сторона 1
+01 - Эй, гражданка... (А. Укупник — В. Гин)
+Ирина Понаровская
+02 - 20.00 (А. Барыкин — М. Пушкина)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A27753F38AE4C345C25413D82A6AD046F5B220BC
+magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701233   (116478) от 20.02.2024
+###  Публикация: 1705358   (113894) от 08.03.2024
 
-Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Der Berg (Intro)
-02. Hinunter Bis Auf Eins
-03. Zeit Zu Gehen
-04. Die Weisheiten Des Lebens(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:04:58
+Сторона 1
+01. Сон про Джанет (музыка и слова М. Ангеловой)
+Ирина Отиева
+02. Лето (музыка и слова С. Кузнецова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85CAFF8783015D35FE7545F1978F3A5A063DAD5F
+magnet:?xt=urn:btih:84EEA9E903E5694F6E032CA5D6301619560864CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +520,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701688   (116171) от 22.02.2024
+###  Публикация: 1642059   (113888) от 08.03.2024
 
-Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Progressive/Melodic Death/Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Veil Of Maya (05:22)
-02. Celestial Voyage (03:40)
-03. The Eagle Nature (03:30)
-04. Sentiment (05:30)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:37:02
+Shylmagoghnar - Progressive/Atmospheric Black Metal from the Netherlands.2014 - Emergence
+2018 - Transience
+2023 - ConvergenceЖанр: Progressive/Melodic Death/Black MetalПродолжительность: 03:10:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
+magnet:?xt=urn:btih:A1E96C01BB7C71323E289BDAA377CF865809618A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701757   (115971) от 23.02.2024
+###  Публикация: 1705359   (113875) от 08.03.2024
 
-Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nunc Fluens
-02. The Space For This
-03. Evolutionary Sleeper
-04. Integral Birth(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:34:01
+Сторона 1.
+01 - Расскажи мне о море, моряк. - Hablame del mar, marinero. (M.Alejandro - A.Magdalena)
+02 - Скажи ему, чтобы он вернулся. - Dile que vuelva. (M.Alejandro - A.Magdalena)
+03 - В нее влюбленный. - Emanorado de ella. (M.Alejandro - A.Magdalena)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55BF23EB3021C8679F65DB84E96ABDD24B9F1548
+magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701719   (115970) от 23.02.2024
+###  Публикация: 1705383   (113870) от 08.03.2024
 
-Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Veil Of Maya (05:20)
-02. Celestial Voyage (03:37)
-03. Eagle Nature (03:27)
-04. Sentiment (04:27)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:35:55
+Side One.
+01 - We Made It Happen. (Anka. Gosh)
+02 - Everything's Been Changed. (Anka. Hogan)
+03 - There Is Something I'd Like To Say To You. (Anka. Hogan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FFF36659263DD0B4D0434187BE7721CB0DE67DF
+magnet:?xt=urn:btih:037CD06CAB8D2E91C1D4FFEA0FBEC4F3F79CDFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,29 +606,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701836   (115963) от 23.02.2024
+###  Публикация: 1705387   (113855) от 08.03.2024
 
-Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
+Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Земле) (1985) 1987 [FLAC 24/192|Lossless|tracks] <Jazz, Pop, Folk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Headhunter — немецкая трэш-метал группа, образованная в 1990 году.
-Группа была создана Марселом Ширмером, после его ухода из Destruction в 1989 году.1990 - Parody Of Life
-1992 - A Bizarre Gardening Accident
-1994 - Rebirth
-2008 - Parasite Of SocietyЖанр: Power/Thrash MetalПродолжительность: 03:14:49
+Сторона 1.
+01 - Звуки над водой. Sound Over All Waters.
+02 - Колыбельная матушки Китихи маленьким тюленям. Lullaby From The Great Mother Whale For The Baby Seal Pups.
+03 - Песня Земле. Song For The Earth. (Джим Скотт, вокал)(   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 00:45:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2364FAFC97CE75CAEDDFFB54781869A17344C562
+magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641319   (115894) от 24.02.2024
+###  Публикация: 1705615   (113828) от 09.03.2024
 
-Ace Frehley - Studio Albums (6 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
+ВИА «Поющие сердца» - Поющие сердца (1975) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paul Daniel «Ace» Frehley — американский гитарист и вокалист, участник американской рок-группы Kiss, созданной Джином Симмонсом и Полом Стэнли. Он придумал образ и грим персонажа «Space Ace», когда присоединился к Kiss. Фрейли играл в группе с самого её образования в 1972 году и до ухода в 1982 году.2009 - Anomaly
-2014 - Space Invader
-2016 - Origins Vol.1
-2018 - SpacemanЖанр: Hard Rock, Heavy MetalПродолжительность: 05:04:47
+Сторона 1.
+01 - Зима любви. (Р.Майоров - И.Кохановский)
+02 - Где найти любовь. (В.Векштейн - И.Кохановский)
+03 - Всё, что было. (Я.Кукульский, Я.Славинский - русский текст И.Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E03466C1E95DF200BFDD0039E14AB20021553F03
+magnet:?xt=urn:btih:9D3CC16E2E427D43CB4E5CEFA83924231691034A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702206   (115815) от 24.02.2024
+###  Публикация: 1705569   (113827) от 09.03.2024
 
-Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip]  <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Endless Endeavors
-02. Karma's Plight
-03. Circle
-04. Costumed In Grace(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:45:06
+01. "Thunderstruck"
+02. "Fire Your Guns"
+03. "Moneytalks"
+04. "The Razors Edge"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE30D40886420988FA9700B27B3A81CB1F1237A2
+magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702336   (115802) от 24.02.2024
+###  Публикация: 1705617   (113826) от 09.03.2024
 
-Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Black Metal>
+ВИА «Поющие сердца» - Антонина Жмакова и ансамбль «Поющие сердца» (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Fortress — немецкая блэк-метал группа из Ландсхута, образованная в 1994 году. Распались после финального тура в мае 2023 года.2001 - Tales from Eternal Dusk
-2003 - Profane Genocidal Creations
-2004 - Stab Wounds
-2006 - SeanceЖанр: Progressive/Melodic Black MetalПродолжительность: 09:21:37
+Сторона 1:
+01. Прекрасный день (М. Голдсборо – рус. текст В. Харитонова)
+02. Не сегодня – завтра (В. Векштейн – В. Харитонов)
+03. Твои шаги (Е. Марней, Паллавичини, Массари – рус. текст И. Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC6FED9E0C0017D71079E72D05B507781E0DE4B
+magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702286   (115799) от 24.02.2024
+###  Публикация: 1705613   (113822) от 09.03.2024
 
-Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+ВИА «Песняры» - Песняры III (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А1 - Uroboric Forms (Demo 1991)
-A2 - The Eagle Nature (Demo 1991)
-A3 - Pleading For Preservation (Demo 1991)
-A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:56:31
+I сторона
+01. Явор и калина (Ю. Семеняко — Я. Купала)
+02. Поцелуй (И. Лученок — В. Коризна)
+03. По воду шла (белорусская народная песня, обработка В. Ткаченко)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
+magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

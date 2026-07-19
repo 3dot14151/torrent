@@ -1,22 +1,22 @@
-###  Публикация: 1435946   (142506) от 29.12.2020
+###  Публикация: 323361   (148934) от 26.12.2013
 
-Растровый клипарт - Christmas party holidays concept with handsome man [JPG]
+Футажи - Набор анимированных надписей с альфа-каналом и без (UnOfficial)
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_148934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 6000x4000-6016x4016
+Моя подборка футажей для оформления создаваемых вами видеофильмов. Надписи на хромокее, с альфа-каналом и готовые вставки с музыкой и надписью. Много футажей в avi для Пинакла, по этому таокой размер раздачи javascript:emoticon('=)'). Для кого это проблематично, качайте только те файлы, которые Вам нужны!Язык интерфейса: Rus
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F57D94EE32015D1B159A16671972B24DE63636DF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435840   (142493) от 29.12.2020
+###  Публикация: 969116   (148487) от 26.12.2015
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №68 [JPG]
+Растровый клипарт - Скрап-набор ''Very Merry'' [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4320x4096-9212x3247
+Удивительно красивый и нежный зимний скрап-набор.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D79F6E703A4BFDB586005EB596CF9CCA3EA9A3
+magnet:?xt=urn:btih:9E9A1386B35A9738972911307678A77BDFD758EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435806   (142480) от 29.12.2020
+###  Публикация: 1271719   (148482) от 24.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №57 [JPG]
+Растровый клипарт - Design Cuts - Artwork Showcase Generator [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3707x5561-5760x3840
+Мы с гордостью представляем наш проект для всех, кто создает произведения искусства. Много уникальных антикварных предметов и рамок в составе.Формат: PSDРазрешение файлов: 2325x1693-9805x5377
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64AF2CB026093513F70A4B39763AAE4E12F142B0
+magnet:?xt=urn:btih:57FF58D7B44041F07A809C100A91837BBF7683B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435853   (142439) от 29.12.2020
+###  Публикация: 969213   (148471) от 26.12.2015
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №74 [JPG]
+Шаблоны - Фотокнига - Winter beauty [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3150x2100-6144x4096
+Зимний фотоальбом для семейных фотографий.
+Автор: ФоткаФормат: PSDРазрешение файлов: 7205x3602 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77FC11A41B3CBB3421C4E391ABE8B8AF1337C71E
+magnet:?xt=urn:btih:30DDB227235473F65D5C4E61DBEB4E1C633A88FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435847   (142428) от 29.12.2020
+###  Публикация: 1271724   (148437) от 24.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №71 [JPG]
+Стили - GraphicRiver - Retro Vintage Text Effects Vol.2 - 22891278 [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3096x3055-6671x6081
+10 Винтажных стилей для текста .Формат: PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5B39C48526B10C926221007F900D85B5BD20367
+magnet:?xt=urn:btih:B6E9EB630AE8723E89D8871D4ED5394FC3BD77E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435651   (142413) от 29.12.2020
+###  Публикация: 1271739   (148387) от 24.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №50 [JPG]
+3D материалы - VRscans - metal [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2591x3489-4829x4073
+VRscans - это новая запатентованная технология создания 3d материалов от ChaosGroup.
+В данный релиз вошли 64 материала металлической поверхности.Формат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8984FB27CF207B4113A999E2D6BF42551070A9BB
+magnet:?xt=urn:btih:0682422F9A297C7B6FC9421DF60716F3D3153C85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435855   (142404) от 29.12.2020
+###  Публикация: 1271770   (148375) от 24.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №75 [JPG]
+Звуковые библиотеки - Bluezone Corporation - Movie Trailer Sound Effects [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3451x5177-5616x3744
+Movie Trailer Sound Effects - это пакет сэмплов Trailer / Cinematic, охватывающий широкий спектр тщательно записанных окружений, звуковых эффектов, ударов, текстур синтеза и переходов.Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C58E1FC0D7B48EEB258EE49BF367E1A4481A79E
+magnet:?xt=urn:btih:B2D0B7C4BA2AB85C5FC1E0685CA47AAAEE4D6705
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435801   (142388) от 29.12.2020
+###  Публикация: 969097   (148268) от 26.12.2015
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №55 [JPG]
+Растровый клипарт - Скрап-набор ''Bee Princess'' [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4000x2666-9005x6000
+Детский Скрап набор - ПринцессаФормат: PNG, JPGРазрешение файлов: от 319x319 до 3600х3600 (300 dpi)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48A04972CD45870781E394F804F92FC0DAB2C4DF
+magnet:?xt=urn:btih:478A6B8075A2AD04DCAF50FBD51D17B5B8FE7C0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435828   (142364) от 29.12.2020
+###  Публикация: 1271756   (148267) от 24.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №65 [JPG]
+Костюмы - Сборник Костюмов [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3636x3636-7000x7000
+Сборник костюмов для детей и взрослыхФормат: PSDРазрешение файлов: 1772x2362-6756x3543
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB0B5F988A3F0BE17B1BE5537AB522CB912AEDED
+magnet:?xt=urn:btih:38D8E6FF74E4C23A70BB343A51421C0BA1611791
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +234,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435942   (142314) от 29.12.2020
+###  Публикация: 969122   (148179) от 26.12.2015
 
-Растровый клипарт - Children in chef suits stock photo [JPG]
+Шаблоны - Фотокнига - Стильная [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дети в костюмах повара, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 5256x7000-8000x4746
+Фотоальбом для семейных фотографий.
+Автор: эрагонФормат: PSDРазрешение файлов: 7088x3543 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90B6EF85160E5A290829B526DBE6EE6A5BC5EEE1
+magnet:?xt=urn:btih:6DEF86FAA87C32E430A6A2594C76EDF433DFAF27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435921   (142276) от 29.12.2020
+###  Публикация: 738998   (148161) от 27.12.2013
 
-Растровый клипарт - Bride and groom wedding stock photo [JPG]
+Векторный клипарт - Девушка в парикмахерской / Girl in hairdresser [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Свадьба, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 3872x2592-7200x5356
+Девушка в парикмахерскойФормат: EPS и превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE069E4EA0B62C152B21B1F4AD1EDAA57F27CCA0
+magnet:?xt=urn:btih:D4AEEC44FE7D61857F949060E98A5898DECDE92C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435823   (142271) от 29.12.2020
+###  Публикация: 1519387   (148160) от 24.12.2021
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №63 [JPG]
+Звуковые библиотеки - Project SAM - Symphobia 1 v2.0 RePack ViP [Kontakt, OGG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3976x2647-7360x4912
+Оцените полностью обновленную версию Symphobia 2.0 Получите классический и проверенный временем звук Symphobia в совершенно новом интерфейсе с массой новых возможностей.Формат: Kontakt: NICNT, NCSN, NKC, NKR, NKX, NKA, NKI, OGG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EFBD1D2EF701BF15580347E42DD84DE227A93C0
+magnet:?xt=urn:btih:C997F7FF5EB5CEE76E9156F786919A34EEAC4B86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +313,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435818   (142253) от 29.12.2020
+###  Публикация: 1519592   (147997) от 24.12.2021
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №61 [JPG]
+Шаблоны - Пакет Новогодних и не только Календарей 2022 от Koaress [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2849x2184-8352x4928
+подборка многослойных PSD шаблонов для фото
+от автора KoaressФормат: PSDРазрешение файлов: 3508x4961-4961x3508
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69A93DD62D391F215DADD863ACDBF32822D8A3B9
+magnet:?xt=urn:btih:D44CB3D3E4A682CCFE75B481B333788A46514F64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435939   (142238) от 29.12.2020
+###  Публикация: 1347742   (147965) от 24.12.2019
 
-Растровый клипарт - Bride with wedding bouquet stock photo [JPG]
+Футажи - Заставки Новогодние 2020 [MOV, AVI]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Свадьба, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 3744x5616-7000x4667
+Заставки на новогоднюю тему 2020 г.Формат: MOV, AVIРазрешение файлов: 1920х1080(FHD), 3840x2160(UHD)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C61C1B04214B5F4E1447C191D74DF3C6C19EC1E6
+magnet:?xt=urn:btih:FEA6C2BD945570AB1D39BD73436B1F147A3DCB74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435914   (142225) от 29.12.2020
+###  Публикация: 1434844   (147827) от 26.12.2020
 
-Растровый клипарт - Bread, buns, buns and bagels stock photo [JPG]
+Экшены - GraphicRiver - Watercolor Photoshop Action - 28673766 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хлеб, булочки и рогалики, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 7000x4671-8000x5339
+Watercolor - действие фотошоп даёт вашим изображениям, фотографиям удивительный эффект акварельного полотна. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:088B10530501E593C7685CAC12D3B418AD032D10
+magnet:?xt=urn:btih:27237C24D5269CCC8AB91E3263F9301456A9EE0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435857   (142195) от 29.12.2020
+###  Публикация: 1519400   (147787) от 24.12.2021
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №76 [JPG]
+Растровый клипарт - Shutterstock - Stock photo [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2667x3815-7000x7000
+Фото с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 662x440-23325x3657
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDAAD0AAFDA4031337B0F5B7DE2E805A3710E3DB
+magnet:?xt=urn:btih:E03B1CD148EF920023BBA86812DCA71A1E5B8CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435849   (142182) от 29.12.2020
+###  Публикация: 1434850   (147737) от 26.12.2020
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №72 [JPG]
+Экшены - GraphicRiver - Art Mix Photoshop Action - 28178955 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5231x3303-7562x6479
+«Art Mix» - действие фотошоп превратит ваши обычные фотографии в художественное полотно с эффектом стиля современной графики. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1CE0DBEF887B540725F410655CAFE421F99FD42
+magnet:?xt=urn:btih:5C8C82BCEC0B349C50168D3802A1C3389AFEA556
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435861   (142166) от 29.12.2020
+###  Публикация: 738988   (147583) от 27.12.2013
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №79 [JPG]
+Шаблоны - Стеклянные рамки для арта / Glass frame for art Mock Up [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5793x5448
+Шаблоны стеклянных рамокФормат: PSDРазрешение файлов: 30002000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:761DA796D4A36C81F6FD5EF2E3C53132935A5ED7
+magnet:?xt=urn:btih:E7F4169F4CC125BF4676A86D86316F44A8169DCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +470,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435833   (142160) от 29.12.2020
+###  Публикация: 589872   (147336) от 15.12.2012
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №66 [JPG]
+Шаблоны - Портфолио и рамочка в винтажном стиле для девочки или девушки [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5792x7968-8688x5792
+Портфолио и рамочка в винтажном стиле для девочки или девушки.
+16 PNG
+Автор: MiranaФормат: PNGРазрешение файлов: 2398x3602
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:639EA164C05AD17C86876685EBEAB87127866C55
+magnet:?xt=urn:btih:DA4740BCF00B3A5B148DDF3C039ABE95B33D4C89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +498,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435842   (142102) от 29.12.2020
+###  Публикация: 1271819   (147318) от 25.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №69 [JPG]
+Растровый клипарт - Deeezy - Thin Plasticine 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4020x2764-6000x4000
+3D алфавит со знаками препинания, цифрами и т.п. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C678FC3942AFCDE9920321F1030728FCD3904791
+magnet:?xt=urn:btih:B1999039B5223206150CC0B4557FF6E32600A3ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +524,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435650   (142099) от 29.12.2020
+###  Публикация: 1271814   (147309) от 25.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №51 [JPG]
+Растровый клипарт - Deeezy - Sand Free 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4537x3393-6144x4096
+3D алфавит-латиница. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 1000 x 1000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:182B3DFD2133ACB1322543F4121912E516F249F3
+magnet:?xt=urn:btih:C896DC00F088F232EAFE61F635784DA009BDE6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +550,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435957   (142086) от 29.12.2020
+###  Публикация: 1271813   (147259) от 25.12.2018
 
-Растровый клипарт - Cute dogs in santa hat set stock photo [JPG]
+Растровый клипарт - Deeezy - Funny Stone 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Симпатичные собаки в одежде санта-клауса, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 3523x2344-7360x4912
+3D алфавит со знаками препинания, цифрами и т.п. в 3-х вариациях. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64EB5ACF645BCA8E0A69465DB6192E83700993F1
+magnet:?xt=urn:btih:CBA3E7E7C3DC901AB6A922A0D529B83D3E647E34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435653   (142079) от 29.12.2020
+###  Публикация: 1271823   (147237) от 25.12.2018
 
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №52 [JPG]
+Растровый клипарт - Deeezy - Rusty Future Free 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2239x2443-6003x3969
+3D алфавит-латиница. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 1000 x 1000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD9E28C5F66301AD1C9832813C8BD571632DBF75
+magnet:?xt=urn:btih:54AD54BE2E03076BC95F6B60081BC260E9CD0869
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435940   (142066) от 29.12.2020
+###  Публикация: 1271821   (147233) от 25.12.2018
 
-Растровый клипарт - Cakes, delicious desserts stock photo [JPG]
+Растровый клипарт - Deeezy - Futuristic Geometry 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Торты, вкусные десерты, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 5333x8000-8000x5340
+3D алфавит со знаками препинания, цифрами и т.п. в 2-х вариациях. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B52C1C3C3F00DE350D530C319A365CF36E46A184
+magnet:?xt=urn:btih:5C9B6DD50D3E65D41A50A36F5A62B45F70BFA6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435905   (142047) от 29.12.2020
+###  Публикация: 1271822   (147205) от 25.12.2018
 
-Растровый клипарт - Beautiful women and spa backgrounds stock photo [JPG]
+Растровый клипарт - Deeezy - Magma 3D Lettering [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивые женщины и спа-фоны, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 3000x3000-8000x8000
+3D алфавит со знаками препинания, цифрами и т.п. в 2-х вариациях. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C4911D7B4790AB9BE328ED5DD423439787C6F52
+magnet:?xt=urn:btih:41F0D5B9DCB5DAD27E4E50544EA6DB84BD6694EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435864   (142037) от 29.12.2020
+###  Публикация: 1431967   (147094) от 26.12.2020
 
-Растровый клипарт - Shutterstock - New Year and Christmas stock photos №80 [JPG]
+Футажи - Заставки Новогодние 2021 [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4448x3840-5760x3840
+Заставки на новогоднюю тему 2021Формат: MOVРазрешение файлов: от 1920х1080(FHD) до 3840x2160(UHD 4K)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EF25577851CC3D8D2CF117139240B89BA83662C
+magnet:?xt=urn:btih:024ADD97A04BAFCD707501DD9D1B02C26C0353EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

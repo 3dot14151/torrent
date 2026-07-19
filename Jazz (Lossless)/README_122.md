@@ -1,119 +1,3 @@
-###  Публикация: 1291916   (650694) от 27.03.2019
-
-David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. JasVan (for James VanDerzee) [20:24]
-02. Home [16:36]
-03. Secret Of The Circle [22:00](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE45AB9EEBF9CC041DF97FB75D91C7D12252E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141447   (650561) от 10.06.2017
-
-Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012) Slowfoot [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punjab [14:24]
-02. Smoking My Sad Cigarette [04:27]
-03. The Maids of Cadiz [06:25]
-04. How About You [03:12](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141443   (650559) от 10.06.2017
-
-Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comparsa [03:33]
-02. Cancao De Noite [04:35]
-03. Danzas cubanas: A los tres golpes [01:22]
-04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141448   (650558) от 10.06.2017
-
-Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No brain no pain [05:10]
-02. A wonderful afternoon with Zena-Laure [05:00]
-03. Fema ka [04:47]
-04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141579   (650545) от 10.06.2017
 
 The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlophone, Warner Music Japan [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
@@ -745,6 +629,122 @@ Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032255   (647904) от 06.07.2016
+
+Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Cooker:
+01.A Night In Tunisia [09:25]
+02.Heavy Dipper [07:07]
+03.Just One Of Those Things [07:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906007   (647826) от 07.06.2015
+
+Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfire (8:47)
+02. Big City Music (14:07)
+03. Shinkansen (7:43)
+04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227344   (646936) от 26.05.2018
+
+James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Harlem Strut [2:35]
+02. Keep Of The Grass [3:15]
+03. Carolina Shout [2:47]
+04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227466   (646934) от 26.05.2018
+
+Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Boston [7:07]
+02. Original Music [6:15]
+03. Lazy Bones [6:03]
+04. A Midwest Moment [7:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21716E51B95EF5E4B51832AD22B80BB90FD2C943
 ```
 
 https://mybot314.ru/tekegram_catalog/

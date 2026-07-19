@@ -1,3 +1,139 @@
+###  Публикация: 1734311   (107176) от 02.07.2024
+
+Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inside the pages of this encyclopedia about animals, you’ll find:
+Five chapters covering mammals, birds, marine life, creepy-crawlies, and reptiles and amphibians. Information that is presented in bite-sized chunks and images that are clearly captioned and annotated. Stunning photography of animals in their natural surroundings. Amazing answers to more than 200 awesome (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734415   (107134) от 03.07.2024
+
+Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107134.jpg" />
+</div>
+
+
+###  Подробнее
+
+From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
+Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734418   (107124) от 03.07.2024
+
+Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734444   (107115) от 03.07.2024
+
+Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age Range: 5 - 8 years
+Grade Level: Kindergarten - 3
+Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
+Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734435   (107113) от 03.07.2024
+
+John Woodward | Horses (2014) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107113.jpg" />
+</div>
+
+
+###  Подробнее
+
+For every young horse fan who's ever dreamed of having his or her own pony, comes Horses: The Ultimate Treasury. Age Range: 8 - 12 years
+From wild horses and zebras to working horses like the Clydesdale, Shire, Percheron, and the American Saddlebred, Hackney, and Missouri Fox Trotter, learn about horses from around the world and throughout history. Discover how horses (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734423   (107109) от 03.07.2024
 
 Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
@@ -560,140 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F203134370A576858964FE41821EFF771C6360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759189   (103306) от 07.11.2024
-
-Журнал | Квантик №9 (сентябрь 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103306.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759648   (103279) от 09.11.2024
-
-Марта Фомина | Самостоятельные люди (1969) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случалось ли вам, ребята, провести лето в городе? Наверно, многие в ответ на это удивлённо спросят: а что интересного летом в городе? Жарко, пыльно, скучно ... Вот так же думали сначала и герои первой повести "Летопись нашего двора" - четверо мальчишек. Целыми днями они сидели на лавочке и ждали, не случится ли с ними само собой что-нибудь необыкновенное. (   Читать дальше...   )Жанр: ПовестьИздательство: Московский рабочийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490632   (102610) от 02.05.2012
-
-Турбьёрн Эгнер | Приключения в лесу Ёлки-на-Горке [1986] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселую сказку о приключении зверей в лесу Ёлки-на-Горке (медвежонке Маленьком Ворчунишке и его друзьях: Мышонке Мортене, Лазающем Мышонке, Домашней Мышке, Лисе Миккеле) написал для своих маленьких соотечественников известный норвежский писатель Турбьерн Эгнер.
-Лис Миккель очень досаждал всем обитателям леса Ёлки-на-Горке — особенно маленьким мышатам. Вместе с добрым (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202304A4DD240C192E8CAFE9311FCAEFC5F9A046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491056   (102563) от 02.05.2012
-
-Детская литература  | Двенадцать братьев (1979) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные загадки с иллюстрациями А. Юсуповой.
-Художник Алсу Юсупова (Тимергалина) живет и работает в Казани. Закончив в 1979 году Казанское художественное училище, начала работать в области книжной графики, живописи и декоративно-прикладного искусства.
-Для детишек дошкольного возраста.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317FADFCE3EB0C2EEB2FB3C127AACD7961941541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490333   (102520) от 01.05.2012
-
-Дмитрий Емец | Таня Гроттер и птица титанов [2012] [FB2][TXT]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102520.jpg" />
-</div>
-
-
-###  Подробнее
-
-14-я книга из серии "Таня Гроттер".                       Когда-то давно страшная колдунья Чума-дель-Торт попыталась уничтожить малышку Таню Гроттер, но Древняя магия защитила девочку и вытеснила черную волшебницу в другой мир – зеркальное отражение нашего. Чума не погибла в нем, она смогла выжить и захватить там власть. С тех пор ее самым страстным желанием было вырваться из мира-двойника и отомстить. Все, что для этого нужно: уничтожить тонкую и очень прочную границу между реальностями. Ни одна сила, ни одно существо не способно на такое! Кроме маленькой серенькой птички – птицы титанов. Лишь для нее не существует ни времени, ни пространства, ни физических преград. Если ее убить, то Стекло Миров рухнет, и вот тогда Чума-дель-Торт всем покажет! А идеальный кандидат для задания… конечно, девушка, как две капли воды похожая на Таню Гроттер и воспитанная специально для этой миссии.2012Формат: FB2,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486F864FA5CF106E4FB89DE0C710CC8BDBCA8C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1007638   (819650) от 16.04.2016
-
-VA - It’s A Rockabilly Riot! Vol. 1 (2016) [MP3|320 кб/с] <Neo Rockabilly, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Retrobaits - Your Squeezes Don't Leave Me
-02. Jack Rabbit Slim - Next Time
-03. The Bullets - Somebody Else
-04. Lew Lewis & The Twilight Trio - If You're Gonna Love Me(   Читать дальше...   )Жанр: Neo Rockabilly, RockabillyПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D9FB331260873C7778EA00D5C1C499F2D28EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655556   (819529) от 13.05.2013
 
 VA - 100 Hits Guitar Heroes (5CD) (2013) [MP3|320 кб/с]<Rock>
@@ -739,6 +710,35 @@ Unreverse - Atomic Race (2011) [MP3|320 Kbps] <Electronic, Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C37635B67E25E51598D804BA2B7761A6FC71CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505277   (806388) от 26.10.2021
+
+Rockets LBM Project - Universe One (2019) CD [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав: Luca Bestetti (ex. Rockets) и Dmitriy Nelepin - российский музыкант, проживающий в США. Альбом «Вселенная» представляет собой рассказ о затерянном космическом корабле специального флота «Акрусе», который, выйдя за пределы нашей галактики, был унесен в глубокий космос со скоростью 27% скорости света.01. No Recall (3:27)
+02. Universe One (5:32)
+03. Stargate (7:10)
+04. Commander LBM (6:11)(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-popПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D622617AB8B9E44D338F1222F50B659AF94E88FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

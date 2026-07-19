@@ -1,3 +1,32 @@
+###  Публикация: 1410190   (438228) от 20.09.2020
+
+VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Doubt - Don't Speak (04:22)
+02. Vanilla Ice - Ice Ice Baby (04:29)
+03. 4 Non Blondes - What's Up? (04:55)
+04. 3 Doors Down - Kryptonite (03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571049   (438192) от 19.08.2022
 
 Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
@@ -716,35 +745,6 @@ Sandra - Reflections (2006) [OGG Vorbis|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A170F20F3F96EB41D1D3F96F6666681377097A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571619   (429754) от 23.08.2022
-
-Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me	4:34
-02. The Way I Am	3:31
-03. The Art Of Love	4:14
-04. What Is It About Me	3:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
 ```
 
 https://mybot314.ru/tekegram_catalog/

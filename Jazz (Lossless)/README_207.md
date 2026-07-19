@@ -1,119 +1,3 @@
-###  Публикация: 1416686   (365399) от 17.10.2020
-
-Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Drag [9:47]
-02. Secret Love [3:59]
-03. Book's Bossa [6:53]
-04. Jelly Roll [5:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218AD2575CB7B5AE294471A03E5AE3D3414E92C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416548   (365389) от 17.10.2020
-
-Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bantu Education (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:02:28]
-02. Sizwile (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:08:28]
-03. Mangaliso Sobukwe (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:01:32]
-04. Solomon, Tsietsi & Khotso (feat. Nonku Phiri, Malcolm (   Читать дальше...   )Жанр: Jazz, ExperimentalПродолжительность: 3 CD, 02:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7441526EA750618A06968DCD1B4AEB896EEC58BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416682   (365387) от 17.10.2020
-
-Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo la Roca [2:37]
-02. Lo Dicen Todos [3:19]
-03. Babaratiri [3:04]
-04. A Burujon Punao [3:14](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B84FB137CB54287BFB052FA5481BB8AEAA7DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416713   (365385) от 17.10.2020
-
-Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Jam (3:33)
-02. One Man Lady (4:07)
-03. Let's Get It Together (3:09)
-04. I Wonder (4:40)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B774970E3673B73A4F8B92DCC349C233AA5DFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070925   (364660) от 08.11.2016
 
 Bill Evans With Jeremy Steig - What's New (1969) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -742,6 +626,123 @@ Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255829   (361769) от 19.10.2018
+
+Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361769.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Group Activity [2:34]
+02. Excursion [3:42]
+03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255677   (361663) от 19.10.2018
+
+Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Struttin' (9:24)
+ 02. Blue Minor (10:20)
+ 03. Sippin' at Bells (8:18)
+ 04. Deep Night (9:34)(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99A55EED71D8E3CDD4DA5E5980B9F3A5BECB9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255699   (361660) от 19.10.2018
+
+VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abdullah Ibrahim - Angelica [6:27]
+02. Abraham Burton - Laura [5:00]
+03. Antonio Hart - Somewhere [5:25]
+04. Bennie Wallace - How Long Has This Been Going On [5:21](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154414   (361572) от 23.11.2009
+
+Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_361572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
+Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
+02. I Just Called To Say I Love You (4:56)
+03. One More Night (5:30)
+04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

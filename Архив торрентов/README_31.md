@@ -1,3 +1,32 @@
+###  Публикация: 1437331   (1042280) от 04.01.2021
+
+Saint Abdullah - In God's Image 2CD, (2020) [FLAC|Lossless|tracks + .cue] <Sound Collage,  Post-Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory of a Nostalgic Feeling (05:27)
+02. Chief Clerk (12:35)
+03. Orbit of Zero (05:35)
+04. Potion for Sorrow (05:02)(   Читать дальше...   )Жанр: Sound Collage,  Post-IndustrialПродолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED253E3D557AEAB29CFA06ED1C00ECD3BD6D91E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437326   (1042276) от 04.01.2021
 
 DirPrintOK 4.77 Portable [Multi/Ru]
@@ -652,35 +681,6 @@ Acronis True Image WD Edition - бесплатная версия програм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532773C6032CD286F937BCAFE132ED218AA018C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182220   (1042133) от 04.01.2021
-
-Timmy Trumpet - Freak Show (089-131) (2017-2021) [MP3|160-320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freak Show 089 - Tomorrowland Live Set:
-1) Carnage ft. Timmy Trumpet & KSHMR - Toca
-2a) Rune RK - Calabria (Tool)
-b) Dimatik & Monik & Carroch - Giratina(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 43:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4EFC0850D482012303ED5D7E3F73F9A3A5F754
 ```
 
 https://mybot314.ru/tekegram_catalog/

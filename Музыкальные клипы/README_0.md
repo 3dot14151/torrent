@@ -1,3 +1,191 @@
+###  Публикация: 1864863   (1065007) от 14.04.2026
+
+Юрий Сучков  - Приключения Дуратины (2026) WEBRip [H264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский столяр Папа Карло смастерил из Сучков Буратинку, которая ожила и начала свой жизненный цикл.Производство: driver3studioЖанр: Chanson, ЮморРежиссер: Юрий СучковПродолжительность: 00:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7827547585FDABF87D821F9A7EF7E8488EB1F96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864869   (1065006) от 12.04.2026
+
+Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный клип с одноименного альбома группы Laibach, выпуск которого запланирован в May 1, 2026Жанр: industrial, neo-classicalПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD6B0D784DD66E49136490DB2FDA9A77A5FBD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864882   (1065003) от 12.04.2026
+
+Юрий Сучков. Сказка о царе Шайтане (2026) WEBRip [H264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065003.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 Анимационных музыкальных видео. На одноименные аудиотреки с одноименного аудиоальбома.Производство: driver3studioЖанр: Chanson, ЮморПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD5C977233EB4ED0B0F00ECECC3714F17DB9FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861686   (1062907) от 26.03.2026
+
+Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из четырёх участниц компании P NATION. Дебютировали 23 июня 2025 года с сингловым альбомом "F Girl"
+After Cry - первый мини-альбом Baby DONT Cry. Он был выпущен 24 марта 2026 года с "Bittersweet" в качестве заглавного трека. Релиз клипа состоялся днем ранее. Предварительный релиз "Shapeshifter" состоялся 11 марта.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7D9C74C566994B127C1B0C1EAD222D2DE167C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861027   (1062198) от 23.03.2026
+
+Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из пяти участниц компании TOP Media. Они дебютировали 1 ноября 2024 года с сингловым альбомом "Best Friendz".
+12 марта 2026 года ODD YOUTH выпустили свой второй сингловый альбом и клип "Babyface".Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C27A3892E43DE9724CA3A9C1858CA42C4F4123D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861051   (1062190) от 23.03.2026
+
+Narin - No Savior (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нарин (На Рин)- южнокорейская певица является участницей женской группы MEOVV.
+21 марта 2026 года состоялся релиз песни и клипа «NO SAVIOR» для дорамы tvN «Mad Concrete Dreams».Производство: Южная КореяЖанр: ElectronicaПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8F72570441A7AD1E81024F55E9D945E8415E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860170   (1061855) от 20.03.2026
+
+DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарные музыкальные клипы от мегапопулярного DJ Slon (Александр Альберт) & Ангел-АDj Slon & Ангел-А - А ты меня любишь...(AVC 1280x720).mp4
+DJ Slon & Ангел-А – Джимми, Джимми (AVC 720x256).mp4
+DJ Slon feat Katya - Цыплёнок Пи (AVC 854x480).mp4
+Ангел А - Блондинка (AVC 640x392).mp4(   Читать дальше...   )Жанр: Europop, Disco, Euro-House, Pop, RapПродолжительность: 00:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1076FF49BF9E5108F210FE594E9EA8A978290073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849267   (1061335) от 16.03.2026
 
 MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
@@ -504,199 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7986F9B02E09588BF1C80CA0071FDFEC4EBD6A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437698   (1041893) от 05.01.2021
-
-Сборник клипов - Philizz "Video Yearmix" (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Video Yearmix 2020" - фирменный видеомикс от голландского ви-джея Philizz. Два с половиной часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2020 года ждёт Вас! Приятного просмотра!
-Разбивка по трекам отсутствует.Philizz – The Apocalyptic Intro
-Juice WRLD ft. Marshmello – Come & Go
-Shawn Mendes ft. Justin Bieber – Monster
-Justin Bieber – Yummy(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3139EC9DC6B0B9BBE4BC46793BABF145B7BA7F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615625   (1036126) от 03.03.2023
-
-Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5AC7E9B28F87D16F4060429CA63A9F3C551A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443701   (1035067) от 30.01.2021
-
-Сборник клипов (01.2021) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за январь 202101_MIA BOYKA, T-killah - Лепесток
-02_Alan Walker & ISAK - Sorry
-03_Markus Schulz & Christina Novelli - Not Afraid To Fall
-04_Brando - Close To You(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DF2932F71450C9A9DCBBEB256E8CF3B644B81F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444749   (1033915) от 04.02.2021
-
-Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <Acoustic, Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Габриэлла родилась и выросла в Чинне, Швеция. Начала играть на гитаре достаточно рано, её первым преподавателем был её отец. С двенадцати лет Габриэлла начала играть на гитаре, в основном в технике фингерстайл. Сначала она играла каверы других исполнителей, а также собственные аранжировки на платформе YouTube. В июле 2018 года альбом с названием "Acoustic Cover (   Читать дальше...   )01. (ABBA) Happy New Year - Gabriella Quevedo
-02. (ABBA) Lay All Your Love On Me - Gabriella Quevedo
-03. (ABBA) Money Money Money - Gabriella Quevedo
-04. (ABBA) The Winner Takes It All - Gabriella Quevedo (std)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: ~00:03:00-00:07:00 ролик, (общая 05:50:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DBA44CD2F64580B62BC40FD05A33C1974B3C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619920   (1032498) от 18.03.2023
-
-Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480921AF761699C3F435C53512DF1FC4B7DA2EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445972   (1030665) от 18.02.2021
-
-Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered upscale AI] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
-</div>
-
-
-###  Подробнее
-
-:question:  А че писать? Клип он и есть клип, веселый, красочный. Сиськи, много Сисек. Потому и рейтинг НЕ детский, а еще коробки с презервативами полным кадром. Так что - клип точно не детский.
-Клип переделан в Топазе с увеличением размера картинки, предварительно до него была снята гребенка с оригинального DVD-сборника клипов (качество там полная дрянь). Надеюсь (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF4621DD8B644F673EA88D74295EAD400C91D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 64632   (1030591) от 18.02.2021
-
-VA «20 Years Of Nuclear Blast» 2007 2DVD
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двойной DVD, выпущенный в честь 20-летнего юбилея легендарной немецкой звукозаписывающей компании Nuclear Blast и содержащий почти шесть часов видео! На дисках вы найдете 70 клипов и историю лейбла в четырех частях, рассказанную фронтменом Destruction Sсhirmer'ом. Также вы обнаружите массу интересного дополнительного материала. И конечно, о своей компании вам расскажет (   Читать дальше...   )Жанр: VARIOUSАктеры: NIGHTWISH, DIMMU BORGIR, IN FLAMES, HYPOCRISY, IMMORTAL, BLIND GUARDIAN, NILE, CHILDREN OF BODOM, HAMMERFALL, AMORPHIS, CLAWFINGER, DIE APOKALYPTISCHEN REITER, KATAKLYSM, SONIC SYNDICATE, DESTRUCTION, SOILWORK, EXODUS, CHIMAIRA, THERION, MESHUGGAH, ANTHRAX, EDGUY, AFTER FOREVER, EPICA, SONATA ARCTICA, WINTERSUN и другие.Перевод: ОригинальныйПродолжительность: 350:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94F2C41810C38151AAB68AB0C4100DF14E2C65A
 ```
 
 https://mybot314.ru/tekegram_catalog/

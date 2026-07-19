@@ -1,25 +1,25 @@
-###  Публикация: 1675059   (160628) от 07.11.2023
+###  Публикация: 1520087   (141385) от 28.12.2021
 
-Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 MHz/1|tracks|SACD] <Rock, Pop Rock, Symphonic Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Best of Me (4:04)
-02. Carrie (3:53)
-03. My Kinda Life (3:31)
-04. Wired for Sound (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:28
+A1 Shine A Little Love 4:42
+A2 Confusion 3:42
+A3 Need Her Love 5:12
+A4 The Diary Of Horace Wimp 4:17(   Читать дальше...   )Жанр: Rock, Pop Rock, Symphonic RockПродолжительность: 00:39:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B271498896F48E4F69A57FEAA739066C1F2D39B
+magnet:?xt=urn:btih:08F79219744DB560ED0623BFA83D10ED099C968A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,57 +27,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675075   (160596) от 07.11.2023
+###  Публикация: 740292   (141203) от 30.12.2013
 
-Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae, World>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160596.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Concrete Jungle [4:14]
-02. Slave Driver [2:55]
-03. 400 Years [2:47](   Читать дальше...   )Жанр: Reggae, WorldПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A841B8D3D359A37509E97402097F364289CAF0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675153   (160421) от 08.11.2023
-
-David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, Blues-rock>
+Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Electro, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side one
-01. "Lady"
-02. "Blindman" (Coverdale)
-03. "Goldies Place" (Coverdale)(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:39:38
+Сторона 1
+1. I Love You  3:23
+2. Lost Again  4:18
+3. No More Words  3:59
+4. Crash Dance  2:10
+5. Great Mission  2:57
+6. You Gotta Say Yes To Another Excess	2:10
+Сторона 2
+1. Swing  3:22
+2. Heavy Whispers  3:57(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 00:37:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
+magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,289 +62,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675552   (160316) от 09.11.2023
+###  Публикация: 1348746   (140982) от 29.12.2019
 
-Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: Under The Pyramids (0:51)
-02. Egyptron (5:00)
-03. Living Dead In Beverly Hills (2:19)
-04. Rusted Gold (3:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD6B4F5E46DDAE03C095BCC627C6355877745FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675575   (160290) от 09.11.2023
-
-Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowly Light Collides (5:14)
-02. Mind Is A Shadow (feat. Vincent Jackson Jones) (4:59)
-03. How Many Dreams (4:01)
-04. Spirit And Matter (5:00)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8EEFD90DD69020A9D39C198BEBE268DCB9DE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675598   (160288) от 09.11.2023
-
-D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock , Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard to Be Easy (5:10)
-02. Linger at the Edge of My Memory (5:05)
-03. Tiny Little Fires (3:33)
-04. Right Where You Should Be (3:43)(   Читать дальше...   )Жанр: Progressive Rock , Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675605   (160280) от 09.11.2023
-
-Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crossing Toll (1:59)
-02. J.'s Serenade (5:52)
-03. Aura (4:34)
-04. Bloody Wednesday (5:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675291   (160262) от 09.11.2023
-
-Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Experimental, Trip Hop, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humming (Live / Remastered 2023) [6:33]
-02. Cowboys (Live / Remastered 2023) [4:58]
-03. All Mine (Live / Remastered 2023) [4:02]
-04. Mysterons (Live / Remastered 2023) [5:44](   Читать дальше...   )Жанр: Experimental, Trip Hop, DowntempoПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4001162E704FBD0A76B0A4A02CFF8065AB122E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675280   (160259) от 09.11.2023
-
-Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RIVIERA [0:54]
-02. ESCAPE [3:14]
-03. EPITAPH [3:41]
-04. SUFFOCATE [3:48](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, Hard RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E373CF70C3C93500CB9EDF6EA4440057BD5E4E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675337   (160250) от 09.11.2023
-
-Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Metalcore, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Valley [5:30]
-02. Time for a New Era [4:28]
-03. Ghost of the Past [3:59]
-04. Digging Our Graves [4:54](   Читать дальше...   )Жанр: Metal, Metalcore, Melodic Death MetalПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6DCB5884F7682F9C96BB6D25749B60B6600020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675321   (160234) от 09.11.2023
-
-War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nothing (That Is Me) [5:07]
-02. Fortress of Agony [3:25]
-03. Confession [4:08]
-04. Miracle Broker [3:20](   Читать дальше...   )Жанр: Metal, Heavy Metal, Thrash MetalПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FCAA72587065BDADE01C8FF84B559B7C2C53B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675318   (160217) от 09.11.2023
-
-Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viking Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Immer Treu [4:19]
-02. Schildmaid [4:08]
-03. Weltenfeind [4:25](   Читать дальше...   )Жанр: Pagan Metal, Viking Metal, Melodic Death MetalПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551791   (160021) от 22.12.2022
-
-Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Power Metal>
+Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Battle Beast — финская хэви-метал-группа из Хельсинки. Группа была основана в 2005 году.2011 - Steel
-2013 - Battle Beast
-2015 - Unholy Savior
-2017 - Bringer of PainЖанр: Heavy Metal, Power MetalПродолжительность: 05:14:23
+01. Happens to the Heart (4:34)
+ 02. Moving On (3:12)
+ 03. The Night of Santiago (4:15)
+ 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
+magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +91,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315014   (159988) от 22.12.2022
+###  Публикация: 1679139   (140599) от 24.11.2023
 
-Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Smooth Jazz, Soul, Funk>
+Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 System Of Survival
-A2 Evil Roy
-A3 Thinking Of You
-A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, FunkПродолжительность: 00:43:06
+A1. The Leper Affinity (10:23)
+A2. Bleak (09:17)
+B1. Harvest (06:01)
+B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
+magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,57 +120,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675854   (159864) от 10.11.2023
+###  Публикация: 1679247   (140591) от 24.11.2023
 
-Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Groove Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Butcher Babies — американская метал группа из Лос-Анджелеса, Калифорния. Группа была создана в 2010 году2013 - Goliath
-2015 - Take It Like A Man
-2017 - Lilith
-2023 - Eye for an Eye... / ...'Til the World's BlindЖанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 03:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675585   (159850) от 10.11.2023
-
-James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Saving A Life [2:56]
-02. Some Kind Of Beautiful [2:58]
-03. Beside You [3:06]
-04. Last Dance [2:49](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:43:49
+01. Archers (3:44)
+02. Finding Pieces (4:17)
+03. Fly (4:27)
+04. Freedom (5:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3524940E2773CC9148E3F7190D46B7F2F0EBF226
+magnet:?xt=urn:btih:6375584D82F30A947C3F2662B07BE92F425D583C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,58 +149,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599746   (159564) от 24.12.2022
+###  Публикация: 1272661   (140587) от 29.12.2018
 
-Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.1 CD-DA| 44.1/16|image+.cue|Audio-DVD] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая дилогия AYREON “Universal Migrator” была переиздана в различных форматах 18 ноября.
-Лидер AYREON Арьен Люкассен (Arjen Lucassen) заявил: "Я тщательно ремикшировал и ремастировал эти альбомы, и они будут выпущены во множестве форматов с кучей бонус-треков и книжкой комиксов... ". Вот один из этих форматов - Audio-DVD (не путать с DVD-Audio!) (   Читать дальше...   )Universal Migrator Pt 1: The Dream Sequencer
-01. The Dream Sequencer (5:09)
-02. My House On Mars (7:50)
-03. 2084 (7:41)(   Читать дальше...   )Продолжительность: 01:10:11+01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF9EC72A945A7D35F72BB3A5DCD9060CD6F9EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599928   (159385) от 25.12.2022
-
-Дмитрий Полторацкий - Моё Ружьё (1992) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson>
+VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 На Фазенду
-A2 Молдавское Вино
-A3 Ночка
-A4 Америка(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:13
+Side A:
+01. Балаган LTD & Филипп Киркоров - Наивная
+02. Таня Буланова - Пела Я Тебе
+03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
+magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +178,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676081   (159314) от 11.11.2023
+###  Публикация: 1679234   (140580) от 24.11.2023
 
-illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Psytrance, Progressive House>
+Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starfall (Trivecta Remix) [3:47]
-02. Starfall (Lost Prince Remix) [3:28]
-03. Starfall (Gem & Tauri Remix) [4:26]
-04. Starfall (3THOS x Draeden Remix) [4:02](   Читать дальше...   )Жанр: Electronic, Psytrance, Progressive HouseПродолжительность: 02:45:26
+01. Prelude To Passion (1:24)
+02. While Passion Lasts (3:35)
+03. Blood From A Stone (4:36)
+04. Mr. Know It All (3:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
+magnet:?xt=urn:btih:79BBDD37C8F5D6C4465FCE1D3B9DA71EE93BC5D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +207,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676143   (158997) от 12.11.2023
+###  Публикация: 1679170   (140561) от 24.11.2023
 
-Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
+Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have the Power [00:02:05]
+02. Xenon Gods [00:04:23]
+03. A Silent Symphony [00:06:23]
+04. Bridge of Death [00:04:48](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679249   (140521) от 24.11.2023
+
+Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows Of Life (3:31)
+02. Twist Of Fate (4:44)
+03. Face The Night (3:34)
+04. Last Of The True Believers (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679188   (140479) от 24.11.2023
+
+Big Something - Headspace (2023) [FLAC 24/44.1, 24/96|Lossless|WEB-DL|tracks] <Alternative,  Funk,  Jam, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The Mountain
+02 – Bob and Weave
+03 – Chemistry
+04 – Algorithm(   Читать дальше...   )Жанр: Alternative,  Funk,  Jam, RockПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2138B91BAF94971AE504C7E0C3B8072AA3145AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272890   (140396) от 29.12.2018
+
+Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
-2007 - Give 'Em War
-2010 - Clockwork
-2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
+01. Rock And Roll (3:57)
+02. Celebration Day (3:38)
+03. Black Dog (3:45)
+04. Over The Hills And Far Away (6:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
+magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +323,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676137   (158995) от 12.11.2023
+###  Публикация: 1679144   (140314) от 24.11.2023
 
-Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Nektar - Remember The Future (1973) 50th Anniversary Edition, 2023, Esoteric [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: 2023 Remaster
+Disc 2: 2023 Stereo Remix, Remaster
+Disc 3: Live, Stadthalle, Munster, Germany, 28 January 1974(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, FunkПродолжительность: 4CD, 03:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB5CE58F15DAC5DAC731639B20B849A915C5E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679160   (140245) от 24.11.2023
+
+Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Electro, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atma [00:03:45]
+02. A Million Miles [00:04:56]
+03. Silicon Dreams [00:04:02]
+04. Downfall [00:04:27](   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B972888759BEE32F730C158F5DD81CAFD1834335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679135   (139951) от 24.11.2023
+
+Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Original Album (2023 Remaster)
+Disc 2: Steven Wilson 2014 Remix and Instrumentals
+Disc 3: Rarities (2023 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F9AD47B6ED88A35E001557C3660E848EFD9591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678561   (139726) от 24.11.2023
+
+КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Evile — британская трэш-метал-группа, сформированная в 1999 году в городе Хаддерсфилд, Уэст-Йоркшир.2007 - Enter the Grave
-2009 - Infected Nations
-2011 - Five Serpent's Teeth
-2013 - SkullЖанр: Thrash MetalПродолжительность: 05:18:35
+[4:16] 1. Атаман
+[4:16] 2. Атаман (Karaoke)
+[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
+magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,28 +438,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555578   (158834) от 12.11.2023
+###  Публикация: 1679208   (139716) от 24.11.2023
 
-Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Up Against The Wall (Live in Atlanta, 1978) [00:04:49]
+02. Sky High (Live In Pittsburgh, 1977) [00:05:20]
+03. Homesick (Live in New York City, 1971) [00:04:50]
+04. Champagne Jam (Live in Tokyo, 1978) [00:04:44](   Читать дальше...   )Жанр: Southern RockПродолжительность: 2 CD, 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436084   (139412) от 30.12.2020
+
+Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Doro (Dorothee Pesch) — немецкая певица, экс-вокалистка хэви-метал-группы Warlock, в настоящее время занимается сольной карьерой. Доро начала карьеру в 1980-е и стала одной из первых женщин, прославившихся в тяжёлой музыке, за что получила от фанатов прозвище «Metal Queen».1984 - Burning The Witches
-1985 - Hellbound
-1986 - True As Steel
-1987 - Triumph And Agony(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 16:35:23
+Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
+A1 Girls, Girls, Girls
+A2 Save Your Kisses For Me
+A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
+magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,28 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 967155   (158601) от 20.12.2015
+###  Публикация: 1273047   (138945) от 30.12.2018
 
-V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic, Jazz>
+VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amarna - Night Rain (5:10)
-02. Christopher Franke - Black Garden View (4:53)
-03. Divine Works - Ancient Person Of My Heart (3:24)
-04. Dune - Who Wants To Live Forever (3:58)(   Читать дальше...   )Жанр: Blues, Electronic, JazzПродолжительность: 01:15:11
+01. А. Хоралов - А снег рисует...
+02. Л. Долина - Страна Лимония
+03. И. Саруханов - Падал снег
+04. Группа "НРГ" - Время зовет меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67028093889178F1D8A726D424A92E81C45797E3
+magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +525,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475961   (158320) от 21.12.2015
+###  Публикация: 1436103   (138880) от 30.12.2020
 
-Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, symphonic rock>
+VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive rock, symphonic rockПродолжительность: 00:55:34
-
-01. A Nod And A Wink (11:17)
-02. Simple Pleasures (5:28)(   Читать дальше...   )
+Side A:
+01. Gene Autry - Rudolph the Red-Nosed Reindeer
+Ultimate Christmas, Vol. 1
+1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80AFEB5A0666EBCCADA4B06E14601EFB7E90608C
+magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +554,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 968048   (158178) от 22.12.2015
+###  Публикация: 1679464   (138537) от 25.11.2023
 
-Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
+Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. What'll I Do? - Tierney Sutton
-  2. LWB's House (The Remix) - Dave Holland
-  3. Walkin' In N.Y. - Manhattan Transfer
-  4. Wind Song - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:06:10
+A1 Pyramid Of Terror
+A2 I Am The Freak
+A3 Secrets Of Time
+A4 Master Of The Deep(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D4212292897F7A88AE1C3015010B4932F1A02E3
+magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,28 +583,172 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 968049   (158169) от 22.12.2015
+###  Публикация: 1679295   (138415) от 25.11.2023
 
-Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
+Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock with classic roots>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Some Skunk Funk - Randy Brecker with Michael Brecker
-2. Oh What A Beautiful Morning - Ray Charles
-3. You Are My Sunshine - Tierney Sutton Band
-4. Caravan - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:04:42
+01. Dead Man’s Boots [00:05:31]
+02. Ain't Got Nine Lives [00:04:40]
+03. The Seven Seas [00:05:34]
+04. Remember or Forget [00:05:16](   Читать дальше...   )Жанр: Modern rock with classic rootsПродолжительность: 00:51:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F0145D314C14A655120B3B2E310342B4BAD24F
+magnet:?xt=urn:btih:BFD9955AE5B62AFE0D03D8A72461770459808331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679363   (138112) от 25.11.2023
+
+Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 True Love
+A2 Ramblin' Rose
+A3 I Love You Because
+A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679419   (138108) от 25.11.2023
+
+Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Herald of Darkness [13:35]
+02 - Herald of Darkness (Video Edit) [8:38]
+03 - Herald of Darkness (Radio Edit) [3:40]Жанр: Metal, Heavy MetalПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088514   (138074) от 31.12.2016
+
+John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138074.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. (Just Like) Starting Over (3:57)
+A2. Kiss Kiss Kiss (2:43)
+A3. Clean Up Time (2:59)
+A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349159   (137949) от 31.12.2019
+
+Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jitterbug Waltz (5:21)
+ 02. Nuages (2:26)
+ 03. A Night in Tunisia (5:55)
+ 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679306   (137815) от 25.11.2023
+
+Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Special Edition, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Gracia [00:04:44]
+02. Ô Viens, Ô Viens Emmanuel [00:04:59]
+03. O Christmas Tree [00:03:39]
+04. Feliz Navidad (Barbuda Relief and Recovery Charity Version) [00:06:36]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 2 CD, 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

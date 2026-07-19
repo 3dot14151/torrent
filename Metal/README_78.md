@@ -1,3 +1,90 @@
+###  Публикация: 1578424   (345853) от 23.09.2022
+
+Saber - Without Warning (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm of Steel [00:03:59]
+02. Without Warning [00:04:16]
+03. Midnight Rider [00:04:35]
+04. Strike of the Witch [00:03:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8AE27A1753947296E16C1DB729E69ED391346E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330084   (345608) от 08.10.2019
+
+Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halloween (Live) (13:37)
+02. Dr. Stein (Live) (05:36)
+03. I'm Alive (Live) (03:47)
+04. If I Could Fly (Live) (04:00)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BB5A68CE0F6DBD0EA9569C3401AF39F0FC959C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179801   (344577) от 02.11.2017
+
+Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344577.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Libera (Part I) - Saturnine Spheres
+2. Libera (Part II) - Ascent Of Burning Moths
+3. Intra Venus
+4. Eyrie(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF98D16C33790165BC5040687F02F3A4B3EE58AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180101   (344438) от 02.11.2017
 
 Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
@@ -658,93 +745,6 @@ Dark Quarterer - Pompei (2020) [MP3|320 Kbps] <Epic Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7A33DC0BCBC61C38F0B687A3EF3CC4351804144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579659   (334705) от 28.09.2022
-
-Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stab the Brain [00:03:15]
-02. Final Frost [00:04:09]
-03. The Voracious One [00:04:26]
-04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D27859F952CCB4682EBDB2153681CC8AFDF525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258830   (334596) от 31.10.2018
-
-Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колискову Співала Зима
-2. Блукав Крізь Тумани Місяць Блідий
-3. Темні Думи
-4. Тужили Ясні Зорі(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0343248DF6A505951EEB9FE93BADD507994E6778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420237   (334009) от 31.10.2020
-
-Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entombed (04:37)
- 02. Ashenlord (05:37)
- 03. Revenance (05:11)
- 04. Abyss (05:31)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
 ```
 
 https://mybot314.ru/tekegram_catalog/

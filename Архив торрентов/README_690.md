@@ -1,29 +1,3 @@
-###  Публикация: 1492855   (900831) от 31.08.2021
-
-SiteSucker Pro 4.1.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900831.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7FB7C13F94D1EC534C4112D2080187C2B8A4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637513   (900830) от 31.03.2013
 
 День cвятого Валентина / Valentine (Music From The Motion Picture) (2001) [FLAC|Lossless]<Soundtrack>
@@ -690,6 +664,32 @@ AnyDesk 2.2.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99CBAB986284E77E7E21B7C877E698D5331D4305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992424   (900514) от 02.03.2016
+
+Adguard 6.0.202.1020 R2 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB5EC2195DF4F7AA791919589C35E77E31F9CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

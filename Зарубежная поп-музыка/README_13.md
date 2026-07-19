@@ -1,3 +1,32 @@
+###  Публикация: 1003821   (841865) от 04.04.2016
+
+Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Park
+02. Gravity
+03. Unseen
+04. Darker in the Morning(   Читать дальше...   )Жанр: 80's Retro Pop, SynthpopПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49247427E8ABDED75FA4AC57F630EC29F9ED50FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003995   (841794) от 04.04.2016
 
 Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
@@ -714,35 +743,6 @@ VA - Retro Disco Koktel (2006) Compilation, Partially Mixed [MP3|255~303 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AADB82AB3287CB76B91F90B6D79F3FD44976260D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115987   (824751) от 19.03.2017
-
-Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps] <Disco,  Funk-Soul, Classical, Easy Listening, Modern>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный проект итальянского пианиста, композитора, руководителя оркестра и мюнхенской группы Giorgio Moroder - Munich Machine.01. Sheherazade (4:14)
-02. Ol' Man River (3:16)
-03. From The New World Symphony (7:10)
-04. Serenade (4:13)(   Читать дальше...   )Жанр: Disco,  Funk-Soul, Classical, Easy Listening, ModernПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

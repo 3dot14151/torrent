@@ -1,3 +1,32 @@
+###  Публикация: 1198371   (808286) от 11.01.2018
+
+VA - Best Of Love Songs (2017) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808286.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  The Drifters  -  Save The Last Dance For Me  2:28
+02.  Laura Branigan  -  Power Of Love  5:20
+03.  All Saints  -  Never Ever  3:51(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC1A22726EEFA33F64FB07060BCBCCF60D8FC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383859   (808269) от 17.05.2020
 
 VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
@@ -713,35 +742,6 @@ VA - Top Hits Winter 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2B63E19CE03D5C78F2FBCB150EEF436C8EB592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121816   (799668) от 03.04.2017
-
-Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
-02. Lady Madonna (3:36)
-03. Eleanor Rigby (3:50)
-04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
 ```
 
 https://mybot314.ru/tekegram_catalog/

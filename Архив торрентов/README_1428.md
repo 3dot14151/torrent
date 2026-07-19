@@ -1,177 +1,3 @@
-###  Публикация: 1127731   (731146) от 22.04.2017
-
-Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nice Clipboard - Отличная реализация менеджера буфера обмена
-Nice Clipboard - Чистый, привлекательны и простой в использовании.
-
-Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью iCloud между вашими компьютерами Mac и  iOS устройствами и написан с использованием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jedrzej GronekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E629E20586BA7EA272081747DA097B24C4BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127588   (731140) от 22.04.2017
-
-VA - EDM Base Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
-02.  Audino - Beat Maniac (Original Mix)  3:47
-03.  Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)  2:33
-04.  Moroshka - 4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE2A918B8F933A152CA0EDD717F426D1C78AE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127005   (731137) от 22.04.2017
-
-Биатлон. Чемпионат России 2017. Уват (Россия). Спринт (25.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731137.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 марта 2017 года, суббота
-Чемпионат России по биатлону 2017 года. Уват (Россия)
-1. Женщины. Спринт 7,5 км
-2. Мужчины. Спринт 10 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:12 - 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276AB8F3BE6DDBC055C3F6CBABC47E114C57929F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127578   (731134) от 22.04.2017
-
-Quiver: The Programmer's Notebook 3.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quiver — это записная книжка, специально созданная для программиста.
-
-Основные возможности:
-	•	С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: HappenApps, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A52C60770BEA4CA29BADEB52DC84C197442569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127592   (731132) от 22.04.2017
-
-Sublime Text 3 Dev (3130) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C15FB0A0701F545E4F2A28D3F78BE89AAFBAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127587   (731128) от 22.04.2017
-
-Pudgee - King Of New York (1995) Limited Edition, 2017, Back2DaSource Records [FLAC|Lossless|tracks + .cue] <Hip-Hop, Boom Bap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731128.jpg" />
-</div>
-
-
-###  Подробнее
-
-King Of New York' is Pudgee's second unreleased album recorded in 1995. Production was handled by cats such as Nick Wiz, Da Beatminerz, Chris Large, Ez Elpee and S.I.D. Reynolds just to name a few.
-
-Now we bring you a deluxe edition of no less than 18 tracks, including a previously unreleased bonus track of more than 6 minutes featuring Da King & I and Homacyde! (   Читать дальше...   )01 - Barry White Intro (0:11)
-02 - On The Regular (4:43)
-03 - Money Don't Make Your World Stop (4:27)
-04 - Talk Behind Your Back (4:44)(   Читать дальше...   )Производство: Perspective Records (1995) / Back2DaSource Records (2017) – 001CDB2DSЖанр: Hip-Hop, Boom BapПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0290D150CA9A3769B0632790F4A586595FCF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127745   (731127) от 22.04.2017
 
 Direct Message for Instagram Pro 4.1.2 [Multi/Ru]
@@ -707,6 +533,165 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:875A591D8A88A00067F5B2ABA29CB397F8A8B1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021666   (730972) от 31.05.2016
+
+Журнал | Nuts And Volts №6 (июнь 2016) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730972.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB58C82553A5C1F768358F80F63C5A2C44FD776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127847   (730964) от 22.04.2017
+
+USDownloader 1.3.5.9 Portable (22.04.2017) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87943224F180B9EAE702730470221CAD4CE4CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021893   (730963) от 31.05.2016
+
+Obie Trice - The Hangover (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:19)
+02. Chuuuurch! (5:33)
+03. Bruh Bruh (3:32)
+04. Obie's Tidal (0:46)(   Читать дальше...   )Производство: Black Market Entertainment – BME005Жанр: Hip HopПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B52CDA372DA986BCEED61706CDA02764417EA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127770   (730955) от 22.04.2017
+
+Вокруг смеха (2017.04.22) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современной основой «Вокруг смеха» станут номера различных юмористических жанров, как новых, так и классических. В программе встретится прошлое и настоящее: сатирический монолог и стенд-ап, театральная миниатюра и скетч, музыкальные номера и современные пародии со сложным пластическим гримом. А также зрители смогут увидеть классические юмористические номера из обширного (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209BA4A84F167BC9CB3889B82640EB32E59B6C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283975   (730953) от 19.02.2019
+
+Master PDF Editor 5.3.14 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor - это простая и удобная программа для работы с PDF документами, оснащенная мощным и богатым функционалом. С помощью Master PDF Editor вы сможете просматривать, создавать и легко вносить изменения в PDF документы. Программа позволяет объединять несколько файлов в один и разделять исходный файл на несколько документов, комментировать, шифровать, подписывать (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F420626BC2A7865C6D3DE4523A67BB7D8F3E90E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127701   (730944) от 22.04.2017
+
+GPU Caps Viewer 1.34.2.1 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730944.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455D246EAD5D40618B0DE887292052472918A961
 ```
 
 https://mybot314.ru/tekegram_catalog/

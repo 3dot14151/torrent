@@ -1,3 +1,67 @@
+###  Публикация: 581571   (337824) от 27.11.2012
+
+Rainbow - Long Live Rock 'n' Roll [Deluxe Remastered Edition] (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lady of the Lake (Rough Mix) (Bonus Track) (3:52)
+ 2. Sensitive to Light (Rough Mix) (Bonus Track) (3:04)
+ 3. L.A. Connection (Rough Mix) (Bonus Track) (5:35)
+ 4. Kill the King (Rough Mix) (Bonus Track) (4:29)
+ 5. The Shed (Subtle) (Rough Mix) (Bonus Track) (3:38)
+ 6. Long Live Rock 'n' Roll (Rough Mix) (Bonus Track) (4:20)
+ 7. Rainbow Eyes (Rough Mix) (Bonus Track) (6:56)
+Shepperton Studios Rehersals
+ 8. Long Live Rock 'n' Roll (Take 1) (Rehearsal 1977) (Bonus Track) (6:59)
+ 9. Kill the King (Rehearsal 1977) (Bonus Track) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D71D272A924E0A43F643CD29E4C19C2C4E1985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955142   (337195) от 09.11.2015
+
+Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamrock Fever
+02. We'll Burn The Sky
+03. I've Got To Be Free
+04. The Riot Of Your Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4021B39450B90EE442C15AB46461E3FDB690020F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955116   (336914) от 09.11.2015
 
 Scorpions - World Wide Live (1985) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Rock, Hard Rock>
@@ -690,64 +754,6 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CD7A6348C878E715137BFBE4B7298FF4386215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421677   (317412) от 05.11.2020
-
-Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Set You Free (2020 Remix) (04:08)
- 02. The Deeper The Love (2020 Remix) (04:02)
- 03. All I Want, All I Need (2020 Remix) (05:42)
- 04. Too Many Tears (2020 Remix) (06:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4788B012ED44636393B9EB3F06904998C77BB626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076312   (314041) от 25.11.2016
-
-Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Take Care Of You (03:13)
-02. Leave Me Alone (03:52)
-03. Down On Your Knees (03:26)
-04. Follow Me (04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B4E0248FA58F07078FF12C1454AD66C0D56BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

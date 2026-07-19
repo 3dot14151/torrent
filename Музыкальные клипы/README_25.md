@@ -1,3 +1,116 @@
+###  Публикация: 943852   (444752) от 05.10.2015
+
+VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
+2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
+3. Alex Adair - Heaven (Official Video) (00:03:07)
+4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706263   (444038) от 02.10.2013
+
+Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 50 Cent - Outta Control 1080p (3:23)
+2. Aircraft & Miss Palmer - Dont Ever Let Go 1080p (3:23)
+3. Alchemist Project Feat.Angie - Don't let me down 1080p (3:10)
+4. Alex C feat. Lisa Rowe - Feed Me Diamonds 1080p (3:38)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E87DB59ECAB6DFB15A6A4359C593CAEC047E173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061467   (443628) от 12.10.2016
+
+Баджирао и Мастани / Bajirao Mastani (2015) BDRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами роскошные клипы из фильма, повествующего об удивительной истории любви Баджирао и его второй жены, принцессы Мастани... Наслаждайтесь восточным зрелищем!1. Aayat
+2. Deewani Mastani
+3. Malhari
+4. Mohe Rang Do Laal(   Читать дальше...   )Производство: Индия (EROS)Жанр: Музыка, клипыРежиссер: Санджай Лила Бхансали (Sanjay Leela Bhansali)Актеры: Приянка Чопра, Дипика Падукон, Ирфан Кхан, Ранвир Сингх и др.Язык субтитров: РусскийПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B08664B9F82E322A94ADB29EB1C60D5EF81684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553243   (443354) от 28.09.2012
+
+Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видео группы Uriah Heep01.Жанр: Музыка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0729DFA1E1C2AC8A94EBD6A6AAC4326ECA335F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943866   (439728) от 07.10.2015
 
 25/17 - Русский подорожник (Сборник видеоклипов) (2014) WEB-DLRip
@@ -617,115 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8936C61D714FECAF1738F6D44820B6EF5BBA65B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412526   (413464) от 01.10.2020
-
-Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
-В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947680   (411098) от 20.10.2015
-
-VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
-02. Bielfield - Frequency (Official Video) (00:03:21)
-03. Corina Smith - La Difícil (Official Video) (00:03:16)
-04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559270   (409693) от 12.10.2012
-
-Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559503   (409588) от 12.10.2012
-
-Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличнейший сборник  клипов (heavy metal, hard / glam rock) ...
-( Некоторые клипы ну ОЧЕНЬ редкие!)Жанр: Музыка,Heavy Metal, Hard , Glam RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C874A0D9299E562FBC635FA96609BAE96FFD64
 ```
 
 https://mybot314.ru/tekegram_catalog/

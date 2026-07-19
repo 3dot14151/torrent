@@ -1,32 +1,3 @@
-###  Публикация: 1074364   (338425) от 19.11.2016
-
-Легендарные Пластилиновые Ноги - В духе времён (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игреки-иксы
-02. Кино
-03. Паразит
-04. Без прикрас(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934382E25824671B46F28D32AA08EC7812973215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181074   (338011) от 05.11.2017
 
 Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
@@ -745,6 +716,35 @@ Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C8E0F84C8AF8C128C96F5A6D8C29E44252A45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580473   (330802) от 01.10.2022
+
+Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 2021, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Now
+02. 	Unbelievable
+03. 	You're So Beautiful
+04.	Everyday(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEA0780C209445396D56E9CFC404E372C40D1EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

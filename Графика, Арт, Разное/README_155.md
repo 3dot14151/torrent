@@ -1,12 +1,12 @@
-###  Публикация: 1780005   (27453) от 16.02.2025
+###  Публикация: 1785279   (24586) от 15.03.2025
 
-Обои - Eternal Mix Wallpapers Part 18 [JPG]
+Обои - Eternal Mix Wallpapers Part 40 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24586.jpg" />
 </div>
 
 
@@ -17,7 +17,7 @@
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FFC532BCCBC35ACC67C14F51A25357F6DE3E979
+magnet:?xt=urn:btih:C52AE0ADFED9693D5FBD7F74F3D1A1D233703CFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,15 +25,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780195   (27364) от 17.02.2025
+###  Публикация: 1785551   (24483) от 16.03.2025
 
-Обои - Eternal Mix Wallpapers Part 19 [JPG]
+Обои - Eternal Mix Wallpapers Part 41 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24483.jpg" />
 </div>
 
 
@@ -44,7 +44,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A30B9BF8350C638E9AED5D776C25C0009000022
+magnet:?xt=urn:btih:8AB16FAAA3F31FD1F4A3D34A3A26F79EAE9B664D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,334 +52,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781106   (26800) от 22.02.2025
+###  Публикация: 1785892   (24288) от 18.03.2025
 
-Обои - Suslik - Wallpapers - Nissan GT-R 2K 2560x1440 [JPG]
+Обои - Eternal Mix Wallpapers Part 42 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wallpapers - Nissan GT-R 2K 2560x1440, 20 pcsФормат: JPGРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8733CEA96297D05341871621A795AF44152604CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780422   (26799) от 22.02.2025
-
-Обои - Eternal Mix Wallpapers Part 20 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF07E184DA1EAE7124805A7F1E307D4D14A5D4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781173   (26796) от 22.02.2025
-
-Обои - Eternal Mix Wallpapers Part 21 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7403AAF86BAAF44AF3EEA59301BB38C1CF7C559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780882   (26790) от 22.02.2025
-
-Обои - Suslik - Wallpapers - landscapes 2K 2560x1440 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FDCC9BDE8BAF4C235B98A19AC849311BF69083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781451   (26719) от 23.02.2025
-
-Обои - Eternal Mix Wallpapers Part 22 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B18A6BBFCB7471E18C23BC03BE1CAE678585ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781545   (26718) от 23.02.2025
-
-Фотография - ArtStation - 310 Castles and Fortresses - Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26718.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом наборе 310 референсных изображений с различными типами замков и крепостей. Это будет отличный набор для любого художника, которому нужны референсы для matte painting, концепт-арта, иллюстрации и ландшафтных исследований.Формат: JPGРазрешение файлов: 3367x5050 - 11520x7680
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F61DE5433F1AE7C8E510376BF2E8B9E6E8409F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781315   (26691) от 23.02.2025
-
-Обои - С Днём защитника Отечества! [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых обоев С Днём защитника Отечества!Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49350FE30FB2BF7BEBE1DDB6E1F4891FE083670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781649   (26610) от 24.02.2025
-
-Обои - Eternal Mix Wallpapers Part 23 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CEF002D2AF46587D83544AA368E7E5FAA630C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781610   (26609) от 24.02.2025
-
-Фотография - ArtStation - Birds Vol.2-Photo Reference Pack For Artists 450 JPEGs noAI [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы работаете над проектом, связанным с птицами? Что ж, этот пакет может быть правильным выбором для вас. Вы найдете много интересных птиц в различных средах. Этот пакет предлагает крупные планы, портреты и полные тела. Птицы в спокойной позе или в движении. Фотографии чрезвычайно детализированы.Формат: JPGРазрешение файлов: 2619x2619 - 5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0319C74AFCEBB19BE8AA33A0E56115141D52D1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781810   (26505) от 25.02.2025
-
-Обои - Eternal Mix Wallpapers Part 24 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0818131A4D7949B809B0198D2E578E4985DD7E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781969   (26384) от 26.02.2025
-
-Обои - Eternal Mix Wallpapers Part 25 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85BC3AD5B5A7859B7A3307FFB49EFE23165248E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782193   (26285) от 27.02.2025
-
-Обои - Eternal Mix Wallpapers Part 26 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7D18E73231E6005B680B4E85EA2FE7BF28EDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782395   (26163) от 28.02.2025
-
-Обои - Eternal Mix Wallpapers Part 27 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24288.jpg" />
 </div>
 
 
@@ -390,7 +71,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3962B171CFF7E174F4721CFB0655E33E0D2D10D2
+magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,15 +79,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782638   (26083) от 01.03.2025
+###  Публикация: 1786462   (24096) от 20.03.2025
 
-Обои - Eternal Mix Wallpapers Part 28 [JPG]
+Обои - Eternal Mix Wallpapers Part 43 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24096.jpg" />
 </div>
 
 
@@ -417,7 +98,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3BB1B9D02735B78747F1B463229E67F93C356B1
+magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,15 +106,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782857   (25974) от 02.03.2025
+###  Публикация: 1786694   (23980) от 21.03.2025
 
-Обои - Eternal Mix Wallpapers Part 29 [JPG]
+Обои - Eternal Mix Wallpapers Part 44 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23980.jpg" />
 </div>
 
 
@@ -444,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6565C799F1C57AA25C8E35186B46602685FBB981
+magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,41 +133,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782750   (25955) от 02.03.2025
+###  Публикация: 1786908   (23872) от 22.03.2025
 
-Обои - С 8 Марта! [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев С 8 Марта! в HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C319F2DC489FF7CE80FDCFED1754CEC0A5F5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783032   (25870) от 03.03.2025
-
-Обои - Eternal Mix Wallpapers Part 30 [JPG]
+Обои - Eternal Mix Wallpapers Part 45 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23872.jpg" />
 </div>
 
 
@@ -497,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6B534A2883F4C756637BC1CC37EF6E32036A291
+magnet:?xt=urn:btih:D97819BFA69E78FD2D1DE57B49A74DCBEB2027D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,15 +160,94 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783240   (25766) от 04.03.2025
+###  Публикация: 1786896   (23862) от 22.03.2025
 
-Обои - Eternal Mix Wallpapers Part 31 [JPG]
+Книжная иллюстрация - Le Petit Journal - Illustrations From History [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации из французской газеты Le Petit Journal.Формат: JPGРазрешение файлов: 3413x1563 - 3069x4382
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC25D8AFF0FBF8BC384CE359B5BBD1C83249123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786819   (23858) от 22.03.2025
+
+Картинки - Medieval European Sculptors Part 3 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии средневековых европейских скульптур с авторами, биографиями (на английском и частично на русском) и датами.Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E517286A0B325A9C39088480AA79B3E443340CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786988   (23739) от 23.03.2025
+
+Картинки - Dutch Automotive History - NCAD, 159 Producers - 9710 HQ Scans [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии и брошюры из коллекции Нидерландского центра документации по истории автомобилестроения NCAD. Уникальная коллекция NCAD является одним из крупнейших автомобильных архивов в Европе.
+Каждая марка автомобиля сопровождается документом с информацией о годе выпуска, названии марки и страны, выпускающей автомобиль.Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A48811D6717E6C1365AA3087A816E64620470A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787255   (23662) от 24.03.2025
+
+Обои - Eternal Mix Wallpapers Part 46 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23662.jpg" />
 </div>
 
 
@@ -524,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:597CF93D6F197B45A61FE93FC55D10F88D4B2913
+magnet:?xt=urn:btih:9A5D6E5FA89E2E6CF160167352B3A37710CB317A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,15 +266,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783394   (25663) от 05.03.2025
+###  Публикация: 1787282   (23621) от 24.03.2025
 
-Обои - Eternal Mix Wallpapers Part 32 [JPG]
+Картинки - Medieval European Sculptors 1000+ JPG [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1000+ картинок работ европейских скульпторов с папками с именами авторов, названием работ, датами и биографией автора на английском.Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C714A625B3ECA5DCA9E1B0C625510C55D0B95366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788138   (23250) от 28.03.2025
+
+Обои - Eternal Mix Wallpapers Part 47 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23250.jpg" />
 </div>
 
 
@@ -551,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AAC51042765DE0FEB1DE6B3F99A017034CBA804
+magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,15 +319,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783827   (25436) от 07.03.2025
+###  Публикация: 1788352   (23148) от 29.03.2025
 
-Обои - Eternal Mix Wallpapers Part 34 [JPG]
+Фотография - ArtStation - 1000 Eye & Mouth & Nose & Ear Image Reference Pack – Vol 1 [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет включает в себя 1000 фотографий разных частей лица человека.Формат: JPGРазрешение файлов: 1464x1464 - 10000x7500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788358   (23117) от 29.03.2025
+
+Обои - Eternal Mix Wallpapers Part 48 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23117.jpg" />
 </div>
 
 
@@ -578,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B8BE9113844E8178A6C7232A6133079C70C6C9
+magnet:?xt=urn:btih:414C73C9FAE84A06EB4C048D58863A5AF8001E56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,15 +372,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783620   (25432) от 07.03.2025
+###  Публикация: 1788573   (23037) от 30.03.2025
 
-Обои - Eternal Mix Wallpapers Part 33 [JPG]
+Обои - Eternal Mix Wallpapers Part 49 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23037.jpg" />
 </div>
 
 
@@ -605,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A50B02819CE5532C9DA18E3E5146FA76F9E118E5
+magnet:?xt=urn:btih:15C640166B790A5E2726CF11BBE4D6158A74ACCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,15 +399,70 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784132   (25223) от 09.03.2025
+###  Публикация: 1788552   (23015) от 30.03.2025
 
-Обои - Eternal Mix Wallpapers Part 35 [JPG]
+Книжная иллюстрация - Harper's Pictorial History of the Civil War (1894) [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированная история гражданской войны от Харпера
+
+Это факсимильное издание оригинальной работы, опубликованной в 1869 году, представляет собой сокровищницу первоисточников для любого исследователя. Количество упомянутых деталей придает непосредственность сегодняшним людям. Военные, политические и социальные вопросы подробно обсуждаются. Карты, черно-белые иллюстрации (   Читать дальше...   )Формат: JPGРазрешение файлов: 1689x2517 - 3084x2176
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEA7224CE08D2D0F5A8715B536652D84C6EB3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788571   (23009) от 30.03.2025
+
+Фотография - DigitalStock - Retro, Black & White Times [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Retro, Black & White Times - ретро фотографии в хорошем качестве.
+Количество: 100шт.Формат: JPGРазрешение файлов: 3750x3000 - 3450x3450
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915FFDC33F25B66F362E501EDDC3C5339DA4EC99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788836   (22798) от 01.04.2025
+
+Обои - Eternal Mix Wallpapers Part 50 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22798.jpg" />
 </div>
 
 
@@ -632,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66224AD23F2E51F9735F848EDB0F2F8ACB6B6D5B
+magnet:?xt=urn:btih:7F58CC6E611EF75AC2FDAD44F1A79DD753AB4E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,15 +481,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784273   (25146) от 10.03.2025
+###  Публикация: 1789160   (22725) от 02.04.2025
 
-Обои - Eternal Mix Wallpapers Part 36 [JPG]
+Картинки - Vintage Style Illustrations of Pretty Womans in 1950's [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественные иллюстрации женщин в стиле 50-ых из Adobe Stock.Формат: JPGРазрешение файлов: 2592x1856 - 6720x4880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25E44FB00E3585598A55095C5C4647DC9024794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789119   (22711) от 02.04.2025
+
+Картинки - PICTURES 01 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разные, интересные, качественные картинки под разные нужды.Формат: JPGРазрешение файлов: 2160x2700 - 15000x10411
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C561C20A22699A7D0D92FB243E6917236C9AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789047   (22698) от 02.04.2025
+
+Обои - Eternal Mix Wallpapers Part 51 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22698.jpg" />
 </div>
 
 
@@ -659,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:370F3BD183C0EDA4C425F8AFB842231AE24B1F0D
+magnet:?xt=urn:btih:A027E02E0B773994F7D656699ABBC96E46162ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,15 +560,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784436   (25141) от 10.03.2025
+###  Публикация: 1789242   (22614) от 03.04.2025
 
-Обои - Eternal Mix Wallpapers Part 37 [JPG]
+Обои - Eternal Mix Wallpapers Part 52 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22614.jpg" />
 </div>
 
 
@@ -686,7 +579,114 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C138130FDAA380C6C82859B02186172123F004AE
+magnet:?xt=urn:btih:A9D0924A23A65FACEE52BC2663C09D1DC921649D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789134   (22532) от 04.04.2025
+
+Обои - Весна в мире из мулине [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию, представлен набор картинок от молодого, и подающего большие надежды представителя современного искусства - Мявкина, который безвозмездно предоставил нам материал, и попросил разместить его. По слухам, автор ведёт скрытный образ жизни, и избегает общественного внимания. Говорят, женщины его обожают, а дети ходят за ним по пятам. С его слов, автор (   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8939A26523F4A1C54CA12E42A8C278F9CCF20F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789670   (22382) от 05.04.2025
+
+Обои - Eternal Mix Wallpapers Part 54 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5314C89D8A57EF2D5B0AFFC29785ADEAF34F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789882   (22327) от 06.04.2025
+
+Обои - Eternal Mix Wallpapers Part 55 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F291BEC793C28107B60B7DB09D98606F2D46397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790139   (22197) от 07.04.2025
+
+Обои - Eternal Mix Wallpapers Part 56 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009CEBAAA80BAF8F1B84CA4330691E17A1FD5B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

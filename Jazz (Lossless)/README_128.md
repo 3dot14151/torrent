@@ -1,119 +1,3 @@
-###  Публикация: 1144545   (627906) от 22.06.2017
-
-Idrees Sulieman & Benny Bailey - Swiss Radio Days: Jazz Live Trio Concert Series, vol.25 (1970, 1975, 1982, 1983) 2011, TCB [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanza [08:06]
-02. Stella By Starlight [10:40]
-03. Summertime [12:35]
-04. I Can’t Get Started [08:44](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC21A2AB867F8BEE5CBBDE7CFEEFC40FBDE0886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144384   (627476) от 22.06.2017
-
-VA - The Real... Bossa Nova (The Ultimate Bossa Nova Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Carlos Jobim: Brazil
-02. Stan Getz feat. Joao Gilberto: Aguas de Marco
-03. Charlie Byrd: The Girl From Ipanema
-04. Astrud Gilberto: Ponteio(   Читать дальше...   )Жанр: JazzПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D79E1BBEFBE81A01787A58EC0B54EC6E9D41AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802625   (626611) от 06.07.2014
-
-Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful 4:26
-02. Peel Me A Grape 5:49
-03. Pick Yourself Up 3:01
-04. Frim Fram Sauce 5:00(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059C094309B73986BA7807BF173001295C6E7834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229488   (626571) от 06.06.2018
-
-Chet Baker - For Lovers (1952 - 1959) 3CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626571.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Funny Valentine #1 [2:20]
-02. I Fall In Love Too Easily #1 [2:06]
-03. How Long Has This Been Going On? [4:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 03:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEEE959CAE44218AAAE2CD56E849D1716D1ED3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294810   (626269) от 09.04.2019
 
 Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon Records [FLAC|Lossless|tracks + .cue] <Swedish Jazz, Post-Bop, Piano Jazz>
@@ -769,6 +653,122 @@ Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D9C25614FAF74D12D55D1372538B3139AFD825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294962   (623975) от 10.04.2019
+
+Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623975.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Was Doing All Right [9:26]
+02. You've Changed [7:35]
+03. For Regulars Only [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E5240988FA5B89D03D6FA09B5A8F92F5C2941A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544079   (623924) от 14.04.2022
+
+Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Bread [12:02]
+02. Fair Hope Theme [13:42]
+03. Ms. Angelou [10:03]
+04. The Shade of the Cedar Tree [8:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145092   (623795) от 24.06.2017
+
+Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Mission
+02. Soulsalicious
+03. Senorita Bonita
+04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035867   (622852) от 19.07.2016
+
+Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Of Blues And Dreams [05:00]
+ 02.Suite For Another World - i. Lethe [11:42]
+ 03.Suite For Another World - ii. Graef [06:10]
+ 04.Suite For Another World - iii. Madame Xola [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A2544FA3863CB264E3A94041A45C2A23CC5AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

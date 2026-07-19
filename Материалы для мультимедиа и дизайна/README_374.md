@@ -1,23 +1,22 @@
-###  Публикация: 1793519   (67482) от 25.04.2025
+###  Публикация: 1791050   (67893) от 12.04.2025
 
-Паттерны - Behance - Hawaiian Tiki Patterns - 184491561 [PNG, AI, EPS, PSD]
+Текстуры - AllisonSuns - Creative Fabrica - Free Marble Stone Digital Paper [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные гавайские узоры.
-Материал раздаётся с официальной документацией.Формат: PNG, AI, EPS, PSDРазрешение файлов: 2084 x 2084 - 2085 x 2085
+Цифровая бумага под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:667427717B1D7A814AFCC4F51564C5C783BB3D82
+magnet:?xt=urn:btih:A710B6BD3CEE70C8B9118E4A6A500F3A8226C569
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793538   (67481) от 25.04.2025
+###  Публикация: 1791047   (67892) от 12.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Mix Chunky Glitter Sparkle Mug Wrap Sublimation Design [PNG]
+Текстуры - STCrafts - Creative Fabrica - Luxury Royal Blue Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой синего цвета.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91B0A5F8752A65C31A567BD5B6EFC7EDFB54A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791290   (67861) от 13.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Majestic Mandala Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величественные Мандалайские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791293   (67860) от 13.04.2025
+
+Текстуры - Creative Store - Creative Fabrica - Chambray Fabric Texture Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой ткани шамбре.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791284   (67851) от 13.04.2025
+
+Растровый клипарт - Creative Store - Creative Fabrica - Fall Orange Watercolor Flowers Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изображения с блёстками для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 x 1425
+Осенние оранжевые акварельные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:477217647E59BA79F8AD633996B8A1A093830C0B
+magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +128,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793526   (67463) от 25.04.2025
+###  Публикация: 1791287   (67847) от 13.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blooming Flowers Seamless Pattern [JPG]
+Текстуры - STCrafts - Creative Fabrica - Pink Daisy Flowers Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с цветами - розовыми маргаритками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE230D58A0AF7F6733736E7286A40BA91087CE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791291   (67845) от 13.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Magenta Pink Glitter Flowers Pattern [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пастельные узоры с распускающимися цветами.Формат: JPGРазрешение файлов: 3600 x 3600
+Пурпурно-розовый узор из блестящих цветов.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEAC4C7428FA31549C3446ABC729A75AAC61C3C3
+magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793525   (67460) от 25.04.2025
+###  Публикация: 1791282   (67837) от 13.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Pastel Holographic Diamond Texture Tumbler Wrap [PNG]
+Текстуры - STCrafts - Creative Fabrica - Christmas Damask Texture Digital Paper [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обёртка для стаканов с голографической алмазной текстурой в пастельных тонах.Формат: PNGРазрешение файлов: 2790 x 2460
+Цифровая бумага с рождественской дамасской текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BF3EC2D41C7E71FB2976C77D0F3F5AF8B53D7DF
+magnet:?xt=urn:btih:7E2067197A378427A5796B2A9FAF273AB654843D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +206,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793527   (67459) от 25.04.2025
+###  Публикация: 1791281   (67835) от 13.04.2025
 
-Растровый клипарт - FlyingMonkies - Creative Fabrica - Magenta Golds Vintage [JPG]
+Текстуры - STCrafts - Creative Fabrica - Rose and Gold Glitter Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с блестящей розово-золотой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D025433A81A58EF1CF7F4EC22316EDC2FB46F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791663   (67798) от 14.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Colorful Floral Swirl Summer Mug Wrap Sublimation Design [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт в виде винтажных пурпурно-золотых украшений. Присутствует авторская рекламаФормат: JPGРазрешение файлов: 3600 x 3600
+Красочный дизайн сублимационной упаковки кружки со вьющимися цветами.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C04F58511A17AD8B98A4E722CDF8B19CBE6FF82
+magnet:?xt=urn:btih:79C480FBF8AE281EEF072B40BDE3852829EC59D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,103 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793903   (67420) от 27.04.2025
+###  Публикация: 1791685   (67796) от 15.04.2025
 
-Паттерны - Free PSD Templates - Camouflage Day Patterns [JPG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные паттерны под камуфляж в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B776EA2A2EBDC31A5FBADD9DC7C16BAB83BEF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794171   (67414) от 27.04.2025
-
-Текстуры - Design Stocks - Behance - 10 Rough Plastic Textures - 224509793 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные шероховатые текстуры.Формат: JPG, PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76439569730CDC9C9E0F326843CB8E18B96D220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793906   (67413) от 27.04.2025
-
-Текстуры - Company Folders - Card Stock Paper Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бумажные текстуры.Формат: JPGРазрешение файлов: 2100 x 1500 - 3861 x 2574
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C85B94006F5C82A1CCFD1CBAD143E887C8AC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794174   (67403) от 27.04.2025
-
-Растровый клипарт - Designworld - Creative Fabrica - Wildflowers Digital Paper [PNG]
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Pink Hearts Pattern [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображениями полевых цветов.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесшовные узоры в виде розовых сердечек.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10965EDEE9E38D93CF789C41244C548C05498589
+magnet:?xt=urn:btih:49F2A0A695ACAEFB136BD4FF62B0CF1E70DF890D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793920   (67402) от 27.04.2025
+###  Публикация: 1791693   (67795) от 15.04.2025
 
-Растровый клипарт - Artnoy - Creative Fabrica - Blur Cloud Rainbow Digital Paper [JPG]
+Растровый клипарт - STCrafts - Creative Fabrica - Ombre Pink & Turquoise Glitter Tumbler Wrap [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Облака радужной расцветки на цифровой бумаге.Формат: JPGРазрешение файлов: 3601 x 3600 - 3601 x 3601
+Обертывание для бокалов с розовым и бирюзовым блеском в стиле омбре.Формат: PNGРазрешение файлов: 2790 × 2460
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B2E796F58FF02EA59FF852B19C71D0FC7690069
+magnet:?xt=urn:btih:0D3E50EB73EBAF1271F58CE8AF243423C6789710
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793919   (67401) от 27.04.2025
+###  Публикация: 1791682   (67794) от 15.04.2025
 
-Растровый клипарт - Artnoy - Creative Fabrica - Blur Gradient Digital Paper Background [JPG]
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Kawaii Hearts Stars Rainbow Mug Wrap Sublimation Design [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Размытые градиентные фоны.Формат: JPGРазрешение файлов: 3600 x 3600 - 3601 x 3601
+Сублимационные изображения - сердца, звезды, радуги для кружки.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85AD223F67C93C89A235C54D1B3E82C1C8EBF734
+magnet:?xt=urn:btih:A2E6BB2EF1C56CBA4862B7BB9B02F01FB5801625
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,259 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793911   (67400) от 27.04.2025
+###  Публикация: 1791689   (67793) от 15.04.2025
 
-Паттерны - Free PSD Templates - Butterfly Patterns [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные узоры с бабочками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 500 x 500 - 2084 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3804A320AE9193185A3D8685BDC073BFE2FE98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793924   (67397) от 27.04.2025
-
-Паттерны - Free PSD Templates - Christmas Sweater Patterns [PNG, AI, PSD, EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Рождественские узоры.Формат: PNG, AI, PSD, EPS, SVGРазрешение файлов: 1043 x 1043
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809039E652D7BE727ECCCE17B26E6B40C62C2266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794180   (67396) от 27.04.2025
-
-Паттерны -  Free PSD Templates - Wedding Patterns Set [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор свадебных узоров.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA318803E5FA939BE70085539D8E746D095F9CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793901   (67393) от 27.04.2025
-
-Паттерны - Free PSD Templates - Animal Skin Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор узоров в виде шкур животных.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E578E87C4544F5C821D1A8E71A7B2E46D1C622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793914   (67392) от 27.04.2025
-
-Паттерны - Free PSD Templates - Autumn Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные осенние узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0446321DADB4BB8CFC12D069227E465B72230CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793892   (67390) от 27.04.2025
-
-Паттерны - Free-PSD-Templates - Marine Seamless Pattern Vector Collection [PNG, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бесшовные узоры на морскую тему.Формат: PNG, AI, PSDРазрешение файлов: 4167 x 4167
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A85B9D53F3E46BF304F0FDDC0BDF2AF356414C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793909   (67389) от 27.04.2025
-
-Паттерны - Free PSD Templates - Seamless Vintage Patterns [PNG, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бесшовные винтажные узоры.Формат: PNG, AI, PSDРазрешение файлов: 2668 x 2669 - 2683 x 2683
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB160C68EEFCCDB80705A864AAAE236CE0708270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793895   (67387) от 27.04.2025
-
-Паттерны - Free PSD Templates - African Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Африканские узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 776 x 776
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9DC507F0D714DA41689CC129AF91A60C042795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793916   (67386) от 27.04.2025
-
-Паттерны - Free PSD Templates - Botanical Pattern Set [JPG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор ботанических паттернов в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793915   (67372) от 27.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Blossoming Branches Mug Wrap Sublimation [PNG]
+Растровый клипарт - STCrafts - Creative Fabrica - Red Green Watercolor Christmas Pattern [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изображения с цветущими ветвями для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 x 1425
+Красно-зелёные акварельные рождественские узоры.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A694AE229DDDB4D446045857DD058959501C000E
+magnet:?xt=urn:btih:E65215BC9DDF615D353B90BB6342C666F2B40A96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,25 +362,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793899   (67366) от 27.04.2025
+###  Публикация: 1791672   (67792) от 15.04.2025
 
-Фоны - Pink Marble Background Images [JPG]
+Растровый клипарт - STCrafts - Creative Fabrica - Winter Flowers Watercolor Clipart Bundle [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор акварельных изображений с зимними цветами.Формат: PNGРазрешение файлов: 2500 x 2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5928E508C7459B4B71665BA8C8D1115AAC5C0385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791676   (67789) от 15.04.2025
+
+Растровый клипарт - Creative Fabrica - Black and Gold Roses Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн сублимационной упаковки для кружек с чёрными и золотыми розами.Формат: PNGРазрешение файлов: 2925 × 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FC762F8195ADEAAD2AE7C2FB39DC955E7F4948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791679   (67788) от 15.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Blue Stained Glass Floral Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага под голубое витражное цветочное стекло.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CDF8D87A769D363151D97C2B96ACE59FCD092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791658   (67787) от 15.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Botanical Line Art Floral Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ботаническое изобразительное искусство, Цветочная цифровая бумага.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB56781F1F5D6E3A626FF1784A35401FD9FB9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791674   (67784) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Peacock Stained Glass Texture Digital Paper [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные фоны под мрамор в розовых тонах.Формат: JPGРазрешение файлов: 2000 x 2000
+Цифровая бумага с текстурой витражного стекла "Павлин".Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81F5F2F9924EEBB9E96AF9D6029ED5EC738D529A
+magnet:?xt=urn:btih:CFCF76CDB8D269CFD03455B1670388FABC90489B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794310   (67363) от 28.04.2025
+###  Публикация: 1791673   (67781) от 15.04.2025
 
-Растровый клипарт - Динозавры [EPS, JPG]
+Текстуры - STCrafts - Creative Fabrica - Wild Roses Texture Digital Paper [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Древний" (1995) клипарт от компании XARA (шел в комплекте на CD). "Авторский" формат *.XAR конвертирован в *.EPS.Формат: EPS, JPG
+Цифровая бумага с текстурой диких роз.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75499C1DAB26232CCE7E1FA661791EEEEE3D2B19
+magnet:?xt=urn:btih:2CE2F8C493AEDCF55366851DDBA19D451CBED236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,52 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794212   (67360) от 28.04.2025
+###  Публикация: 1791683   (67775) от 15.04.2025
 
-Шрифты - Roman Mirzayev - Behance - NAURYZREDKEDS - 196325487 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794207   (67347) от 28.04.2025
-
-Растровый клипарт -  Free PSD Templates - Night Sky Patterns Set Template [JPG, PNG, PSD]
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Pink Hearts Mug Wrap Sublimation Design [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные орнаменты (паттерны) с изображениями ночного неба.Формат: JPG, PNG, PSDРазрешение файлов: 945 x 1417
+Дизайн сублимационной упаковки для кружек с милыми розовыми сердечками.Формат: PNGРазрешение файлов: 2925×1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A6B572EF6DC204F486C54A98052C29370258FEA
+magnet:?xt=urn:btih:CA1B67CE106FD20E5EDD54500E8B4FA9FDC97A16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +544,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794300   (67346) от 28.04.2025
+###  Публикация: 1792320   (67744) от 18.04.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - River Landscape Clipart [PNG]
+Растровый клипарт - STCrafts - Creative Fabrica - Spring Cottagecore Rainbow Digital Paper [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с речными пейзажами.Формат: PNGРазрешение файлов: 4096 x 4096
+Радужная цифровая бумага.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD4BA55D1A9B419E54969020B88EB474B2C1A252
+magnet:?xt=urn:btih:FA01BE90BA4572C6E14B9E5B9385C087CA806491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792317   (67741) от 18.04.2025
+
+Фоны - FlyingMonkies - Creative Fabrica - Wild Flowers Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный набор фонов с рельефной структурой, покрытых россыпью блёсток, а также рисунками из перьев и полевых цветов.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFC79B215386519C2D1F7A24A06C64B241A40AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792338   (67740) от 18.04.2025
+
+Растровый клипарт - FlyingMonkies - Creative Fabrica - Inked Damask Parchment Vol. 1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дамасский пергамент с тиснением.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115FC1A00C31CB7F4C1EEC204DC61D7D5BA9974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792566   (67704) от 19.04.2025
+
+Фоны - Artnoy - Creative Fabrica - Keychain Gradient Colorful Background [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Градиентные красочные фоны для брелоков для ключей.Формат: PNGРазрешение файлов: 2401 x 2401
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00663092AFA428E16DA45D43F0629BC4DECD6D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792563   (67702) от 19.04.2025
+
+Фоны - Artnoy - Creative Fabrica - Metallic Glitter Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с металлическим блеском на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DA150A689045A3AD9D07C2276637192A647584
 ```
 
 https://mybot314.ru/tekegram_catalog/

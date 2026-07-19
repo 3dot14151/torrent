@@ -1,3 +1,235 @@
+###  Публикация: 1748385   (43973) от 10.09.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 9 (2024) [MP3|224-320 Kbps] <Deep House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincenzo feat. Lisa Shaw - Hello (2011) (3:12)
+02. Dominique Fils-Aimé - Sun Rise (Atjazz dub, 2019) (4:30)
+03. Babulin Dub - Sax (5:53)
+04. Two-S - You (2017) (7:16)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A72CC2DFBDCC579C13B52F7E9E1DCBD8C7E9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749015   (43829) от 12.09.2024
+
+VA - Spacesynth Forever 2 (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th channel - Autumn Rain (4:14)
+02. Abbsynth - Space Wanderer (Olegris Cover) (5:23)
+03. Adam Donovan - Voyage of Discovery (5:40)
+04. Albiero - Summer History (7:14)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 04:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55DF8E4E5374069542F87524402C0D87EA2E340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749043   (43828) от 12.09.2024
+
+VA - Electro Euphoria (2024) [MP3|320 Kbps] <House, Trance, Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nami - Take It
+002. Nurve - Gutter
+003. Pitbull, Fatman Scoop - Dont Stop The Party
+004. Dj Allan/Santana - Evil Ways(   Читать дальше...   )Жанр: House, Trance, Techno, ElectroПродолжительность: 12:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAE80F52924D18C9636EDBBC25D33826415035B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749016   (43794) от 12.09.2024
+
+VA - TOP Non-Stop 2020+. Deep & Organic House (2024) [MP3|192-320 Kbps] <Deep House, Organic House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred P - A Place for Us (2021) (4:28)
+02. Death on the Balcony - Freedom Song (2020) (7:31)
+03. Guy Maayan - Gently (2022) (5:45)
+04. Paresse - Gold Totem (2021) (4:25)(   Читать дальше...   )Жанр: Deep House, Organic House, Progressive HouseПродолжительность: 09:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B959A836441EDF823A5D1040F36583FA8A6B823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748930   (43761) от 12.09.2024
+
+VA - D.Trance 107 (incl. D-Techno 62) (2024) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BiXX - Symphonic Gods (Original Mix) [4:05]
+02. DaWTone - Perky (Anton By Remix) [5:23]
+03. Dan Cooper & EllCavell - Mystic (Extended Mix) [6:52]
+04. Artena - Gods Among Us (Original Mix) [7:20](   Читать дальше...   )Жанр: TranceПродолжительность: 04:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD8E69C88DBCC7C5E37171F739C08B7A0493E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749281   (43721) от 13.09.2024
+
+VA - Euphoric Vocal (2024) [MP3|320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Omodo - I Just Died In Your Arms
+002. Low Stakes And Snottdog - Whenitgo
+003. Nurve - Loud Garms
+004. Niall T - Work It Out(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 13:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDEF29096E979D3B6F0160C4D0FE8F04832F0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749934   (43232) от 17.09.2024
+
+VA - Trance In Motion Vol.379 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Downey - Vivid Intent (Will Atkinson Extended Remix)
+02. Factor B - A Gift To The Earth (Extended Mix)
+03. Ishiro - Serene (Extended Mix)
+04. Casey Rasch - All For Us (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EA399846D590EB2BA4CD62BFBC5453F5967C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750146   (43162) от 18.09.2024
+
+VA - TOP Non-Stop 2000-2009 - Deep House. Part 4 (2024) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooccer - Sunshine (Terry Lee Brown Jr. remix, 2008) (6:05)
+02. The Cooccer - The Trip (2006) (6:01)
+03. The Timewriter - Blue Sky (2005) (4:44)
+04. Reel People - Reeltime (Dave Warrin dub, edit - accelerated, 2001) (5:51)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 08:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B562F39B428C006EF60FAD8CC9AD6993413AE00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750188   (43153) от 18.09.2024
 
 VA - Kontor Top of the Clubs Vol. 100 (2024) [MP3|~245 Kbps (V0)] <Electronic, Dance, Club, House>
@@ -513,238 +745,6 @@ VA - Compilation part 128 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD80768E944EF20ADDAEEDF4F02E1241293F2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758415   (38543) от 02.11.2024
-
-VA - Disco Inferno 70s 80s (2024) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chic - Le Freak (Edit) [03:36]
-002. Earth, Wind & Fire - September [03:35]
-003. Michael Jackson - Don't Stop 'Til You Get Enough (2003 Edit) [03:56]
-004. ABBA - Dancing Queen [03:51](   Читать дальше...   )Жанр: DiscoПродолжительность: 11:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758476   (38497) от 02.11.2024
-
-Jumanov - Compilation CD 1 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Found
- 02.  Time is Short
- 03.  Golden Autumn
- 04.  Will Pass(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1E7FD3C0E97A5B6D72EE981AAF0A3137B6A6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758610   (38402) от 03.11.2024
-
-Jumanov - Compilation CD 2 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dry Music
- 02.  Lie
- 03.  Knockin on Heavens Door
- 04.  Wrong(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E2A49A27BB2EF5453DE353DEFFDD7EB3B96517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758942   (38183) от 05.11.2024
-
-Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Canada
- 02.  Stop Waiting
- 03.  Alone
- 04.  Only You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA191388FC85B2828DBB714BF05F6A61A1D1122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759129   (38104) от 06.11.2024
-
-VA - DOWN LOW 7 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libercio - DESTROY (1:29)
-02. FanEOne, Benz Boyz - Pull Up (1:31)
-03. FNVFICK - Luxury (1:54)
-04. QUATTROTEQUE, DVRVIX - Base (2:02)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 04:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DA4311198D765BA37CB8826C57A71BB037759C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759430   (37895) от 08.11.2024
-
-VA - Compilation part 130 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jambeats - Finally
-02. Jumanov - Tears
-03. Jumanov - Don't Go
-04. Menda - Infinity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC6D527CA48B77E57BD31178390283D7E04122A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759429   (37891) от 08.11.2024
-
-VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isskoy - Galaxy
-02. Jambeats - Baby
-03. Zerrid - Imagination
-04. Menda - Fallen(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1C949DB1382611E279512EB2E59D2F7A667FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759818   (37689) от 10.11.2024
-
-VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture; Kevin de Vries; Yellowitz - Just Like Home (Kevin de Vries Remix) (5:03)
-02. Armin van Buuren; Agents of Time; ORKID - Love Is Eternity (3:33)
-03. John Summit; Kaskade; Julia Church - Resonate (4:01)
-04. Reverse; DeepMe; Ubo; Sāde Frame - Heat (4:13)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D28681AEE29117A3B4B6EBDBE233C960C24D683
 ```
 
 https://mybot314.ru/tekegram_catalog/

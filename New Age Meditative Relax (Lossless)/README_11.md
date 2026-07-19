@@ -1,3 +1,32 @@
+###  Публикация: 1215268   (759607) от 25.03.2018
+
+Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native american, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits
+02. Dusk
+03. Wolf's Heart (feat. Chantelle Barry)
+04. Indian Fire(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215791   (756349) от 27.03.2018
 
 Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
@@ -714,32 +743,6 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667829   (725526) от 14.06.2013
-
-Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [APE|Lossless]<New Age, Progressive Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Progressive Rock, Ambient, Art RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1840749   (1047472) от 07.12.2025
+
+VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SlaXy - Midnight Overdrive [02:38]
+02. Flyby - Neon Mirage [02:48]
+03. Synthix - Chrome Reflections [03:13]
+04. VoxLum - Duskline Motion [03:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF4591254A358B30F739022F9D6D06A66A67EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840152   (1047193) от 03.12.2025
+
+VA - 25 Years Of Anjuna Mixed By Jody Wisternoff (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Out West feat. Liu Bei - Oceans (Sunday Maybe Mix) [3:53]
+02. Koelle & Jody Wisternoff & James Grant - On Air (Extended Mix) [7:30]
+03. Tontario feat. Lake Jons - Solitude (Original Mix) [5:39]
+04. boerd - Someone (Jody Wisternoff & James Grant Extended Mix) [8:41](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, ElectronicПродолжительность: 02:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E53BA012EAF8B8D62E764F0DEB6A13D0C948D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840206   (1047176) от 03.12.2025
 
 VA - Best of Brisbeats, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -687,64 +745,6 @@ VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442208   (1036896) от 24.01.2021
-
-VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - Lasting Lover (Fitness Version) (04:37)
-02. DJ Kee - Kickin Hard (Fitness Version) (04:50)
-03. DJ Space'c - Holiday (Fitness Version) (04:35)
-04. Th Express - My Head And My Heart (Fitness Version) (04:24)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616239   (1036716) от 01.03.2023
-
-VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-mase & Sharliz - Sky (06:25)
-02. Mant Deep - Don't Fool Me (06:09)
-03. Abee Sash - Ain't nobody (Gus One Remix) (02:38)
-04. Baccij - Only One (02:33)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655E10275BE12ED593C7DFFD50E020CD0AF9B19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

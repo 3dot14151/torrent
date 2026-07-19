@@ -1,3 +1,96 @@
+###  Публикация: 1763510   (102818) от 01.12.2024
+
+VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Tibetania - Monte Musa (7:14)
+03. Tibetania - WooduLes (7:22)
+04. Noam Garcia - Amanda (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BB068E1FD67FF7AA123F523477C8558ED433E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763485   (102798) от 01.12.2024
+
+VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak - Sunlight Through the Treetops (9:04)
+02. Johny - Vasudevaya (5:38)
+03. Indiano - Svadhistana (8:21)
+04. Maris - Arapahoes (6:41)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26B5410614E35299F2B6E39906EF6EA08F82521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491214   (102614) от 02.05.2012
+
+Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Gone Wrong Add trackIn [03:57]
+02. Love Henry [04:23]
+03. Ragged & Dirty [04:09]
+04. Blood In My Eyes [05:04]
+05. Broke Down Engine [03:22]
+06. Delia [05:41]
+07. Stack A Lee [03:50]
+08. Two Soldiers [05:45]
+09. Jack-A-Roe [04:56]
+10. Lone Pilgrim [02:43]1993, Oct 28Жанр: BluesПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765585   (101411) от 13.12.2024
 
 VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -676,93 +769,6 @@ VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E056184B006DACCEEE27EAC51EEAB6638C7F3724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757411   (39074) от 27.10.2024
-
-VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Monte Musa (Original Mix) (7:14)
-02. Fernando - Corazon Seco feat. Ludelf (Original Mix) (5:26)
-03. Gabriel Slick - My World (Original Mix) (4:31)
-04. VieL - Espoir (Original Mix) (7:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9704A2B57EE3804AA651E37FF216D5FFD5F1CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760754   (37081) от 16.11.2024
-
-Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession
- 02. Ecology
- 03. Santa Fe
- 04. Feelin's(   Читать дальше...   )Жанр: Romantic Melody, EasyПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E73EC4C8CF851DD8A2BACEA62E67D42EC100A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761229   (36787) от 19.11.2024
-
-Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [FLAC|Lossless|tracks] <Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Увертюра (3:46)
-02-Живущие лишь небесным (4:24)
-03-Что стряслось (4:13)
-04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A75B3E59EBF1B6D987521ECA7BD3AD5D61FCA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

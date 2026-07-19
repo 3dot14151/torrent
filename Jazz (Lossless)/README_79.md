@@ -1,119 +1,3 @@
-###  Публикация: 1389744   (783948) от 12.06.2020
-
-Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783948.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Out Of The Past [6:27]
-02. Reunion [7:20]
-03. Venetian Breeze [5:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F91E39135AC69275DC5E7C75170DC3F5C9B126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389788   (783915) от 12.06.2020
-
-Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Effect
-02. Solid
-03. The Bottom Line
-04. Luna(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330F46F450D6D5DB14C4354659504B77CF41D25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205356   (783807) от 09.02.2018
-
-Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament [06:55]
-02. Four [04:37]
-03. Line for Lyons [06:33]
-04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205492   (783554) от 10.02.2018
-
-Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canyon Passage [02:56]
-02. You're Blase [03:01]
-03. Handicap [02:56]
-04. Mo Mo [02:42](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205489   (783553) от 10.02.2018
 
 Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E051DB47CDAF2C33FD85DEC5837FAB47FC135E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206519   (782140) от 14.02.2018
+
+Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time [03:42]
+02. Waltz for Debby [04:59]
+03. If You're Still in Love with Me [02:41]
+04. The April Fools [03:45](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Guitar JazzПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656655E7E53FFA7E5FA110E5B41FC0B52B17164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206518   (782130) от 14.02.2018
+
+Nicki Parrott - Close To You: Burt Bacharach Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On By [03:09]
+02. Alfie [04:41]
+03. Close To You [03:17]
+04. Raindrops Keep Fallin' On My Head [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED7C6BCECD3B3F8512A5ABC79DDBB08C446499B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390967   (781955) от 18.06.2020
+
+Cannonball Aderley - Riverside Profiles 1958 - 1963 (2006) 2CD, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781955.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. This Here [11:47]
+02. Dizzy's Business [7:00]
+03. Nardis [5:33](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A020FC2FD552CB330F13BE21AB647563F561FBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206541   (781743) от 15.02.2018
+
+Harry James - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Sleepy Lagoon [03:02]
+02. Trumpet Blues and Cantabile [03:04]
+03. Easter Parade [03:28]
+04. Crazy Rhythm [03:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5FD8620189A638EFC0227FAD3AD4CEAD590D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

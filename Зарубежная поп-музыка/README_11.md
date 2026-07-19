@@ -1,3 +1,32 @@
+###  Публикация: 996860   (877306) от 15.03.2016
+
+Icehouse - White Heat: 30 Hits (2011) 2CD [MP3|320 кб/с] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877306.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Can't Help Myself
+02. We Can Get Together
+03. Walls(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373512   (876826) от 08.04.2020
 
 DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -714,35 +743,6 @@ James Last / Джеймс Ласт - Non Stop Dancing / Танцуем Без П
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20D0A2972B5E933729B24D56DE4C0A55C501206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875839   (855963) от 07.03.2015
-
-VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и второй диск из описанных мною ранее NRJ Hit. Вы сами можете убедиться - насколько они не похожи, а вместе составляют, пожалуй, 90% того, что сегодня крутиться на радиостанциях и показывается в клипах.CD1:
-01. David Guetta Feat. Emeli Sandu - What I Did For Love  (3:25)
-02. Christine And The Queens - Christine  (3:54)
-03. Soprano - Clown  (4:29)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221F9514A7A68C13E37D2E34DABDFA5C84E35264
 ```
 
 https://mybot314.ru/tekegram_catalog/

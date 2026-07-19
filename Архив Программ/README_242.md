@@ -1,3 +1,29 @@
+###  Публикация: 1090042   (948448) от 05.01.2017
+
+Exact Audio Copy 1.3 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exact Audio Copy или просто EAC — риппинг-программа для Microsoft Windows. Эта программа была создана Andre Wiethoff, студентом университетa Дортмунда в Германии. EАС используется для преобразования треков стандартныx компакт-дисков с аудио на .wav файлы, которые затем могут быть перекодированы в такие форматы как MP3, OGG Vorbis, WavPack, FLAC и Monkey's Audio с (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F536DEB850ECD65C7C1F69ED655B787E62D5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089670   (948444) от 05.01.2017
 
 CUETools 2.1.6 Dev Build Portable [Multi/Ru]
@@ -643,32 +669,6 @@ Ummy Video Downloader (   Читать дальше...   )Язык интерф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6CFB3230E48A4BE1264D038FD6E59D1D1F0D9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982303   (947995) от 03.02.2016
-
-Air Explorer Pro 1.5.0 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, поддержка подключения по протоколам WebDAV и FТP.Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB1D8FC016BB75004E30AE4E85A57E54D264FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

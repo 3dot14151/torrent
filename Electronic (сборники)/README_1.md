@@ -1,3 +1,235 @@
+###  Публикация: 1844932   (1050403) от 28.12.2025
+
+VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AY YOLA - Homay (4:04)
+02. David Guetta & Sia - Beautiful People (3:07)
+03. Calvin Harris & Clementine Douglas - Blessings (3:39)
+04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843303   (1049544) от 21.12.2025
+
+Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sunset Dance
+02 - Within the Dream (Version)
+03 - Sensual Flare Dub
+04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843298   (1049542) от 21.12.2025
+
+VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Calma - Hold Me Closer
+02 - Kasimoff - Missed Call
+03 - Mr Salama - Feel Your Love
+04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842755   (1048893) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fade Away
+02 - Ocean Eyes
+03 - Falling Apart
+04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842753   (1048892) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Stay Close
+02 - Umideep - Ra-Ta-Ta Love
+03 - Kasimoff - Je Tombe Sans Bruit
+04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842365   (1048702) от 15.12.2025
+
+VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Umideep - Notte Disco
+02 - Dova Music - Stay Close
+03 - Hamidshax - Loving You
+04 - Elno - Along(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D3A4286CF43563C7424319CD9AA98A30A0B371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841992   (1048392) от 13.12.2025
+
+VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quirin, SoKool, Konrad Dycke - Dangerous - SoKool & Konrad Dycke Remix (7:43)
+02. Fideles, CamelPhat, Be No Rain - Night After Night - CamelPhat Remix (6:58)
+03. Howling, Frank Wiedemann, RY X, Jen Cardini, Damon Jee - Lover - Jennifer Cardini & Damon Jee Remix (6:43)
+04. AIKON, Kyozo - Dark Horse - Club Mix (6:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841729   (1048234) от 12.12.2025
+
+VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Winter Lonely Love
+02 - Mr Salama - Neon Heart
+03 - Azimov - Stay Tonight
+04 - Delih - Still Loving You(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841731   (1048232) от 12.12.2025
 
 VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -513,238 +745,6 @@ VA - The Carbon Footprint (2023) [MP3|320 Kbps] <Psy, Goa, Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A4ECFD9471B55ABE66B645F5DA28DC041DDA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436676   (1043090) от 01.01.2021
-
-VA - Beatport Electro House: Sound Pack #216 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный сет клубной электронной музыки для любителей подвигать телом и получить эстетический музыкальный оргазм. Слушаем и наслаждаемся!001. Klubbheads - Sax-O-Matic
-002. Cathy K - Saraswati
-003. Madtune - Bass Riddim
-004. Patrick Villa - Everything I Need(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888DF930B6DAEC37D22A1E5F92863A3327A73D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609899   (1042898) от 05.02.2023
-
-VA - Night Rider 5 (2023) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerb feat. Kidd Thorn - Winding Road (Extended Mix) (3:45)
-02. Alex Nocera Roy Batty - Odyssey (Extended Mix) (4:44)
-03. Amo M - Cry My Name (Starix Production & Twin Remix) (3:06)
-04. Alok, ALOTT & Apophis - Alone (Zack Dean Edit) (3:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15401E98FAE37D2B235E64FD23EED9D8DEEF036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609785   (1042886) от 05.02.2023
-
-Parov Stelar - Assorted compilation (2023) [MP3|320 Kbps] <Electro Swing, House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coco (Feat. Lilja Bloom)
-02. Keep on Dancing Feat. Marvin Gaye
-03. Silver Line
-04. Six Feet Underground (Feat. Claudia Kane)(   Читать дальше...   )Жанр: Electro Swing, House, OtherПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C152C49C6C0DC4DF2D0534DAA9B42E5B3B2387C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610017   (1042866) от 05.02.2023
-
-VA - Deep House & Groove Mixed (2023) [MP3|320 Kbps] <Deep-House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Aedidias - L'aquitaine
-002. Bobby Smile - Get Up
-003. Jordan Brando - Marz
-004. Groove Republic - Garden Grooves(   Читать дальше...   )Жанр: Deep-House, ElectroПродолжительность: 11:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914AE0F0F18C1B44301E28CAA3FA6777B0F8BC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610054   (1042851) от 05.02.2023
-
-VA - Record Super Chart 04.02.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady GaGa - Bloody Mary (Clinton Sparks Remix) (4:02)
-02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
-03. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)
-04. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC4D01B8F7CF19056CBD52C8FA052A1FB0ABAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436848   (1042761) от 02.01.2021
-
-VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Smile & Emmanuil - Я ворвусь на танцпол (Yuza Radio Remix) (2:44)
-02. Idris Leos - В последний раз (Dj Amor Radio Mix) (3:23)
-03. Kan - Хулиган (Yuza Radio Remix) (3:29)
-04. Денис Клявер - Тебя удача найдет (Vostokov Remix) (2:50)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436985   (1042559) от 03.01.2021
-
-VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоели соседи, которые устраивают вечеринки до 4 утра, а потом в 6 просыпаются и начинают сверлить стены, двигать мебель, играть в футбол, устраивать кошачьи бои и снова веселятся до рассвета? Решение есть! И оно гораздо проще, чем всякие обращения в правоохранительные органы!001. Qzb And Phentix - Indigo Heart
-002. New Age Cult - Diamonds Never Break
-003. Phibes - Third Dimension
-004. Maduk And Lachi - Taking Control(   Читать дальше...   )Жанр: D&BПродолжительность: 09:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F371BAC9BAA962C1EF16EC7631FF7385CE5FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437176   (1042300) от 04.01.2021
-
-VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы окунуться в мир клубной жизни, не обязательно посещать чопорный клуб для избранных. Достаточно просто скачать новый сборник танцевальной электроники "Club Techno Electronics: EDM Liveset" и устроить клуб у себя дома или на даче и весело зажечь с друзьями!001. Boki Fetish - Hardcatz
-002. Extra - La Pin (Fiesta Version)
-003. Dj Jackson - Hannibal
-004. Ferum - Arabian Acid(   Читать дальше...   )Жанр: Techno, ElectronicsПродолжительность: 13:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9220DBEF90C43805FFAF7BFD14A44803F75F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -404,64 +404,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664242   (186044) от 25.09.2023
-
-Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un sueño en la floresta (8:02)
-02. Aire de zamba (2:31)
-03. Mazurka appassionata (5:39)
-04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664220   (186025) от 25.09.2023
-
-Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School - Bach: Partitas (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Praeludium (1:46)
-02. II. Allemande (3:32)
-03. III. Corrente (3:05)
-04. IV. Sarabande (5:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664294   (185948) от 25.09.2023
 
 *Ancients - Cosmic Ark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
@@ -665,35 +607,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665254   (183341) от 29.09.2023
-
-Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of Blood (3:48)
-02. Gone Forever (3:24)
-03. Transition to Doom (3:47)
-04. Final Place (5:04)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9314472BD4623457D6699962066EF2A5A7BFAFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665185   (183300) от 29.09.2023
 
 Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, grunge, punk-rock>
@@ -745,6 +658,93 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F389415845233B30C2CAF8C591C59218A8C09FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665011   (183253) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screamin’ At The Sky (3:25)
+02. Nervous (3:16)
+03. When The Pain Comes (3:24)
+04. Out Of Pocket (3:08)(   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039165348DA3F8BCE53D7677F7A8F396EF3C739B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665182   (183178) от 29.09.2023
+
+Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Addicted To Your Love
+02 – Bad Habit
+03 – Ready For You
+04 – Touched You With My Chaos(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA71F9A41E065B08C4BAAD09EC76306385DC7AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665187   (183071) от 29.09.2023
+
+Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Creepy Room (Work In Progress Mix) (3:30)
+2. Street Creature (Work In Progress Mix) (4:26)
+3. Castaways (Work In Progress Mix) (4:08)
+4. The Druids (Work In Progress Instrumental) (3:20)(   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964756F90654CE19019886E795AE688E0625D066
 ```
 
 https://mybot314.ru/tekegram_catalog/

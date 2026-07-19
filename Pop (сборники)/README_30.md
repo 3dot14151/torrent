@@ -1,3 +1,32 @@
+###  Публикация: 1198694   (806054) от 12.01.2018
+
+Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Etait Une Fois Nous Deux (3:58)
+02. L'ete Indien (4:33)
+03. Et Si Tu N'existais Pas (3:30)
+04. Cote Banjo Cote Violon (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384027   (804044) от 19.05.2020
 
 VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122444   (798833) от 05.04.2017
-
-VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798833.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maan - Perfect World
-002. Medina - We Survive
-003. Pierce Fulton - Make Me Blue
-004. Tomx - In The End(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FED42445C1080010EE53F50F336ACDDF929E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1371425   (889828) от 31.03.2020
-
-Джентльмены / The Gentlemen (2019) WEB-DL [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый выпускник Оксфорда, применив свой уникальный ум и невиданную дерзость, придумал нелегальную схему обогащения с использованием поместья обедневшей английской аристократии. Однако когда он решает продать свой бизнес влиятельному клану миллиардеров из США, на его пути встают не менее обаятельные, но жесткие джентльмены. Намечается обмен любезностями, который (   Читать дальше...   )Производство: США / STX Films, Miramax, Toff Guy FilmsЖанр: Боевик, Комедия, КриминалРежиссер: Гай РичиАктеры: Мэттью МакКонахи, Чарли Ханнэм, Мишель Докери, Джереми Стронг, Лайн Рени, Колин Фаррелл, Генри Голдинг, Том Ву, Эдди Марсан, Хью Грант, Джейсон ВонгПеревод: ДублированныйСубтитры: Русские (Full, Forced), украинские (Full), АнглийскиеПродолжительность: 01:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F93A0B699B81EFB834F4FFE69B7050A877369B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371622   (889813) от 31.03.2020
-
-VueScan Pro 9.7.27 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889813.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826D044889733F17109497C088DD7651872E89AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371607   (889811) от 31.03.2020
 
 Побег из Претории / Escape from Pretoria (2020) BDRip [H.264/1080p] [PR]
@@ -677,6 +625,67 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67787E800662E48E67ED4FCFE550F957C3D0241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640261   (889498) от 06.04.2013
+
+Baptiste Giabiconi & Marie Mai - La-Bas (2013) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E52865C839080350516150E168CC6DDEE155676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296721   (889479) от 17.02.2011
+
+VA - Car Audio Vol.7 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - Disco Inferno (Dj Hoang Anh Remix) (4:41)
+02. Aaron Smith Vs. Tom Novy - Dancin' Now Or Never (Malibu Breeze Mashup) (5:51)
+03. Alexis Jordan - Good Girl (Freemasons Club Mix) (8:47)
+04. Andrew Spencer feat. Pit Bailay - Can't Stop Love (Extended Mix) (5:16)
+05. Armin van Buuren feat. Sharon den Adel - In & Out Of Love 2011 ( Kenny Hayes Blue Sphere Remix) (7:58)
+06. Big Ali & Stromae - Alors on Danse 2011 (Jay Acid Remix) (4:57)
+07. Black Eyed Peas - Boom Boom Pow (Energy Makerz Remix) (4:41)
+08. Black Eyed Peas vs. ZAM - The Time (Rollin Stars Private Bootleg) (5:31)
+09. Bon Jovi - It's My Life 2k11 (Phobia & Shaker Bootleg Mix) (6:09)
+10. Boney M - Daddy Cool (Chris Moody & DJ Riz Remix) (5:48)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE6D07147AD672E52FBB34655285520297F85FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1048791   (545806) от 03.09.2016
-
-Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collectables[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perfidia [02:48]
- 02.Adios [02:39]
- 03.Blue Moon [03:12]
- 04.Georgia On My Mind [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F648F3418F0DD27A4DC1FD4B84465F6507047176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310756   (545340) от 26.06.2019
-
-Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ontology [4:32]
-02. Chasing Myself [4:21]
-03. Frozen Roses [3:40]
-04. Sweet Delia [7:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28CAF682E5E1DB877DFA7E42B429B71D618D8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049289   (544979) от 04.09.2016
-
-Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mr. Blues [03:53]
- 02.On A Clear Day (You Can See Forever) [03:08]
- 03.Hush Puppies [03:28]
- 04.Danger Zone [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048954   (544970) от 04.09.2016
-
-Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage     (04:21)
-02. How Long Is Now      (04:02)
-03. Snapchat      (04:13)
-04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049284   (544926) от 04.09.2016
 
 Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
@@ -763,6 +647,121 @@ Charles Mingus - The Black Saint And The Sinner Lady & Mingus Mingus Mingus Ming
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E2B4596EAC00A24C917F868295C3833EF0EE342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050214   (540642) от 07.09.2016
+
+VA - Jazzy Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lovers - Analogamente [04:29]
+02. Mediterranean Soul - Imperat [03:52]
+03. Fusion Dee - Blues In Mirror [04:19]
+04. Second Groove - Load In Repetition [04:32](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCB883715F2A85FF0FE97E68BE6AFCDEED87E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239324   (540630) от 04.08.2018
+
+Dorothy Donegan - Five Classic Albums (1942 - 1960) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540630.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. That Old Black Magic [3:43]
+02. Over The Rainbow [2:28]
+03. Sweet Georgia Brown [2:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E567C938E3D4217775E51300BC71A8E6CE4C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239335   (540629) от 04.08.2018
+
+Grant Green - The Main Attraction (1976) 2002, Epic -  EK 86145 [FLAC|Lossless|tracks + .cue] <Soul, Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Main Attraction (19:36)
+02. Future Feature (7:48)
+03. Creature (10:20)Жанр: Soul, Fusion, Smooth JazzПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F76F50A9BA2C7E7BE8E25E52FADD4AA6E236D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364977   (540296) от 21.07.2011
+
+Keiko Matsui - 24 альбома (1987 - 2007) [APE|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cтиль, в котором играет пианистка Keiko Matsui, обычно называют «современным джазом» или даже «современной музыкой для взрослых». Это отличный расслабляющий фон для любого времени суток и любой компании. При этом ее мелодии в достаточной мере оригинальны, а аранжировки с использованием большого количества инструментов (в том числе национальной японской флейты шакухачи, (   Читать дальше...   )01. Moyo (Heart And Soul) [00:03:44]
+02. A Great Romance [00:04:05]
+03. Into The Night [00:04:27]
+04. Garicias [00:05:33](   Читать дальше...   )Жанр: Jazz, Smooth Jazz |Формат: APE (image+cue)Продолжительность: 00:52:39
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

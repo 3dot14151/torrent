@@ -1,3 +1,32 @@
+###  Публикация: 1184349   (294797) от 20.11.2017
+
+Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...Ready For It?
+02. End Game (Feat. Ed Sheeran & Future)
+03. I Did Something Bad
+04. Don’t Blame Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B1BBA573168F5B551E5947E2DA47A32DA1A88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079842   (294192) от 04.12.2016
 
 VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ Tullia Benedicta - Anteros (2015) [OGG|438-532 кб/с]<Alternative Indie Pop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C8BDFDDB9311AEB001DD949093D8B0C576E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080943   (285709) от 08.12.2016
-
-Jain - Zanaka (2016) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come (02:42)
-02. Heads Up (03:31)
-03. Mr. Johnson (03:02)
-04. Lil Mama (02:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13782840306B801B05BCA22E8C096515CDF80AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

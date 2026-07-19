@@ -1,119 +1,3 @@
-###  Публикация: 1186403   (288104) от 24.11.2017
-
-Scott Bradlee's Postmodern Jukebox - The New Classics (2017) Live [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing, Vintage, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet The Flintstones
-02. All About That Bass (ft. Casey Abrams, Dani Armstrong, Maiya Sykes & Ariana Savalas)
-03. Introduction (ft. Ariana Savalas)
-04. Bad Blood (ft. Aubrey Logan)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, CoversПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF1E8A5B4460D82CCD3A9855832CD967938D32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335334   (287893) от 02.11.2019
-
-The Duke Ellington Orchestra - Digital Duke (1987) GRP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [4:28]
-02. Cottontail [4:15]
-03. Prelude to a Kiss [4:26]
-04. Perdido [8:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B66328E02CF286502A4B9CC91BC7010D693E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335390   (287558) от 02.11.2019
-
-Jazzamor - Music En Vogue (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Bossa-Nova, Easy-Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Hunter
-02. Keep in Distance
-03. Time is Running
-04. Tattoos(   Читать дальше...   )Жанр: Nu-Jazz, Bossa-Nova, Easy-ListeningПродолжительность: 01:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352180380631A6401AEA3731E9B5B910B65C1F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080591   (286688) от 08.12.2016
-
-Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Granadas [05:55]
- 02.Valse [05:53]
- 03.Prelude [03:02]
- 04.Time Remembered [04:11](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75A80502BD1FA1A8DB349E597209C5B13E7A26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080598   (286645) от 08.12.2016
 
 Kenny Wheeler, Peter O' Mara, Wayne Darling, Bill Elgart (1991) Koala Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -744,6 +628,122 @@ VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8DC653724FF4674B969F1EAF0C0D2A9B4A87E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964229   (284146) от 10.12.2015
+
+Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cherry [04:37]
+ 02.Walkin' Again [06:57]
+ 03.Pennies From Heaven [06:32]
+ 04.Red Top [08:16](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3610500CCB73FB3EED2C40E5A455ADEF54C04DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186830   (283887) от 26.11.2017
+
+Karen Souza - Velvet Vault (2017) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fall In Love Too Easily
+02. Don't Let The Sun Go Down On Me
+03. I'm Beginning To See The Light
+04. Valerie(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF2FEC4AADCE38D1C8F15339B7505B5CFA63083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964053   (283792) от 10.12.2015
+
+VA - A Jazz Christmas (2015) 2CD [FLAC|track+.cue]<Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283792.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этих двух дисках Вы найдете прекрасных джазовых исполнителей, которые помогут провести Вам удивительную рождественскую ночь у красивой ёлки. И что может быть лучше наслаждения от прекрасного джаза в волшебную ночь!CD1:
+01. Chet Baker - Winter Wonderland  (2:28)
+02. Dave Brubeck Quartet - Santa Claus Is Comin' To Town  (3:39)
+03. Ella Fitzgerald - Sleigh Ride  (2:54)(   Читать дальше...   )Тип издания: 2CDЖанр: Jazz, ChristmasПродолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A855BD861A646C22C98FD268E74205EFC0045FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849490   (283158) от 12.12.2014
+
+Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vagabond [05:18]
+02. Message In A Bottle [06:16]
+03. Bretagne [05:01]
+04. Psalmen [04:36](   Читать дальше...   )Жанр: Jazz, World Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
 ```
 
 https://mybot314.ru/tekegram_catalog/

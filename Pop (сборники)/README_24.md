@@ -1,3 +1,90 @@
+###  Публикация: 1497923   (859641) от 25.09.2021
+
+VA - The Presents Of Autumn (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Hopperman - Feel
+002. Groove Stata - Angel
+003. Kevin Johnson - Looking For Love
+004. Hiatus Kaiyote - Chivalry Is Not Dead(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF53664991C56566FFE59F56DEE65F6A85AAC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497927   (859639) от 25.09.2021
+
+VA - Twisted Disco Stick (2021) [MP3|320 Kbps] <Dance, Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vibes4yoursoul - Si Ma Chanson Pouvait
+002. Jack Tennis - Jorge’s Pipa
+003. Stewart Birch - I Jus Wanna
+004. Discotron & Hp Vince - Hands Together(   Читать дальше...   )Жанр: Dance, Disco, Nu Disco, Funky HouseПродолжительность: Dance, Disco, Nu Disco, Funky House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AA5FADF6DBE116CA46A33A6D6087553D01B88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109224   (859209) от 27.02.2017
+
+VA - Зимняя русская радиоволна. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Смирнов & Комапния - Я Люблю Тебя 3:13
+002. Fahmi - Мы Были Вдвоем 3:00
+003. Александр Рипчанский - Она 4:56
+004. Катерина Красильникова - Пусть Станет Раем 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9125D21C60C06D01DF5CB1B54D77020A56126D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109270   (859095) от 27.02.2017
 
 VA - Лучшая дискотека от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
@@ -78,32 +165,6 @@ VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57BD60D6B620D7F5498E2B92A31716AA2AFB9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304881   (858509) от 06.03.2011
-
-VA - Лучшие праздничные хиты: 8 марта (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_858509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67D1175B459299B236D9B1E9CB85E5AF63CA2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,64 +739,6 @@ VA - German TOP 100 Single Charts 03.03.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A92CCB0FA277B369459357143BF2046EE6CD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002289   (848603) от 31.03.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 27 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxx - Get A Way (John.E.S. Remix 2015) (4:19)
-02. Dj Bobo - Freedom (Gypnorion Remix) (3:02)
-03. Dj Rad Vs. Digital I - Move That Body (Original Mix) (4:33)
-04. Platinum Deejayz Feat. Slinkee Minx - Another Night (Nick Skitz & Technoposse Remix) (4:48)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 05:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53185CC63795822D0A50A09BE637A2A7940ADB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111504   (848509) от 05.03.2017
-
-ВИА Гра - Mp3 Play (2014) [MP3|320 Kbps] <Pop, Europop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У меня появился другой (feat. Вахтанг)
-02. Океан и три реки (feat. Веладзе Меладзе)
-03. Бомба
-04. Познакомься с моей мамой(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 03:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7D83BB1BDF63C7A799F8B202BDC6062D5696BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

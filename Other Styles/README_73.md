@@ -1,3 +1,181 @@
+###  Публикация: 1222435   (680798) от 01.05.2018
+
+VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680798.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+Продолжительность: 01:09:55
+
+01. Luis Fonsi - Echame La Culpa(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:12:05
+
+01. Shakira - Perro Fiel
+02. Nacho - Báilame(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D6DA298865FDEA8158215B0321BC9F60F143F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223006   (680665) от 01.05.2018
+
+VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начались длинные праздники. Многие их проводят в заботах сельскохозяйственных, но и они вечерком любят посидеть. А как в старом анекдоте: "Чем отличаются хорошие люди от всех остальных - хорошие люди посидят-посидят, да и выпьют!" Ну а как не вспомнить хорошую песню при хорошем застолье.
+Но даже если и не сами, то обрадуйте этими раритетами своих пап и (   Читать дальше...   )CD1:
+01. Людмила Зыкина - Тонкая Рябина  (5:12)
+02. Екатерина Шаврина - Ой, Мороз, Мороз  (4:02)
+03. Н. Матвiенко - Ой, Летiли Дикi Гуси  (4:48)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029656   (680339) от 27.06.2016
+
+Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside the OM (16:04)
+02. Inside Chanting (18:06)
+03. Inside Silence (12:47)
+04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029389   (680258) от 27.06.2016
+
+Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Under the Moonlight    09:48
+02.  Lovers Night    15:45
+03.  Letting Go    12:43
+04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029288   (680249) от 27.06.2016
+
+Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Intelligence (02:08)
+02. Robbie (00:38)
+03. Golden Jet (01:02)
+04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290052   (680232) от 19.03.2019
+
+Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. f l o w e r (3:54)
+ 02/12. Walking In The Forest / 숲을 걷다 (3:07)
+ 03/12. f r a m e d (Piano Ver.) (3:53)
+ 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222479   (679263) от 02.05.2018
 
 Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
@@ -593,180 +771,6 @@ Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACFEC4AB43B65D0C2E4AEDF8BAEEE43B13914CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136758   (673010) от 23.05.2017
-
-VA - Music to Help You Sleep: Deep Restful Sleeping (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Sleep Music Society - Music to Help You Sleep
-02. Deep Sleep Sanctuary - A Time to Relax
-03. Beautiful Deep Sleep Music Universe - Restful Healing Sleep
-04. Deep Sleep Hypnosis Masters - Health Benefits(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F40B70A3192E9F9D23788B097E4D874F8AA4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136724   (672877) от 23.05.2017
-
-VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellness Sounds Relaxation Paradise - Thai Massage Lounge 100
-02. Tranquility Spa Universe - Asian Zen Spa Relaxation 5
-03. Sauna & Massage Academy - Wellness Center 111
-04. Soul Therapy Group - Ayurveda Treatment 50(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136756   (672537) от 23.05.2017
-
-VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Hypnotize (03:50)
-02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
-03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
-04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290857   (672350) от 23.03.2019
-
-The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline (03:33)
-02. Get It While the Gettin's Good (03:03)
-03. New America (03:56)
-04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030757   (672291) от 01.07.2016
-
-Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Myriads of Light
-02.	Eternal Gratitude
-03.	Vision of the Soul
-04.	Beauty Elvish(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030736   (672289) от 01.07.2016
-
-Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Scenes [00:05:16]
-02. I'll Be Loving You [00:04:34]
-03. Ebb and Flow [00:03:20]
-04. Life Is but a Dream [00:04:23](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FBACD3FD13539F3D09043A502FDBB62D884205
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1071503   (357129) от 11.11.2016
-
-Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + .cue] <Instrumental, saxophone>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Nocturne (2:49)
-02. Danny Boy (2:57)
-03. Stardust (3:03)
-04. Smoke Gets In Your Eyes (3:15)(   Читать дальше...   )Жанр: Instrumental, saxophoneПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664F0E6C32063AE6F843AE4754A3F7F55464A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256280   (356906) от 21.10.2018
-
-Benny Goodman - The Legendary Small Groups (1935 - 1938) 2003, BMG [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [2:48]
-02. Body and Soul [3:30]
-03. China Boy [2:34]
-04. Moonglow [3:26](   Читать дальше...   )Жанр: SwingПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767812F98CFB3CE9CACAAB6393416CA287D8D446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329085   (356738) от 03.10.2019
-
-Paul Bley - Solo (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forth [6:31]
-02. Conversations [2:15]
-03. Blueness [6:16]
-04. Intentions [4:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D871BB70CDFF2F030F5431964D3078B9E035B3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246822   (356673) от 21.10.2018
-
-Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something About You
-02. Morning Samba
-03. Mojave
-04. Chemistry(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D455B97F83F872872E992E4DC9DA3942485250F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952218   (356337) от 01.11.2015
 
 Thad Jones - Mad Thad (1957) /1999, OJC/[FLAC|image+.cue]<Bop, Hard Bop>
@@ -745,6 +629,122 @@ Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54AF4C0175947B3EBEAB7B8448695A239A3BCBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952815   (353669) от 02.11.2015
+
+Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.(I Like It When You) Smile [03:34]
+ 02.(I Do) Like We Do [03:48]
+ 03.Tryin' To Matter [04:25]
+ 04.Songwriter [03:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952818   (353660) от 02.11.2015
+
+Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Bright Size Life		04:52
+02.	Phase Dance		08:22
+03.	New Chautauqua		05:18
+04.	Airstream		06:21(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E8BF7A5A8EAF7BC0C6A3989FE93C1A2F496E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952537   (353656) от 02.11.2015
+
+VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure Drop – Unify (ripped)
+02. Truby Trio – Donaueschingen
+03. As One – The Hideout
+04. Tosca – Ocean Beat(   Читать дальше...   )Жанр: Future JazzПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F05BC4CC9A5A227621BC9AB7389C4C0981BA079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178831   (353558) от 29.10.2017
+
+Gregory Porter - Nat King Cole & Me (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mona Lisa
+02. Smile
+03. Nature Boy
+04. L-O-V-E(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB0C649D89EC9CD0DA9D5404F60A89F44D078C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1085475   (764295) от 31.01.2019
+
+P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Ambient, IDM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agentenfister (Fist Faster Remix) (03:03)
+ 02. Distress-Insomnia (06:04)
+ 03. Jobs (EA-Dub) (03:31)
+ 04. Heiden Heiland (04:25)(   Читать дальше...   )Тип издания: CD, Cassette, WEBЖанр: Rhythmic Noise, Industrial, Ambient, Noise, IDM, Experimental •Продолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281409   (753368) от 07.02.2019
 
 Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
@@ -714,35 +743,6 @@ Death Loves Veronica - Lucid Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Darkwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807EFAB68C60E81232D004D49435F0E568E844D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545592   (611238) от 21.04.2022
-
-Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Silence 02:18
-02 Burn 04:53
-03 Spindeln 04:10
-04 LIES 05:02(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390ADB4389BBAB0C88A0F4A701D367ED0EB62E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

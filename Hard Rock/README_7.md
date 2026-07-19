@@ -1,3 +1,58 @@
+###  Публикация: 1384328   (804275) от 19.05.2020
+
+Ladies Ballbreaker - Whole Lotta Bobby (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Female AC/DC cover band:01. Hell Ain't a Bad Place to Be [4:21]
+ 02. Whole Lotta Rosie [4:19]
+ 03. Dirty Deeds Done Dirt Cheap [4:09]
+ 04. Back in Black [5:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BA367FF7327256E61F92EF4C3665FA4948F55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273907   (803382) от 05.04.2011
+
+MIKE TRAMP & Freak Of Nature - Дискография (1993-2011) [MP3|320 kbps]<Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198850   (802838) от 14.01.2018
 
 Dirty Tricks - Night Man (1976) Reissue, 2004, Majestic Rock [MP3|320 Kbps] <Hard Rock>
@@ -688,64 +743,6 @@ Sweet (до 1974 года The Sweet) - британская рок-группа,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922D98FE23BC15FD33A018506C1CFE65B8822D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209007   (779634) от 24.02.2018
-
-Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound of A
-02. The Black Widow (Live In Columbus)
-03. Public Animal #9 (Live In Columbus)
-04. Is It My Body (Live In Columbus)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5263805AB8DD14A55967737434DE6434FF3558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209915   (779109) от 28.02.2018
-
-Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart and Soul (feat. Robin McAuley & Kirk Hammett) (4:20)
-02. Warrior (feat. Gary Barden, Graham Bonnet, Robin McAuley & Doogie White) (5:21)
-03. Take Me to the Church (feat. Doogie White) (4:46)
-04. Night Moods (feat. Graham Bonnet) (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D3D15F4B5A52D9A596368EF67042B0F5FE2FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

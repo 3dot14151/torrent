@@ -1,3 +1,380 @@
+###  Публикация: 1216887   (746005) от 02.04.2018
+
+Надежда Кадышева и Золотое кольцо - Дуэты (2016) [FLAC|Lossless|image + .cue] <Pop, Pop-Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё ушло (Feat. Волжский Хор)
+02. Ворожи не ворожи (Feat. Таисия Повалий)
+03. Ничего не получится (Feat. Витас)
+04. По ту сторону тумана (Feat. Дмитрий Маликов)(   Читать дальше...   )Жанр: Pop, Pop-FolkПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E97CFAB8C90705B66FD2E38D9B8862E8B4B764B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216882   (745899) от 02.04.2018
+
+Boney M. - Dance Remixes '99 (1999) [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ma Baker (Extended Radio Edit)
+02. Boney M. Extended Medley
+03. Rasputin (Remix Version)
+04. Gotta Go Home (Remix Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18082B4E99239E6268AF0C89E7885B074D6437A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396637   (745501) от 16.07.2020
+
+Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикая вода
+02. Мужчина моей мечты
+03. Тобi здається
+04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020597   (745454) от 26.05.2016
+
+Automat - Automat (1978) [MP3|320 кб/с] <Electronic, Disco, Ambient>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automat: a) (The) Rise   (6:09)
+02. Automat: b) (The) Advance   (4:06)
+03. Automat: c) (The) Genus   (6:40)
+04. Droid   (5:25)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5630BA192E76DF80DD1E864E64E50E23975A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396719   (745440) от 16.07.2020
+
+Piano Fantasia - Best of Collector: Piano Fantasia (Le meilleur des annees 80) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Denise (3:12)
+02. Walkman (4:26)
+03. Playing (4:19)
+04. Sidewalk (5:02)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6627A7D3D712079DA2F73DC55007AD076172B329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282455   (745322) от 12.02.2019
+
+Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time (03:03)
+02. Fairy Tale High (02:20)
+03. Faster And Faster To Nowhere (02:09)
+04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282353   (745321) от 12.02.2019
+
+Michael Bolton - A Symphony Of Hits (2019) [MP3|320 Kbps] <Pop, Soul, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Said I Loved You...But I Lied (4:43)
+02. When A Man Loves A Woman (3:59)
+03. Soul Provider (5:07)
+04. Time, Love Tenderness (4:21)(   Читать дальше...   )Жанр: Pop, Soul, Pop-RockПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AFC41C247464E940751A4B14DBC8FEF41F1842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282409   (745313) от 12.02.2019
+
+Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Like A Bird (4:04)
+ 02. Turn Off The Light (4:36)
+ 03. Shit On The Radio (Remember The Days) (3:55)
+ 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376260   (745278) от 16.07.2020
+
+София Ротару - 9 Альбомов (1995 - 2010) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не оглянусь
+02. Время подождет
+03. Забирай ( дуэт с О. Газмановым )
+05. Цветы сирени(   Читать дальше...   )Жанр: PopПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282494   (745255) от 12.02.2019
+
+Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Souvenirs to Souvenirs
+02. Goodbye My Love Goodbye
+03. My Friend the Wind
+04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020494   (745223) от 26.05.2016
+
+VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745223.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Eros Ramazzotti – Il Tempo Non Sente Ragioni 4:04
+02. Malika Ayane – Senza Fare Sul Serio 3:34(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB44E93F8EE604E868B0745977C144126B328A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217232   (744949) от 03.04.2018
+
+Deana Carter (Дина Картер) - Did I Shave My Legs for This? (1996) Capitol Nashville [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I've Loved Enough To Know 3:24
+02. We Danced Anyway 3:23
+03. Count Me In 3:25
+04. If This Is Love 2:56(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CCB7AD59B06A657C800CEE8C9F2778525B5DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217236   (744948) от 03.04.2018
+
+Deana Carter (Дина Картер) - Everything's Gonna Be Alright (1998) Capitol Records Nashville [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. You Still Shake Me 2:48
+02. Ruby Brown 4:20
+03. Absence Of The Heart 3:31
+04. Brand New Key 3:18(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57500CF2BE259668C162668F295887C9A2440F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217229   (744945) от 03.04.2018
 
 Deana Carter (Дина Картер) - Did I Shave My Legs For This? (1995) Patriot Records [MP3|320 Kbps] <Country, Alternative Country>
@@ -365,383 +742,6 @@ Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capito
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020795   (743332) от 27.05.2016
-
-Thomas Anders - History (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Europop, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart You're My Soul (New Hit Version) - 3:28
-02. You Can Win If You Want (New Hit Version) - 3:41
-03. Cheri, Cheri Lady (New Hit Version) - 3:32
-04. Brother Louie (New Hit Version) - 3:43(   Читать дальше...   )Жанр: Pop, Electronic, Europop, DancepopПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7197B407106182A8CEF059C3AEDE0F456A01B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217341   (743234) от 04.04.2018
-
-Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing (02:59)
-02. Stop Me from Falling (03:02)
-03. Golden (03:08)
-04. A Lifetime to Repair (03:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397063   (742736) от 18.07.2020
-
-VA - Your Favorite Sing Along Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missy Five - Eternal Flame (3:12)
-02. Highway Bros - Drunk on You (3:33)
-03. The Comptones - Friends Never Say Goodbye (3:39)
-04. Missy Five - Still in Love with You (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF47FAF9674FEF88B86512993316B8F49C50F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397113   (742607) от 18.07.2020
-
-VA - Ultimate Workout Music Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aden Phoenix Forte - In My Mind (02:59)
-02. Drake - Passionfruit (04:13)
-03. Shelly Peiken - I'm a Mess (03:15)
-04. Dua Lipa - Kiss and Make Up (03:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B91C6A43B0F81B3F5305BE22845D3DAFD6EB182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282849   (742464) от 14.02.2019
-
-VA - NRJ Just Hits (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01.  Calvin Harris feat. Rag'n'Bone Man  -  Giant
-02.  Redbone  -  Come And Get Your Love
-03.  Boulevard Des Airs feat. Vianney  -  Allez Reste(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DD18C11191DCA79A84B1FD29E6A92B1F7CCC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282892   (742459) от 14.02.2019
-
-Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patricia Paay -  голландская поп исполнительница, радиоведущая, гламур модель, звезда телевидения.Список альбомов:
-1975 - Beam Of Light
-1977 - The Lady Is A Champ
-1978 - Malibu Touch(   Читать дальше...   )Жанр: Europop, Pop Rock, Disco, BalladПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDCBB744B7F5F10068F0100760E0E2CB2F42E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217445   (742409) от 05.04.2018
-
-Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I'll Be Home for Christmas 4:47
-02. The Christmas Song 4:42
-03. Merry Christmas Darling 3:28
-04. Blue Christmas 3:54(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021126   (742190) от 28.05.2016
-
-Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская группа Azoto - еще один проект композитора, аранжировщика и продюсера Celso Valli, являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Passengers и Tantra.01. Havah Nagilah   (8:51)
-02. Rainfall   (5:52)
-03. Discomedley   (7:06)
-04. Zorba's Dance   (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk, SoulПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021200   (741720) от 28.05.2016
-
-Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741720.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. (I'll Never Be) Maria Magdalena (Single Version) (Remastered 2016) (03:58)
-02. Everlasting Love (Remastered 2016) (03:42)
-03. We'll Be Together ('89 Remix Single Version) (Remastered 2016) (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397140   (741340) от 19.07.2020
-
-VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amy Phillips - Sorry Not Sorry (3:23)
-02. Jonas Gerard - I'm Upset (3:18)
-03. Little Play, Layla Young - Girls Like You (4:14)
-04. Tia Matthews - Most Girls (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283154   (741168) от 15.02.2019
-
-Bodies Without Organs - Prototype (2004) [MP3|320 Kbps] <Pop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen Tons Of Hardware (3:28)
-02. Conquering America (3:20)
-03. Son Of A Gun (3:25)
-04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5D00D9FB9524B9CC82DCB3B8FD9D1B6D6819F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283062   (741062) от 15.02.2019
-
-Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Piazza (3:51)
-02. Sara (4:27)
-03. A Chi (3:20)
-04. Volare (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283144   (741060) от 15.02.2019
-
-VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cy-Ro - It's All up to You (Extended Mix) 05:56
-02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
-03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
-04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
 ```
 
 https://mybot314.ru/tekegram_catalog/

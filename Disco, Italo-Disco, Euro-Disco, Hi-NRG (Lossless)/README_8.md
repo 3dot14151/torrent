@@ -1,3 +1,90 @@
+###  Публикация: 1122954   (793296) от 06.04.2017
+
+Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Disco, 70's>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Robin Fly (5:32)
+02. Save Me (4:19)
+03. Ooh What A Night (5:16)
+04. Spend The Night With Me (4:19)(   Читать дальше...   )Жанр: Disco, 70's |Продолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510850   (790147) от 18.11.2021
+
+Modern Talking - Original Album Classics (2011) 5xCD, Box Set, Compilation, Reissue, Sony Music [FLAC|Lossless|image + .cue] <Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790147.jpg" />
+</div>
+
+
+###  Подробнее
+
+1985 - The First Album
+1985 - The Second Album - Let's Talk About Love
+1986 - The Third Album - Ready for Romance
+1986 - The Fourth Album - In the Middle of Nowhere(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 03:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5513A9D074D42627611945E3F252EB56781F08A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806441   (787334) от 24.11.2021
+
+Mike Mareen - Dance Control (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am 5:12
+02. Cecilia (Remix) 6:47
+03. Double Trouble 5:20
+04. Peace To Mankind 4:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388317   (786867) от 05.06.2020
 
 VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
@@ -652,93 +739,6 @@ Boney M. - Dance Remixes '99 (1999) [APE|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18082B4E99239E6268AF0C89E7885B074D6437A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396719   (745440) от 16.07.2020
-
-Piano Fantasia - Best of Collector: Piano Fantasia (Le meilleur des annees 80) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Denise (3:12)
-02. Walkman (4:26)
-03. Playing (4:19)
-04. Sidewalk (5:02)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6627A7D3D712079DA2F73DC55007AD076172B329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020494   (745223) от 26.05.2016
-
-VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745223.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eros Ramazzotti – Il Tempo Non Sente Ragioni 4:04
-02. Malika Ayane – Senza Fare Sul Serio 3:34(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB44E93F8EE604E868B0745977C144126B328A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527784   (736402) от 29.01.2022
-
-Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel My Fire /feat.Stylove/ (Extended Mix) 06:44
-02. Heart & Soul /duet with Rachel Santos/ (Extended Mix) 06:13
-03. Tick Tock Baby (Extended Mix) 06:32
-04. Kiss Me (Extended Mix) 05:38(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

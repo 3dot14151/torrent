@@ -1,148 +1,3 @@
-###  Публикация: 1324136   (427332) от 08.09.2019
-
-Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ensemble for Piano and Violin No. 4 in H Major, Op. 5: IV. Moderato
-2. Ensemble for Piano and Violin No. 5 in D Minor, Op. 6: IV. Moderato
-3. Ensemble for Piano and Violin No. 6 in F Minor, Op. 7: IV. Andande con molto
-4. Ensemble for Piano and Violin No. 7 in D Minor, Op. 8: IV. Andante(   Читать дальше...   )Жанр: Modern classical, ensemble, pianoПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ADB8484E92DCFA641F38A84097C806001EB168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249928   (426974) от 27.09.2018
-
-The New London Chorale - The Young Beethoven (1990) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	All Alone
-02.	As I Walked Out
-03.	And Then I Saw You
-04.	The First(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A54AE70485E329F9DE4868BF8924DB6AD56F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571931   (425404) от 25.08.2022
-
-VA - The Best 50 of Classical Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (2:38)
-02. Alexander Kobrin - 12 Etudes, Op. 25 No. 12 in C Minor Ocean (2:41)
-03. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:28)
-04. Misha Fomin - Suite Bergamasque, L. 75 Clair de Lune (5:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEA18B3E2AAD2DE822C55F9A2A6CE7B9B39F037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250437   (424617) от 28.09.2018
-
-The New London Chorale - The Young Handel (1995) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Queen Of Sheba / Ouverture
-2	Guiding Star
-3	Love Will Have Its Day
-4	Oliver's Song(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE519883B21853ECD4E36189CB33C28B983033C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947118   (422479) от 15.10.2015
-
-BrunuhVille - Northwind (2015) [MP3|320 кб/с]<Neo-Classical, Instrumental, Celtic, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter's Tale
-02. Song of the North (Feat. Sharm)
-03. Mother Earth
-04. The Elven Prophecy(   Читать дальше...   )Жанр: Neo-Classical, Instrumental, Celtic, New AgeПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981FC6E78FE7F9A13BFD4129F3F8EA5219261B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324628   (420965) от 11.09.2019
 
 Roman Ilyin - Pieces. Part 2 (2019) [MP3|320 Kbps] <Modern classical, ensemble, piano>
@@ -742,6 +597,147 @@ Octet for winds in E flat major, Op. 103
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6278B68E38988A4A6F6AEF2AA68AB2835B13574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252406   (409177) от 05.10.2018
+
+After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Figure One.               Written-By – Rossini
+2.	Carmencita.             Written-By – Bizet
+3.	Joy.                          Written-By – JS Bach
+4.	Freeze.                     Written-By – Rossini(   Читать дальше...   )Жанр: Neo-Classical, Pop, ClassicalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD71B8CF7E13C5623D237DA7242DC38F825E2AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167775   (408559) от 24.09.2017
+
+Vanessa Mae - The Best (2010) [FLAC|Lossless|image + .cue] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Hot (Symphonic Mix) (4:32)
+ 02. Storm (3:45)
+ 03. City Theme (4:35)
+ 04. A Poet's Quest (For A Distant Paradise) (4:34)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C3E24C5EFDD7B278C42B77A10D6B0347402590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559740   (407831) от 13.10.2012
+
+Giuseppe Verdi - Don Carlos (Sir Georg Solti & The Orchestra of the Royal Opera House Covent Garden) 3CD (1988) [FLAC|Lossless]<Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, OperaПродолжительность: 01:00:37 - CD1
+01:03:10 - CD2
+01:14:14 - CD3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557644C31430E63C6DDAF5088C57E6B719487823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409500   (407692) от 06.10.2018
+
+Montserrat Caballe - Recital Espagnol (2003)(2CD)(RCA RED SEAL) [FLAC|Lossless]<Opera, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407692.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. Eduardo Toldra - La rosa Als Llavis
+02. Eduardo Toldra - Platxeria
+03. Eduardo Toldra - Maig(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 02:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F7668E7C56099630C0B3E5909E5D15FC953486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414031   (406778) от 06.10.2020
+
+Emmanuel Holterbach & Blutwurst - Ricercar Nell'ombra (2020) [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricercar nell'ombra (vuoto, energia, rilievo) (46:09)Жанр: Classical, Contemporary, Modern ClassicalПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9C0BF2D4C92998F60317C69CE306AC66A5160E
 ```
 
 https://mybot314.ru/tekegram_catalog/

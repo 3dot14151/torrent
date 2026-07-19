@@ -1,119 +1,3 @@
-###  Публикация: 1206519   (782140) от 14.02.2018
-
-Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time [03:42]
-02. Waltz for Debby [04:59]
-03. If You're Still in Love with Me [02:41]
-04. The April Fools [03:45](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Guitar JazzПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656655E7E53FFA7E5FA110E5B41FC0B52B17164F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206518   (782130) от 14.02.2018
-
-Nicki Parrott - Close To You: Burt Bacharach Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On By [03:09]
-02. Alfie [04:41]
-03. Close To You [03:17]
-04. Raindrops Keep Fallin' On My Head [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED7C6BCECD3B3F8512A5ABC79DDBB08C446499B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390967   (781955) от 18.06.2020
-
-Cannonball Aderley - Riverside Profiles 1958 - 1963 (2006) 2CD, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781955.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. This Here [11:47]
-02. Dizzy's Business [7:00]
-03. Nardis [5:33](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A020FC2FD552CB330F13BE21AB647563F561FBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206541   (781743) от 15.02.2018
-
-Harry James - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Sleepy Lagoon [03:02]
-02. Trumpet Blues and Cantabile [03:04]
-03. Easter Parade [03:28]
-04. Crazy Rhythm [03:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5FD8620189A638EFC0227FAD3AD4CEAD590D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391384   (781083) от 20.06.2020
 
 Archie Shepp - Blase & Live at the Pan-African Festival 1969 (2004) 2CD, Charly Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Soul-Jazz>
@@ -744,6 +628,122 @@ Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208198   (780122) от 21.02.2018
+
+Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I (For Kenny Wheeler): Ouverture [01:17]
+02. Part I (For Kenny Wheeler): Starbright [15:26]
+03. Part II (For Jan Jarczyk): To Jan [06:21]
+04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208187   (780121) от 21.02.2018
+
+Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Worry About A Thing [02:19]
+02. It Didn't Turn Out That Way [02:44]
+03. Your Mind Is On Vacation [02:38]
+04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208193   (780118) от 21.02.2018
+
+Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [02:19]
+02. Song for Carabello [05:15]
+03. Surrender Song [07:05]
+04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208340   (780108) от 21.02.2018
+
+Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Now Is Our Time
+02 – Traveling (In Time And Space)
+03 – Variations On Longing
+04 – Mirrors(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

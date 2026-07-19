@@ -1,3 +1,90 @@
+###  Публикация: 1208565   (779801) от 23.02.2018
+
+Dream Ocean - Lost Love Symphony (2018) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Inception (1:57)
+ 2. Beyond the Greed (6:10)
+ 3. Hain (4:53)
+ 4. Everstorm (4:13)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE72D4F21D3E619F738218545F61ACEE1901872A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208309   (779674) от 24.02.2018
+
+MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ballad Of The Goddess (Skyward Sword)
+02 - Song Of Storms (Ocarina Of Time)
+03 - Hyrule Castle (A Link To The Past)
+04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209070   (779665) от 24.02.2018
+
+MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thunder Thrash (Title And Bosses Medley), Thunder Force IV
+02 - Metal Squad, Thunder Force IV
+03 - Rising Blue Lightning, Thunder Force V
+04 - Stand Up Against Myself, Thunder Force IV(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209054   (779528) от 25.02.2018
 
 MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
@@ -655,93 +742,6 @@ Hatebreed - The Concrete Confessional (2016) [MP3|320 кб/с] <Thrash Metal, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943C49A185B59B2D54684E5A2720DE31D28A9F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016208   (771466) от 13.05.2016
-
-DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testimony Of Truth (4:44)
-02. Bad Deeds (3:47)
-03. My Night Sky (4:29)
-04. This Deception (3:48)(   Читать дальше...   )Жанр: Groove, Melodic Death MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B02ABB0AA378B938B9B826E6837C4AD65C3AE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526855   (770997) от 13.05.2016
-
-Hatebreed - 9 Albums (1996-2016) [MP3|320 кб/с]<Hardcore, Metalcore, Trash Metal>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1996 - Under The Knife (EP)
-1997 - Satisfaction Is The Death Of Desire
-2002 - Perseverance
-2003 - The Rise Of Brutality(   Читать дальше...   )Жанр: Hardcore, Metalcore, Trash MetalПродолжительность: 05:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD98D4DBECA7F8586DA61D3A20F2646520BE2933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391859   (770714) от 23.06.2020
-
-Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filaments Dissolve (06:50)
- 02. Into the Maw (04:13)
- 03. The Absolute Nothing (04:18)
- 04. Unborn (03:51)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A358888D2265CBB66206348CE40661A272A091
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1794986   (67138) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Cute Mermaid Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт на тему русалок и моря.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F275A5A42D6A2F12F405CF5FA05BF5AB0FA4FF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794809   (67136) от 03.05.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Underwater Clipart [PNG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B48D706FDB6A5CFB35077A95037FE52C9C90072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795903   (66873) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Watercolor Hawaii Clipart Bundle [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный Гавайский клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD66B8E403B922F64BDD9B9C3AFA6952CC81AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

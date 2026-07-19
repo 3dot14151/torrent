@@ -1,119 +1,3 @@
-###  Публикация: 1685289   (127224) от 18.12.2023
-
-Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [2:25]
-02. Santa Claus Is Coming to Town [2:21]
-03. Have Yourself a Merry Little Christmas [2:58]
-04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685292   (127223) от 18.12.2023
-
-Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love? [6:22]
-02. La Bonita [5:32]
-03. Seven Steps to Heaven [5:50]
-04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685322   (127221) от 18.12.2023
-
-VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj X-perience - Best Life (7:39)
-02. DOUT.D - Strolling (2:23)
-03. The Last Minister - Tribute To J.B. Family (6:20)
-04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685287   (127212) от 18.12.2023
-
-Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Night [3:29]
-02. Christmas Waltz [3:22]
-03. Everything's Not Lost [4:09]
-04. Someday at Christmas [2:55](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB83819CE144E6E24E364436DF44AE4235328589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685291   (127210) от 18.12.2023
 
 Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Cool, Vocal Jazz>
@@ -744,6 +628,122 @@ Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D50D1388EF0C7C6D69B8DE5FC80DA297AE3C5E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686829   (126212) от 24.12.2023
+
+Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milano [6:09]
+02. Well, You Needn't [6:21]
+03. K.C. Blues [9:14]
+04. A Night in Tunisia [8:00](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686831   (126179) от 24.12.2023
+
+Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora's Theme [6:38]
+02. Morning Song of a Spring Flower [7:05]
+03. All Blues [7:48]
+04. Falling in Love [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12811F8B1191DAEEE9C029BBC9881F1373343864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686787   (126178) от 24.12.2023
+
+Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Barbara [6:51]
+02. Afro Blues [5:33]
+03. Round About Midnight [10:13]
+04. Memphis Green [5:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86707B332CAFE2923B579808418611AAF45A976D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686791   (126177) от 24.12.2023
+
+Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filthy McNasty [11:03]
+02. Doin' the Thing [11:16]
+03. Kiss Me Right [9:19]
+04. The Gringo [10:55](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 07:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6830A60A29D4D29B898A59BD8C867B54A44BA834
 ```
 
 https://mybot314.ru/tekegram_catalog/

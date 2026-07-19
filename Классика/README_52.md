@@ -1,370 +1,3 @@
-###  Публикация: 472906   (84574) от 26.03.2012
-
-Иоганн Себастьян Бах - Страсти по Иоанну | Johannes-Passion BWV 245 (1994) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84574.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Choral - О Mensch, bewein' dein Sunde gross
-2.	Evangelist - Jesus ging mit seinem Jungern
-3.	Choral - О grosse Lieb
-4.	Evangelist - Auf dass das Wort erfullet wurde
-5.	Choral - Dein Will gescheh, Herr Gott zugjeich
-6.	Evangelist - Die Schar aber und der Oberhauptmann
-7.	Aria (Alt) - Von der Stricker meiner Sunden
-8.	Evangelist - Simon Petrus aber folgete Jesu nach
-9.	Aria (Sopran) - Ich folge dir gleichfalls
-10.	Evanselist - Derselbige Junger war dem Hohenpriester bekannt(   Читать дальше...   )1994Жанр: ClassicПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472910   (84558) от 26.03.2012
-
-Иоганн Себастьян Бах - Страсти по Матфею | Matthaus-Passion BWV 244 (1970) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84558.jpg" />
-</div>
-
-
-###  Подробнее
-
-1970Жанр: ClassicПродолжительность: 02:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F57598DD44C9B415894A799773BDF01953D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471038   (83469) от 21.03.2012
-
-Mozart - Concertos For Flute and Harp, KV 299: The Amsterdam baroque orchestra (1778) /1993, Erato/ [APE|Lossless]<Classical/Concerto>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83469.jpg" />
-</div>
-
-
-###  Подробнее
-
-CONCERTO/KONZERT KV 314 (285d)
-for oboe and orchestra
-1.  Allegro aperto  6:49
-2.  Adagio non troppo  6:04
-3.  Rondo : Allegretto  5:24
-Marcel PONSEELE, hautbois/Oboe
-CONCERTO/KONZERT KV 191 (186e)
-for bassoon and orchestra
-4.  Allegro  6:25
-5.  Andante ma adagio  5:51(   Читать дальше...   )Жанр: Classical/ConcertoПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4367E0A081D69C2481E8E3B189F52F668CBF1755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470998   (83455) от 21.03.2012
-
-W.A. Mozart - Early Symphonies 1,2: The English Concert (1879-1882) on authentic instruments /1993/ [FLAC|Lossless]<Classical, authentic>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83455.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:10:52
-Symphony No. 1 in E flat major, K. 16
-1.  Molto allegro  [05:49]
-2.  Andante  [06:13]
-3.  Presto  [01:55]
-Symphony in F major, K.Anh. 223 (19a)
-4.  Allegro assai  [05:00]
-5.  Andante  [03:54]
-6.  Presto  [02:32](   Читать дальше...   )Жанр: Orchestral, authenticПродолжительность: 02:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469181   (82749) от 17.03.2012
-
-Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Relax, Neoclassical, Instrumental, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468244   (82259) от 15.03.2012
-
-David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (2:47)
-02. Carmen Fantaisie with Paco Pena (4:16)
-03. Nothing Else Matters (3:33)
-04. Csárdás - Gypsy Dance (3:27)
-05. Duelling Banjos (Duelling Strings) (2:11)
-06. Paganini Rhapsody (on Caprice 24) (4:08)
-07. Serenade (3:39)
-08. The Flight of the Bumble Bee (1:20)
-09. Toccata (3:50)
-10. Somewhere (3:01)(   Читать дальше...   )2007Жанр: Classical Crossover, InstrumentalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467524   (82243) от 15.03.2012
-
-Иоганн Себастьян Бах - Магнификат |Magnificat in D major BWV 243 (1984) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82243.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Magnificat
-002-Et exultavit spiritus meus
-003-Quia respexit humilitatem
-004-Omnes generationes
-005-Quia mihi fecit magna
-006-Et misericordia
-007-Fecit potentiam
-008-Deposuit potentes
-009-Esurientes implevit bonis
-010-Suscepit Israel(   Читать дальше...   )1984Жанр: ClassicПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467879   (82113) от 14.03.2012
-
-Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320 кб/с]<Piano, Cello, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Meets Mozart (5:17)
-02. Moonlight (3:27)
-03. Without You (3:37)
-04. The Cello Song (3:17)
-05. Rolling In The Deep (3:52)
-06. Cello Wars (Radio Edit) (3:09)
-07. O Fortuna (Carmina Burana) (3:20)
-08. Bring Him Home (Les Miserables) (4:16)
-09. Charlie Brown Medley (3:01)
-10. Rock Meets Rachmaninoff (3:20)(   Читать дальше...   )Жанр: Piano, Cello, InstrumentalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466603   (81872) от 13.03.2012
-
-Иоганн Себастьян Бах - Месса си минор | Mass in B minor BWV 232	(1986) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Kyrie eleison
-002-Christe eleison
-003-Kyrie eleison
-004-Gloria in excelsis Deo
-005-Laudamus te
-006-Gratias agimus tibi
-007-Domine Deus
-008-Qui tollis
-009-Qui sedes
-010-Quoniam tu solus(   Читать дальше...   )1986Жанр: ClassicПродолжительность: 1:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011858B532EFDCB7E1C8EFCBA87E6D721057EA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466309   (81452) от 11.03.2012
-
-VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Л.Керубини, Introitus et Kyrie.mp3 - 7,14
-02 Л.Керубини, Dies Irae.mp3 - 10,26
-03 Г.Берлиоз, Agnus Dei.mp3 - 11,38
-04 Дж. Верди, Requiem aeternam.mp3 - 5,12
-05 Дж. Верди, Dies Irae.mp3 - 2,04
-06 Г. Форе, Agnus Dei.mp3 - 7,03
-07 Г. Форе, In Paradisum.mp3 - 3,55
-08 А. Моцарт, Lacrimosa.mp3 - 3,36
-09 А. Моцарт, Hostias.mp3 - 5,00
-10 А. Моцарт, Agnus Dei.mp3 - 10,542005Жанр: Классическая музыкаПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465228   (80970) от 09.03.2012
-
-Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 'O sole mio (02:40)
-2. Funiculi, funicula (01:22)
-3. Libiamo ne lieti calici (Brindisi) (03:06)
-4. Sous le ciel de Paris (01:59)
-5. Torero quiero ser (01:09)
-6. Parlami d'amore Mariu (02:52)
-7. Manha de Carnaval (02:33)
-8. Lolita (02:38)
-9. Dicitencello vuie (03:37)
-10. Core 'ngrato (03:37)(   Читать дальше...   )2002  |Жанр: Classical, VocalПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458979   (78761) от 27.02.2012
 
 Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
@@ -796,6 +429,324 @@ VA - Lovely Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87D777326E48E24AEB9C1B86761F35F54DF347C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718327   (58656) от 24.04.2024
+
+VA - Classical Instrumental Masterworks (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+04. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC51652C4ED4081791ED17312C735275B7F2C684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719009   (58342) от 27.04.2024
+
+VA - Top 50 Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frédéric Chopin & Elisabeth Leonskaja - Nocturnes, Op. 9 No. 2 in E-Flat Major. Andante (5:04)
+02. Johann Strauss II, Willy Boskovsky & Vienna Strauss Orchestra - An der schönen blauen Donau, Op. 314 (3:11)
+03. Ludwig van Beethoven & Mikhail Pletnev - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (7:14) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8739821C3CED688C02D3BFB3FD90601B969F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719374   (58132) от 29.04.2024
+
+VA - The Best Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Romance in E-Flat Major for Piano and Viola (2:52)
+03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+04. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FDDFFB92391A1862E8B24CCFC06280E019BB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720009   (57951) от 01.05.2024
+
+VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Jonathan Yandel - Dawn (2:27)
+03. Sergey Bryukhno - Hope (1:29)
+04. Sergey Bryukhno - Passing Through the Memories (1:37)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722437   (56868) от 11.05.2024
+
+VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Mikhail Mordvinov - Fantasia in D Minor, KV 397 (5:34)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF2326726B6851A68C764EE22335A44BDF07760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722641   (56781) от 12.05.2024
+
+Hauser, London Symphony Orchestra - Classic II (2024) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом Classic II стал продолжением всемирного успеха альбома Classic 2020 года. Для нового альбома HAUSER выбрал и воплотил в жизнь 17 незабываемых мелодий в новых аранжировках, записанных с London Symphony Orchestra под управлением Robert Ziegler'а. В альбоме Classic II, который он спродюсировал сам, HAUSER переосмыслил свои любимые мелодии в новом элегантном (   Читать дальше...   )01. Albinoni Adagio (5:55)
+02. Mozart Piano Concerto No. 23 (5:25)
+03. Arioso (3:46)
+04. Rachmaninoff Symphony No. 2 (5:25)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F75726D1B6E10C9170B2B3568F60EEADD27959D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724574   (55929) от 20.05.2024
+
+VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
+02. Sergey Bryukhno - Cinematic (2:47)
+03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728332   (54154) от 06.06.2024
+
+VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
+02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
+04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 124481   (53595) от 12.06.2024
+
+Robert Schumann - The Complete Piano Works (13 CD Set) (1989) [APE]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательное боксовое издание великого композитора. Под спойлером я разместил статьи о композиторе и о исполнителе для интересующихся.Disc: 1
+01-18 - DAVIDSBUNDLERTANZE OP. 6
+19-21 - PHANTASIESTUCKE OP.lll
+22-26 - GESANGE DER FRUHE OP. 133(   Читать дальше...   )Жанр: ClassicalПродолжительность: 14:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636B3A230715F22A3A0064B38F747BF5A9B9B7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730364   (53193) от 15.06.2024
+
+VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
+02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
+04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730729   (52795) от 19.06.2024
+
+Maurice Ravel - The Complete Works (2020) 21CD [FLAC|Lossless|image + .cue] <Classics>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52795.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-5: Piano works
+CD6-7: Chamber music
+CD8-12: Orchestral works
+CD13-15: Songs, Choral worksЖанр: ClassicsПродолжительность: 24:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57AEFDE9E2D02AFFD7D4FF33EB7D1CC8B2F77A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

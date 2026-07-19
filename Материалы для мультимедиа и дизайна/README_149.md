@@ -1,24 +1,24 @@
-###  Публикация: 795401   (689636) от 12.06.2014
+###  Публикация: 1402444   (701579) от 14.08.2020
 
-Boom Library - HISTORICAL FIREARMS [WAV]
+Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations 2 [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BOOM Library - Historical Firearms Bundle позволит в кратчайшие сроки добиться качественного результата и содержит высококачественные звуковые эффекты старинного огнестрельного оружия. Подойдет для озвучки исторических битв с тысячами пехотинцев, пиратской битвы со злым свистом пистолей или старомодной дуэли двух джентельменов.
-
-Коллекция Historical Firearms Designed (   Читать дальше...   )Формат: WAV
+Векторный клипарт для дизайна.
+Целые и нарезанные фрукты в шоколадной глазури
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB6CB0664903E4791A2B0B1F6B96F102E93FF6CB
+magnet:?xt=urn:btih:DF4E821D1B82D877D1D46D760B6C945FFB1C7D61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +26,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221924   (689560) от 27.04.2018
+###  Публикация: 1402442   (701569) от 14.08.2020
 
-Текстуры - Creativetacos - Free 5K Stripe Textures [JPG]
+Векторный клипарт - Sweet candy landscape of plasticine 3d realistic illustrations [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные полосатые текстуры.Формат: JPGРазрешение файлов: 5120px X 2880
+Векторный клипарт для дизайна.
+Сладкие пейзажи из пластилина
+8 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A36EBB2FCB5FD122EC6FE332821057E5FA7252B2
+magnet:?xt=urn:btih:94A208A9BD6F7370078826289194DD3B0AF0152B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221918   (689551) от 27.04.2018
+###  Публикация: 1132504   (700552) от 09.05.2017
 
-Текстуры - Creativetacos - Free 5K Reticulation Textures [JPG]
+Рамки - С Днем Победы 2017 [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры-сетчатый узор.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 5120px X 2880
+Многослойные PSD Шаблоны-рамки. С Днем Победы 2017 для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0604C5F905E800CBA253987AE96FFAFD82180E09
+magnet:?xt=urn:btih:8E9083F206FFF2AC416AAEE34CE478D249D3C026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,105 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221898   (689548) от 27.04.2018
+###  Публикация: 1220889   (700533) от 21.04.2018
 
-Фоны - Creativetacos - 12 Free Mosaic Grunge Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны в виде мозаики.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 3400×2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE441F72BF5EFBD8AF2DAB1423C74F78FFA6C451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333838   (689532) от 09.05.2011
-
-Сборники - Великий праздник - 9 мая! (08.05.11) [JPG, PNG, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки посвящённые Великому празднику - 9 мая!Формат: JPG, PNG, EPSРазрешение файлов: 1022х1307-6436х9472
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9253EF7EA46DCA1F2D5E0AC75D98D2A975F2D54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505800   (689466) от 05.06.2012
-
-Растровый клипарт - Кошки и кошачьи / Clipart Cats and cat - Full HD [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт домашних кошек и диких представителей кошачьих в высоком качестве.
-(259 шт.)Разрешение файлов: 1600x1200 - 4500x2800Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F906A37855795D101512877D0CEA96BB80074F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221829   (689439) от 27.04.2018
-
-Текстуры - Texturemate - Flaked Paint 1 Texture Pack [JPG]
+Текстуры - Pixel Surplus - Girlicious Texture Sample Pack [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры, под осыпающуюся краску.Формат: JPGРазрешение файлов: 3888 x 2592
+Набор образцов текстур для дизайна с официального сайта, выборочно, доступный для бесплатного скачивания.Формат: JPGРазрешение файлов: 6000x6000, 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71232C53FF4EB9667912609E5A11FC3758B4225A
+magnet:?xt=urn:btih:B988ECDC8CBBE677767FA909E9252D9244348EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,25 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221928   (689437) от 27.04.2018
+###  Публикация: 1027046   (700192) от 17.06.2016
 
-Фоны - Creativetacos - 10 Free Watercolor Washed Backgrounds [JPG]
+Экшены - GraphicRiver - Smoky Action [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Беплатные размытые акварелью фоны.Формат: JPGРазрешение файлов: 3000 X 2000
+Smoky - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:614C31B4DD1233876F48901F31F344DC811D604C
+magnet:?xt=urn:btih:67DC581D8285CA474567E5DF6506A49C51C067E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,26 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221843   (689436) от 27.04.2018
+###  Публикация: 673023   (700123) от 26.06.2013
 
-Текстуры - Creativetacos - 10 Free Creative Artistic Grunge Textures [JPG]
+Футажи - Shutterstock - 5 Footage Couple at Sunset [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры в стиле "Гранж"(цветные бетонные элементы).
-Автор: CreativetacosФормат: JPGРазрешение файлов: 6000х4000
+Пять романтических и красивых футажей.Формат: MOVРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:994FD5B7B1F0ACC65685AAF372DDD277FC2FF933
+magnet:?xt=urn:btih:06E6A0C52B28A918A4B306BE4EF3DB277FA4B092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,26 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221840   (689435) от 27.04.2018
+###  Публикация: 1027054   (700082) от 17.06.2016
 
-Текстуры - Creativetacos - 10 Free Marble Ink Paper Textures [JPG]
+Экшены - GraphicRiver - Retro Comic Book Effect [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры, бумага покрытая чернилами.
-Автор: Nassy ArtФормат: JPGРазрешение файлов: 6000 × 4000
+Retro Comic Book Effec - экшен для Вашего творчества. Добавьте комический образ в ретро стиле к вашим фотографиям.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CFCC8231579E8B35DD51B17DDA0619D42471FC9
+magnet:?xt=urn:btih:C1C9D052B4536B6842079061D2F3538D8DA4F344
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221855   (689432) от 27.04.2018
+###  Публикация: 1027072   (700075) от 17.06.2016
 
-Текстуры - Creativetacos - 10 Free High Quality Texture Pack [JPG]
+Шаблоны - GraphicRiver - 2 Abstract Artistic Photo Manipulation [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные разнообразные высококачественные текстуры (дерево, бетон и т.п.)
-Автор: Eric GraphaddiktФормат: JPGРазрешение файлов: 4928 x 3264
+Абстракция, 2 варианта художественной обработки Ваших фото.Формат: PSDРазрешение файлов: 2400×3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:470306E2A5720F94442104BAA94582400803FCC6
+magnet:?xt=urn:btih:2E3BC5AB4B46243BA041F077FA5555405CEE1FD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,26 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221914   (689308) от 27.04.2018
+###  Публикация: 1027088   (699956) от 17.06.2016
 
-Текстуры - Creativetacos - 30 Free Canvas Textures Backgrounds [JPG]
+Экшены - GraphicRiver - Cinematic Photoshop Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_689308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры под холст, чёрные и белые.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 6000 × 4000
+Cinematic - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FBA1377A80DAA3F1D1CEAB9A24280A16844987E
+magnet:?xt=urn:btih:B59774C4E6EDAF3D40FC5C6CD488AB9E4043E0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,26 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221874   (689179) от 27.04.2018
+###  Публикация: 1027083   (699948) от 17.06.2016
 
-Фоны - Creativetacos - Free 12 Motion Blur 8K Backgrounds [JPG]
+Экшены - GraphicRiver - Aqua Photoshop Action [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры с эффектом размытия.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 7680 x 4320
+Aqua - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6B456DF05C6A4B0CFBBC8FCBF53FEE482DF6758
+magnet:?xt=urn:btih:D74D195322F6F3A9AAA078A39C0201ED97613144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,25 +262,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 334549   (689155) от 09.05.2011
+###  Публикация: 1287930   (699517) от 09.03.2019
 
-Digital Juice - MusicBOX Collection 02 (Full ISO)
+Векторный клипарт - Flyer for March 8 - Vector Graphics [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MusicBox Library - это новая концепция многоуровневой аудио-продукции от Digital Juice. Вы познакомитесь с запатентованным многоуровневым форматом STX, в котором предоставляются эти композиции. Но в отличии от предыдущей библиотеки StackTraxx, которая состояла из меньших тематических томов, каждая коллекция в MusicBox Library - это огромный эклектичный ассортимент (   Читать дальше...   )Жанр: Audio-Footage, Sound EffectsФормат: ISO (*.stx)Продолжительность: 1:00, 0:30, 0:15 and 0:10 Broadcast Cuts
+Флаеры и открытки к 8 Марта - букет тюльпанов, мишка, подарок.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A82AD0622E2068B88E2498B091E7D7CFFB1E73E
+magnet:?xt=urn:btih:5B56B625826348D02D0E5DC0FC7D20B9646448D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403817   (688029) от 21.08.2020
+###  Публикация: 1287933   (699509) от 09.03.2019
 
-Звуковые библиотеки - Audio Imperia - JAEGER v1.2 - Repack kiryffka [Kontakt]
+Векторный клипарт - Cards for March 8 - Vector Graphics [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JAEGER происходит от немецкого слова Jager, что означает «Охотник». Это первый релиз в серии оркестровых инструментов, который откроет вам новую эру современной кинематографической музыки. Как композиторы, мы постоянно гонимся за новой творческой искрой, но наши короткие сроки не всегда позволяют нам поймать вдохновение. Вам нужно просто приложить пальцы к клавишам (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX, NKA
+Открытки к 8 марта - векторный клипарт, праздничные иллюстрации.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9323B4EB7D4AF033E1455E0BB7CE6F24118952C3
+magnet:?xt=urn:btih:3ADA5D0501C31CBF48D4EA801667668CCECBFE25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +314,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 506604   (687534) от 06.06.2012
+###  Публикация: 1287928   (699375) от 09.03.2019
 
-Растровый клипарт - Девчонкам-цветы , дитям-мороженое [PNG,JPG]
+Векторный клипарт - Happy Women-s Day - Vector clipart. 12 part [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский день 8 марта - векторные иллюстрации с праздничными элементами.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB28880B5694C353BE849DBB2066EAB1EA110AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220969   (698507) от 22.04.2018
+
+Растровый клипарт - Animations and Gifs (Fractals) [GIF]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клип-арты с изображениями роз , и детишек , с мороженымФормат: PSD , EPS , PNG , JPEG
+Загадочный беспорядок.....
+
+На золотом пейзаже ёмком
+Фракталы светом умиляют,(   Читать дальше...   )Формат: GIFРазрешение файлов: от 257х232 до 1365х1024
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:316A6B8B449C9A6847FD13FE56D2273A70CA9811
+magnet:?xt=urn:btih:7467BE44EC396FB36D7B7F91EC56E94F9A490156
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +369,156 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222304   (687481) от 28.04.2018
+###  Публикация: 1402841   (697701) от 16.08.2020
 
-Текстуры - GraphicBurger - 10 Marble Textures Vol.4 [JPG]
+Растровый клипарт - Design Bundles - Graphic Butterflies Clip Art - 538169 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию набор акварельных картинок 'Яркие бабочки' в формате PNG, на прозрачном фоне.Формат: PNG, JPGРазрешение файлов: 181x246-4282x3424
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3891C36D96C50C0FDE33B880127F6DA06F728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027420   (697568) от 18.06.2016
+
+Футажи - Коллекция видеофутажей 5 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая часть личной коллекции из 80 видеофутажей на различную тематикуФормат: MP4Разрешение файлов: 1280х720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87000DC0CC07437D915A03E27AF39F3045F1FAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402797   (697448) от 16.08.2020
+
+NNM-Club Sound Cleaner Collection from STouR - Album 5-2020
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция чищеных от watermark музыкальных треков AudioJungle к проектам After Effects от нашего одноклубника STouR, гуру и активного члена группы Sound cleaner.Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3630E6F56F545FCBBFDEDCD8DD617EAAE1A907AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402836   (697424) от 16.08.2020
+
+Стили - GraphicRiver - Viking Layer Styles - 27767514 [PSD, PNG, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697424.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 эффектов, вдохновленных древними викингами. Каждый эффект был тщательно продуман вручную для обеспечения высочайшего качества и оригинальности. Было представлено множество культурных аспектов, от замысловатых и богато украшенных узоров и резных фигурок до жестоких, кровавых и золотых залов Валгаллы.Формат: PSD, PNG, ASLРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29F5F6278C469C00E4EA3E7498CA087F6884A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402826   (697325) от 16.08.2020
+
+Сборник - Creative Market - SUPER BUNDLE 100 TS DESIGN VOL.2 - 3917317 [PNG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет, представляю мой новейший продукт, дизайн футболки super bundle 100 vol.2. В отличие от пакета vol.1, этот пакетный продукт vol.2 предлагает более разнообразные функции и более полный, чем другие продукты. Этот комплект состоит из 100 векторных изображений в формате eps в высоком разрешении и 100 прозрачных изображений в формате PNG в высоком разрешении. (   Читать дальше...   )Формат: PNG, EPSРазрешение файлов: 2480x3508-6299x3543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7AEB84190275B17D08A68D66F34A9A554890C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221156   (696736) от 23.04.2018
+
+Текстуры - Creativetacos - 10 Free Acrylic Textures [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4500 x 2966 - 4500 x 3280
+Набор бесплатных текстур для дизайна.
+Автор: Nassy ArtФормат: JPGРазрешение файлов: 6000х4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC3506BF9F9771F5D2CB3C43C045C4E2DA5891B6
+magnet:?xt=urn:btih:B192FFB6AB9BFFEE949C6AC57CF1E4730195E4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +526,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222322   (687478) от 28.04.2018
+###  Публикация: 1221201   (696735) от 23.04.2018
 
-Текстуры - GraphicBurger - 7 Glitter Textures Vol.1 [JPG]
+Текстуры - MightyDeals - 25 Colorful Grunge Textures [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные блестящие текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4299 x 3565
+Бесплатные текстуры для дизайна
+Автор: Florin GorganФормат: JPGРазрешение файлов: 5000 x 5000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FCEC6DD98F80E87EB7288DED89318DED1F8A252
+magnet:?xt=urn:btih:3C92009237736D34C8DC36E73BD6422AF490C031
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,26 +553,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221923   (687370) от 28.04.2018
+###  Публикация: 1221133   (696734) от 23.04.2018
 
-Текстуры - Creativetacos - 16 Free Glitter And Rough Textures [JPG]
+Текстуры - Creativetacos - 60 Luxurious Gold Textures [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные блестящие и шероховатые текстуры.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 4299 × 3565
+60 бесплатных текстур с официального сайтаФормат: JPGРазрешение файлов: 6000  4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FAC4C9D052E0069133DF9AFE02B410AAD8BC319
+magnet:?xt=urn:btih:FD4DF775765FD36142FE56C52007D2D3F73516CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,54 +579,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222239   (687369) от 28.04.2018
+###  Публикация: 1221155   (696731) от 23.04.2018
 
-Векторный клипарт - Cartoon Marine Animals Mix 21 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Мультяшные морские животные
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F4E6F5F4B9491E0C60AC503152D242BABB53E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222275   (687368) от 28.04.2018
-
-Текстуры - Creativetacos - 10 Free Concrete Textures [JPG]
+Текстуры - Creativetacos - 10 Free Pastel Textures [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные бетонные текстуры.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 4299 x 3565
+Набор бесплатных текстур для дизайна.
+Автор: Nassy ArtФормат: JPGРазрешение файлов: 6000х4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF003C62BED8C0C7C8399AC2556A0B881601CEA
+magnet:?xt=urn:btih:41CF6C243FBA8C620EC4D12330F079EFDBE480D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,25 +606,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222324   (687367) от 28.04.2018
+###  Публикация: 1221164   (696633) от 23.04.2018
 
-Текстуры - GraphicBurger - 8 Glitter Textures Vol.2 [JPG]
+Текстуры - Design Bundles -  100 Real Wood Textures [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696633.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные блестящие текстуры с официальной документацией.Формат: JPGРазрешение файлов: 5000 x 3328
+Бесплатные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:163D853395872472AC392419447E5A31899B001C
+magnet:?xt=urn:btih:676A5940546EAEC9D5F0723547A8E4E6F646B239
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,27 +632,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222162   (687363) от 28.04.2018
+###  Публикация: 1133009   (696467) от 11.05.2017
 
-Векторный клипарт - Japanese landscape with mount Fuji [EPS]
+Футажи - VideoHive - Light Leaks Pack [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Японский пейзаж с горами Фудзи
-9 EPS + previewФормат: EPS
+Light Leaks Pack - это уникальный набор элементов, которые можно сложить как конструктор в ненавязчивые и красивые световые утечки, которыми вы сможете украсить ваше видео.
+Поместить их на ваше видео. Измените режим наложения. Так же можно использовать эффект размытия для мягкости. Эти элементы могут быть использованы отдельно или в сочетании друг с другом.
+Используются (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:418BB348B511DAF3EAFF700E5F17373987E7C498
+magnet:?xt=urn:btih:64309F5EE633D51FD0E0E743DBA967DBDB015A11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,80 +660,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222272   (687362) от 28.04.2018
+###  Публикация: 1403096   (695571) от 17.08.2020
 
-Текстуры - Creativetacos - Free Seamless Glitter Textures [JPG]
+Звуковые библиотеки - Mango Loops - All About Tabla [Kontakt, AIFF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные блестящие бесшовные текстуры.
-Автор: MedialootФормат: JPG, PATРазрешение файлов: 1024 x 1024
+All About Tabla, от Mango Loops предлагает вам 1000, Tabla Loops в формате KONTAKT,
+предназначенном для оживления современных ритмов из таких жанров,
+ как хип-хоп, трэп, дабстеп, RnB или Future Bass.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; AIFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A04CC90EC34F24C010C07A88C744E808DF5D774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222219   (687358) от 28.04.2018
-
-Векторный клипарт - Vector Countries Collection #7 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Страны, континенты
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2096A8DC6F6C9E6AE3D27B351CA4464ABCCF8D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222032   (687355) от 28.04.2018
-
-Фоны - Deeezy - 10 Abstract 3D Backgrounds 1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные фоны с официальной документацией.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CE63DB6272AF714ABB8914734ADEEE073BD414
+magnet:?xt=urn:btih:65DA874F1DB7308CBE64EE4CD0B53E47365F832A
 ```
 
 https://mybot314.ru/tekegram_catalog/

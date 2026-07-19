@@ -1,120 +1,3 @@
-###  Публикация: 1059022   (463876) от 03.10.2016
-
-Scott Henderson (Tribal Tech, Vital Tech Tones, HBC) - 20 альбомов (1985-2015) 21 CD [WavPack|Lossless|image + .cue] <Jazz-Rock, Fusion, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Скотта Хендерсона стоит отдельно в списке самых влиятельных и талантливых гитаристов мира.
- Его внушительный вклад в развитие джаза и блюза, работы с Чиком Кориа, Жаном-Люком Понти и Джо Завинулом, создали Хендерсону славу одного из авторитетнейших представителей этих направлений...1994 - Dog Party (Mesa Recordings 79073)
-1997 - Tore Down House (Mesa Recordings 7567-92722-2)
-2002 - Well to the Bone (Blues Bureau International BB-2045 2)
-2005 - Live! 2CD (Tone Center TC 4037 2)(   Читать дальше...   )Жанр: Jazz-Rock, Fusion, Blues-RockПродолжительность: 20:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28B129FC1E4F80A634091100C5E65E0AA65BC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246383   (463703) от 10.09.2018
-
-Carmen Lundy - Code Noir (2016) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Chance [3:44]
-02. Live Out Loud [4:36]
-03. Black and Blues [3:47]
-04. Whatever It Takes [4:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB803EBD15704800100D9CD5AB1B5ED75CC7F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246393   (463618) от 10.09.2018
-
-Inés Estévez (Ines Estevez) - Nude (En Vivo) (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Learning the Blues (En Vivo)
-02. I Only Have Eyes for You (En Vivo)
-03. Feel Like Making Love (En Vivo)
-04. I've Got a World on a String (En Vivo)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30936062FFAE550CD00DBC4A769B5A32A4141921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321089   (463389) от 22.08.2019
-
-Fapy Lafertin & Le Jazz - 94-96 The Recordings (1994 - 1996) 2CD, 2012, Lejazzetal [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463389.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Swing Guitars 1994:
-01. I've Had My Moments, Pt. 1 [3:04]
-02. I Wonder Where My Baby Is Tonight [2:48]
-03. Besame Mucho [5:26](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 02:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FA2FCDF18E55BCBADDE548EF1A8C5047CD9349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321046   (463278) от 22.08.2019
 
 ILL CONSIDERED - ILL CONSIDERED 8 (2019) [FLAC|Lossless|Web-DL|tracks] <Free Jazz, Dark Jazz, Spiritual Jazz, Improvisation>
@@ -764,6 +647,122 @@ V.A. - You're My Everything Endless Love Sweet Tunes Pleasure Playlist (2022) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E7E8EA8257CEED1EBA3EA1ACED87DDB9DBCE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246593   (461571) от 11.09.2018
+
+J.J. Johnson & Nat Adderley - Yokohama Concert (1977) 2CD, 1997, Pablo Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461571.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Horace [7:23]
+02. Cyclops [6:28]
+03. Why Not [8:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3011261D1F43A4BD842D0B92CE678CA6488AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161861   (461511) от 31.08.2017
+
+Marius Neset - Golden Xplosion! (2011) Edition Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introducing: Golden Xplosion [02:01]
+02. Golden Xplosion [05:27]
+03. City on Fire [07:43]
+04. Sane [03:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF769B66095D16B9E755AF1765175925CDDCEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162110   (461509) от 31.08.2017
+
+Masabumi Kikuchi Trio - Sunrise (2009) 2012, ECM Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad I [05:40]
+02. New Day [04:49]
+03. Short Stuff [02:12]
+04. So What Variations [05:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC09FB5FD213EB37F6D77936DCB1C512A8E43DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941683   (460291) от 28.09.2015
+
+Opa - Goldenwings (1976) /1996, BMG Ariola/ [FLAC|tracks+.cue]<World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Goldenwings [04:16]
+02.Paper Butterflies (Muy Lejos Te Vas) [07:11]
+03.Totem [04:41]
+04.African Bird [05:41](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4E7269347A0ED58836B7F6C3EC49CF27C52315
 ```
 
 https://mybot314.ru/tekegram_catalog/

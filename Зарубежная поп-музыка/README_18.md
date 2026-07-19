@@ -1,3 +1,32 @@
+###  Публикация: 1276039   (789045) от 14.01.2019
+
+VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Krebbs - The Gym (Funkblaster Radio Mix)
+02. Bob Cruise - We Like to Funk (Radio Edit)
+03. DOUBLE U - Free Again
+04. Nightwatchers - Insomnia (Radio Edit) (Remastered)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A5680273630C83B1C28090F03CC55538A61006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203049   (789022) от 31.01.2018
 
 Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
@@ -716,35 +745,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204000   (785422) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
-02. Deep In The Dark 3:51
-03. Close Enough 3:42
-04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,206 @@
 https://t.me/izofen
-###  Публикация: 1877252   (1074651) от 
+###  Публикация: 1881377   (1076726) от 
+
+Bonnie Tyler - The Collection (2017) 2 x CD, Compilation, Deluxe Edition [FLAC|Lossless|image + .cue] <Pop Rock, Classic Rock, Arena Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bonnie Tyler (настоящее имя Gaynor Hopkins) (8.06.1951 - 8.07.2026). Ее имя всегда будет ассоциироваться у меломанов с рок-музыкой 80-х.
+Родившись в музыкальной семье, она росла слушая музыку самых разных жанров и стилей - от оперных арий, до песен Elvisа Presley, Frankа Sinatra, The Beatles и других групп 60-х. Но самое большое влияние на юную Bonnie Tyler оказали (   Читать дальше...   )CD1:
+01. Total Eclipse Of The Heart (6:59)
+02. Holding Out For A Hero (4:23)
+03. Faster Than The Speed Of The Night (4:41)(   Читать дальше...   )Жанр: Pop Rock, Classic Rock, Arena RockПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83172741FDD7C5232DCE2AF0088AA7384E79B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880719   (1076384) от 08.07.2026
+
+Laid Back - Born To Fly (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Fly
+02. Step Into My Limousine
+03. Give Me A Flower
+04. Pure Sunshine(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C477B16BD93FB0A793BBDD86DA9D7A1BF928253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 8164   (1076049) от 05.07.2026
+
+Supermax - 15 albums (11 CD) - 1977-2002, FLAC (image+.cue)
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cuckoo Nation (4:59)
+02.  Voodooasses (4:47)
+03.  Vision (5:29)
+04.  Push Me Up (6:00)(   Читать дальше...   )Жанр: Rock, Pop, ReggaeПродолжительность: 12:8:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387EF4B6B974F4A65DA6E36182659E4129D064F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879326   (1075798) от 04.07.2026
+
+Laid Back - Golden Fund (1997) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - White horse - 3:59
+02 - I can't live without love - 4:16
+03 - Island of K - 4:37
+04 - Hoot and Noot - 4:28(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8452C3305CEF94E11DD3B7FE5630DD65E64EF3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879960   (1075797) от 04.07.2026
+
+Madonna - Confessions II (2026) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel So Free
+02. Good For The Soul
+03. One Step Away
+04. Bring Your Love (feat. Sabrina Carpenter)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE344F0C9E7772EC1DEAC5405B4BBBE563551A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878785   (1075784) от 04.07.2026
+
+Bobby Brown - King Of Stage (1986) [FLAC|Lossless|image + .cue] <Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Girlfriend (6:18)
+02. Girl Next Door (4:09)
+03. Baby, I Wanna Tell You Something (3:48)
+04. You Ain't Been Loved Right (5:07)(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBFD00BA40FE6EF14CC939044ACD5BED59A94B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879288   (1075588) от 03.07.2026
+
+Tina Turner - Wildest Dreams (1996) 30th Anniversary Edition, 2026, Rhino, Parlophone [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Soul, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Soul, Soft RockПродолжительность: 4CD, 03:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D6264A9A961BF90D6211C7B8D28CA7A58BF44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877252   (1074651) от 26.06.2026
 
 Ronnie Milsap - Lost In The Fifties Tonight (1986) [FLAC|Lossless|image + .cue] <Pop, Country>
 
@@ -28,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1877815   (1074650) от 
+###  Публикация: 1877815   (1074650) от 26.06.2026
 
 Tammy Wynette - Biggest Hits (1983) Compilation, Reissue, 1992, Epic [FLAC|Lossless|image + .cue] <Pop, Country>
 
@@ -543,209 +744,6 @@ Dagny - Dancefloor Erotica (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2DA19674ADAB52D1B8058B404A65ADBFE2FD245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875994   (1073154) от 
-
-Silk - Lose Control (1992) [FLAC|Lossless|tracks + .cue] <Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlude [0:01:25.35]
-02. Silk feat. Keith Sweat / Happy Days [0:05:20.52]
-03. Don’t Keep Me Waiting [0:04:16.20]
-04. Girl U for Me [0:04:32.53](   Читать дальше...   )Жанр: Contemporary R&BПродолжительность: 00:42:34.893 (112 670 796 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D32E5BCF0EFB9E196DCFCA82CF71514FFA2312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875649   (1072913) от 
-
-Alesha Dixon - The Alesha Show (2008) Enhanced, 2009 [FLAC|Lossless|image + .cue] <Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Alesha Show (0:25)
-02. Let's Get Excited (3:22)
-03. Breathe Slow (4:12)
-04. Cinderella Shoe (2:41)(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACD615B21B9C4B8CE432C1CFE2C7F4F7BE87E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875353   (1072912) от 
-
-Ofra Haza - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Im Nin' Alu (New Version) - 3:38
-02 - Give Me A Sigh - 4:17
-03 - Im Nin' Alu (Original Version) - 3:29
-04 - I Want To Fly - 4:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0051F3FB22B2A3EE9F0F872BD567C82BAA3A957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875664   (1072803) от 
-
-VA - Future Nu Disco (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Favorite - Body Back (Original Mix) (2:52)
-2. The Chocolate - Runnin Time (Disco Mix) (3:09)
-3. Dave Jayden - This Is Real (Original Mix) (2:34)
-4. Rachel Wins - For You (Disco Pop Mix) (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B67D7BF5C21D4ACB3120CD22639D62EC8E8707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875308   (1072800) от 
-
-The Carpenters - The Carpenters (1971) Reissue, 1993,	Karussell [FLAC|Lossless|image + .cue] <Pop Rock, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainy Days And Mondays (3:39)
-02. Saturday (1:19)
-03. Let Me Be The One (2:26)
-04. (A Place To) Hideaway (3:41)(   Читать дальше...   )Жанр: Pop Rock, Ballad, VocalПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0EE3ACDC0BAE915C3F4AE5480BE379D23943A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874952   (1072696) от 
-
-VA - 101 80s Hits (2008) 5 CD, Compilation [FLAC|Lossless|image + .cue] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belinda Carlisle - Heaven Is A Place On Earth (3:52)
-02. Bros - When Will I Be Famous? (3:59)
-03. Richard Marx - Endless Summer Nights (4:24)
-04. Taylor Dayne - Tell It To My Heart (3:36)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B11622C6445CE5AF27534D71ED036EFDC1BCF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1875013   (1072695) от 
-
-VA - 80s: The Box Set Series (2014) 4 CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Medley & Jennifer Warnes - (I've Had) The Time of My Life (6:48)
-02. Dolly Parton & Kenny Rogers - Islands In the Stream (4:10)
-03. Martika - Toy Soldiers (4:50)
-04. Patrick Swayze - She's Like the Wind (3:54)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB841242055DCCBC6F8B1D67521823C322E281CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

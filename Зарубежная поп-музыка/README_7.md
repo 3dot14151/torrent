@@ -1,3 +1,38 @@
+###  Публикация: 613124   (977494) от 08.02.2013
+
+Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty God (04:16)
+02. My Soul Magnify the Lord (05:16)
+03. Seremon of the Mount (03:41)
+04. Into My Chamber (05:44)
+05. Hear My Cry (04:12)
+06. You're Excellent (03:50)
+07. I've Changed (04:29)
+08. Let It Be (04:07)
+09. Look (04:49)
+10. J-O-Y Joy (04:20)(   Читать дальше...   )Жанр: Pop,Disco,SoulПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF87158B6D041B9A491153E1234F04889AEEC352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614293   (977300) от 08.02.2013
 
 Andrea Bocelli - Passione [Deluxe Edition] (2013) [MP3|320 кб/с]<Pop/Classical Crossover>
@@ -734,35 +769,6 @@ Monica Naranjo - Monica Naranjo (1994) Remastered, 2012, Sony Music [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6562F0E5E7B8D63C2A9BDA9104F83715A84CB7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981344   (952693) от 31.01.2016
-
-VA - Best Dance Hits Winter (2016) [MP3|320 кб/с] <Pop Dance, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trancemission - One Call Away (RP Mix) (04:02)
-02. Patty Dart - Better When I'm Dancing (Peanuts Movie) (B Remix) (04:34)
-03. Kangaroo - Roses (RP Mix) (04:41)
-04. Kino - Daddy (AR Mix) (05:04)(   Читать дальше...   )Производство: Dance FlavourЖанр: Pop Dance, Euro DanceПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB54C7FBBAD7801E15D2F7AEBBCA043F3E4AC56
 ```
 
 https://mybot314.ru/tekegram_catalog/

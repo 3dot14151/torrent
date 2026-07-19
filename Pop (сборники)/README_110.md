@@ -1,90 +1,3 @@
-###  Публикация: 1266445   (269756) от 02.12.2018
-
-VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C-BooL feat. Cadence XYZ - Fire In My Head
-002. Xxxtentacion & Lil Pump feat. Maluma & Swae Lee - Arms Around You
-003. 2 Маши - Мама, Я Танцую
-004. Backstreet Boys - Chances(   Читать дальше...   )Жанр: PopПродолжительность: 07:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189850   (269486) от 07.12.2017
-
-VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Ed Sheeran - Perfect
-004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189730   (269355) от 07.12.2017
-
-VA - Дискотека Руки Вверх 66 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки Вверх! - Плачешь в темноте
-02. Serebro - В космосе
-03. Инфинити - Танцуй
-04. Hello - Чёрти чё(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7947C3DC5AAC798939631CEA8AD9F2946B9622B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190197   (268569) от 08.12.2017
 
 VA - Дискотека Руки Вверх 65 (2017) [MP3|320 Kbps] <Pop>
@@ -745,6 +658,105 @@ VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9E24DF8E433E6955301EA829B50BF78876EF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838891   (261472) от 25.11.2025
+
+Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Turn To Ice (3:29)
+02. Dreams Are Made To Last Forever (4:16)
+03. Forever In Your Eyes (3:42)
+04. Heaven Is Calling (4:33)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504965   (260828) от 03.06.2012
+
+VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Rynno feat. Sylvia - Bring Me Back (Original Radio Edit)
+002. Чай Вдвоем - Время вода
+003. The Disco Boys - Around The World (Radio Mix)
+004. Светлана Лобода - Облака
+005. Taio Cruz - Troublemaker (Radio Edit)
+006. Тимати и Григорий Лепс - Реквием по любви
+007. Sheikh feat. Nicco - Hold Tight (Radio Mix)
+008. Вика Дайнеко - Уезжай
+009. Melanie C - Too Soon
+010. Алсу - Утро надежд(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503354   (259864) от 31.05.2012
+
+VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fun Feat Janelle Monбe - We Are Young
+02 The Wanted - Chasing The Sun
+03 Carly Rae Jepsen - Call Me Maybe
+04 Rita Ora Feat Tinie Tempah - R.I.P
+05 Alex Clare - Too Close
+06 Rihanna - Where Have You Been
+07 Paloma Faith - Picking Up The Pieces
+08 Train - Drive By
+09 Gotye Feat Kimbra - Somebody That I Used To Know
+10 Tulisa - Young(   Читать дальше...   )Жанр: Рop, Rok, R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
 ```
 
 https://mybot314.ru/tekegram_catalog/

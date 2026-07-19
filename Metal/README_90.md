@@ -1,3 +1,119 @@
+###  Публикация: 1637281   (238232) от 06.06.2023
+
+Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eldstid
+02. Born From The Flames
+03. Voloren
+04. From The Light(   Читать дальше...   )Жанр: Power, Groove MetalПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879F5CAB7CA0ABA3F75EA7C89830260761BCA7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637204   (238225) от 06.06.2023
+
+Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illusive (06:43)
+02. Nocturnal Death (05:33)
+03. Savior (06:19)
+04. Facade (05:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F5F927918E2625663DEB1D06777D4586DC2BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445642   (238218) от 06.02.2021
+
+Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right To Rock (05:06)
+ 02. Under blood Red Skies (04:22)
+ 03. Riot (04:06)
+ 04. Succubus (06:28)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C359CB378711B73E0D425ED628778CDE98A0CA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638154   (238137) от 07.06.2023
+
+Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds Of Winter (05:27)
+02. Serpent And The Son (05:25)
+03. Queen Of Heaven (04:43)
+04. Song Of The Seafarers (05:52)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624132   (238117) от 04.04.2023
 
 River Of Deceit - The Dead Won't Raise Themselves (2023) [MP3|320 Kbps] <Heavy, Doom, Stoner Metal, Alternative Rock>
@@ -630,122 +746,6 @@ Righteous Goat - Paths of Deviance (2022) [MP3|320 Kbps] <Psychedelic Doom, Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2138F32154817825C52CBA459FEE9EA7B587798E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611046   (236180) от 11.02.2023
-
-Luger - Revelations of the Sacred Skull (2023) [MP3|320 Kbps] <Doom Metal, Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Acid
-02. Motorcity Hellcats
-03. Night Of The Serpent Woman
-04. The Sacred Skull(   Читать дальше...   )Жанр: Doom Metal, Heavy Metal, Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9EEB32233C963686AD9970C50B384BF5069D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457297   (236178) от 26.03.2021
-
-Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stars Are My Guide [00:05:29]
-02 The Uprising [00:05:01]
-03 The Violence of the Skies [00:04:53]
-04 Valley of Darkness [00:07:03](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4988F13A18A0D84F3B8F1D18F0575A9818DFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611060   (236164) от 11.02.2023
-
-Veilcaste - Precipice (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asunder Skies
-02. Dust & Bone
-03. Drag Me Down
-04. For Us(   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B9830E6B0F9A0552E3E363370DD08B442100AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611329   (236156) от 11.02.2023
-
-Pe Roto - 2 Albums (2016-2023) [MP3|320 Kbps] <Sludge, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mordaça [00:05:23]
-02. A Besta [00:06:57]
-03. Sangue [00:08:10]
-04. Máquina de Morte [00:01:50](   Читать дальше...   )Жанр: Sludge, Stoner, DoomПродолжительность: 2 CD, 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43391F0407A5506CA16954AA40FFBF286F0E227B
 ```
 
 https://mybot314.ru/tekegram_catalog/

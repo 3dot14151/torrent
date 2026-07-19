@@ -1,3 +1,90 @@
+###  Публикация: 1438978   (1040337) от 11.01.2021
+
+Alan Barry - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Vibrations (Radio Version) (3:43)
+02. Come On (Radio Version) (3:55)
+03. Ring The Bell (Radio Version) (4:21)
+04. Tell Me The Reason (ZYX Edit) (3:27)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6F3DE489D2715BFACD9317273072E573828F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439146   (1040335) от 11.01.2021
+
+A La Carte - The Ultimate Best of Album (2016) Remastered [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Gimme Reggae (Remastered) (3:01)
+02. When the Boys Come Home (Remastered) (4:06)
+03. You Get Me on the Run (Remastered) (3:22)
+04. Viva Torero (Remastered) (3:56)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86EB2D4832DEBCF38B7F5E375E3286A8FB374EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439351   (1040079) от 12.01.2021
+
+Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dallas (4:25)
+02. Imagination (3:38)
+03. I'm Alive (3:06)
+04. L'lama L'amor (3:55)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, InstrumentalПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439776   (1039271) от 15.01.2021
 
 Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -658,93 +745,6 @@ VA - New Italo Disco Music Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA8B85DCB9552ED8B1FDFD51719EFA9C4A72262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444691   (1034436) от 02.02.2021
-
-VA - Modernation, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sophie Du Palais - I Don't Wanna Go to Work Today (5:40)
-02. Adrian Marth - Sintesis Analogica (5:07)
-03. Antoni Maiovvi - Edge of Knowle (4:36)
-04. Black Light Smoke - Work for Love (5:56)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2D7A204D1F21324CDA60BEE360C2BB95C1906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444692   (1034435) от 02.02.2021
-
-VA - Modernation, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Machine - Music Inside (8:43)
-02. Luca Dell'orso - Pulsario (5:15)
-03. Adrian Marth - New Vision (6:50)
-04. Ali Renault - Maghtab Mirror (5:19)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A16286C44DE6189CBC19EA228281689541EEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444766   (1034203) от 03.02.2021
-
-VA - New Italo Disco Music Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - My Heart Belongs To You (Extended Version) (6:33)
-02. Chito - The Long Tomorrow (Maxi Version) (6:46)
-03. D. White - No Connect (Extended Version) (7:04)
-04. Lenroy - Give Me A Night (Extended Version) (6:09)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCBCBEA2F74E9C4D70024BE7B6D377CF65330A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

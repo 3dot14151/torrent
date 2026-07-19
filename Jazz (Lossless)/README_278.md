@@ -1,119 +1,3 @@
-###  Публикация: 1666417   (179704) от 04.10.2023
-
-George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Cha Time! [4:04]
-02. Hot Box [5:28]
-03. And She Left Me [4:16]
-04. Vonski [5:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3803B3277D0BB09490D65E504F36DD8A91893E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666411   (179682) от 04.10.2023
-
-John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [15:54]
-02. When Lights Are Low [15:27]
-03. Impressions [10:13]
-04. Greensleeves [16:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD39467372D7FB1EBF793CD5300756CA070F428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666399   (179665) от 04.10.2023
-
-Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz-Funk, Afrobeat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Classical Music (feat. Venna & Charlie Stacey) (5:19)
-02. Afro Cubanism (2:45)
-03. Raisins Under the Sun (feat. Shabaka Hutchings) (4:32)
-04. Rust (feat. Tom Misch) (3:59)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Funk, AfrobeatПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC38C591A29F39795C914AF47BD32BC78427262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666430   (179656) от 04.10.2023
-
-George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Had You (Campbell-Connelly-Shapiro) - 11:05
-02. Mr. D (Freeman) - 7:39
-03. Up and Down (Freeman) - 6:04
-04. Lowe Groovin' (Freeman) - 5:53(   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307186EAB3A820B814D6C77A62299B9529F7D1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428564   (179381) от 03.12.2020
 
 Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
@@ -745,6 +629,122 @@ Bill Jennings & Jack McDuff - Legends Of Acid Jazz: Glide On (1959, 1960) 1999, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A9DF6A3B5C4A34A9BE30D9C93D15E37285C8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595388   (175710) от 05.12.2022
+
+George Coleman Featuring Ned Otter - Danger High Voltage (1996) 2000, Two and Four Recording [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn't She Lovely [9:55]
+02. Conversation [10:22]
+03. Portrait of Jennie [13:31]
+04. Simone [5:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C451ED875C2225E2B8CD20CF32FCAC1A362548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595389   (175682) от 05.12.2022
+
+Richie Beirach & George Coleman - Convergence (1991) Triloka Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lamp Is Low [7:01]
+02. I Wish I Knew [6:51]
+03. Flamenco Sketches [4:42]
+04. Rectilinear [5:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B558DF9ED3358ABA873F28FC1AA230FDD69FAD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595449   (175658) от 05.12.2022
+
+Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Coda du Debut (Kassap) - 1:09
+02. Spartakus (Kassap) - 9:10
+03. Canterbury (Kassap) - 6:29
+04. Oktiabr (Kassap) - 10:28(   Читать дальше...   )Жанр: Avant-Garde Jazz, Free JazzПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595387   (175557) от 05.12.2022
+
+Samara Joy - Linger Awhile (2022) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Out of This Mood [3:42]
+02. Guess Who I Saw Today [4:10]
+03. Nostalgia (The Day I Knew) [3:30]
+04. Sweet Pumpkin [3:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DEA6861CD2E8EAAF66848E728712DC0E39BB8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

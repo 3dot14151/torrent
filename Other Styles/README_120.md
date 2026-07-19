@@ -1,3 +1,177 @@
+###  Публикация: 1167986   (412722) от 22.09.2017
+
+VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Til Schweiger - Gedanken uber Das Meer (Original Film-Dialog)
+02 - Selig - Knockin' On Heaven's Door
+03 - Selig - Love And Rockets
+04 - Instant Karma - Silver Whale(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948595   (411399) от 20.10.2015
+
+Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strahlen reiner Liebe
+02. Gemeinschaft der Engel, Pt. 1
+03. Spre die schtzende Hand, Pt. 2
+04. Das Manifest der Liebe, Pt. 1(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995219D1FC544F6A957E3268BDC0EF48E8FC824A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710523   (411200) от 16.10.2013
+
+VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental, Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring (2:33)
+02. Gymnastics (4:50)
+03. Pavane (5:07)
+04. Clair De Lune (4:17)(   Читать дальше...   )Жанр: Instrumental, Lounge, ChilloutПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31750B6EF49F01A59ECB09D801207C0326352EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711362   (411196) от 16.10.2013
+
+Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country, Pop Country, Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (03:46)
+(Fred Foster / Kris Kristofferson)
+02. If (02:29)
+(David Gates)(   Читать дальше...   )Жанр: Country, Pop Country, Country RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1439190274C92924A5308C9C123CFF3160117107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948565   (411106) от 20.10.2015
+
+Liquid Bloom - 2 альбома (2007-2015) [MP3|320 кб/с]<Shamanic, Trance, Downtempo, Ambient, Chill, New Age, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceremony of the Heart [08:48]
+02. Cosmic Soul Lotus [06:06]
+03. Healing Fire Breath [06:34]
+04. Temple of the Goddess [03:16](   Читать дальше...   )Жанр: Shamanic, Trance, Downtempo, Ambient, Chill, New Age, TribalПродолжительность: 02:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5DAECB7F04B0CDF23FF768143D1653DE618473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251862   (410981) от 04.10.2018
+
+Johan Onvlee - Relaxation With Guitar (1998) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A story (4:13)
+02. Hearing (4:59)
+03. Dancing (4:52)
+04. Clearing (4:46)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, GuitarПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F1BD0CC548E8C055A90AF37A168989125B665B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251921   (410963) от 04.10.2018
 
 VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
@@ -578,191 +752,6 @@ Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559860   (407116) от 14.10.2012
-
-VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
- 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
- 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
- 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
- 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
- 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
- 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
- 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
- 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
- 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414035   (406805) от 06.10.2020
-
-Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got Struck By Lightning (3:13)
-02. Hurricane (3:10)
-03. Whisky & Blankets (3:57)
-04. Wires Crossed (5:05)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD76D7B7D6B7E2C46EAC58FE6A44C7D4044F93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168749   (404890) от 25.09.2017
-
-Neil Young - Theme From Dead Man (1996) Single [FLAC|Lossless|tracks + .cue] <Soundtrack, Rock, Post Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From Dead Man (Edit) (3:18)
-02. Theme From Dead Man (Edit w. Johnny Depp spoken words) (3:18)
-03. Theme From Dead Man (Long Version) (5:04)Производство: Vapor Records – PRO-CD-8142Жанр: Rock, Soundtrack, Folk Rock, Post RockПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05BA5A6EA54B7EFAE336C6275A028395FE7441B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194686   (404633) от 21.10.2012
-
-Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, Acoustic guitar>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404633.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:35) 01. Elephant King
-(5:02) 02. Joy & Sorrow
-(4:59) 03. Traverse
-(4:43) 04. Tres Capos
-(3:49) 05. Timepiece
-(1:55) 06. Adventures In Sawyerland
-(3:38) 07. Be Still
-(4:39) 08. Overtime
-(4:52) 09. Bongolo
-(3:37) 10. Coronation(   Читать дальше...   )Жанр: New age, Instrumental, Folk, Acoustic guitarПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169085   (403152) от 27.09.2017
-
-Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Designs
-02 - Predestined
-03 - Mechanical Mind
-04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169097   (403148) от 27.09.2017
-
-Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Truth Is (3:24)
-02 - Nothin' About Love (2:51)
-03 - Waves (2:55)
-04 - First Kiss (2:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
 ```
 
 https://mybot314.ru/tekegram_catalog/

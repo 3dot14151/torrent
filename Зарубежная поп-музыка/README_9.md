@@ -1,3 +1,32 @@
+###  Публикация: 1095624   (922689) от 22.01.2017
+
+The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbps] <Surf-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструментальная группа из Швеции, которая была сформирована в 1961 году. Вместе  "The Shadows" и "The Ventures" считаются одним из самых известных инструментальных коллективов в 1960-70х годах. Выпустили 42 альбома, продав более 18 миллионов записей. Славились своими "космическими" костюмами на сцене, и  инновационными электронными гитарами. (   Читать дальше...   )01. Karelia  (2:22)
+02. The Rocket Man  (2:00)
+03. Space Party  (2:31)
+04. Orange Blossom Special  (2:19)(   Читать дальше...   )Жанр: Surf-Rock, PopПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988675   (918996) от 21.02.2016
 
 Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
@@ -720,35 +749,6 @@ Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351B7355A153CDE54B4238DC24F1C4323368538C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494093   (890774) от 06.09.2021
-
-VA - Best Songs of 2021 So Far [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olivia Rodrigo - deja vu (3:35)
-002. Little Simz - Introvert (6:02)
-003. Dua Lipa - We're Good (2:45)
-004. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397BE043E978DB1B049BBD18986278146913DC5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

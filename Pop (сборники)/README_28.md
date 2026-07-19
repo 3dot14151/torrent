@@ -1,3 +1,32 @@
+###  Публикация: 1006774   (823638) от 14.04.2016
+
+Анастасия Макаревич (Лицей) - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Паровозик-облачко
+2. Фотография
+3. Ты Думала
+4. Осень(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8C82330EFD938350EB05BBAC00D86B6DD03AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007381   (823300) от 14.04.2016
 
 VA - Зажигательный молодежный музыкайф на Europa Plus - 2 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A682864420D4B496479ED1DE2E016F699271ECC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383146   (813749) от 14.05.2020
-
-VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Udo Jürgens - Mit 66 Jahren 03:39
-02. Connie Francis - Schöner fremder Mann 02:41
-03. Jürgen Marcus - Eine neue Liebe ist wie ein neues Leben 03:46
-04. Juliane Werding - Am Tag als Conny Kramer starb 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

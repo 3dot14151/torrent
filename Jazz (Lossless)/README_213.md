@@ -1,125 +1,3 @@
-###  Публикация: 580530   (343367) от 25.11.2012
-
-Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Nine
-02. Brand New Music
-03. Don't Cry for No Hipster
-04. At Least We Got to the Race
-05. Can We Talk
-06. In the Beginning
-07. It Don't Get No Better
-08. Dying Anyway
-09. Private Guy
-10. Reflections(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073562   (343249) от 17.11.2016
-
-Byron Wallen - Meeting Ground (2007) Twilight Jaquar[FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spirit of Bilal [04:23]
- 02.Captive Caravan [05:52]
- 03.Sailor of the Sands [03:57]
- 04.Initiation [05:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626A844261C11275EA9050AF5C68D94C14F85E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073604   (343243) от 17.11.2016
-
-George Adams / Don Pullen Quartet - Earth Beams (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Earth Beams [07:59]
- 02.Magnetic Love Field [04:38]
- 03.Dionysus [07:33]
- 04.Saturday Nite In The Cosmos [06:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89108FB3AF4C755815D37D7E115F701032A858C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073820   (343212) от 17.11.2016
-
-The Ed Palermo Big Band - One Child Left Behind (2016) Cuneiform Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cleetus Awreetus Awrightus [03:49]
- 02.Dirty White Bucks (Palermo) [04:40]
- 03.Spider of Destiny [02:37]
- 04.Scarface (Moroder) [02:25](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CE95F485840BCA25A8B0179475DF6D7F358339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580503   (343199) от 25.11.2012
 
 Rene Aubry - Refuges (2011) [FLAC|Lossless]<Future Jazz>
@@ -769,6 +647,122 @@ Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, La
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC47E0000D5C0548743D190AED7C09E9664139E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419464   (340125) от 28.10.2020
+
+Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capricorn Moon [22:30]
+02. Mephistopheles [18:16]
+03. Juba Lee [12:36]
+04. Iditus [12:22]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0936A8D005C307971C5E090379D4E9396C5C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419349   (339872) от 28.10.2020
+
+Karen Souza - Velvet Vault (2017) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fall In Love Too Easily
+02. Don't Let The Sun Go Down On Me
+03. I'm Beginning To See The Light
+04. Valerie(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2DA8F8F5C029A1FC8E74246568BA518B2C7ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330587   (339112) от 11.10.2019
+
+Jimmy Rushing - Four Classic Albums Plus (1952 - 1960) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339112.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Akansas Blues [2:44]
+02. Down Hearted Blues [3:29]
+03. How Come You Do Me Like You Do [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69946DE28E586BA505D15C3BA54495E66289AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258662   (339072) от 15.11.2010
+
+Nicki Parrott - Black Coffee (2010) [APE|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Eyes
+02. Black Coffee
+03. Why Don't You Do Right
+04. Alright Okay You Win(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

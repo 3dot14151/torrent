@@ -1,3 +1,31 @@
+###  Публикация: 1719767   (58084) от 30.04.2024
+
+Антивирусная утилита AVZ 5.93 (20.04.2024) (Неофициальная) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58084.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC4BD3285918459BC02951E177BE7B6FAD4924D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719814   (58076) от 30.04.2024
 
 CrystalDiskInfo & CrystalMark & Mark Retro 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -646,32 +674,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0358E9258C815205DDC50F069F03D0A827CE9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720040   (57958) от 01.05.2024
-
-StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57958.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE37D86AAE8B6D91DE306A44378DD5F07BACD94
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1180734   (340264) от 04.11.2017
+
+Журнал | National Geographic History [USA] №5 (сентябрь-октябрь 2017) [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Start your incredible journey into the past with National Geographic History. In each issue you'll explore the march of civilization from ancient times to the modern era, examine the forces behind history's most explosive conflicts, gain appreciation of the culture and art that sprang forth from every epoch, and come away with a greater understanding of who we are (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A81307B2875F8129DB0FC93ACFC6010165A9454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580734   (340204) от 26.11.2012
+
+Журнал | Кадровое дело №5, 6 [май, июнь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный, практический, ежемесячный журнал, в полной мере раскрывающий вопросы кадрового делопроизводства и управления персоналом. Содержит образцы документов, необходимых для работы кадровых служб, информацию об изменениях в российском законодательстве, статьи и комментарии ведущих экспертов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32A4DCA481927C7273CB996D283907CA8D37854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180600   (340138) от 04.11.2017
 
 Газета | 1001 совет и секрет. Спецвыпуск №10. 1001 Рецепт домашних блюд (октябрь 2017) [PDF]
@@ -625,61 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B164BC400733F35E2BD5E3A195CC41DA740584C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181030   (338005) от 05.11.2017
-
-Журнал | Storica National Geographic [Italy] №8 (102) (август 2017) [PDF] [It]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338005.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic Italia e la rivista che ogni mese racconta le meraviglie del nostro pianeta con reportage esclusivi, fotografie mozzafiato e articoli sempre nuovi e sorprendenti. L’obiettivo e condurre il lettore nei piu reconditi segreti della natura, nei misteri della vita animale, tra popolazioni lontane e affascinanti, invitandolo ad apprezzare e a prendersi (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAFEF3E895E338CA0F9BCF9DE7CC7966BE780C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181078   (338003) от 05.11.2017
-
-Журнал | Muy Historia [Spanish] №11 (ноябрь 2017) [PDF] [Es]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военно-исторический журнал.
-В номере:
-- Смена режима
-- Олово династии Примо де Ривера и монархия(   Читать дальше...   )Жанр: Исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CAC9F901F86AD4237D2F71C259BC21EF935536
 ```
 
 https://mybot314.ru/tekegram_catalog/

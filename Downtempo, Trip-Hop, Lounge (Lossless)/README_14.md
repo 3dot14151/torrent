@@ -1,145 +1,3 @@
-###  Публикация: 1542939   (631840) от 10.04.2022
-
-Unkle - Rōnin I (2021) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-Hop, Leftfield, Electroniс>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.初登場 (0:25)
-02.Ar.Mour (Rōnin Dub) (6:39)
-03.The Other Side (Rōnin Def Mix) (3:46)
-04.On My Knees (Rōnin Def Mix) (5:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543134   (631680) от 10.04.2022
-
-VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Special (5:26)
-02. M-Sol Project Marga Sol - Silent Traveler (3:57)
-03. Beamy - Sierra De La Plata (4:51)
-04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349458   (625271) от 15.06.2011
-
-DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229501   (624443) от 07.06.2018
-
-VA - Paris Lounge Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonjour - Lemongrass
-02. Wandance Paris - Trio Eletrico
-03. En prive - Second Breath
-04. Autum in Paris - Josy, Catharina(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BC9D0E1F247CBD9A3A8AED38540387B05A2FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544936   (618391) от 17.04.2022
-
-VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Move (03:34)
-02. Martin Hiska - Shangla (03:40)
-03. Michael E - Lost In Thought (05:18)
-04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911034   (618169) от 22.06.2015
 
 VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, Downtempo, Ambient>
@@ -742,6 +600,153 @@ New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A880705BCDB8CC274992317B6A9EE8E058A8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553398   (581011) от 27.05.2022
+
+VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melania & Christian Lisi - Mi Sono Innamorata Di Te (3:01)
+02. Zerosospiro - Il Desiderio (4:54)
+03. David Florio - Doce Doce (4:54)
+04. Mariva Cory & Soulstance - Un' Ora Sola Ti Vorrei (4:21)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043EA5CD4FA63536D0726E2B77B55A0A26A1B9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042079   (580423) от 11.08.2016
+
+V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. D.K. - Evening Shadows
+02. Bloom - Fall
+03. Ash Walker - Bongo Legs(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A081D53A5C849038C3FBE53DA747806937AFF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527936   (574615) от 27.07.2012
+
+Blank & Jones - Relax Edition 7 (2012) [FLAC|Lossless]<Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blank & Jones - Relax Edition 7 (2012)
+Год: 2012
+Жанр: Chillout, Lounge, Downtempo
+Продолжительность: 02:01:52
+Лейбл: Soundcolours
+Каталог №: SC 0129
+Сканы: Комплект
+Кодек: FLAC
+Битрейт: Lossless(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193232   (574141) от 20.05.2019
+
+9 Lazy 9 (9Lazy9) - Discography 8 Releases (1994-2011) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Future Jazz, Trip Hop, Breakbeat, Breaks>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Six Minutes In Manchester (9 Lazy 9 Mix) (04:35)Тип издания: CD, WEBЖанр: Future JazzПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70DA2A89EB07171263B0B15AB70393CC1EC3C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303359   (572923) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stepo Del Sol - Summer Dreams
+02. Taco-Town - Con Su Permiso
+03. Mazelo Nostra - Memories Of Love
+04. Bob Zopp - Summer On The Strand(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1660299   (189817) от 12.09.2023
-
-Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ntyilo, Ntyilo [4:28]
-02. Nature Boy [5:04]
-03. My Ship [4:12]
-04. The Very Thought of You [5:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589826   (189778) от 11.11.2022
-
-John Sneider - The Scrapper (2020) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Scrapper [6:37]
-02. Critterbug [6:51]
-03. When Light Breaks [6:01]
-04. Mindfield [7:17](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0914A60C8DC643364178D5F69B5C0EEC3D531DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590065   (189475) от 12.11.2022
-
-Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [6:27]
-02. Philadelphia Creamer [6:00]
-03. Wee [5:47]
-04. I Can't Get Started [6:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589961   (189471) от 12.11.2022
-
-Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porto Alegre [5:20]
-02. Second Thoughts [5:51]
-03. Without Deception [6:35]
-04. Until Then [6:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589895   (189450) от 12.11.2022
 
 Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
@@ -745,6 +629,122 @@ Dana Landry - Journey Home (2002) 2005, Summit Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D22CD8050E26474DBC823F2379AB9750157D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662623   (187791) от 18.09.2023
+
+Arnold Klos Trio - A Little Expertise (1989) Expertise [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Expertise [3:07]
+02. Come Rain or Come Shine [6:03]
+03. Whisper Not [5:07]
+04. Little Niles [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2D9E5AE6BAE625C3B57180ADA3AD851A5C3742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662643   (187764) от 18.09.2023
+
+Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea to Sky
+02. This Time Around
+03. Gonna Be Alright
+04. Rusty Rudder(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, FunkПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9261892E2FCD4DC1206AB9FB67AF74DCDE1B9AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590907   (187573) от 17.11.2022
+
+Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 36 [6:17]
+02. Le chemin du peril [4:56]
+03. C3m4-6 [4:33]
+04. Maelen Diner [5:51](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D861AFEF157F010833C24AA3131BC9EE5F024B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591103   (187564) от 17.11.2022
+
+Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Life [7:33]
+02. Quill [9:52]
+03. Idols [5:52]
+04. Loose Change [8:45](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFADAC746EB5081790446BBB645EBF28A9445D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

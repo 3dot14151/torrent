@@ -1,3 +1,32 @@
+###  Публикация: 1214944   (761663) от 24.03.2018
+
+VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761663.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214926   (761452) от 24.03.2018
 
 VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
@@ -716,35 +745,6 @@ VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AEB9C32244648232228DCFAC380A8FA1E56B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216201   (752938) от 29.03.2018
-
-VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marshmello & Anne-Marie - Friends 3:23
-02. Olexesh - Magisch (Feat. Edin) 4:08
-03. Rudimental - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
-04. Drake - God's Plan 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBDD0689BA6D7B86AFEF5494AEED146AD9ECE2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

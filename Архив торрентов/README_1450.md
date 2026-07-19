@@ -1,171 +1,3 @@
-###  Публикация: 1284855   (726574) от 23.02.2019
-
-QLab Pro 4 v 4.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726574.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 21.02.2019Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7440C4E0A39DB1715A27F87810EFF28A0864D3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284754   (726572) от 23.02.2019
-
-SILKYPIX Developer Studio Pro 9E v9.0.8.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726572.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
-
-С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF83D74C7FA6D27C2A7FBECDAEBE5152107DE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128569   (726570) от 26.04.2017
-
-Adrena Line - Live @ Level Klub, Poland 2017-04-22 [MP3|320 Kbps] <House, Electro House, Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FLETCHER - Wasted Youth (Michael Brun Remix)
-02. Tiesto & Sevenn - Boom (Extended Mix)
-03. Duke Dumont - Ocean Drive (T.I.M Remix)
-04. ATB - Let U Go (Mad Morello & Igi Bootleg 2k16)(   Читать дальше...   )Жанр: House, Electro House, Deep HouseПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01668BB04733BD1AAB3D157C75EA56E53B4265D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128664   (726566) от 26.04.2017
-
-Judy Kass - Beyond The Ash and Steel (2016) [FLAC|Lossless|WEB-DL|tracks] <Singer, Songwriter>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chili Pepper Nights  (03:08) 
-02.  Same Sorry Old Timeless Tale  (02:32) 
-03.  The Snows They Melt the Soonest  (04:14) 
-04.  Laugh  (03:36) (   Читать дальше...   )Жанр: Singer, SongwriterПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DF29D1DF61EC9E9EDB958B0B9993210F4BB0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128478   (726557) от 26.04.2017
-
-VA - ELEKTRODOS. The compilation vol.1 (2015) [MP3|320 Kbps] <Electropop, Electrofunk, Dark Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amper Clap - Message From Hell (06:51)
-02. Ascension Electronique - Coming Into Being (06:41)
-03. Binary Systems - Hydrochloride (08:25)
-04. Cody Commando - X-Ray Delta One (05:27)(   Читать дальше...   )Жанр: Electropop, Electrofunk, Dark electro, ElectrobreaksПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D43FB438661A12C3A0DB9627852BB13F3F2D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128707   (726553) от 26.04.2017
-
-Espresso 5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Espresso - веб-ориентированный текстовый редактор
-Espresso  вернулся. Для людей, которые делают восхитительные, инновационные и быстрые веб-сайты. Espresso помогает вам писать, кодировать, проектировать, создавать и публиковать с чуткостью и эффективностью. Сложные текстовые функции, потрясающий просмотр в реальном времени с помощью браузера Xray, инструменты CSSEdit, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 апреля 2017Разработчик: MacRabbitПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD331250DD00DE6C31F76DCE97EA54C06E0A06D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128479   (726552) от 26.04.2017
 
 VA - ELEKTRODOS. The compilation vol.2 (2016) [MP3|320 Kbps] <Electropop, Electrofunk, Dark Electro>
@@ -700,6 +532,171 @@ VA - Sunshine Live Vol.60 (2017) [MP3|320 Kbps] <Trance, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97EBC3486CB2FA3F179E93D0C0B76D31E76575FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126172   (726455) от 26.04.2017
+
+John Digweed - Transitions 657-660 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726455.jpg" />
+</div>
+
+
+###  Подробнее
+
+John Digweed played
+01. Underworld - Dark & Long (Dark Train) (Junior Boy’s Own)
+02. Pablo Bolivar - All Clear (El_Txef_A Remix) (Seven Villas)
+03. Tom Flynn - Nitez(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 07:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDA83702C44810BC10B4B0581EB1E2D4B63E84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128800   (726451) от 26.04.2017
+
+K-Lite Codec Pack Update 13.1.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726451.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
+Update это обновление применимо для всех пакетов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D71955DAEDDF030365906EFDBB6A1F3A85660F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128483   (726448) от 26.04.2017
+
+VA - WTII Records 2014 Free Digital Sampler (2014) [MP3|320 Kbps] <Synth Pop, EBM, Dark Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlterRed - A Different Face (04:51)
+02. Comasoft - I Won't Tell if You Don't (03:17)
+03. Mechanical Cabaret - I Lost My Friend to a Video Game (ZExtended) (06:41)
+04. Lowe - Breathe In Breathe Out (Extended Version) (06:45)(   Читать дальше...   )Жанр: Synth Pop, EBM, Dark Electro, Indie Rock, IndustrialПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A1E50D581FA8C3E07EEAA9CB97F53F6895CBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530984   (726444) от 13.02.2022
+
+Sumatra PDF 3.4.14270 Pre-release + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4B12B56353847490D20A44B44C512F6F9DDC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530951   (726442) от 13.02.2022
+
+Wondershare Repairit 3.5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасно восстанавливайте поврежденные видео в форматах MOV, MP4, M4V, M2TS, MKV, MTS, 3GP, AVI, FLV, MXF, INSV за три простых шага.
+Несколько причин могут привести к тому, что ваши важные видео или графические файлы могут внезапно перестать открываться. С помощью Repairit вы можете исправить поврежденные файлы в три простых шага, независимо от уровня повреждения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 WondershareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEE8DED1C33DB7C2CC23012AD31BDFE1BC95706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530917   (726438) от 13.02.2022
+
+King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья, он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: США, Великобритания / 20th Century Studios, Marv Films, Marv StudiosЖанр: Боевик, триллер, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Украинские (forced), Английские (full, SDH)Продолжительность: 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2E43EF30B3E1567FF4939E979D26E7B72EE1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

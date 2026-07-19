@@ -1,3 +1,235 @@
+###  Публикация: 1781466   (70222) от 23.02.2025
+
+VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Le Voyage De Shakuhachi
+02. Kasimoff - Enigma
+03. Sisco Le Voyageur - Enigma French 43
+04. Сергей  Грищук - В  Объятиях Времени(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781505   (70217) от 23.02.2025
+
+VA - Compilation  part 144 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akmalov & Jumanov - Touch
+02. Akmalov & Reyane - Bam Bam
+03. Jumanov - Spring is Near
+04. Hamidshax - Closer(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA405841BB3D67E1AE72EFBBA0466CDBA8375D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782183   (70065) от 27.02.2025
+
+VA - Trance In Motion. Vol.386 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Lethal Industry (Rose Ringed Extended Remix)
+02. Eximinds & Alexander Komarov with Nerissa Simmone - Until Sunrise (Extended Mix)
+03. Talla 2XLC & Fragma - Toca's Miracle (Extended Mix)
+04. Ishiro & Starry Major - Echoes Of Waves (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E68ABDD7F373D64FF02518C71696A074668A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782790   (69946) от 02.03.2025
+
+VA - Compilation part 145 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Sultan & Enigma - I Am Asking Why
+02. Adik - Traverce
+03. Jumanov - Remember Me
+04. Umar Keyn & Davvi & Dndm - Tell Me How(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90775C1379BACA229B15FCAD33AFEA175B090490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782854   (69944) от 02.03.2025
+
+VA - Magical Mind (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Antean - Zemlya (00:10:51)
+002. Battle Of The Future Buddhas - Strange Fantasy (00:08:47)
+003. Beek - Perception (00:04:37)
+004. Broosh - Thunder (00:09:00)(   Читать дальше...   )Жанр: Psy, Goa, Trance, ElectroПродолжительность: 12:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F344FD4DFE55BEA67A279D18BB7E254D1C258B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787002   (68890) от 23.03.2025
+
+VA - Compilation Part 149 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Take it Easy
+02. Imazee - Were Together
+03. A-Sultan - Desert Rose
+04. Akmalov & A-Sultan - Rest Now(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5815E07003B79FD063AE0EDDC0FAAB55531AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786789   (68868) от 23.03.2025
+
+Rodle - Compilation (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Love From the Past
+  02.  Melody in My Heart
+  03.  Find Me
+  04.  Deceived Heart Again(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521FD3F1DB5D2B4A064F3B755599EF98AC677CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787119   (68800) от 25.03.2025
+
+Aries Beats - Collection (2023) [MP3|320 Kbps] <Synthwave, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retro Wave (3:40)
+02. Freestyler (4:13)
+03. Infinity (3:31)
+04. Retro Electro Edm (4:29)(   Читать дальше...   )Жанр: Synthwave, PopПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59525FEFD886799A69B0A73771BE6CFB10FC76D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788238   (68612) от 29.03.2025
 
 VA - Energy Of Calm Sound Currents (2025) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
@@ -507,238 +739,6 @@ VA - Trance In Motion Vol.389 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB282D5EFC87413E16DF3CF2395B751364D62548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808917   (64827) от 27.07.2025
-
-Umideep - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stay With Me
-02 - Missed Call
-03 - I Miss You More
-04 - You Are My Love(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 01:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90708174BB47F94FDC0D7FF3878F3AB176126522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705498   (63485) от 09.03.2024
-
-VA - Electronic compilation part 62 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Marvelous
-02. Riltim - Nayeli
-03. Hamidshax - Bonita
-04. Adik - Long Journey(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EE86034D685AA04A899847313BCB4C3662950E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705492   (63481) от 09.03.2024
-
-VA - Electronic compilation part 63 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirham - Skynet
-02. Limora - Manami
-03. Akmalov - I Love You
-04. Riltim - Bitter Dessert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EBDCCECE9DB9D15FD732AF1EC8830E762887A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707670   (62693) от 17.03.2024
-
-VA - In Your Dreams: Deep House Session (2024) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anton Lacosta - Play (00:02:13)
-002. Alex Menco - Don't Leave Me Alone (00:02:18)
-003. Kate Linch - You Hate Me (00:02:18)
-004. Levorica - Moonshield (00:02:32)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 11:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A44012A5C7AC22533C080776CDDA5F07B557E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707676   (62691) от 17.03.2024
-
-VA - Good Morning (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Harrington - The Pictures (00:01:19)
-002. Adrian Lane - Marking Time (00:02:32)
-003. Ialaz - Interlude (00:01:50)
-004. Magnus Moone - Cave Paintings (00:02:01)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E8FE8582DC91C031CF06089AE23B381BD94AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707681   (62689) от 17.03.2024
-
-VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Music Cafe - Secret Paradise (00:01:54)
-02. Luna Dreamscapes - Captain's Cuddle (00:02:20)
-03. Afternoon Bike Ride - Bois Dormant (00:02:28)
-04. Salami Rose Joe Louis - Dimcola Reprise (00:02:31)(   Читать дальше...   )Жанр: Chill, Electronic, Relax, ExperimentalПродолжительность: 08:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706638   (62621) от 18.03.2024
-
-Enigma - Collection (2024) [MP3|320 Kbps] <New Age>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Enigma — это самое гениальное творение, что было создано, за всю историю электронной музыки. Множество звуковых наворотов и красивых вокальных партий. Когда в 91 году, я впервые услышал альбом MCMXC a.D, детской душе казалось, что это звуки вселенной и ночное небо и космос разговаривают со мной. Повзрослев, услышал, что это энергия любовной страсти воплощённая (   Читать дальше...   )001. The Voice Of Enigma
-002. Principles Of Lust (A- Sadness. B- Find Love.
-003. Callas Went Away
-004. Mea Culpa(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA17197E4CAFCB837A67FAE3B6D88B32950318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708573   (62239) от 21.03.2024
-
-VA - Vocal Trance NNM 2 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Bed Of Rain (3:51)
-02. Gareth Emery - house in the streetlight (2:55)
-03. Nicholas Gunn - Here I Am - Richard Durand Remix (7:07)
-04. Richard Durand - Fall Through the Earth (3:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C09959FB98EBCDDDB005603365BB9CEB7448C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

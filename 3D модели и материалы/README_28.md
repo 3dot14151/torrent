@@ -1,30 +1,3 @@
-###  Публикация: 1270323   (213932) от 18.12.2018
-
-3D материалы - VRscans - car paint [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213932.jpg" />
-</div>
-
-
-###  Подробнее
-
-VRscans - это новая запатентованная технология создания 3d материалов от ChaosGroup.
-В данный релиз вошли 52 материала для автомобильной краски.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E5A54A73A7B32E5981DF7CF7DBBC4159789E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830951   (212656) от 27.10.2025
 
 3D print - Cults3D - KC Studio - Ciri - Metal Gear Solid Snake Eater [STL]
@@ -686,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C27972A824427FDCC2514C1E83D6EF3A17630198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830127   (202418) от 26.10.2025
+
+3D print - Zenith Studios - Dexter Morgan [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на новейшую коллекционную фигурку Zenith с помощью этой эксклюзивной модели вдохновленной неким экспертом-криминалистом, хранящим темную тайну.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB57DDA1AA92C8C1BC43238D9F8F800DB456AB94
 ```
 
 https://mybot314.ru/tekegram_catalog/

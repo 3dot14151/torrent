@@ -1,32 +1,3 @@
-###  Публикация: 1308560   (553725) от 15.06.2019
-
-The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage Into Space (4:50)
-02. Interplanetary Expedition (3:02)
-03. Look Out For Falling Meteors (2:30)
-04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308704   (553535) от 16.06.2019
 
 Uncle Louie - Uncle Louie's Here (1979) LP [MP3|320 Kbps] <Funk, Disco>
@@ -749,6 +720,35 @@ Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF0DA67D0021F17D5344C674E35109C850C8D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239501   (538982) от 05.08.2018
+
+Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Love (06:24)
+02. Hold Me Tigh (07:03)
+03. Call Me (07:02)
+04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1856666   (1058985) от 01.03.2026
+
+Martin Schulte - Forest (2014) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After Summer Storm 07:10
+02.Aqua 06:48
+03.Atmo 06:49
+04.Dreamliner 06:51(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD14E9B395444E2273744E3F5F8478FE3030734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856723   (1058967) от 01.03.2026
+
+VA - Afro House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindloco - Alafia (3:28)
+02. Marlie Chunes - Love & Oxygen (2:38)
+03. the Gang - Be The End (3:33)
+04. Sevenkey - Don't Let Me Go (3:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40D36169B660A14DB7B7AB0A97D739DD544A562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856122   (1058768) от 26.02.2026
+
+VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moonswinger - Preset 1 04:56
+02.Emanuele Pertoldi - Feedback Theory 08:03
+03.Unknown Artist - Untitled 02:16
+04.Foquus - Untitled 06:16(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4632C9991834DDC29F3E65D3556B5960BCF00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855630   (1058499) от 24.02.2026
+
+As If - At Night (2012) [FLAC|Lossless|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hour Of Long Shades 08:57
+02. Sleepless 11:01
+03. Walking The City 07:49
+04. Strange Faces 08:28(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652B1525B1108086EF455B0DDF49EE849E2089C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855795   (1058483) от 24.02.2026
+
+Anton Ishutin Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casablanca (5:55)
+02. Feel So Good (7:10)
+03. Do You Wanna (5:35)
+04. Brash (8:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA57270C3D54DB67B1282CF5ADE3C334ECB2F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855594   (1058241) от 23.02.2026
+
+Andreiclv - Cityscapes EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058241.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ninsei 06:24
+2. Chiba 08:42
+3. L5 O'Neill 05:12
+4. Food Courts 05:12Жанр: Dub TechnoПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB9A7238CC29356F0AE42F4254DEEBC86C92E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855063   (1058045) от 21.02.2026
 
 DeepWoods - Right on Time (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -569,179 +743,6 @@ VA - Power Workout Mix 2026 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70F0F76B7755540624FA060CDB0A0FAA01D2EB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845100   (1050513) от 29.12.2025
-
-VA - Winter Lounge Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Johny Luv - She Likes (3:28)
-03. N.E.O.N - Obsession (Radio Edit) (3:06)
-04. Elegant Ape - Sunset Echoes (3:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9051A7343E74917619724FDC5BC91A7D5F77859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842791   (1048872) от 17.12.2025
-
-Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tool 4 (Original Mix)
-02. Tool 5 (Original Mix)
-03. Tool 6 (Original Mix)Жанр: HouseПродолжительность: 00:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842205   (1048590) от 15.12.2025
-
-Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Searchin' (THEMBA Remix) [00:04:08]
-02. So Low (Anthony Middleton Remix) [00:07:42]
-03. Y Don't U (Cinthie Remix) [00:06:38]
-04. Alive (Nick Morgan Remix) [00:05:53](   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842164   (1048544) от 14.12.2025
-
-Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowball (7:29)
-02. Wizard (7:23)
-03. You Take Me Higher (7:50)
-04. Ghost (7:08)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841220   (1047844) от 09.12.2025
-
-VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz - Frequencies (Video) (2:58)
-02. Steen Thottrup - Dreamers (Stefano Martiago Remix) (5:03)
-03. Kornpluck - Tincture (Vocal Mix) (5:23)
-04. Jacob Ireng - Contemplation (2:37)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1D65E6DBFFA7A3A960A9EE2C861745707BEFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839797   (1046769) от 30.11.2025
-
-VA - House Clubhits Megamix 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P!mp The D!sko - Show (3:16)
-02. Damir Pushkar - Smell on Your Skin (2:48)
-03. Les Bisous - Reach Out (2:44)
-04. Hawk - Black Betty (2:35)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6711780BF4EF721887A10D435A76FDB4E4B3258E
 ```
 
 https://mybot314.ru/tekegram_catalog/

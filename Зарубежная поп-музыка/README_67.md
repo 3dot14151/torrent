@@ -1,3 +1,32 @@
+###  Публикация: 1341445   (262301) от 28.11.2019
+
+Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shameless
+02. Living Proof
+03. Should've Said it
+04. Senorita (Feat. Shawn Mendes)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD211283596BA79C83642EB45CA0DB2C66FD6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193425   (262136) от 21.12.2017
 
 Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
@@ -755,35 +784,6 @@ VA - The Sound of the 60s (2025) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F77B39667BE72C90EF00F88C5D631D694CDF789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835285   (251001) от 05.11.2025
-
-VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago - If You Leave Me Now [00:03:54]
-02. England Dan Seals - I’d Really Love to See You Tonight [00:02:39]
-03. Fleetwood Mac - Landslide (2018 Remaster) [00:03:20]
-04. America - A Horse with No Name [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 03:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7709954BA90E5CEA3E5560CF4C81188F6E03E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

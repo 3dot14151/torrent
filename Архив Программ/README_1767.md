@@ -1,3 +1,29 @@
+###  Публикация: 1625562   (200007) от 10.04.2023
+
+Magic Recovery Software 2023.04 Portable by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка портативных программ от компании East Imperial Soft в редакции от TryRooM.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0700CF07C09A871014D21FCAA50F4DBCA0E1770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625697   (199997) от 11.04.2023
 
 Slimjet 38.0.9.0 + Portable [Multi/Ru]
@@ -648,32 +674,6 @@ Transmission, в отличие от многих других BitTorrent кли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B1133F5F9E5B041F60A4043751834AB9ABC6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829195   (199811) от 25.10.2025
-
-YT Downloader 9.17.12 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199811.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F8410C63E6B1A8CE14992270AEE0D21505D27B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1055664   (485900) от 23.09.2016
+
+Frank Duval - Meine Schonsten Erfolge (1991) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' Like A Cry (04:41)
+02. If I Could Fly Away (03:54)
+03. Give Me Your Love (04:30)
+04. Cry For Our World (05:22)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C5FA205753853786127FAC12EB5560B864F4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055789   (485668) от 23.09.2016
+
+Delerium - Mythologie (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Female Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Blue Fires 6:25
+ 02. - Zero 4:50
+ 03. - Keep On Dreaming 5:24
+ 04. - Stay 4:09(   Читать дальше...   )Жанр: New Age, Downtempo, Female VocalПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B84199596F51A3E9B7D5F205D35C814336166C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244291   (484104) от 31.08.2018
+
+Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditional Folk, Irish Traditional>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clare Connection (reels): McHugh’s / Michael Murphy’s / Humours of Tullycrine (3:17)
+ 02. 2 Day's (slip jigs): Lá Ollámh / Lucky Lucky Day (4:03)
+ 03. Paddy Sean Nancy's (reels): Autumn Apples / Cormac O’Lunny’s / Paddy Sean Nancy’s (3:46)
+ 04. Phil & Rory's (waltz's): Flatwater Fran / Mrs Jean Campbell BSC (4:07)(   Читать дальше...   )Жанр: Traditional Folk, Irish TraditionalПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AE47314DB865EB6C6C190DEEB66BEC9D420D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938194   (484053) от 17.09.2015
+
+VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Lobos - Someday (3:43)
+02. Theresa Andersson and Grayson Capps - Lorraine's Song (My Heart Was A Lonely Hunter) (4:50)
+03. Thalia Zedek - Bone (4:34)
+04. Nathan Larson - Bobby (Original Score) (1:47)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA1078488DC9208194BF3AD68C08BDD6ADF04DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545424   (483803) от 16.09.2014
+
+Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+1993 - Mystery Dances
+2004 - Mystic
+2005 - Inside is Forever
+2014 - Doors Of ParadiseЖанр: New age, World, Relax, MeditativeПродолжительность: 03:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BC24663E34CBE60D086DBCDDB0480AD371FF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937606   (483741) от 17.09.2015
+
+Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Electronic, World, Gypsy>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Uncertain Future (0:38)
+02. EastWest - Dysi Ki Anatoli (Shantel & Areti Ketime) (4:00)
+03. Hey Girl (3:05)
+04. Promised Land (5:17)(   Читать дальше...   )Жанр: Pop, World, Electronic, Ethnopop, Balkan Pop, Gypsy, ReggaeПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C4B03866225D2BA8897F275CEC05C06C6F7429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821005   (483701) от 16.09.2014
 
 M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Leftfield, Modern Classical, Soundtrack>
@@ -603,192 +779,6 @@ Yoshio Kimura & Hidehiko Matsumoto - Uta No Nai Ryukoka 150 (1969-1971) (2014) 6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61197293EFB895ED566C9C74CE83DF470FFE94FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938458   (481605) от 18.09.2015
-
-Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Our Yesterdays
-02. Allan Yn n Fan
-03. Darker Shade of Black
-04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, CelticПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECFE265080D9AE7D3D3796C024F01EEB82DAEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056217   (481109) от 25.09.2016
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered, 2CD [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix)
-02. Age Of Loneliness (Enigmatic Club Mix)
-03. Push The Limits (ATB Remix)
-04. Gravity Of Love (Judgement Day Club Mix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DCA6B0CEC8FEF08D16919F0290531805E01B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384328   (480882) от 07.09.2011
-
-Can Atilla - 1453 Sultanlar Askina (2006) [APE|Lossless] <ambient, new age, turkish>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480882.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:09] 01. Once Gunes Tutuldu
-[04:45] 02. 1453 - Fetih
-[05:29] 03. Constantinopole
-[05:22] 04. Bogazici Ruyalari
-[04:57] 05. Yeni Hayat
-[04:48] 06. Gulbahar
-[05:01] 07. Rumeli Hisari'nin Yapilisi
-[03:30] 08. Zeynep Hatun'un Gizli Aski
-[04:50] 09. Kahramanlarin Hikayesi
-[03:23] 10. Bellini Portreyi Yaparken(   Читать дальше...   )2006Жанр: ambient, new age, turkishПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545932   (480451) от 12.09.2012
-
-VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Марш.
-002-Мар'янко.
-003-Маки червонi.
-004-Мої сни.
-005-На перонi.
-006-Перевал.
-007-Прийдеш не прийдеш.
-008-Задивлюсь.
-009-У лузi.
-010-Зустрiчаймо любов на свiтаннi.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 07:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2D68A169A64051610A4697AF6B71642132AD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244624   (480034) от 02.09.2018
-
-Fiona Joy Hawkins - Story of Ghosts (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Song for Dunnie
-02 – Story of Angels
-03 – Contemplating (Solo)
-04 – Blue Dream (Solo)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C5D5E13E4CEA973061CA5BB4F341F58266A77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317973   (479961) от 30.07.2022
-
-Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emily Browning - Sweet Dreams (are made of this) (05:19)
-02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)
-03. Emiliana Torrini - White Rabbit (05:09)
-04. Queen with Armageddon a.k.a Geddy - I Want It All/We Will Rock You (05:09)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

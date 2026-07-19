@@ -143,88 +143,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510664   (790280) от 18.11.2021
-
-Bobby McFerrin - Try This At Home (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_790280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert "Bobby" McFerrin, Jr - мастер импровизации и король аудитории. Виртуозно управляя голосом, маэстро вовлекает в выступление зрителей, заставляя их открывать таланты в себе.01. Harmonizin'
-02. Try This At Home
-03. In The Morning
-04. Staccato Groove(   Читать дальше...   )Производство: EuroArtsЖанр: Jazz, VocalРежиссер: Joe BrandmeierПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF4D11A58FE9A091E44FCF7C46A9373CA435415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510890   (790273) от 18.11.2021
-
-Bobby McFerrin - Spontaneous Inventions (1986) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_790273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта в Лос-Анджелесе 28 февраля 1986 года.
-The Aquarius Theatre, Hollywood.Производство: blue noteЖанр: Jazz, Vocal, IprovisationРежиссер: Bud SchaetzleАктеры: Bobby McFerrin & audienceПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27502E0FFFEC0576A7E375B8F3557CC7578BFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476723   (789649) от 19.11.2021
-
-Bobby McFerrin - Live In Montreal (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_789649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Bobby McFerrin на Festival International de Jazz de Montreal в 2003 году.Производство: L'Équipe Spectra / UniversalЖанр: Jazz, Vocal, IprovisationРежиссер: Alan ChicoineПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9BFCF8D2BB8F204C780D8CC591D0A121D67E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203481   (787647) от 03.02.2018
 
 Billy Idol - VH1 Storytellers (2002) DVD9
@@ -736,6 +654,95 @@ J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9102BB70154C0825801D59E8A963B62029896F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214132   (765711) от 20.03.2018
+
+Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) 2xDVD5 [Custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Max Raabe & Palast Orchester с программой "Heute Nacht oder Nie" в Berliner Admiralspalast (Берлин) в феврале 2009г.
+Макс Раабе - уникальный музыкант, виртуозно исполняющий современные и ретро шлягеры в стиле кабаре 20-30-х годов XX века.
+В программе ставшие классикой англоязычные композиции, такие, как «These Foolish Things», (   Читать дальше...   )DVD 1
+01 Heute Nacht oder nie
+02 Du bist meine Greta Garbo
+03 I'm Singin' In The Rain(   Читать дальше...   )Производство: SPVЖанр: Cabaret, Swing, JazzРежиссер: Michael Beyer, Michael BallhausАктеры: Max Raabe & Palast OrchesterПеревод: ОтсутствуетСубтитры: русские (на разговоры между песнями)Продолжительность: 1:52:48 + 0:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004328F971CD8337F7A70F19B4102785D8EB26D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643998   (763926) от 22.03.2018
+
+Axel Rudi Pell - Live on Fire (2013) 2xDVD9 <Hard rock, Melodic heavy metal>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В марте 2013 года на лейбле SPV/Steamhammer вышел новый концертный CD/DVD AXEL RUDI PELL "Live On Fire".01. The Guillotine Suite (Intro)
+02. Ghost in the Black
+03. Strong as a Rock
+04. Before I Die(   Читать дальше...   )Производство: Германия, SPVЖанр: Hard rock, melodic heavy metalПеревод: ОтсутствуетПродолжительность: 03:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FC9334CB7F8E9EE408CA70E6999B9507D8656E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459639   (763899) от 22.03.2018
+
+Axel Rudi Pell - Knight Treasures (Live and More) (2002) 2xDVD9 <Heavy Metal, Hard Rock>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое двухдисковое издание гитариста. Запись DVD происходила в немецком городке Бохум (славящемся своими металл-фестами) в мае 2002 г., на творческом пике группы, в её самом мощном составе, что, само-собой, не могло не отразиться на качестве материала! Великолепное, обзорное, ретроспективное выступление, в котором собрано всё самое лучшее (естественно, в рамках (   Читать дальше...   )01. Edge Of The World
+02. Nasty Reputation
+03. Tear Down The Walls
+04. Medley Masquerade Ball / Casbah / Drumsolo(   Читать дальше...   )Производство: SPV, Steamhammer RecordsЖанр: Heavy Metal, Hard RockПеревод: Субтитры русские (DVD2)Продолжительность: ~03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D653AD08F7CDFD252D283B14550FC2581C6E35
 ```
 
 https://mybot314.ru/tekegram_catalog/

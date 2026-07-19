@@ -1,3 +1,32 @@
+###  Публикация: 1402115   (703678) от 13.08.2020
+
+VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finest Pasas - Mystic Clouds (06:34)
+02. Spirit - Om Sat Guru (06:41)
+03. Power Shui - Harmonious Journey (03:47)
+04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402348   (701706) от 14.08.2020
 
 VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -722,35 +751,6 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DC46791D4C435EB5A9A8570194D7FA20FB7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029656   (680339) от 27.06.2016
-
-Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside the OM (16:04)
-02. Inside Chanting (18:06)
-03. Inside Silence (12:47)
-04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

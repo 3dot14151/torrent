@@ -1,3 +1,206 @@
+###  Публикация: 1495483   (875964) от 15.09.2021
+
+Aly & AJ - A Touch of the Beat Gets You Up on Your Feet Gets You Out and Then Into the Sun (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Places [00:05:19]
+02. Lost Cause [00:03:15]
+03. Break Yourself [00:03:17]
+04. Slow Dancing [00:04:27](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088E70013B6609CA0EFAFDC80DEC45529D32563A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997203   (875729) от 16.03.2016
+
+Two Of Us - Twice As Nice (1985) 1986, CBS/Sony (Japan) [FLAC|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом популярного немецкого дуэта тех лет!01. Generation Swing
+02. Two Of Us
+03. I Can Feel You Burn
+04. Hollywood Boulevard(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644A33546C1F71171BD932A9F3A23ADD1EE7FB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373984   (875089) от 09.04.2020
+
+EL Кравчук - На облаках (2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На облаках
+02. Города
+03. Моя надежда
+04. Лети на свет ( feat. Верка Сердючка )(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B4E79781B1C15F2FC199B5F3EFCBF63292FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105438   (875048) от 18.02.2017
+
+Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious
+02. American Science
+03. Skin Trade
+04. A Matter Of Feeling(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A18AEFA91BAE3FCF295B1340ADBE657FC7BB016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105617   (874815) от 18.02.2017
+
+VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Paul feat. Dua Lipa - No Lie (3:43)
+02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye (4:10)
+03. Alan Walker - Alone (2:39)
+04. Nevada feat. Mark Morrison & Fetty Wap - The Mack (2:46)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374353   (874724) от 09.04.2020
+
+Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prenderemos Fuego al Cielo (4:29)
+02. No Esperen Mi Regreso (4:31)
+03. Perfume de Tu Piel (3:55)
+04. Siempre Eres Tu (4:50)(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0CBD352D05D8097167DEA71B1A5EBD4D817D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374294   (874723) от 09.04.2020
+
+Dino Sauro-Rex - Walk The Dino Dance (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk The Dinosaur (4:22)
+02. UPD (Unknown Playing Dinos) (4:28)
+03. Give It Up (3:26)
+04. Moving Rolling (4:05)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC74E865461D298C73117E4C11225EDF945C69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374291   (874717) от 09.04.2020
 
 Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC|Lossless|image + .cue] <Rock & Roll, Pop Rock, Disco>
@@ -547,209 +750,6 @@ Infernal - датская dance-pop группа, образованная в 19
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108284   (864410) от 24.02.2017
-
-Demis Roussos - Souvenirs (1975) Remastered, 2016, UMC [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing An Ode To Love (4:10)
- 02. Midnight Is The Time I Need You (2:57)
- 03. I`ll Be Your Friend (4:07)
- 04. Action Lady (2:59)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2B7A4E66CB33FA27DD53831CF05CDB8B7358F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999596   (863043) от 23.03.2016
-
-HorrorPops - Bring It On! (2005) [FLAC|Lossless|tracks] <Pop-Rock, Alternative, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks In Uniforms   02:45
-02. Hit 'N' Run   03:34
-03. Bring It On!   02:17
-04. It's Been So Long   03:27(   Читать дальше...   )Жанр: Pop-Rock, Alternative, Indie RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A3B4C82ED5070ADB72D4620B150B48E59EF994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497932   (861365) от 24.09.2021
-
-Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Salsa>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anhelo
-02. Hoy Aprendi
-03. Persona Ideal
-04. Arrepentida(   Читать дальше...   )Жанр: SalsaПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497783   (861177) от 24.09.2021
-
-Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Build It Better (03:24)
- 02. Nothing Missing (03:14)
- 03. What It Feels Like(03:54)
- 04. On My Way (03:37)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109094   (860750) от 26.02.2017
-
-Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
- 02. ( Life may be ) A big insanity (4:30)
- 03. Johnny wanna live (4:29)
- 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000136   (860648) от 24.03.2016
-
-AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Art Pop, Indie Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway
-02. Conqueror
-03. Running with the Wolves
-04. Lucky(   Читать дальше...   )Жанр: Alternative Art Pop, Indie Pop, SynthpopПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376261   (860489) от 17.04.2020
-
-Лили Иванова - 2 Albums (1999 - 2001) [FLAC|Lossless|tracks + .cue]<Pop, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовта е по-силна от всичко
-02. Без радио не мога
-03. Море на младостта
-04. Равносметка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB897686650483DFA1D61C1266AAE8E1962A2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

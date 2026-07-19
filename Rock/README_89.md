@@ -1,3 +1,264 @@
+###  Публикация: 1429443   (176856) от 06.12.2020
+
+Majestic - Monument (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resist On High (11:24)
+ 02. Silent Horizons (20:32)
+ 03. Wastelands (14:50)
+ 04. Endless Ages (13:19)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA1EBEFE725B3F563D0F67E1A390698F2D6043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595012   (176646) от 03.12.2022
+
+Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176646.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Another Day (2012 Remaster) [00:03:43]
+002 - Oh Woman, Oh Why (2012 Remaster) [00:04:35]
+003 - Uncle Albert _ Admiral Halsey (Mono _ 2022 Remaster) [00:04:50]
+004 - Too Many People (Mono _ 2022 Remaster) [00:04:18](   Читать дальше...   )Жанр: Pop RockПродолжительность: 10:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595134   (176231) от 04.12.2022
+
+Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing With Fire
+02. Love Unemotional
+03. Keep Coming Back
+04. Take This Heart(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595001   (176135) от 04.12.2022
+
+The Beach Boys - Sail On Sailor (1972) 6CD, Super Deluxe, Remaster, 2022, Capitol Catalog MKT [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - Carl And The Passions - "So Tough"
+02 - Holland
+03 - Live at Carnegie Hall(   Читать дальше...   )Жанр: Pop RockПродолжительность: 6 CD, 06:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AB1BAF1738B3797F3D367034DD274344A47845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429806   (175876) от 07.12.2020
+
+Lee Aaron - Almost Christmas (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything's Gonna Be Cool This Christmas (02:54)
+ 02. Baby Please Come Home (02:44)
+ 03. Run, Run, Rudolph (02:33)
+ 04. It Doesn't Often Snow At Christmas (03:40)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689ED42C1B00DD6A58D439EEE71BAE43A336D229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595522   (175666) от 05.12.2022
+
+Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thorn In Your Pride [00:09:26]
+02 - I Am [00:08:38]
+03 - Time To Breathe [00:05:13]
+04 - Between The Pines [00:04:06](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429703   (175294) от 08.12.2020
+
+Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sehnsucht (01:04)
+ 02. Cronache Per La Fine Di Un'Infanzia (07:13)
+ 03. Gestalt (05:47)
+ 04. Il Tempo Vola (01:46)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003EB83DFBF6180DAFA271D6DAAD244B7C44348A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430483   (173888) от 10.12.2020
+
+Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuffer Gapes And Drapes His Cape On A Vaping Ape (Including Destiny's Abortion) (09:01)
+ 02. (Impure Thoughts) Pure Cushion (07:52)
+ 03. Z'morgele (07:09)
+ 04. Lovebird Dogbane Receives Higher Education (07:55)(   Читать дальше...   )Жанр: Progressive Rock, Eclectic Prog, InstrumentalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B706889E84AB2932CDC0E66BDB4BAECDF75981DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668434   (173465) от 13.10.2023
+
+Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further Than Forever [00:09:12]
+02 - Cry To Heaven [00:04:27]
+03. Sacred Blasphemy [00:02:53]
+04. The Ballad Of Spook & Mercy [00:04:39](   Читать дальше...   )Жанр: Britpop, Glam Rock, Pop-PunkПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668442   (173455) от 13.10.2023
 
 U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
@@ -483,267 +744,6 @@ Slade - Live and Loud! (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6517C5476713E79D1363C0E1E84E0918B90542F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516238   (166973) от 10.12.2021
-
-ДМЦ (Дороги Меняют Цвет) - Электроакустика, Часть 1 (2021) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сирень
-2. Накорми голубей
-3. Целуй ниже
-4. Запой(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4D143D6C6172DF2C5E3AC70D5064AEFED0D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516219   (166946) от 10.12.2021
-
-Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom Heart Mother (Live In Rome Palaeur)
-02. Careful With That Axe, Eugene (Live In Rome Palaeur)
-03. Fat Old Sun (Live In Rome Palaeur)
-04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516221   (166908) от 10.12.2021
-
-Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set The Controls For The Heart Of The Sun (Live, Lyon 12 June 1971)
-02. Cymbaline (Live, Lyon 12 June 1971)
-03. Atom Heart Mother (Live, Lyon 12 June 1971)
-04. Speak To Me (Live, Tokyo 16 March 1972)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169C53F05E5217EB064934DA6FC19616C69BD908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431806   (166171) от 15.12.2020
-
-Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps] <Rock, Electro>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comfortably Numb
-02. Run Like Hell
-03. Embryo
-04. One of These Days(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48660C7863F8782A3C2D5A3C9C09F07A99AF628B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431516   (166163) от 15.12.2020
-
-Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in the Heart
-02. The Eye of God
-03. The Universe
-04. Caruso(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59351A41F55D75244989FBF2769102C44216EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516418   (166109) от 11.12.2021
-
-Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careful With That Axe, Eugene (Amsterdamse Bos, Live 26 June 1971)
-02. Cymbaline (Amsterdamse Bos, Live 26 June 1971)
-03. Set The Controls For The Heart Of The Sun (Amsterdamse Bos, Live 26 June 1971)
-04. A Saucerful Of Secrets (Amsterdamse Bos, Live 26 June 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4A949E406F3A7E0123C6C1D53AAFD02EC89087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516417   (166048) от 11.12.2021
-
-Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (Live In Montreux 18 & 19 Sept 1971)
-02. Careful With That Axe, Eugene (Live In Montreux 18 & 19 Sept 1971)
-03. Set The Controls For The Heart Of The Sun (Live In Montreux 18 & 19 Sept 1971)
-04. Cymbaline (Live In Montreux 18 & 19 Sept 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61CC0108F46FD0B0A93B87AC202B94E777B6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597536   (166035) от 15.12.2022
-
-Kerygmatic Project - Dreams World (2022) 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166035.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Orchestral Version:
-01 - The Old World (Overture) (02:58)
- 02 - The Dreamer's Rite (Orchestral Version) (04:16)
- 03 - From the Next World (Orchestral Version) (06:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F68730DF4600B46337D364EDF356700DEF8AF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673357   (165460) от 01.11.2023
-
-Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Productions [MP3|320 Kbps] <Rock, Singer & Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02
-DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterПродолжительность: 4 CD, 03:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

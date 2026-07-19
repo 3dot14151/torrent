@@ -651,61 +651,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559971   (406570) от 15.10.2012
-
-Giuseppe Verdi - Otello: Tullio Serafin & Rome Opera Orchestra and Chorus (1998) 2CD [FLAC|Lossless]<Classical, Opera, Romantic Period>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Opera, Romantic PeriodПродолжительность: 01:10:40 - CD1
-01:13:15 - CD2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6203190C6F4C7220239629B19EDDA56D2522A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560145   (406515) от 15.10.2012
-
-Giuseppe Verdi - Aida: Riccardo Muti & Montserrat Caballe, Placido Domingo (1986) 3CD [FLAC|Lossless]<Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, OperaПродолжительность: 00:39:46 - CD1
-00:41:09 - CD2
-01:05:12 - CD3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F10422624227DE892C6D5D236B22C7501853676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561498   (406085) от 17.10.2012
 
 Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2CD (1986) [FLAC|Lossless]<Classical, Romantic Period, Opera>
@@ -733,34 +678,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561509   (406070) от 17.10.2012
+###  Публикация: 569419   (391505) от 03.11.2012
 
-Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
+Фёдор Шаляпин - Избранное (2012) [FLAC|Lossless]<классика, вокал>
 
 >>Классика
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gianni Schicchi - O mio babbino caro [02:45]
-02. La Boheme, Act 1 - 'Quando men vo' (Musette's Waltz) [02:38]
-03. Lakme, Act 1 - Dome espais le jasmin (Blumen-Duett) [05:08]
-04. Le nozze di Figaro, Act 4 - 'Giunse alfin il momento' - 'Deh vieni non tardar' [03:29]
-05. Don Giovanni, Act 1 - 'Lа ci darem la mano' [03:23]
-06. Lucia di Lammermoor, Act 2 - 'Ardon gli incensi' (Wahnsinnsarie) [05:05]
-07. Norma, Act 1 - Casta Diva [05:48]
-08. Rusalka, Act 1 - Mesucku Na Nebi Hlubokem (Lied an den Mond) [05:03]
-09. La Traviata, Act 1 - 'Libiamo ne'lieti calici' (Brindisi) [03:08]
-10. Giuditta, Act 4 - Meine Lippen, die kussen s heis [05:38](   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:13:40
+01. Стенька Разин
+02. Дубинушка
+03. Ночной смотр
+04. Два гренадера
+05. Вдоль по Питерской
+06. Очи черные
+07. Элегия
+08. Персидская элегия
+09. Сомнение
+10. Ноченька(   Читать дальше...   )Жанр: классика, вокалПродолжительность: 00:55:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
+magnet:?xt=urn:btih:156BAC94992BE3956FC39BD12D0B4811AA69982C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570498   (389249) от 06.11.2012
+
+Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 3CD (1999) [FLAC|Lossless]<Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, OperaПродолжительность: 01:10:31 - CD1
+01:02:04 - CD2
+00:46:21 - CD3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E508A632FE223FF188922F8E5569B01FDA7E1465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950900   (367764) от 27.10.2015
+
+Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorchester - The Opera Gala. Live from Baden-Baden (2007) [FLAC|Lossless]<Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Lo Delibes / Lakm: Act I. "Viens, Mallika - Dme pais le jasmin"		06:43
+02.	Gaetano Donizetti / L'Elisir d'Amore: Act II, Scene VII. "Una furtiva lagrima"		05:08
+03.	Georges Bizet / Les Pcheurs de Perles: Act I. "Au fond du temple saint"		06:19
+04.	Vincenzo Bellini / Norma: Act I, Scene I. "Casta Diva - Ah, bello a me ritorna" (   Читать дальше...   )Жанр: ОпераПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16879755F0EC0BFD2CCC5DF3D46D1EA64392B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

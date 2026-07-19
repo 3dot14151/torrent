@@ -1,3 +1,61 @@
+###  Публикация: 905044   (651733) от 05.06.2015
+
+Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' To The Edge Of The Night
+02. Crash That Party
+03. Not Like All The Rest
+04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E90557B4B31B3893391D8FA44D33D977614B87A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905245   (651731) от 05.06.2015
+
+V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harden The Fuck Up
+02. Oh, What A Jerk He Is
+03. Go Fast Or Go Home
+04. Every Man A Tiger(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6608C88692B81E2BDB903957437219630CE1AA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905051   (651608) от 05.06.2015
 
 House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -689,64 +747,6 @@ Ralf Gyllenhammar - Bed On Fire (2013) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F2510A8ACF58A197031A2DDE06CCBBC0015E779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907446   (638082) от 12.06.2015
-
-Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away I go
-02. Never Givin' Up
-03. Miss Elainious
-04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541274   (636871) от 07.04.2022
-
-King Mountain - 4 Albums (2020-2022) [MP3|320 Kbps] <Heavy Blues Rock, Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Sacrifice [00:05:50]
-02. Tempest At The Gate [00:03:29]
-03. Burning Walls [00:04:05]
-04. King Of The Mountain [00:06:12](   Читать дальше...   )Жанр: Heavy Blues Rock, Hard Rock, Stoner RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654F693CBEF71E227ED3DE12C6AB2AE91C15D5D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

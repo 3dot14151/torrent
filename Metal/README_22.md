@@ -1,3 +1,95 @@
+###  Публикация: 1374436   (873157) от 10.04.2020
+
+Megatherium - 3 Альбома (2016-2020) [MP3|320 Kbps] <Psychedelic Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873157.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Superbeast
+2018 - Superbeast Alive!
+2020 - GodЖанр: Psychedelic Stoner, Doom MetalПродолжительность: 3 CD, 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39D068B0BA10DD1FB4797DC0532DF7714F22848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300976   (873122) от 26.02.2011
+
+Bullet - Highway Pirates (2011) [MP3|320 kbps]<Heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Highway Pirates (4:51)
+2. Back On The Road (4:00)
+3. Stay Wild (2:46)
+4. Blood Run Hot (2:51)
+5. Fire And Dynamite (4:34)
+6. Down And Out (3:40)
+7. Knuckleduster (2:56)
+8. Heavy Metal Dynamite (3:55)
+9. Citylights (4:01)
+10. Into The Night (5:46)Жанр: Heavy metalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A199F88F46ECBD1A811730959D3E0924C48C46CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496186   (873016) от 17.09.2021
+
+Rage - Resurrection Day (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие пауэр-металлисты RAGE выпустят новый студийный альбом “Resurrection Day” 17 сентября на лейбле SPV/Steamhammer.01 - Memento Vitae (Overture) (01:15)
+ 02 - Resurrection Day (04:19)
+ 03 - Virginity (03:42)
+ 04 - A New Land (03:50)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A533B1E09E8FA7C3A2836D76AAEAACCE83AC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374280   (872993) от 10.04.2020
 
 Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Space Rock>
@@ -657,93 +749,6 @@ Power Tale - Урфин Джюс И Его Деревянные Солдаты (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D67C777E67FD14C6A9E18D7FFE10FA31691DA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375508   (865732) от 14.04.2020
-
-Kraniall - Infected Faith (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Pray
-03. Obedience
-04. Infected Faith(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8782EB227CA5DA5DB4082155B718D2303384729D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375560   (865626) от 14.04.2020
-
-Serious Black - Suite 226 (2020) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Let Me Go
-02	When The Stars Are Right
-03	Solitude Étude
-04	Fate Of All Humanity(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C03B90D5404E26930302239EFF6D609E4274C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108015   (864644) от 24.02.2017
-
-Trollfest - Helluva (2017) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Is Just The Intro
-2. Professor Otto
-3. Spelunking Sisters
-4. Gigantic Cave(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BAECEBFE29F28116D39E4A6707784B5CAD769F
 ```
 
 https://mybot314.ru/tekegram_catalog/

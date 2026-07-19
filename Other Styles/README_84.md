@@ -1,3 +1,177 @@
+###  Публикация: 1229871   (620962) от 09.06.2018
+
+Сергей Гримальский - West (2003) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер времени (3:52)
+02. Колыбельная (3:35)
+03. Цветные сны (5:53)
+04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624B2755B382427AC41842620435D9C37230ADA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229996   (620889) от 09.06.2018
+
+Сергей Гримальский - Inner Space (1998) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полёт в будущее (5:43)
+02. Молитва (2:13)
+03. Venus (6:24)
+04. Inner Space (4:23)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABE305F41EF2474349A7248818E09CC51708052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295450   (620621) от 12.04.2019
+
+David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Be Still  7:11
+2 The Here and Now  7:48
+3 Mindful Breathing  8:48
+4 Relax and Release  8:30(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86C72DA9D16F03D629465B42FB1E7A84E2B65EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145076   (619829) от 26.06.2017
+
+VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfulness Meditation Music Spa Maestro - Zen Tracks
+02. Meditation Mantras Guru - Positive Affirmations
+03. Rebirth Yoga Music Academy - Reiki (Healing Music)
+04. Mantra Yoga Music Oasis - Healing Your Soul(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7148E40972F67867C1F3A80895102262D9F6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145819   (619827) от 26.06.2017
+
+VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nature Meditation Academy - The True Nature Of Happiness  2:41
+02.  New Age Anti Stress Universe - Ambient Energetic Relaxation  2:52
+03.  Serenity Music Relaxation - Sanctuary Of Existence  3:13
+04.  Mothers Nature Music Academy - Bright And Shining Moment  3:17(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 03:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145054   (619710) от 26.06.2017
+
+David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fidei Defensor (4:56)
+02. Siempre Fidelis (4:08)
+03. In Hoc Signo Vinces (4:06)
+04. Domine Dirige Nos (3:44)(   Читать дальше...   )Жанр: Epic, New Age, EnigmaticПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683411   (619656) от 28.07.2013
 
 Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electronic, New Age, Ambient>
@@ -589,186 +763,6 @@ VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7043836E30F147019EB8534E9FBA2DC57233FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523623   (616644) от 16.07.2012
-
-Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Nino
- 02.China Boy
- 03.Tomi's Dream
- 04.Casablanca
- 05.Primavera
- 06.King of the Fairies
- 07.Amor Perdido
- 08.Alger
- 09.Evolution
- 10.BaladaЖанр: Instrumental, Classical CrossoverПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8183C9CADAC47DCFC9140B3B4B46086E8E544929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146018   (616336) от 28.06.2017
-
-VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling And Relaxation (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Josef Babula - Pavane (Ethereal Moments Remix)  3:07
-02.  Custom 7 - Worlds Apart (Original Mix)  3:50
-03.  Bella Element - Blue Sky (Original Mix)  3:09
-04.  Nils Hahn - Opening (Ethereal Moments Mix)  3:26(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC753BDBC06FD60ADB3EF79843C2D5372BA1EDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911692   (616058) от 23.06.2015
-
-Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (05:39)
-02. Mystery Of The Seas (05:10)
-03. Remember The Stars (06:09)
-04. Calling Ghosts (Edit) (03:44)(   Читать дальше...   )Жанр: New Age, Enigmatic, ChilloutПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D5CD88D6C1EF7D554BC93347469F9AF5D5878A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912045   (614401) от 24.06.2015
-
-VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northen Extreme - More Than Words
-02. Vanity in Mind - Go Get Alice - The Walz Remix
-03. Electronivrty - A Bit of Jarre
-04. The Chakras - Inside Look(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912048   (614083) от 24.06.2015
-
-Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar 5:24
-02. Chica 3:14
-03. Amigos 2:40
-04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230622   (614052) от 13.06.2018
-
-Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dreamtime Initiation
-02 – Crystal Journey
-03 – Ocean Calling
-04 – Equinox Ambience(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

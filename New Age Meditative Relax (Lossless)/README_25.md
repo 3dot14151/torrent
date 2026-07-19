@@ -1,3 +1,32 @@
+###  Публикация: 1187622   (277295) от 30.11.2017
+
+Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Story (04:08)
+ 02. Season Romance (04:53)
+ 03. Life Journey (03:48)
+ 04. Cherish (04:19)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336604   (276042) от 09.11.2019
 
 Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
@@ -714,35 +743,6 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631902   (254533) от 07.05.2023
-
-Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Signs — это шедевр гипнотических ритмов и обволакивающей атмосферы с потрясающими вокальными партиями Мими Пейдж, Филдел, Инны Уолтерс и KANGA. Уникальный голос каждого певца возвышает Знаки, добавляя новые уровни болезненной красоты и романтизма.01. Falling Back To You (feat. Mimi Page)
-02. Rain
-03. Coast To Coast (feat. Phildel)
-04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,175 @@
+###  Публикация: 1134137   (689100) от 15.05.2017
+
+CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jazz, Trip Hop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak
+02. Rockets
+03. Steel
+04. Through(   Читать дальше...   )Жанр: Future Beats, Nu Jazz, Trip Hop, Electronic Rock, Bass, Downtempo, Female VocalПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386FE3F8F18F6BA2DDB2C30AEC12C077C33E45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134214   (689099) от 15.05.2017
+
+Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into a Circle (01:00)
+02. Wonderland (02:02)
+03. Happy Little Robots (01:34)
+04. Inner Sanctum (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC445D549101F0DE1C7E78C225E3F9F901F1476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133906   (689090) от 15.05.2017
+
+The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Embraceable You (2:31)
+2. Over The Rainbow (3:16)
+3. Sunrise Serenade (3:00)
+4. I'm Gettin' Sentimental Over You (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650CE1BEE4DFB411DF518F67ACA4E42A5F71633B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133876   (689082) от 15.05.2017
+
+Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - Genius (00:51)
+02. Lorne Balfe - Proving the Theory (01:40)
+03. Lorne Balfe - Forbidden Love (03:05)
+04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133869   (688965) от 15.05.2017
+
+Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There Is Darkness (03:14)
+02. Arrival of the Blood Ravens (03:58)
+03. Tip of the Spear (01:20)
+04. Cyprus Ultima Third Movement (05:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E20B84EAF725CB0694318F862F6C788D854EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028435   (688743) от 23.06.2016
+
+Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The River Mermaid    32:33
+02.  The Old Woman of the Sea    16:07Жанр: New age, Relax, Meditative |Продолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9409050F962C4D88283ECB1B48022195A66813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028479   (688688) от 23.06.2016
 
 Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Nature>
@@ -567,180 +739,6 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7439BB4843F01355432FCF374C93E6B7C4C7254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289162   (686124) от 16.03.2019
-
-Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48] <Trailer Music, Epic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Human Legacy (4:59)
- 2 - Icarus (feat. Julie Elven) (4:35)
- 3 - Remember Me (feat. Roger Berruezo) (3:45)
- 4 - The Awakening (4:29)(   Читать дальше...   )Жанр: Trailer Music, Epic, Instrumental, New AgeПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289624   (686102) от 16.03.2019
-
-Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Trailer Music, Electronic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Edge of Consciousness (4:42)
- 2 - Vis Motrix (4:50)
- 3 - Khae Momme (4:38)
- 4 - Facing Fears (4:47)(   Читать дальше...   )Жанр: Trailer Music, Electronic, Instrumental, New AgeПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028842   (686101) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028841   (685961) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222395   (685154) от 29.04.2018
-
-Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Adoration (3:13)
-02.	I'm waiting on you (2:58)
-03.	In my weakness you are strong (2:59)
-04.	In you I repose my trust (2:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134981   (684857) от 17.05.2017
-
-VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops Healing Music Universe - Thunderbolts & Rain
-02. Hypnosis Nature Sounds Universe - Dramatic Thunder, State of Mind
-03. Zen Soothing Sounds of Nature - Distant Storm, Sound Effect
-04. Close to Nature Music Ensemble - Rainy Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
 ```
 
 https://mybot314.ru/tekegram_catalog/

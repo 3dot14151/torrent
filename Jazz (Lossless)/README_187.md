@@ -1,119 +1,3 @@
-###  Публикация: 1063379   (435563) от 16.10.2016
-
-Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Paradise [08:02]
- 02.Icey [03:54]
- 03.The Answer In Your Eyes [08:31]
- 04.Asia's Theme [05:11](   Читать дальше...   )Жанр: Crossover Jazz, Smooth JazzПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3636F23E8AF1A149F1C2515062D2AEAF9E694F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063382   (435556) от 16.10.2016
-
-Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Meteorology [10:43]
- 02.Dawn [06:05]
- 03.Tiger, Tiger [07:13]
- 04.Kathryn's Song [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Avant-Garde JazzПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BCD70FB7C23EBF266D4E26F26727F48AE6FEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165266   (435446) от 12.09.2017
-
-Harry Lookofsky - Stringsville (1959) 2006, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [03:45]
-02. Moose The Mooche [05:26]
-03. I Let A Song Go Out Of My Heart [03:18]
-04. Little Willie Leaps [04:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1A0845C14C26929816CAAB80C10A0D50C11313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165080   (435445) от 12.09.2017
-
-Johan Clement Trio - On Request (2006) Baileo Music Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Winds [05:23]
-02. Robbin's Nest [06:06]
-03. Cakewalk [03:48]
-04. When Summer Comes [04:12](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11932F2FC57C0B91B1C24D23EC1FB509D72192D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165269   (435443) от 12.09.2017
 
 Gary Bartz - The Red And Orange Poems (1994) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -745,6 +629,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64257DA87B3FF8DF9B6BF4993ACBC70ACFF4A017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165530   (432944) от 13.09.2017
+
+Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble, Why Pick On Me? [02:51]
+02. Shakin' The African [02:53]
+03. Chant Of The Weed [03:17]
+04. Shakin' The African [02:43](   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF8F3F584B28A8E06E3C4C154A9D002B8E68EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063722   (432854) от 17.10.2016
+
+Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Such Sweet Thunder [03:26]
+ 02.Sonnet For Caesar [03:03]
+ 03.Sonnet To Hank Cinq [01:24]
+ 04.Lady Mac [03:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3616FB68BF527A91DD76C6844A52EEA7AFC6F6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063704   (432703) от 17.10.2016
+
+Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oh! [02:48]
+ 02.Concentratin' On You [03:07]
+ 03.When the World is at Rest [03:29]
+ 04.That's Love! [03:01](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985B06E2449573068313237E3312FDB06F1BA8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063758   (432699) от 17.10.2016
+
+The Grassella Oliphant Quartette - The Grass Roots (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One For the Masses [04:39]
+ 02.The Descendant [03:03]
+ 03.Star Dust [04:07]
+ 04.Uptown Hours [04:12](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0D6AC86001EF0C85FE786C6B95BC99A9E16582
 ```
 
 https://mybot314.ru/tekegram_catalog/

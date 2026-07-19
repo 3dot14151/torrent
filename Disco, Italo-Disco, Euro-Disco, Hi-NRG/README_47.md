@@ -1,32 +1,3 @@
-###  Публикация: 1781698   (70178) от 24.02.2025
-
-DOS - 80s Forever (DJ Friendly Edition) (2013) [MP3|320 Kbps] <Italodance, Euro-House, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me (Extended Mix) (6:26)
-02. Breakdown (Extended Mix) (5:40)
-03. Mad Desire (Extended Mix) (5:00)
-04. You Are Danger (Extended Mix) (4:47)(   Читать дальше...   )Жанр: Italodance, Euro-House, DiscoПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F914DB9AF7222613DEEF4A5F155B14417E6A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781643   (70173) от 24.02.2025
 
 VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
@@ -742,6 +713,35 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0858CB4C0D8E78B58C7E460D8CC0D2CB3240B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730249   (53315) от 14.06.2024
+
+Zig Zag - Zig Zag (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Danser (7:17)
+02. Disco Fever (6:12)
+03. Stop Stop Stop (6:15)
+04. Gay'O (4:24)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4889EE2680AA55BE2C837E4EC280311A5B91ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

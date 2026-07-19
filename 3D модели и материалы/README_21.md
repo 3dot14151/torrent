@@ -1,30 +1,3 @@
-###  Публикация: 1407679   (461868) от 09.09.2020
-
-3D модели - Daz 3D - Scar 8 Pro Bundle - 70885 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Scar 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4FE610B32DAEEB3B7129D95D95AE3D7D771A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548880   (461650) от 20.09.2012
 
 3D сцены - Evermotion - Archinteriors Vol. 027 [V-Ray|*.max]
@@ -689,6 +662,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2DA050D9C1271512592EC229503FCA088771DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325940   (408408) от 17.09.2019
+
+3D сцены - Blender Cloud - Art Gallery - Gleb Alexandrov [BLEND]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408408.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D сцены Глеба Александрова с сайта Blender Cloud:
+- Locomotives
+- Light Trails
+- Attic(   Читать дальше...   )Формат: BLEND
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9822C7F63864F6EC477B13D0A41A63865E5AA023
 ```
 
 https://mybot314.ru/tekegram_catalog/

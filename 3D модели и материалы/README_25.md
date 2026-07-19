@@ -1,29 +1,3 @@
-###  Публикация: 1263067   (291251) от 17.11.2018
-
-3D модели - ArtStation - Military Tent [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291251.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель военной палаткиФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDEAB1EC100891E534BC1B563C0BCA12BB1C248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263006   (290799) от 17.11.2018
 
 3D модели - CGAxis - Winter Conifer Trees Collection – Volume 98 [V-Ray|*.max, C4D, FBX, OBJ]
@@ -676,6 +650,32 @@ Battle Car Package - это высококачественные модели, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C23AFEA37F21229AEDF05BE041D847D11E48140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340185   (264202) от 22.11.2019
+
+Daz 3D - Structures [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 17шт, категории Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32244A32F88E154CBEEE258BCDA704FAE9DB33B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,356 +1,3 @@
-###  Публикация: 1040624   (586482) от 05.08.2016
-
-VA - Drum & Bass Summer Slammers 2016 (Viper Presents) (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birdy - Wild Horses (Matrix & Futurebound Remix) (Matrix & Futurebound)
- 02. MNEK - At Night (I Think About You) (Cyantific Remix) (Cyantific)
- 03. Brookes Brothers - Good To Me (feat. Majesty)
- 04. Delta Heavy - White Flag (VIP Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D166F03C9F844D0509E053097E3D47D8F30512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040545   (586476) от 05.08.2016
-
-Process Lasso Pro 8.9.8.38 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4D19414BA0F9FBBACD863209C1831BB63C9453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809491   (586456) от 02.08.2014
-
-Веселые и беззаботные / Fun and Fancy Free (1947) BDRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две музыкальные истории, участниками которых являются персонажи студии «Дисней». Устав от переездов и плохого обращения,
-цирковой медвежонок по имени Бонго сбегает в лес. Жизнь в дикой местности оказывается не так уж легка,
-но смелый малыш находит самое главное — настоящую любовь. А далее Микки Маус, Дональд Дак и недотепа Гуфи
-пускаются в захватывающие приключения, (   Читать дальше...   )Производство: США |  Walt Disney ProductionsЖанр: Мультфильм, семейный, музыкаРежиссер: Джек Кинни, Гамильтон ЛаскиПеревод: Дублированный (Невафильм), многоголосый закадровыйПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5F2DB64E6FF57F9E21A1EB07717FE904DDF4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040607   (586448) от 05.08.2016
-
-Armin van Buuren - A State of Trance 775 (2016) [MP3|320 Kbps] <progressive trance, vocal trance, progressive house>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A State of Trance - Intro
-02. Ashley Wallbridge - Amnesia
-03. Rodg - Flaked
-04. Headstrong feat. Ghost Wars & Carrie Skipper - Angel Blue Eyes (Aurosonic Progressive Mix)(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive houseПродолжительность: 01:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBDF9E565A91EDA4D9C6960E9FCE267B92DFF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040632   (586445) от 05.08.2016
-
-DJ Snake - Encore (2016) LP [MP3|320 Kbps] <Midtempo, Trap, Moombahton>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (A86)
- 02. Middle (Ft. Bipolar Sunshine)
- 03. Sahara (Ft. Skrillex)
- 04. Sober (Ft. JRY)(   Читать дальше...   )Жанр: Midtempo, Trap, Moombahton, BassHouse, Hardstyle, FutureBass, Hip-Hop, HouseПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F0FBA40B50E1416EBFF54A9E46F03959072B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040604   (586440) от 05.08.2016
-
-VA - Goa Culture, Vol: 17-19 (2015) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellinio - The Cure (9:00)
-02. Dedale & Hekula - Spiritual Identity (7:09)
-03. Opposite8 - Never Give Up (7:57)
-04. Egorythmia & Static Movement - Other Dimensions Of Space (7:37)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 07:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EBE860E7AA0EAE1312E2A811A0ACFBA3A94DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040518   (586439) от 05.08.2016
-
-360 Total Security 8.8.0.1030 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586439.jpg" />
-</div>
-
-
-###  Подробнее
-
-360 Total Security предлагает комплексную защиту от всех видов вредоносных программ и онлайн угроз. Бесплатный антивирус от Qihoo 360 использует защиту в реальном времени с антивирусными движками Avira и Bitdefender, проактивным QVM II и облачным 360 Cloud, а также "Исправление системы" для комплексной оценки и быстрого восстановления аномальных изменений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6CB7056BEF9402526015F8B690CCC0B254FBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040523   (586437) от 05.08.2016
-
-IconLover 5.45 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586437.jpg" />
-</div>
-
-
-###  Подробнее
-
-IconLover -  программа для редактирования и создания  иконок.
-Программа имеет большое количество  функций, можно настраивать уровень прозрачности, добавлять эффекты теней, сглаживания, зеркалирование. Реализована поддержка многослойных изображений, можно импортировать и экспортировать графические форматы, присутствует пакетная обработка иконок.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAFD11A7053C1F16C1196F41C82F0C5F2DB684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357944   (586411) от 02.07.2011
-
-VA - Armada Top 15 July 2011 (30.06.2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586411.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Armada Top 15 July 2011 (30.06.2011)
-Год: 30.06.2011
-Жанр: Trance
-Продолжительность: 01:45:02
-Лейбл: Armada Music
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Alex Sayz ft Nadia Ali - Free To Go (Original Mix) (7:11)(   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5129847B1E646DE69F9CCBFBCC356087727927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358073   (586410) от 02.07.2011
-
-One Form - Island Party (2011) [MP3|320 kbps]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sensetive5 - Right Back (Original Mix)Жанр: Progressive TranceПродолжительность: 01:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698B4E2D79415B261AC5D6625650523DAF80882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357112   (586407) от 02.07.2011
-
-VA - Schismatic Transposition (Compiled by Cacofonix & Trancesistor) (2011) [MP3|VBRv0 kbps] <Dark Psytrance, Forest Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586407.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Schismatic Transposition (Compiled by Cacofonix & Trancesistor) (2011)
-Год: 2011
-Жанр: Dark Psytrance, Forest Psytrance
-Лейбл: Vantara Vichitra Records
-Cat.#: VVR1CD001
-Продолжительность: 01:14:54
-Кодек: MP3
-Битрейт: VBRv0 kbpsТрек лист:
-01. Captain Kirk - Zim's Intervention [08:06](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CE9F9947918648EC95B1D6CDDBB348E28862C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357624   (586406) от 02.07.2011
-
-Alltheniko - Millenium Re-Burn (2011) [MP3|320 kbps]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Millennium (Intro) 1:00
-2. Spirit Of The Highway 4:53
-3. No More Fear 4:30
-4. Harold Will Survive 4:39
-5. Metal Lord 5:36
-6. The Inner Self 5:55
-7. Masterful Man 3:42
-8. Army Of Nerds 5:05
-9. Hide In The Dark 4:49
-10. In The Name Of The Cross 4:52(   Читать дальше...)Жанр: Heavy MetalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571B4D49553F863FC698930807C779ECF587DF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357876   (586405) от 02.07.2011
 
 VA - Armada Presents Trance Essentials Vol. 1 (2011) [MP3|~255 kbps]<Trance>
@@ -730,6 +377,347 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52EF3EAD7FEC344ED3A2B42D9427CF3F6542740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357886   (586308) от 02.07.2011
+
+[Wallpapers] Mixed wallpapers-2 (02.07.11)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B62489DB724895C583E37C3E7AEB6947ECA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 76764   (586307) от 02.08.2014
+
+Я телохранитель.  «Киллер к юбилею» (2008) DVDRip (сезон 1, серии 1-4 из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586307.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Владимира Гринькова "Я - телохранитель".
+«Киллер к юбилею» - это начало истории телохранителя Анатолия Тихомирова (Алексей Зубков) охранного агентства «Барбакан».
+Анатолий Тихомиров, молодой, подающий большие надежды телохранитель охранного агентства "Барбакан", получает очередное задание. Ему предстоит сопровождать дочь известного бизнесмена (   Читать дальше...   )Производство: РоссияЖанр: Триллер, детективРежиссер: Александр ЛамакинАктеры: Алексей Зубков, Любовь Тихомирова, Михаил Хомяков, Елена Великанова, Сергей Чирков, Иван Агапов, Петр Баранчеев, Мария Ситко, Александр Раппопорт (Рапопорт), Александр АндриенкоПродолжительность: 4 серии по ~44 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357875   (586300) от 02.07.2011
+
+[Wallpapers] Mixed wallpapers-2 (01.07.11)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3A62CD6AF228AD22D9B19161DE0C89163F193D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358287   (586292) от 02.07.2011
+
+VA - Hospitality Festival Drum & Bass (01-07-2011) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.P.Y - Turn The Lights Off (05:02)
+02. MUFFLER - Dribble (05:23)
+03. Hybris - Keeping Me (06:41)
+04. London Elektricity - Meteorites feat. Elsa Ssmeralda (Danny B (05:16)
+05. N3GUS - Fill Yer Boots (05:16)
+06. Cyantific - Bounce It (04:05)
+07. Art vs Science - Magic Fountain (Royalston remix) (04:35)
+08. D1 - Flood Of Emotions feat. Jenna G (Enei remix) (04:42)
+09. London Elektricity - The Plan That Cannot Fail (06:11)
+10. Logistics - Gang Colours (05:14)(   Читать дальше...)Жанр: Drum & BassПродолжительность: 02:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB283774E309700A01F187171FCBD905B053969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358051   (586290) от 02.07.2011
+
+Афинская школа / Сенека (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586290.jpg" />
+</div>
+
+
+###  Подробнее
+
+История потомка царского рода, который добровольно оставил свой трон и стал философом, выбрав путь бедности и размышлений. Эфесцы, считавшие его чудаком, вспомнили о Гераклите-мудреце в связи с серьезными для города обстоятельствами, признав его одним из выдающихся мудрецов.Жанр: ДокументальныйПеревод: Не требуется (оригинал, русский)Продолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8C86C8E21D2E8589F8308307891C6113DDFE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301135   (586256) от 10.05.2019
+
+VA - Monster Jinx - ROXO 05 (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arekkusu – free tay k (1:58)
+02. Ghost Wavvves – Reckless (3:18)
+03. Maria – tuescolhessempreonome (2:46)
+04. E.A.R.L. – XMAS STRUT (4:47)(   Читать дальше...   )Жанр: Hip-Hop, Beats, ElectronicПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFAF49B6C92A996ED4BE2CAF584F73C94F4407D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040393   (586247) от 05.08.2016
+
+Комплект средств для развертывания и оценки Windows (ADK) для Windows 10 V. 10.1.14393.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот комплект предназначен для изготовителей и поставщиков оборудования, энтузиастов и ИТ-специалистов, которые измеряют эксплуатационные характеристики компьютера, включая его производительность, надежность и функциональность. Оценки Windows – это средства, которые помогают предоставить эти данные, диагностировать проблемы и способы их решения. Выявляя потенциальные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9CB67D4BDA627F119681093163FF6E1C41E060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040359   (586232) от 05.08.2016
+
+uTorrent Pro 3.4.8 Build 42449 Stable RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586232.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D82D12DF23F12351BCCCD2194B42C26185F3D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357894   (586230) от 02.07.2011
+
+VA - Puro Desert Lounge Vol. 4 (29.06.2011) [MP3|320 kbps]<Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586230.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Puro Desert Lounge Vol. 4 (29.06.2011)
+Год: 29.06.2011
+Жанр: Chillout
+Продолжительность: 05:23:41Кодек: MP3
+Битрейт: 320 kbps
+[Тип битрейта: CBRТрек лист:
+01. Klangstein - These Days 04:18
+02. Klangstein - Deepdive 05:52(   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99127D23EA6F7806A046F2CCF9FCA928CD4E090F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357853   (586228) от 02.07.2011
+
+VA - Space Forming Vol.3 (2011) [MP3|320 kbps]<Psychill, Psydub, IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586228.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Space Forming Vol.3 (2011)
+Год: 2011
+Жанр: Psychill, Psydub, IDM
+Лейбл: Gliese 581С
+Cat.#: GC-016
+Продолжительность: 02:33:55
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9189FA1DB1474B6C4BAE823A23783C4AAB1563D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358055   (586224) от 02.07.2011
+
+Афинская школа / Блаженный Августин (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586224.jpg" />
+</div>
+
+
+###  Подробнее
+
+История потомка царского рода, который добровольно оставил свой трон и стал философом, выбрав путь бедности и размышлений. Эфесцы, считавшие его чудаком, вспомнили о Гераклите-мудреце в связи с серьезными для города обстоятельствами, признав его одним из выдающихся мудрецов.Жанр: ДокументальныйПеревод: Не требуется (оригинал, русский)Продолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9313FD2F674174119EDE5208A1B455D0A64E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358215   (586217) от 02.07.2011
+
+Журнал | Mobile Digital Magazine №7 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobile Digital Magazine - самый популярный и авторитетный в России ежемесячный журнал, посвященный цифровой мобильной технике - оперативно и компетентно рассказывает о тенденциях развития мобильной индустрии и самых современных мобильных устройствах.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A66AB402CF0AEE010ECA79D9D372ED5B8D37D
 ```
 
 https://mybot314.ru/tekegram_catalog/

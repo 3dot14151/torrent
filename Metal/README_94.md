@@ -1,3 +1,148 @@
+###  Публикация: 1639661   (232533) от 14.06.2023
+
+Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. The Scourge
+03. Under The Shadows
+04. Sanction of the Damned(   Читать дальше...   )Жанр: Symphonic Dark MetalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B585EE62B024897A33AB71A0833834B957FF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645728   (232511) от 11.07.2023
+
+Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seventh Day (04:02)
+02. Black Horses (03:58)
+03. Alive For A Night (03:41)
+04. Silver Moon (06:26)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165D6FDDDF0D77CFA7FEF5DA94B902DA46852568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639981   (232509) от 15.06.2023
+
+Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agony Of The Eternal Night
+02. War In The Name Of...
+03. Interdimensional Horrors
+04. Anthropophagus(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C19FDA24B6598A8FF28CB76A577663A10F4041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645883   (232453) от 12.07.2023
+
+Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lake Ounas (The Beginning) (feat. Veli-Matti Kananen) (02:41)
+02. Through the Mammoth Valley (04:14)
+03. The Ancient (06:50)
+04. Legacy (08:07)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC154B74916BEC45ED36ECB62DFF939A03FEB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639792   (232444) от 15.06.2023
+
+Kill Command - Hostile Takeover (2023) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exclusion Zone (05:10)
+02. Follow The Shepherd (05:57)
+03. Napalm (03:53)
+04. New Order (05:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4F73731F4C1AC4F36809160A33E43A65FE8A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646062   (232381) от 12.07.2023
 
 Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
@@ -600,151 +745,6 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [MP3|320 Kbps] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282072008CF81EE853CF5F44FEE2FCC6AE06CB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644939   (232008) от 08.07.2023
-
-Abstractian - Sharpened Hearts (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argon
-02. Galleons
-03. Sharpened Hearts
-04. Shown(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F11A210E76B334892DE714623A0E8CB1E925DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645278   (231981) от 08.07.2023
-
-Arkham Witch - Beer and Bullet Belts (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beer and Bullet Belts (04:17)
- 02. Death by Heavy Metal (02:23)
- 03. Viking Pirates of Doom (2002) (05:08)
- 04. Lamentations of My Fist (06:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D8CC317924A9AFBFBDB5AA6DB8C7CD75BA577A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646454   (231904) от 14.07.2023
-
-Morkt Stof - Revival (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uno Menos
-02. Nacer
-03. Undercover Hater
-04. Tanto(   Читать дальше...   )Жанр: Progressive, Heavy MetalПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976AD53DE682C214EB523A8B2EC95922DE64A47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646511   (231899) от 14.07.2023
-
-Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Steps of Damnation
-02 - Purgatory
-03 - Echoes of Time
-04 - Nightfall(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A74112B0D978523DD017AC3EE3FEFA0CF22694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646697   (231779) от 17.07.2023
-
-Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despescueznarizorejamiento
-02. Doom Knight
-03. Undead Awake
-04. Reign of Terror(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077704BC49F4D4B4593FAD2FF7C74789C729994
 ```
 
 https://mybot314.ru/tekegram_catalog/

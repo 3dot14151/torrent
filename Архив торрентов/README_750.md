@@ -1,61 +1,3 @@
-###  Публикация: 995539   (884715) от 11.03.2016
-
-Shockone - In This Light EP (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.City Lock (feat. Ragga Twins)
-02.In This Light (feat. Savoi)
-03.This Is Good Dubstep (feat. Phetsta)
-04.Some Kinda Drug WarpЖанр: Drum & Bass, DubstepПродолжительность: 00:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA621D13E939F00F4831AACE9657092635221A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995531   (884714) от 11.03.2016
-
-Intelligent Manners & Command Strange - Joy LP (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mastermind
-02.Love & Faith
-03.Magic Moment
-04.The Real Deal(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D21ED4EBCA4944809333DBC19838B32D61CA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995681   (884713) от 11.03.2016
 
 Pleq - Kingdom Hall (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Drone, Field Recording, Contemporary>
@@ -703,6 +645,58 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389F6AD1B7598EF9BBE0FB1382CF943463F44A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495095   (884437) от 10.09.2021
+
+Sonible - smart:comp 1.1.1 VST, VST3, AAX (x64) RePack by RET [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884437.jpg" />
+</div>
+
+
+###  Подробнее
+
+smart:comp - последнее дополнение к линейке продуктов A.I. от sonible. Этот уникальный спектродинамический компрессор находит параметры для хорошо сбалансированных результатов сжатия всего за несколько секунд. smart:Сomp также обеспечивает непревзойденную прозрачность благодаря частотно-избирательной обработке. С этим многомерным подходом сжатие развилось до следующего (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CB33A12705EE4838D581E38D2AB8B206A51B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495101   (884434) от 10.09.2021
+
+Calibre 5.27.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3C517C9FABD2EFF5A3A66B9C810E745FD45E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

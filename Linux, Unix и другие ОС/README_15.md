@@ -1,3 +1,29 @@
+###  Публикация: 1300896   (582024) от 14.05.2019
+
+Red Hat Enterprise Linux 8.0 [x64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 8. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30249402F9FBBE0E3AEC45796EBFBC42EC1FB6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920407   (580007) от 22.07.2015
 
 Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
@@ -667,32 +693,6 @@ Sabayon 17.08 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CAE1C694219C8AFE571CD1D18807C0FB1935ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306045   (555731) от 03.06.2019
-
-Parted Magic 2019.05.30 [i686/amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27635A27178CADEBA77C4965717BE1308706ED21
 ```
 
 https://mybot314.ru/tekegram_catalog/

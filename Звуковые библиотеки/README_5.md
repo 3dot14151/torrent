@@ -1,3 +1,29 @@
+###  Публикация: 1496718   (870924) от 18.09.2021
+
+NNM Club Sound Cleaner's - andgelo12 - Total Collection Of Cleared Music [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание музыкальных треков очищенных от "голосовых вставок" ("watermarks").Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F04CD13B3E0475448A1B2217341A721FBAB7177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374982   (868718) от 12.04.2020
 
 Звуковые библиотеки - Fluffy Audio - Venice Modern Strings - RePack Андрей650071 [Kontakt]
@@ -646,32 +672,6 @@ NNM-Club Sound Cleaner Collection from vip120
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0671827F335F2B6BE4131C4F18A2F1FE00F4D7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275365   (790366) от 11.01.2019
-
-NNM-Club Sound Cleaner Collection from werter21
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника werter21, стоявшего у истоков и активного члена группы Sound cleaner.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5940B439BBF9CB01F089D41D7D854F250FCB0201
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1407208   (468735) от 06.09.2020
+
+Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal Death, Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Abandoned Homes (2:14)
+2. Creation Weeps (3:12)
+3. Subsequent Abuse (3:04)
+4. Dragged Through the Mud (3:32)(   Читать дальше...   )Жанр: Brutal Death, Slamming Brutal Death MetalПродолжительность: 2 CD: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D111307D1B55E9BBAD4400767669DEF79D1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940812   (467190) от 25.09.2015
+
+Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467190.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You
+2. Momentary
+3. The Departure
+4. March Incomplete(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFF6D673566BC8FB86A05CB5390E74BF559F900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940755   (467036) от 25.09.2015
+
+Летаргия - Эпоха Зла (2015) [MP3|320 кб/с]<Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Эпоха Зла
+3. Непокорность
+4. Привкус Мести(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B177D7D906475214D3CA4DE8DB45A6825BC28FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058697   (465878) от 02.10.2016
 
 Bruce Dickinson - 6 Album (1990-2005) [MP3|320 Kbps] <Rock, Heavy Metal>
@@ -658,93 +745,6 @@ Night - High Tides - Distant Skies (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A06781900279ACF09C880559D03C05630984C248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569090   (455802) от 11.08.2022
-
-Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 1994 [00:03:32]
-02 - Call for the Blood [00:03:14]
-03 - Spearmint Revolt [00:05:02]
-04 - Memorial Hoard [00:04:49](   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464449D4B14A1C7FBDFA0EE665F05769DD8B66C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942316   (455754) от 30.09.2015
-
-Queensryche - Condition Human (2015) [MP3|320 кб/с]<Heavy/ Power/ Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrow Of Time
-02. Guardian
-03. Hellfire
-04. Toxic Remedy(   Читать дальше...   )Жанр: Heavy/ Power/ Progressive MetalПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B9E9400EF03C06C0FB8AC8F5CC14272A4FD923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060494   (455307) от 07.10.2016
-
-Parsifal - Heavy Duty (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storming The Reaper
-02. The Volunteer
-03. One Wish
-04. Loyalty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46123DB1C69B573CB9D934FE71928804D93CDC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

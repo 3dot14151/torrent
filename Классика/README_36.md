@@ -1,362 +1,3 @@
-###  Публикация: 571429   (387484) от 07.11.2012
-
-Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387484.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Praeludium und Fuge a-moll - Präludium - 1:47
-2. Praeludium und Fuge a-moll - Fuge - 3:37
-3. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Vorspiel - 1:52
-4. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Fuge - 4:51
-5. Fuge as-moll - 6:54
-6. Präludium und Fuge g-moll - Praeludium - 3:46
-7. Präludium und Fuge g-moll - Fuge - 4:02
-8. Elf Choralvorspiele op. 122 - Mein Jesu, der du mich - 4:29
-9. Elf Choralvorspiele op. 122 - Herzliebster Jesu - 3:06
-10. Elf Choralvorspiele op. 122 - O Welt ich muss dich lassen - 2:15(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5D328E6C358C9E4C99A8D74A79531DA20460AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571434   (387337) от 07.11.2012
-
-Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chorale Prelude and Fugue for Organ, WoO 7 "O Traurigkeit"
-2. Prelude and Fugue for Organ in G minor, WoO 10
-3. Fugue for Organ in A flat minor, WoO 8
-4. Chorale Preludes (11) for Organ, Op. 122
-5. Prelude and Fugue for Organ in A minor, WoO 9Жанр: ClassicalПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296F7B65D9BEB624D51E4B129EB719942B6687E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414211   (387287) от 07.10.2020
-
-Virgil Fox - The Bach Gamut: Live in San Fracisco 1976 (2006) [FLAC|Lossless|image + .cue] <Classical, Organ>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387287.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сентябре 1976 года самый известный органист Америки Virgil Fox должен был дать серию концертов в соборе Святой Марии в Сан-Франциско. “Prof” Keith O. Johnson из Reference Recordings было предложено произвести запись, что он и сделал, используя свой легендарный трехканальный аналоговый магнитофон ручной сборки. Теперь, после многих лет сложных переговоров, RR выпускает (   Читать дальше...   )Fantasia & Fugue in G Minor, BWV 542
-01. Fantasia (05:17)
-02. Fugue (05:27)
-03. Fugue (Reprise) (00:39)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C455A340D8E5314BD5FC336CF830C272EF5D0F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571421   (387214) от 07.11.2012
-
-Scottish Chamber Orchestra - Brahms – Violin Concerto & Hungarian Dances (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto in D major Op. 77
-
-01 Allegro non troppo(23:11)
-02 Adagio (8:49)
-03 Allegro giocoso, ma non troppo vivace (8:26)
-
-Hungarian Dances:
-
-04 No.1 in G minor (orch Brahms)(2:56)
-05 No.8 in A minor (orch Gal) (2:41)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CBEB7C4C9994DBA93C0CFAD3F08F440C4C8CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570667   (387208) от 07.11.2012
-
-Шостакович - Piano Concertos nos. 1 and 2, Fantastic Dances, Preludes and Fugues: op. 35, 102, 5, 78 (2003) (Shostakovich, Cluytens - ONRF) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-04Жанр: Classical, Piano Concerto, Prelude and FugueПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F80B305749B0F2B5CAEC43D1A39E11BB003CF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570710   (387205) от 07.11.2012
-
-Julia Fischer - J.S. Bach - Sonatas And Partitas For Solo Violin BWV 1001-1006 (2004) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-Sonata No.1 in G minor, BWV 1001
-1. Adagio
-2. Fuga (Allegro)
-3. Siciliana
-4. Presto
-Partita No.1 in B minor, BWV 1002
-5. Allemanda
-6. Double(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:19 + 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C7B542221EEDFEDDEC65016B0F49429B39FE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571690   (387201) от 07.11.2012
-
-Wuerttembergische Philharmonie Reutlingen, Jascha Heifetz - Bach, Mozart, Brahms - Double Concertos (2006) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Erich Friedman, violin/ New SO of London/Malcolm Sargent
-1. Bach: Concerto for Two Violins, BTW 1043 - I. Vivace
-2. Bach: Concerto for Two Violins, BTW 1043 - II. Largo ma non tanto
-3. Bach: Concerto for Two Violins, BTW 1043 - III. Allegro
-William Primrose, viola/RCA Victor SO/Izler Solomon
-4. Mozart: Sinfonia Concertante, K. 364 - I. Allegro maestoso
-5. Mozart: Sinfonia Concertante, K. 364 - II. Andante
-6. Mozart: Sinfonia Concertante, K. 364 - III. Presto
-Gregor Piatigorsky, cello/ RCA Victor SO/Alfred Wallenstein
-7. Brahms: Concerto for Violin and Cello, Op. 102 - I. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B44B4A94F66E3B277FD219AA0557475F7C6BFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570729   (387199) от 07.11.2012
-
-Academy Of Ancient Music / Richard Egarr - J.S. Bach - The Six Brandenburg Concertos (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brandenburg Concertos 1-3 (Disc 1)
-
-1. Concerto No. 1 in F Major - (Allegro)
-2. Concerto No. 1 in F Major - Adagio
-3. Concerto No. 1 in F Major - Allegro
-4. Concerto No. 1 in F Major - Menuet-Trio-Menuet-Poloinesse-Menuet-Trio-Menuet
-5. Concerto No. 2 in F Major - (Allegro)
-6. Concerto No. 2 in F Major - Adante
-7. Concerto No. 2 in F Major - Allegro assai
-8. Concerto No. 3 in G Major - (Allegro)-Adagio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:53 + 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39984B6DD2C98C22860072B5B5B0F83ABC021827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570658   (387194) от 07.11.2012
-
-Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suite No. 2 In B Minor BWV 1067
-1. Ouverture
-2. Rondeau
-3. Sarabande
-4. Bourree I & II
-5. Polonaise & Double
-6. Menuet (Violin 1: Lars Warnstad)
-7. Badienerie
-Sonata In G BWV 1021 (Maria Lindal, Violin)
-8. Adagio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9E86B81259C46D6DBF1E102124D77EF4652B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570741   (387068) от 07.11.2012
-
-Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto In A Minor, BWV 1041
-1. Allegro
-2. Andante
-3. Allegro Assai
-Concerto In E Major, BWV 1042
-4. Allegro
-5. Adagio
-6. Allegro Assai
-Concerto In G Minor After BWV 1056
-7. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570791   (386772) от 07.11.2012
-
-Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1bit/2.8 MHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386772.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 SONATAS, BWV 525–529
-SONATA NO. 1 IN E FLAT MAJOR, BWV 525 : 1. I. Allegro (3:19) • 2. II. Adagio (6:08) • 3. III. Allegro
-(3:58) • SONATA NO. 2 IN C MINOR, BWV 526 : 4. I. Vivace (4:20) • 5. II. Largo (4:01) • 6. III.
-Allegro (4:28) • SONATA NO. 3 IN D MINOR, BWV 527 : 7. I. Andante (6:20) • 8. II. Adagio e dolce(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3476A8BC029D9BC6D142B5A1D3480D9C81C32634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067160   (386482) от 29.10.2016
 
 J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki Suzuki) (2005) [DST64 2.0, DST64 5.0|64(2,8 MHz/1 Bit|ISO|SACD-R] <Classical>
@@ -789,6 +430,322 @@ Piano Concerto No. 5 in E flat major ("Emperor"), Op. 73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76738B22D86371B769352F697F065837BA491EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949674   (367886) от 27.10.2015
+
+Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Post-Romantic, Character Piece, Etude>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 2 in C minor, Op. 18
+01. Moderato; Allegro (11:33)
+02. Adagio sostenuto (11:46)
+03. Allegro scherzando (11:30)(   Читать дальше...   )Жанр: Classical, Concerto, Post-Romantic, Character Piece, EtudeПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024B6717AC4AD301D6098EC6EEC230A1A67AD7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948703   (367871) от 27.10.2015
+
+Chopin - 24 Preludes op.28 (Orchestral Version) (2002) [FLAC|image +.cue]<Classical, Romantic Period, Preludes>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preludes op.28
+01. Agitato (00:44)
+02. Lento (02:01)
+03. Vivace (01:14)(   Читать дальше...   )Жанр: Classical, Romantic Period, PreludesПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C604991EA12D4AD41ADE9EE66076BDB75744D0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949833   (367775) от 27.10.2015
+
+Rachmaninov - Piano Concerto No.3, Vocalise, Prelude  (Evgeny Kissin, Seiji Ozawa & Boston Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Live Performances, Post-Romantic ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 3 in D minor, Op. 30
+01. Allegro ma non tanto (18:35)
+02. Intermezzo: Adagio (10:30)
+03. Listesso tempo; Finale: Ala breve (15:19)(   Читать дальше...   )Жанр: Classical, Concerto, Live Performances, Post-Romantic Period, Song, Prelude, Transcription, VocaliseПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA8E78C2BDEAA62106997A862D5CBDAC576517E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950900   (367764) от 27.10.2015
+
+Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorchester - The Opera Gala. Live from Baden-Baden (2007) [FLAC|Lossless]<Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Lo Delibes / Lakm: Act I. "Viens, Mallika - Dme pais le jasmin"		06:43
+02.	Gaetano Donizetti / L'Elisir d'Amore: Act II, Scene VII. "Una furtiva lagrima"		05:08
+03.	Georges Bizet / Les Pcheurs de Perles: Act I. "Au fond du temple saint"		06:19
+04.	Vincenzo Bellini / Norma: Act I, Scene I. "Casta Diva - Ah, bello a me ritorna" (   Читать дальше...   )Жанр: ОпераПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16879755F0EC0BFD2CCC5DF3D46D1EA64392B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950719   (367556) от 27.10.2015
+
+Schubert - Piano Works for Four Hands (Jeno Jando & Ilona Prunyi) (1994) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, March, Divertimento>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lebenssturme, D. 947
+01. Allgero ma non troppo (11:44)
+Marches Caracteristiques, D. 886
+02. Allegro Vivace (06:57)(   Читать дальше...   )Жанр: Classical, Romantic Period, Character Piece, March, DivertimentoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EAE09B8C2708587F8135A7E35187B7B7D93A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950727   (367404) от 27.10.2015
+
+Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwave>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testament
+02. Grimstone Manor
+03. Ashes To Ashes
+04. Forgotten By Time(   Читать дальше...   )Жанр: Neo-Classical, Dark Ambient, DarkwaveПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AEC9C73A7BC15EA63B7B567612DD63A649D3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950673   (367273) от 27.10.2015
+
+Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi & Daniel Hope – Petricor (6:34)
+02. Ludovico Einaudi & Amsterdam Sinfonietta – Night (5:30)
+03. Ludovico Einaudi – Drop (5:00)
+04. Ludovico Einaudi & Amsterdam Sinfonietta – Four Dimensions (4:42)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121AE84D2930F12013CB13E0DEA1A43C5050E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950817   (367132) от 27.10.2015
+
+Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (From "West Side Story")                          03:13
+02. La chanson de Lara (From "Dr. Zhivago")                 03:15
+03. Moon River (From "Breakfast At Tiffany's")              03:49
+04. E piu ti penso (From "Once Upon A Time In America")     04:27(   Читать дальше...   )Жанр: Pop/Classical CrossoverПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D25FF9243F0BC7D345D831008C1E2A4465390D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327848   (366020) от 29.09.2019
+
+Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody for a Constellation (4:19)
+ 02. Connected Colors (3:46)
+ 03. Scintillations (2:45)
+ 04. Cosmoflower (2:29)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57DF7783702E56FCDE03B1BDA8CE88706B3CF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574204   (365595) от 16.11.2012
+
+Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs (2011) 11 Hybrid SACD Box Set [FLAC|Lossless]<Classical/Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical/PianoПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3154FE2D773054B95E04E7F8838AB90B63A6422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255649   (363264) от 18.10.2018
+
+2Cellos - Let There Be Cello (2018) [MP3|320 Kbps] <Symphonic, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concept2
+02. Eye of the Tiger
+03. Pirates of the Caribbean
+04. Cadenza(   Читать дальше...   )Жанр: Symphonic, NeoclassicalПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A2DBF834DA619BF8076239C81862524C670A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

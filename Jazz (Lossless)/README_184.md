@@ -1,116 +1,3 @@
-###  Публикация: 216112   (444426) от 05.10.2015
-
-Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская джазовая певица и инструменталистка Мелоди Гардо олицетворяет собой не только безграничный музыкальный талант, но и удивительную стойкость, силу воли и мужество, которые помогли ей победить тяжелые обстоятельства и стать той, кем она является сейчас. Мелоди родилась в Нью-Джерси в 1985 году. Несмотря на страстное увлечение музыкой и регулярные занятия (   Читать дальше...   )Список альбомов:
-2005 - Some Lessons
-2007 - Worrisome Heart
-2009 - My One and Only Thrill/Live In Paris (EP)Жанр: Jazz, Vocal Jazz, Female VocalПродолжительность: 02:17:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164124   (443935) от 08.09.2017
-
-Grandad Turner - My Friends, My Fam (2011) Fhammond Family Ent [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Jeff [04:54]
-02. Marcuse My Dude [06:02]
-03. I Remember George [05:10]
-04. My Love Is Real [05:30](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFC10FA445162BB86626F958E575AAACD9A6C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243604   (443384) от 09.10.2010
-
-Imelda May - No Turning Back (2007) [FLAC|Lossless]<Blues, Jazz, Swing, Rockabilly>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues, Jazz, Swing, RockabillyПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409687   (443344) от 18.09.2020
-
-Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canadian Sunset [9:56]
-02. Red Top [4:59]
-03. We'll Be Together Again [4:55]
-04. Ca' Purange (Jungle Soul) [6:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CAD74827BA0A9FCBFB5DFC0FCF240AC0DA7708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409689   (443343) от 18.09.2020
 
 Gil Coggins - Better Late Than Never (2001, 2002) 2007, Smalls Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -742,6 +629,122 @@ Ken Fowser - Don't Look Down (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0BB297F1CC25D799CB9A08EF3CEBE856D61515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409935   (441025) от 19.09.2020
+
+Vic Damone - Spotlight on Vic Damone (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Still of the Night [2:23]
+02. Laura [2:24]
+03. Shangri-La [2:42]
+04. Close Your Eyes [2:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4340D0DD545413BB24F610E5E080D5C340A7D1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410021   (440963) от 19.09.2020
+
+Sidney Bechet - Great Original Performances 1924 to 1938 (1989) [FLAC|Lossless|tracks + .cue] <Dixieland, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okey Doke (2:57)
+02. Early Every Morn (2:56)
+03. Shag (3:07)
+04. Polka Dot Rag (2:52)(   Читать дальше...   )Жанр: Dixieland, Early JazzПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AF4FA87EA17B61E0FC860D52B68DD17DED7763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409735   (440887) от 19.09.2020
+
+Panta Rhei - Hier Wie Nebenan - Anthologie (2020) Compilation, 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440887.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Alles Fliesst
+02. Blues fur John Henry
+03. Free Angela(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705DD9E00A314F725655E65C7681420985D97C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409958   (440871) от 19.09.2020
+
+Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-DL|tracks] <Dance, R&B, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (Eric Kupper Extended Vocal Mix) [00:07:08]
+02. September (Eric Kupper Radio Mix) [00:03:33]
+03. September (Eric Kupper Dub Mix) [00:07:08]
+04. September (Eric Kupper A cappella Mix) [00:07:08](   Читать дальше...   )Жанр: Dance, R&B, ElectronicПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B1E7C7DD93FA8C86FFA51883DAA1F739D62314
 ```
 
 https://mybot314.ru/tekegram_catalog/

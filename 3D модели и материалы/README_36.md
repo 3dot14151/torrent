@@ -1,133 +1,3 @@
-###  Публикация: 1807588   (10971) от 19.07.2025
-
-3D модели - 2209 | Gardening 01 [BLEND, FBX, C4D, OBJ, MAX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10971.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-модельи от известной студии.Формат: BLEND, FBX, C4D, OBJ, MAX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B4E70A00FEB27490578130985AF44DA4185C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808156   (10693) от 22.07.2025
-
-3D модели и материалы - ArtStation - Blender 3D Projects Collection by Rui Huang [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция sci-fi анимаций от Rui Huang.Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808232   (10589) от 23.07.2025
-
-3D модели - Craftwork - Wooden Toys [PSD]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10589.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Wooden Toys» — это набор из 51 объёмного элемента в трёх ракурсах: спереди, в перспективе и сверху. Сочетание натурального цвета и текстуры дерева создаст особое настроение вашей презентации или веб-сайта. 3D-модели доступны в Photoshop. Меняйте цветовую схему или оставляйте натуральное дерево для любого ракурса.Формат: PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796073EA676C638F912C96714B63873AB2FED030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808642   (10288) от 26.07.2025
-
-3D модели - BM - Summer Pack - People Set [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer Pack - 3D Models предлагает комплексное решение для 3D-художников и создателей, желающих дополнить свои сцены разнообразными персонажами в повседневной пляжной одежде. Благодаря разнообразию цветов и дополнений, оптимизированной производительности, разнообразному этническому представительству и совместимости с дополнением Procedural Crowds (на всякий случай (   Читать дальше...   )Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779EC61560B1471862D0D3122C38A012DC9E15E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810054   (9522) от 02.08.2025
-
-3D print - Chibi Station - Jinx [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джинкс из известной игры League of Legends.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEFF3852390FBB87EC43E8487230ED0DEAEE7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811032   (9030) от 07.08.2025
 
 3D print - Fundrazr - HEROICAS - Complete Collection [STL]
@@ -675,6 +545,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9A03FB444E5663BD52CDA67EF2B783E6C745DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819259   (1666) от 21.09.2025
+
+3D print - ModelShack - VS3DDeath - Sam Porter Bridges (Death Stranding) [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэмюэл «Сэм» Портер Бриджес — главный герой научно-фантастической приключенческой видеоигры Death Stranding 2019 года от Kojima Productions и её сиквела Death Stranding 2: On the Beach, вышедшего в 2025 году.
+Он — легендарный носильщик и бывший член Бриджеса, сыгравший ключевую роль в расширении Хиральной сети, объединившей Объединённые города Америки, отправившись (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C81D18487069F4EAF4092D1703954AE487CB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819326   (1646) от 21.09.2025
+
+3D print - Cults3D - Fides Figure - Psylocke - Marvel Rivals [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фигурки Psylocke из известной игры от Marvel - Marvel Rivals.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC9A310BDA30ECA3ECB16AA53455B2914615E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819271   (1643) от 21.09.2025
+
+3D print - Cults3D - Yongblood Sculpture - Yoshimitsu - Tekken 8 [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoshimitsu (Tekken 8)Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819243   (1640) от 21.09.2025
+
+3D print - MyMiniFactory - Flesh of Gods - Rage Unbound - 357534 [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1640.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гнев — это слабость. Гнев — это дар. И то, и другое верно."
+
+Древние боги огня и ярости знали это, но теперь их нет. Их поклонение ослабевает. Восстаёт новый бог.
+(   Читать дальше...   )Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF9092E8C3D8A720A4823DB53E240E04B96E711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819532   (1487) от 22.09.2025
+
+3D print - Vae Victis Miniatures - Cold Steel and Magic Spells [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меч или Магия — выбирайте. Сторона Силы представлена ​​бандой разбойников (5 готовых или собранных из доступных деталей), команда Магии состоит из: Хрономанта (и его ученика), Прорицателя и Аптекаря.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7B51055B94A1E84A37D27E75037596F7B17AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

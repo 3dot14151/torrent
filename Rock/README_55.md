@@ -1,38 +1,3 @@
-###  Публикация: 550588   (458521) от 22.09.2012
-
-Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seasons's Overture (10:51)
-I.  Rite Of Summer
-II. In The Rising Sun
-III. The Last Shades Of Winter
-IV. A Church Beyond The Lake
-V. La Route Pour Finistére
-VI. Springtheme
-2. Glares Of Light (07:25)
-3. Evening Dance  (04:13)
-4. On The Sea (04:20)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408220   (458307) от 11.09.2020
 
 Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
@@ -770,6 +735,35 @@ Diapasаo - Opus 1 (2006) [MP3|320 кб/с]<Progressive rock, Jazz-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E92B6ADBF78C39A0B0FF494796C65461B9C769A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163730   (448545) от 06.09.2017
+
+The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remastered, 1990, Ace [MP3|320 Kbps] <Beat, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Reef
+02. Wolfman
+03. She's My Girl
+04. King Of The Wheels(   Читать дальше...   )Жанр: Beat, Rock'n'RollПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3B5A1FB6716BD04D4D112C86ACB69F4C06D435
 ```
 
 https://mybot314.ru/tekegram_catalog/

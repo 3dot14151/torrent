@@ -1,3 +1,90 @@
+###  Публикация: 1778626   (70825) от 09.02.2025
+
+Bad Omens - Сollection (2016-2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Post-Hardcore, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Omens - Американская металкор-группа из Ричмонда, Виргиния.Список альбомов:
+2016 - Bad Omens
+2019 - Finding God Before God Finds Me
+2022 - The Death Of Peace Of MindЖанр: Metalcore, Post-Hardcore, Pop RockПродолжительность: 02:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41E86088C28D31C05CCA1F140274D60603B8446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782779   (69938) от 02.03.2025
+
+Tori Amos - The Music of Tori and the Muses (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knocking [00:02:11]
+02. Day and Night (from the Faerie Workshop) [00:04:08]
+03. Building a Mountain [00:06:00]
+04. Insect Ballet [00:05:55](   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8591B8749B0062FE9E288F60A72431FC2FD36702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782751   (69895) от 02.03.2025
+
+The Vapors - Wasp in a Jar (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Ground Running [00:03:25]
+02. The Human Race [00:03:20]
+03. Forever & Ever [00:03:33]
+04. Miss You Girl [00:03:33](   Читать дальше...   )Жанр: Punk Rock, New WaveПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A8E3964D7456565048920F88091F89515444D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788428   (68536) от 30.03.2025
 
 New Model Army - Live at SO36 16.07.2022 (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk Rock>
@@ -659,93 +746,6 @@ The Brains - Crazy Monster (2025) [FLAC|Lossless|WEB-DL|tracks] <punk rock, psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847C8CC99ABFCBF31E8D784F6D6102C0BE6A3EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806610   (65352) от 13.07.2025
-
-Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Psychedelic, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irukandji Syndrome [00:04:07]
-02. Goon Show [00:05:06]
-03. Stepping On A Rake [00:03:47]
-04. Teeth Marché [00:04:06](   Читать дальше...   )Жанр: Noise Rock, Psychedelic, Art PunkПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833AE4AFD7578BEE2264E79D4D2B6664A74D28D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807067   (65292) от 17.07.2025
-
-Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-(2010) The World Is Ours
-(2012) Red. White. Green
-(2014) The World Is My Enemy Now(   Читать дальше...   )Жанр: Alternative, Metalcore, DeathcoreПродолжительность: 6 CD, 03:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D908EF36AA40FA0AE7284CCD75077F08BDE6B2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807516   (65163) от 19.07.2025
-
-Paul Bartolome - Fake Hollywood (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement [00:02:51]
-02. Evil [00:04:02]
-03. Dream World [00:03:10]
-04. Poison Tree [00:03:03](   Читать дальше...   )Жанр: Alternative Metal, Post-HardcoreПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F58E1A8A90B181D53D5EBC2D2340F51C3524A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

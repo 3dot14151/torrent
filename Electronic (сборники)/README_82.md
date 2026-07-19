@@ -1,3 +1,240 @@
+###  Публикация: 1219296   (715843) от 13.04.2018
+
+VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate-Margret - Cool Me Down
+02. Flunk - Petrified (Original Mix)
+03. Diamans - Echo (Original Mix)
+04. Seven24 & Soty Feat. Maria Opale - Don't You Cry (S.A.T Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E034B5528B7E2A7EDF6BFDAD3C11513F0234CDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669408   (715790) от 19.06.2013
+
+DJ Vlad Kardash - The best (2013) [MP3|320 кб/с]<Dubstep, House, Club.Electro-House, Electro, Hardstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1)Electro House 2012 New Year Party(Demo)
+2)My name is Optimus Praime (Electro Ver.) (New)
+3)Bass fucker
+4)Ecstasy
+5)Electro House dream for sky
+6)My Name Is Optimus Prime(New)
+7)Выключай интернет
+8)+100500Жанр: Dubstep, House, Club.Electro-House, Electro, HardstepПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDC65870C1E211E70F628969D4F0F00151B66E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219279   (715628) от 13.04.2018
+
+VA - Сочный Басс [Sound Clinic - Bass Edition] (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides Of Soul - My Body Is Hot (Original Mix)
+02. Aaron Lewis - Higher Dimension (Original Mix)
+03. Acid Mondays - Holding on to Your Love
+04. Adison - Acid 101(   Читать дальше...   )Жанр: Tech House, G-House, Bass House и другиеПродолжительность: 21:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889FB2B8B3F68D1C1E1157336CB4875E500E6125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893006   (715208) от 28.04.2015
+
+VA - Без Тормозов vol.1 (2015) [MP3|320 кб/с]<Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D-Block & S-Te-Fan & Rebourne - Louder
+02. To-2-Bi - Deep in My Heart
+03. Paris Blohm & Tylr Renee - Left Behinds (The Vision Remix)
+04. Sylence - Trianglez
+05. Atmozfears & Audiotricz - Reawakening(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B157FA02F47CC6CDB67E340A0EB45F3F223DA3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532248   (714743) от 19.02.2022
+
+VA - Urban Night: Electro House Session (2022) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконы танцевальной музыки и выдающиеся музыкальные продюсеры объединили свои усилия для создания насыщенной энергией танцевальной сессии под названием "Urban Night". Массивный набор лонгплея включает в себя готовые к фестивалю 120 треков, охватывающие пульсирующие синтезаторы, мощные барабаны, бесстрашные басы и многое другое!001. Satoshi Fumi - Monday Trip
+002. Sam Thomas - How It Used To Feel
+003. Juah - Leaving Berlin
+004. Emuser - Save You(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961C8E93FD5D024F7F30591271BEEC0F07E54BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532424   (714741) от 19.02.2022
+
+VA - Funky House Bass Winter (2022) [MP3|320 Kbps] <House, Funky, Groove>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Crown - Feel Alive (Dub Mix)
+02. Phill Steiner - Disco Stab (Original Mix)
+03. House Shifters - Twerk It (Dub Mix)
+04. David Fuldner - I Like It (Original Mix)(   Читать дальше...   )Жанр: House, Funky, GrooveПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218C390668F68640709EABDEC5ECDA39B36BB0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532233   (714630) от 19.02.2022
+
+VA - Synth of Waves 10 (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight Boy - Arcade Life (Gertrudda Edit) (8:14)
+02. World Complete - Navigator (5:14)
+03. The Nostalgian - Memory Lane (Gertrudda Edit) (8:50)
+04. Jake Kesey - Breath Of The Wraith (5:42)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4183E309C2C890EF5F8DCAE1F9B86A4255EFA6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532397   (714527) от 19.02.2022
+
+VA - Relax Synthwave: Art Sound Mix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Relaxation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто ли вы мечтаете разгрузить голову, оставить ненужные мысли и работать в своем офисе налегке? Тогда включайте «Relax Synthwave: Art Sound Mix». Бумаги будут разбираться намного быстрее, все письма будут отправлены в срок, да еще и коллеги поблагодарят за отличный фон для хорошего настроения! Работа должна приносить только удовольствие. И вы самостоятельно можете (   Читать дальше...   )001. Alessa Khin - Desert Moon
+002. Woolfy - Graffiti Fonta
+003. The Kino Club - Be Yourself
+004. Dr.Masher - Echoes On Sunny Days(   Читать дальше...   )Жанр: Synthwave, Electronic, RelaxationПродолжительность: 08:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FB42C0878CAB114E68C2408C41F9B444741550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532468   (714472) от 19.02.2022
 
 VA - In The Dark: Synthspace Mixtape (2022) [MP3|320 Kbps] <Synthspace, Synthwave, Electronic>
@@ -510,238 +747,6 @@ VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025043   (712226) от 11.06.2016
-
-VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretzeltronik - First Movement
-02. Adeleeya - My Conquest Of Paradise - Sunset Beach Cafe Mix
-03. Loungeotic - Lifetime - Beach Chillout Mix
-04. Vintage Blue - Sunrise To Sunset - Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025182   (712225) от 11.06.2016
-
-VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Tut - Nothing Is for Certain - Ibiza Mix
-02. Misses Smith - Bag Of Moons
-03. Rainman - Hammock Dreams - Super Extended Beach Mix
-04. Zenyatta - Too Good(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC625CF48FCFADC658B8BA2DB4B72FE6D52F2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025040   (712217) от 11.06.2016
-
-VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Euro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Ice, Thomas Gold – Ice Baby
-02. Britney Spears – I Wanna Go
-03. Snoop Dogg, David Guetta – Sweat
-04. Scooter – How Much Is The Fish(   Читать дальше...   )Жанр: Electronic, House, Euro HouseПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025291   (712213) от 11.06.2016
-
-VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Retro Noize - Intro [0:16]
-02. Age of Love - The Age of Love [6:49]
-03. Systematic Parts - Violin De La Nuit [4:02]
-04. B.B.E. - Seven Days and One Week [2:56](   Читать дальше...   )Жанр: Jumpstyle, Techno, Hard TranceПродолжительность: 03:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025289   (712195) от 11.06.2016
-
-VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
-02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
-03. Geck-O - Sorry Not Sorry [3:16]
-04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025073   (712193) от 11.06.2016
-
-VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Nothing - Summer of Love - Singled Out Mix
-02. Ms. Jones and the Fireflies - 5am - Lana in the Video Sadness Cut
-03. Deep Sound Employees - Follow - Beach Cafe Mix
-04. Heartless Surfer Crew - Skip the Beat - Olly Got a Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025180   (712135) от 11.06.2016
-
-VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712135.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karizma Duo - One Last Time
-002. Umbu Kaborang - Bersorak
-003. Henrietta Adewole - Bloodstream
-004. Sidney Mohede - Tiba Saatnya(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754779D8B9C25D88AC88E967F2F6FC39F4583455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219765   (711976) от 15.04.2018
-
-VA - Music Emotions Of The Earth (2018) [MP3|320 Kbps] <Harmonic, Euphoric, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery - Long Way Home (Ashley Wallbridge Remix) 3:23
-02. The Thrillseekers - Halcyon (Ferry Tayle Remix) 4:13
-03. Elite Electronic & Vadim Bonkrashkov - Impala (Original Mix) 3:28
-04. Ben Gold & Ruben De Ronde X Rodg - Two 3:10(   Читать дальше...   )Жанр: Harmonic, Euphoric, UpliftingПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF4C0E04D52445DBC877F785464C533D653679B
 ```
 
 https://mybot314.ru/tekegram_catalog/

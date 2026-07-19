@@ -1,3 +1,148 @@
+###  Публикация: 1614760   (1037819) от 25.02.2023
+
+Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (Feat. Thundercat) [00:03:33]
+02. Oil (Feat. Stevie Nicks) [00:03:50]
+03. The Tired Influencer [00:03:31]
+04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615424   (1037586) от 26.02.2023
+
+The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Rainbows Have Ends [00:03:23]
+02. Nothing Can Stop The Sound [00:03:29]
+03. The Light Is about To Change [00:04:25]
+04. Fudge [00:04:31](   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8B1C24B04C47B1BE45067A9635FC44C1505141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442325   (1036942) от 24.01.2021
+
+Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sports! (03:25)
+02. Hasta la Vista (03:42)
+03. Homesick (03:03)
+04. Validation (02:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442320   (1036939) от 24.01.2021
+
+Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas All Over Again (04:20)
+02. Shake Hands With Santa Claus (02:42)
+03. This Is Christmas (03:43)
+04. Christmas Don’t Be Late (01:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616141   (1036742) от 01.03.2023
+
+Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate Well Spent [00:01:02]
+02. Manic Vortex [00:01:56]
+03. Splendor Solis [00:00:10]
+04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616148   (1036739) от 01.03.2023
 
 Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Psych, Stoner>
@@ -601,151 +746,6 @@ August Burns Red - Death Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19847141201596B5234F32D6B3FD34189F61F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622627   (1030051) от 29.03.2023
-
-Senshi - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Reggae Metal, Rap Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall [00:01:47]
-02. Rise Again (feat. Yuzu Natsumi) [00:03:26]
-03. Evil In Dem Eyes (feat. Bushi) [00:03:06]
-04. Chaos In My Soul (feat. Big Chocolate) [00:03:33](   Читать дальше...   )Жанр: Rapcore, Reggae Metal, Rap RockПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C89312356C1A0A340CB1037FDDCB6D0A4E6E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450486   (1029066) от 26.02.2021
-
-The Scarlet Letter - Friss Oder Stirb (1990) [FLAC|Lossless|image + .cue] <Gothic Rock,  New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friss Oder Stirb. (02:46)
-02. Tanz Der Vampire. (03:14)
-03. In Memoriam. (04:32)
-04. Nachtfrost. (03:28)(   Читать дальше...   )Жанр: Gothic Rock,  New WaveПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE43CB78185ED5B06956FD7FB379CB7213C6537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450310   (1029036) от 26.02.2021
-
-Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Dream Of Armageddon? [00:01:38]
-02. Black Lungs [00:03:51]
-03. Giving Blood [00:03:32]
-04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DBB809115B942647F1B02AB2D8C680C1ECF8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450332   (1029024) от 26.02.2021
-
-Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hand of God [00:05:16]
-02. Old Time [00:05:16]
-03. Carnage [00:04:47]
-04. White Elephant [00:06:08](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98443B75E60FA8CA7AF1D6BD0F3E899154FB7EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452522   (1027779) от 06.03.2021
-
-Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves (5:30)
-02. In The Den (6:45)
-03. Desert Rambler (9:01)
-04. Step Into You (4:04)(   Читать дальше...   )Производство: Earth Analog Records – EAR-005Жанр: Space Rock, Post Rock, Shoegaze, Post MetalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

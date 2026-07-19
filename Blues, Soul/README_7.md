@@ -1,3 +1,61 @@
+###  Публикация: 1011575   (796404) от 28.04.2016
+
+The Naughty Blokes - We Rise (2016) [MP3|320 кб/с] <British Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Attack (03:41)
+02. Move You (03:30)
+03. Tenderly Loved Woman (05:31)
+04. Constantly (04:02)(   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEB78E6D31B962AFC342C0C0718ED070A139E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011833   (795632) от 29.04.2016
+
+Troy Brooks - All I Need (2013) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally Found the One (03:40)
+02. Dirty Weather (02:59)
+03. All I Need (03:34)
+04. Country Songs (02:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E606A7C2F7932D57666C270D9E8CB44E2B44A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509210   (795544) от 11.11.2021
 
 Gov't Mule - Heavy Load Blues (2021) [MP3|320 Kbps] <Blues>
@@ -687,64 +745,6 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6221A16647A409B18A3027FA1A9EE98825C1B101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204355   (784980) от 05.02.2018
-
-Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rise Above 5:12
-02. Power Man 3:11
-03. Keep The Rock Alive 3:37
-04. Climbing The Ladder 6:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204435   (784960) от 05.02.2018
-
-Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Train O'Mine 2:58
-02. Rolling on a Log 4:21
-03. The Turning Point 4:14
-04. The Nietzsche Lounge 3:45(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E8E8B78B852DC4A25E825F6BCC7922CF30A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

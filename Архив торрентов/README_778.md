@@ -1,61 +1,3 @@
-###  Публикация: 1374050   (876914) от 08.04.2020
-
-Nicky Romero - Saturday Sessions@Don't Let Daddy Know (2020) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicky Romero vs. David Guetta & Sia - Duality vs. Bang My Head (Nicky Romero Mashup) (Intro Edit)
-02. Dimitri Vegas & Like Mike vs. Nicky Romero - Here We Go (Hey Boy, Hey Girl)
-03. Nicky Romero vs. Axwell & Sebastian Ingrosso & Steve Angello & Laidback Luke & Bottai - Novell vs. Leave The World Behind (Nicky Romero Mashup)
-04. David Guetta (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8166A0EEB4DA279A56939DF11D12E2EAE8D40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373374   (876909) от 08.04.2020
-
-Timmy Trumpet - Live From Sydney, Australia 2020-04-05 [MP3|320 Kbps] <Electro House, Hardstyle, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timmy Trumpet - Diamonds
-02. Blink-182 - All The Small Things
-03. Zombie Nation - Kernkraft 400 w/Chardy & Kronic - S.W.A.T. Team (Everybody Fucking *Beep* Jump Acappella) w/Vegas - Answer From The Stars (Vini Vici & Bizzare Contact Remix)
-04. The M Machine - Luma w/MEDUZA ft. GOODBOYS - Piece Of Your Heart (Dr Phunk Remix)(   Читать дальше...   )Жанр: Electro House, Hardstyle, Progressive HouseПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557D49E62A1A517260662310F8B51AD899BC3476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373980   (876899) от 08.04.2020
 
 Iridient Developer 3.3.11 [En]
@@ -691,6 +633,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D0479B17D6110BE721C603A047DAEF017BFB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103546   (876754) от 17.02.2017
+
+Биатлон. Чемпионат Мира 2017. Хохфильцен (Австрия). Мужчины. Спринт 10 км (11.02.2017) IPTV [H.264/1080p-LQ][RU,EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876754.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2017 года, суббота. 16:45 МСК
+Чемпионат Мира 2017. Хохфильцен (Австрия)
+Мужчины. Спринт 10 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: 1. Русский,   2. АнглийскийПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347581D08036373AD9DD1F782E1C14D6FAC62191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105380   (876753) от 17.02.2017
+
+Биатлон. Чемпионат Мира 2017. Хохфильцен (Австрия). Мужчины. Индивидуальная гонка 20 км (16.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876753.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 февраля 2017 года, четверг. 16:30 МСК
+Чемпионат Мира 2017. Хохфильцен (Австрия)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский,   2. ИнтершумПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFF47EF31E230C2EBAE1702B51519692C2C6943
 ```
 
 https://mybot314.ru/tekegram_catalog/

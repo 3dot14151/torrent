@@ -1,3 +1,90 @@
+###  Публикация: 923347   (564504) от 31.07.2015
+
+U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride
+02. Days Of Hope And Glory
+03. Cut Me Out
+04. Trainride In Russia (Poezd Po Rossii)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923099   (564405) от 31.07.2015
+
+Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dein retter
+ 02. Alles aus liebe
+ 03. Jetzt oder nie
+ 04. Als waer's das letzte mal(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB50092F557E6E7704429576548342B686083CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304575   (563977) от 26.05.2019
+
+Orion Child - Continuum Fracture (2019) [MP3|320 Kbps] <Power Metal, Melodic Death Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Long Time Ago... [2:09]
+ 2 - The Arrival Gate [4:47]
+ 3 - Nuclear Horizons [5:37]
+ 4 - Collective Soul Warp [0:38](   Читать дальше...   )Жанр: Power Metal, Melodic Death Metal, Dark MetalПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434F54A9405436E4EBBAF82AD09C81C991E310E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556119   (563410) от 07.06.2022
 
 Azken Auzi - Azken Auzi (2022) [MP3|320 Kbps] <Sludge Doom Metal>
@@ -655,93 +742,6 @@ Enforcer - Zenith (2019) Japanese Edition [MP3|320 kbps] <Heavy Metal, Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8373196F2FBC8B5FEEC146C0768EEB1D40C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305905   (556130) от 01.06.2019
-
-Amon Amarth - Berserker (2019) Japanese Edition, 2CD [MP3|320 kbps] <Melodic Death Metal, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556130.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 | Fafner's Gold | 05:01
-02 | Crack The Sky | 03:50
-03 | Mjolner, Hammer Of Thor | 04:43(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 02:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57885EF75AF5E7CF504954869A6E88C22FE57438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306901   (555360) от 07.06.2019
-
-Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naive Voices (04:07)
-02. My Religion (03:42)
-03. Face of a Ghost (03:22)
-04. The Spiral (feat. Jenna Kate Brown) (03:51)(   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A2EAE4369E34F9649B77AD551DDEEDDC38D320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306903   (555359) от 07.06.2019
-
-Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disheartened Song (03:24)
-02. Black Clover (04:22)
-03. Solitude (03:54)
-04. Til The Day We Die (03:58)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841F29B2380CC4D8002EE38F7C9A9DF18F4A95CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

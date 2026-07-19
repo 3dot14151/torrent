@@ -1,3 +1,32 @@
+###  Публикация: 1162476   (459152) от 01.09.2017
+
+Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 [MP3|320 Kbps] <Electronic, Reggae, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get On Up And Dance (4:02)
+02. Ninos De La Playa (3:06)
+03. Marinero (3:30)
+04. Mandela (4:47)(   Читать дальше...   )Жанр: Electronic, Reggae, Pop, DiscoПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321446   (458937) от 24.08.2019
 
 Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
@@ -718,35 +747,6 @@ Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EBA77D82B27B34876A7D30023AEDF9505EA6CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410190   (438228) от 20.09.2020
-
-VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Doubt - Don't Speak (04:22)
-02. Vanilla Ice - Ice Ice Baby (04:29)
-03. 4 Non Blondes - What's Up? (04:55)
-04. 3 Doors Down - Kryptonite (03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
 ```
 
 https://mybot314.ru/tekegram_catalog/

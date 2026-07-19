@@ -1,32 +1,3 @@
-###  Публикация: 1210710   (778514) от 04.03.2018
-
-HollySiz - Rather Than Talking (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unlimited (02:51)
-02. Rather Than Talking (04:16)
-03. Karma (02:46)
-04. Love is a Temple (03:24)(   Читать дальше...   )Жанр: Indie Pop, Synth-PopПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD84A1ACA596CAE119BE1D17E4BDFA6E0A3F353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277900   (775095) от 22.01.2019
 
 John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossless|tracks + .cue] <New Wave, Lo-Fi>
@@ -743,6 +714,35 @@ VA - Hungarian Synthwave Allstars Vol. 3 (2017) Summer Edition [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E935B748D4426C793ECD29B0F2916317E87C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528599   (734434) от 02.02.2022
+
+VA - Hungarian Synthwave Allstars Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quixotic - Escape from Budapest (3:40)
+02. The Neon Droid - Sonny's Justice (6:36)
+03. Lazerpunk! - Nightcrawler (5:01)
+04. Retroxx - Insane (4:10)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED9702CCB9F24F053881DDA96CB9CE2DA9CC5C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

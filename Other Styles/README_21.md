@@ -1,3 +1,177 @@
+###  Публикация: 983524   (943937) от 06.02.2016
+
+John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gift [04:41]
+02. Beckoning [04:29]
+03. The Gathering [06:07]
+04. Solace	[04:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40306704EA7F27B2FE06C89D16303B0B835E7077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983138   (943609) от 06.02.2016
+
+Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs. Robinson (03:52)
+02. For Emily, Whenever I May Find Her (live) (02:26)
+03. The Boxer (05:11)
+04. The 59th Street Bridge Song (Feelin' Groovy) (live) (01:51)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1068B7EB6B30644598AF92FBD4EE88B4FC09C3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091512   (943012) от 09.01.2017
+
+Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nanna
+02. Rosmerta
+03. Sulis
+04. Habonia(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6E4BA6C567E6294F54DBBBBEA3DB58A2012313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091091   (942992) от 09.01.2017
+
+Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nine Lives [00:04:35]
+02. Seven Veils [00:04:50]
+03. Women of Avalon [00:05:44]
+04. Breathing Room [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DD06E49A4D6D7856F9A375A717E620BDA3634B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091113   (942736) от 09.01.2017
+
+Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration
+02. Nocturne
+03. Silent Wings
+04. Elan(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4B9BFA284581950FF583078814EAD24DBC475A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363475   (942587) от 28.02.2020
+
+VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942587.jpg" />
+</div>
+
+
+###  Подробнее
+
+|04:19| 01. Eyes Ripping Fire
+|04:47| 02. Dancing Madly Backwards on a Sea of Air
+|04:39| 03. Close Your Eyes
+|04:33| 04. Crimson Lust(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE48BF307169D7180AB085F34A6B604C7684326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363476   (942549) от 28.02.2020
 
 VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Rock>
@@ -572,177 +746,6 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A51AB29778E6B9FE11A5D58223B810AD462FEC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362854   (937739) от 02.03.2020
-
-Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo, Futurewave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Downtempo, FuturewaveПродолжительность: 08:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04094F65A6C918E0C7E3D4A20C7DDBE2B55F8085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092438   (937331) от 13.01.2017
-
-Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La symphonie des vagues [00:06:44]
-02. Galway Sunrise [00:05:05]
-03. Foret des druides [00:05:32]
-04. The Dunottar Old Castle [00:07:11](   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D84215CED2A9F86CE7B6E8020DD66CF160F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092727   (937321) от 13.01.2017
-
-Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Raindrops from Heaven [00:04:15]
-02 -  Pitter Patter [00:03:19]
-03 -  Mystical E [00:02:00]
-04 -  Pondering Peacefulness [00:03:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE624EC82EC73EF4ABED21CB93F82EDB3421962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092523   (937238) от 13.01.2017
-
-Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Tesla [00:04:06]
-02 -  Flow [00:04:02]
-03 -  Anime Al Vento [00:02:25]
-04 -  Ninna Nanna Del 21° Secolo [00:03:03](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DB9BB30646540EE5D7BFC02D4850A3B6CA1324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984815   (937154) от 10.02.2016
-
-VA - Бильядрная братия / The Rack Pack (Music From The Mition Picture) (2016) [MP3|128 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Black Dog (5:00)
-02. The Harry J. All Stars - The Liquidator (3:11)
-03. T. Rex - Jeepster (4:10)
-04. Ian Dury & The Blockheads - Hit Me With Your Rhythm Stick (3:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CFE41EAA39230234D96B98C293045195F4CC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364291   (936399) от 03.03.2020
-
-Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To You
-02. Con amore
-03. Tell Him
-04. My Heart Will Go On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

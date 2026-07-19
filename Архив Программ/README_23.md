@@ -1,3 +1,29 @@
+###  Публикация: 1437014   (1042482) от 03.01.2021
+
+Your Universal MultiBoot Installer (YUMI) 2.0.8.2a Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042482.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823FEFFBB4A067FABE519F9D640BEF3F71B1B5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437041   (1042474) от 03.01.2021
 
 WinExt Pro 13.0 b.062 (ключ COMSS) [Multi/Ru]
@@ -647,32 +673,6 @@ qBittorrent - бесплатный, мощный и удобный в работ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12826B5F11CD242B628AF652045DFC8C8403C549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437293   (1042235) от 04.01.2021
-
-K-Lite Codec Pack 15.9.6 beta Mega/Full/Standard/Basic [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042235.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B5467162E88BA02FAB5705ED0B65356B95FB85
 ```
 
 https://mybot314.ru/tekegram_catalog/

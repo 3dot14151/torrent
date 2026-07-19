@@ -1,3 +1,32 @@
+###  Публикация: 1585692   (220803) от 23.10.2022
+
+Tau & The Drones of  Praise - 3 Albums (2019-2022) [MP3|320 Kbps] <Psychedelic, Folk, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Is Right To Give Drones & Praise [00:05:48]
+02. The Sixth Sun [00:04:26]
+03. Thunder Thunder Hummingbird [00:04:09]
+04. Na Heiliminti [00:04:00](   Читать дальше...   )Жанр: Psychedelic, Folk, Art RockПродолжительность: 3 CD, 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF573D61AABD323B89E68AACA9ED81E7B27FD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585604   (220781) от 23.10.2022
 
 The Vault - 2 Albums (2019-2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Groove>
@@ -721,35 +750,6 @@ The Cars - американская рок-группа «новой волны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D9B479BCFB2DE831740AF3ED270C4758E4F62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586803   (214838) от 28.10.2022
-
-Bon Jovi - Lost Highway (2007) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Highway
-02. Summertime
-03. (You Want To) Make A Memory
-04. Whole Lot Of Leavin'(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75348DFB80202A61C770EC406D56E25A1E750928
 ```
 
 https://mybot314.ru/tekegram_catalog/

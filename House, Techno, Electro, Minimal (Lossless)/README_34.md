@@ -1,3 +1,177 @@
+###  Публикация: 1227619   (644885) от 27.05.2018
+
+Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of Us (05:01)
+ 02. I Close The Door (feat. Irina Makosh) (05:51)
+ 03. Never See Me Cry (feat. Irina Makosh) (06:15)
+ 04. Regrets (feat. Irina Makosh) (07:01)(   Читать дальше...   )Жанр: Downtempo, Tech House, MinimalПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142139   (644711) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz - Shed a Light (Extended Version) [05:05]
+02 Robin Schulz - Shed A Light (MOTi Remix) [04:31]
+03 Robin Schulz - Shed A Light (HUGEL Remix) [04:31]
+04 David Guetta - Shed A Light (Oliver Moldan Remix) [04:55](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142142   (644603) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shed A Light (MDZN Remix) [03:27]
+02 - Shed A Light (Mosimann Remix) [06:02]
+03 - Shed A Light (Heyder Remix) [03:39]
+04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 137923   (644397) от 03.04.2022
+
+Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You 3:31
+02. Under Control 4:04
+03. Strange Things 4:16
+04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292817   (643291) от 31.03.2019
+
+Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutant Disco (7:00)
+ 02. Mutant DX (5:40)
+ 03. Mutant Romance (6:45)
+ 04. Mutant Pulse (8:45)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB43C79372C4B53C2D247401659E4E7005F4CC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906759   (641617) от 10.06.2015
+
+VA - Club Sounds Presents Bodybangers - Bang the House (2015)2CD[FLAC|Lossless|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Bodybangers - Pump Up The Jam (3:07)
+02 Dr. Alban - It’s My Life 2014 (Bodybangers Remix Edit) (3:33)
+03 Dj Antoine - Light It Up (Bodybangers Remix Edit) (3:41)
+04 Jam & Spoon Feat. Plavka Vs. David May & Amfree - Right In The Night (Bodybangers Remix Edit) (3:32)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761F580B3D03CBAD1DC9F3F559555DA4C4C08C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293043   (641293) от 01.04.2019
 
 Toki Fuko - Archives (2019) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
@@ -570,180 +744,6 @@ Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144367   (627748) от 22.06.2017
-
-Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627748.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (02:16)
-2. Between No Words (05:09)
-3. Want Be (04:00)
-4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144373   (627744) от 22.06.2017
-
-VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627744.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ultrasound - Energy (original mix) (08:23)
-2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
-3. Stergios - Regeneration (Sunshine mix) (08:15)
-4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144357   (627742) от 22.06.2017
-
-Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Moment (06:40)
-2. Return To Nightfall (06:49)
-3. Whispers (06:57)
-4. Clouds (06:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144421   (627613) от 22.06.2017
-
-Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exhaust (06:57)
-2. Disco Balls (07:03)
-3. Happy Feet (06:38)
-4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294505   (627320) от 08.04.2019
-
-Imperfect - Flow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks, IDM, Synthwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersion (03:30)
-02. Far away from here (04:00)
-03. New World (03:40)
-04. Gravitational waves (03:03)(   Читать дальше...   )Жанр: Electro, Breaks, IDM, SynthwaveПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518A36F694CB421913ED59CFBE3028CAABA1098D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035593   (626717) от 17.07.2016
-
-WillowMan - Away (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like The Way (Original Mix) [00:06:16]
-02. My Baby Groove (Original Mix) [00:05:47]
-03. Away (Space Flute) (Deep Mix) [00:04:39]
-04. Tonight (Original Mix) [00:05:11](   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B0E66388FA4BE0F7DD6D9964A61D0AA2AB4BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

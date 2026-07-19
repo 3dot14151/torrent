@@ -1,241 +1,3 @@
-###  Публикация: 471867   (83746) от 22.03.2012
-
-Monsters of Metal Vol.8 (2012) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83746.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1
-01 Nightwish — Storytime
-02 Deathstars — Metal
-03 Pain — The Great Pretender
-04 Amorphis — You I Need
-05 Opeth — The Devils Orchard
-06 Lacuna Coil — Within Me
-07 Therion — Kali Yuga Part 3: Autumn Of The Aeons
-08 Leaves Eyes — Take The Devil In Me
-09 Tristania — Year Of The Rat(   Читать дальше...   )Жанр: Heavy / Power /Gothic /Symphonic / Death and more MetalПродолжительность: 03:05:40+03:08:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471786   (83711) от 22.03.2012
-
-Протоиерей Олег Скобля. Московский концерт / Протоиерей Олег Скобля. Московский концерт (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Снег
-2. Клинопись
-3. Нательные крестики
-4. Блудный сын
-5. Ангел хранитель
-6. Господи. Слава Тебе
-7. Господи, Тебе пою
-8. Поиграй в любовь
-9. Небесный ЧеловекЖанр: Православная авторская песняРежиссер: Чирсков АлексейПеревод: ОригинальныйПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471656   (83696) от 22.03.2012
-
-Мегамикс Philizz Video YearMix 2012 Vol. 1 Пиратская Вечеринка HD x264 1080p 3,9Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2012! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 54 мин 28 сек (00:54:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470204   (83095) от 19.03.2012
-
-Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria
-02. Silent Night
-03. When A Child Is Born
-04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470281   (83066) от 19.03.2012
-
-Мегамикс Philizz Video YearMix 2011. Пиратская Вечеринка HD x264 1080p 6,64Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 51 сек (00:57:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470049   (82932) от 18.03.2012
-
-Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray x264 DTS 1080p 13Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Видеоклипы Digital Musical Rays-Vol 01 20101: Hindi New Songs. И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра Blu-Ray!
-
-Данный релиз для тех, кому не "по карману" оригинал 36,3 Gb: Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray DTSЖанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 53 мин 13 сек (02:53:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469119   (82805) от 18.03.2012
-
-Дядюшкин сон / БДТ им. Товстоногова (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Санкт-Петербургского Большого Драматического театра им.Товстоногова.
-
-В маленький провинциальный городок Мордасов приезжает престарелый богатый князь, которого местная светская "львица" Марья Александровна Москалева решает женить на своей красавице дочери Зиночке, в которую был влюблён Павел Александрович, племянник князя.
-(   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Темур ЧхеидзеПродолжительность: 01:21:04 + 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469028   (82706) от 17.03.2012
-
-UK Top 40 Music Video Hits Febuary 2012 (DVD5)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gotye Feat Kimbra - Somebody That I Used To Know
-02 David Guetta Feat Sia - Titanium
-03 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever)
-04 Jessie J - Domino(   Читать дальше...   )Жанр: Музыка (видеоклипы)Перевод: ОтсутствуетЯзык субтитров: нетПродолжительность: 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468517   (82466) от 16.03.2012
 
 DJ Chris Parker - Space (2012) [H.264/1080p] WEBRip
@@ -724,6 +486,243 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461166   (79558) от 02.03.2012
+
+Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Ринго Старр в США, штат Иллинойс, исполнены хиты со времён Битлов и сольные работы не стареющей рок звезды.
+Издан на BluRay в 2012 году1. It Don't Come Easy
+2. Octopus's Garden
+3. Choose Love
+4. I Wanna Be Your Man
+5. Who Can It Be Now? (featuring Colin Hay)
+6. Don't Pass Me By
+7. I'm the Greatest
+8. Give Me Back the Beat
+9. Memphis in Your Mind
+10. Photograph(   Читать дальше...   )Жанр: RockРежиссер: Image EntertainmentАктеры: Ringo Starr and the RoundheadsПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460062   (79182) от 29.02.2012
+
+Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2012) DVD5 [hand made from Blu-Ray]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
+Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Жанр: Классика,Продолжительность: 01:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457944   (78740) от 27.02.2012
+
+Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: DVD VideoПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458841   (78735) от 27.02.2012
+
+Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный клип на композицию Emma Hewitt - Colours (Armin van Buuren Remix)Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458167   (78394) от 25.02.2012
+
+NikitA - Машина (2009) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456559   (78214) от 24.02.2012
+
+Deep purple - Machine Head Live 1972 (1999) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456492   (78198) от 24.02.2012
+
+Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78198.jpg" />
+</div>
+
+
+###  Подробнее
+
+"The Ultimate Ozzy" записанно во время концертов американского тура в поддержку альбома "The Ultimate Sin",кстати,"разогревали" группу OZZY в том американском туре молодые "Metallica", которые очень понравились Осборну...Довольно редкое видео, молодой OZZY в свои самые лучшие времена.01. Shot In The Dark
+02. Bark At The Moon
+03. Suicide Solution
+04. Never Know Why
+05. Mr.Crowley
+06. I Don't Know
+07. Killer Of Giants
+08. Guitar Solo \Jake E.Lee\
+09. Thank God For The Bomb
+10. Lightning Strikes(   Читать дальше...   )Жанр: Hard Rock\MetalПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455499   (78191) от 24.02.2012
+
+VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Narcotic Sound and Christian D - Danca Bonito
+02 Blank And Jones feat Bobo - Perfect Silence
+03 NikitA - Bite
+04 David Deejay - Perfect 2
+05 Dj.Sava feat Andreea D and Yolo - Money Maker
+06 Klaas and Bodybangers - Freak
+07 Dev - In The Dark
+08 Outwork feat Mr. Gee - Elektro
+09 Dj.Flower - Jamaican Love
+10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

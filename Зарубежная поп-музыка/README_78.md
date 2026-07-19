@@ -1,3 +1,32 @@
+###  Публикация: 1432785   (161991) от 19.12.2020
+
+VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - I Want To Know What Love Is 4:58
+02. Roxette - It Must Have Been Love (Edit) 4:19
+03. All-4-One - I Swear 4:20
+04. Percy Sledge - When A Man Loves A Woman 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432717   (161958) от 19.12.2020
 
 VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chans
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA62931009E03362314DCE4921BD177DA211CCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194242   (155980) от 25.12.2017
-
-Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Be Gone (04:42)
-02. Secret (04:52)
-03. Before the Day (04:23)
-04. Comin' Home (03:31)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56F2588F8134E1443D76919023B69192D2873DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

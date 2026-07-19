@@ -1,3 +1,148 @@
+###  Публикация: 1369598   (902118) от 24.03.2020
+
+Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [7:02]
+02. Mozambique [7:09]
+03. Autumn Leaves [7:25]
+04. Close Your Eyes [5:25](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC27B49C6DD65C83DA2FE575EAEF337463B0A4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100106   (901903) от 03.02.2017
+
+Morten Schanz - Godspeed (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence in the Tempest, Pt. I
+02. Godspeed
+03. Escape Velocity
+04. Growing Sense(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21406C0764E0FF8677E003F9E2DB2B58EC2FDAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100064   (901546) от 03.02.2017
+
+Rumer - The Magic of Sarah Joyce (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Sebastian's Girl (3:52)
+02. Aretha (3:17)
+03. Welcome Back (3:36)
+04. Slow (3:36)(   Читать дальше...   )Жанр: Vocal Jazz, Pop, SoulПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D192C462943F1C2CFF3D0FB1EE94EDE5D520DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100056   (901490) от 03.02.2017
+
+Eight O'Five Jive - Swing Set (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jump Blues, Swing, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Mine A Double
+02. Ragged
+03. Get Away
+04. Put It Back(   Читать дальше...   )Жанр: Jump Blues, Swing, Female VocalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E1FB4816090AAEB99F28F32B3A5E08C150CC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100123   (901130) от 03.02.2017
+
+Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901130.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.MMMbop (feat. Kenton Chen, Luke Edgemon, Matt Bloyd & Mario Jose) (3:39)
+2.Toxic (feat. Melinda Doolittle) (4:47)
+3.Dancing In the Dark (feat. Von Smith) (3:30)
+4.Black Hole Sun (feat. Haley Reinhart) (4:31)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5955034A1974473B7DBD2CE2E376CF298E875386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992472   (901127) от 02.03.2016
 
 "Big" John Patton - Blue John (1963) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -346,64 +491,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370087   (898544) от 26.03.2020
-
-Billy Cobham - Compass Point (2013) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_898544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Snaffler (11:28)
-02. Fragolino (8:01)
-03. Mushu Creole Blues (10:15)
-04. Egg Shells Still On My Head (9:10)(   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A07B466F964D3F0C5833D0F14F2E87AAA0A871A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370221   (898479) от 26.03.2020
-
-Various - Electro Swing II (2009) [FLAC|Lossless|image + .cue] <Electronic, Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_898479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wax Tailor Feat A.S.M. - Say Yes
-02. Gabin - Doo Uap, Doo Uap, Doo Uap
-03. Nekta - Here's Us
-04. Caravan Palace - Dragons(   Читать дальше...   )Жанр: Electronic, Electro Swing, JazzПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516E58BCF8F3DC7741CDEA4285FE2F91D632CFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101015   (898116) от 05.02.2017
 
 Quad - El Bizonte Escapado (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Free Jazz>
@@ -607,65 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370532   (897041) от 27.03.2020
-
-Klement Julienne - Panamerican (2006) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_897041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin
-02. Medecine Man
-03. Possoz Boogie
-04. Jeriko(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5244E5AE73156E5DCEF91247F73972F3CA7ABFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370424   (896919) от 27.03.2020
-
-Dee Dee Bridgewater - J'ai Deux Amours (2005) [FLAC|Lossless|image + .cue] <Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_896919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ди Ди Бриджуо́тер (англ. Dee Dee Bridgewater, настоящее имя — Де́ннис Га́ррет, род. 27 мая 1950, Мемфис, Теннесси, США) — американская джазовая певица, одна из лучших джазовых вокалисток своего поколения.
-Является обладательницей двух премий «Грэмми» (1998, 2011) и премии «Тони» (1975). Некоторое время жила во Франции. Именно Франция по-настоящему (   Читать дальше...   )01. J'ai Deux Amours
-02. La Mer (Beyond The Sea)
-03. Ne Me Quitte Pas
-04. Mon Homme (My Man)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AEC0C0DBA1E142A5A928040C4D2C80944FA3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101308   (896425) от 06.02.2017
 
 VA - Jazz at Picasso (2008) Live Jazz in Kiev [FLAC|Lossless|image + .cue] <Mainstrim Jazz, Contemporary Jazz, Instrumental Jazz>
@@ -717,35 +745,6 @@ Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:055CFE903DC703870FC1898BB69F4A10CE6E1A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101226   (896422) от 06.02.2017
-
-Art Farmer & Fritz Pauer - Azure (1987) Soul Note[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If You Could See Me Now [04:41]
- 02.Nighttime [04:01]
- 03.Yesterday's Thoughts [05:01]
- 04.Blue Windows [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A73BABE56679EA0FE63B101F7B11BBB3F18A4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

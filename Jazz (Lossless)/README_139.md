@@ -1,119 +1,3 @@
-###  Публикация: 1039910   (594796) от 02.08.2016
-
-Charlie Mariano Quartet - Portrait Of France (2002) [FLAC|Lossless|tracks] <Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Mer    04:40
-02. C'est Si Bon    05:48
-03. Les Parapluies De Cherbourg    05:17
-04. La Vie En Rose    04:42(   Читать дальше...   )Жанр: Jazz, BopПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C58B670984062669CBA3BBA6D99063F3115213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039509   (594794) от 02.08.2016
-
-Sonny Stitt Quartet With Don Patterson - Low Flame & Feelin's (1962) 2013, Essential Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Low Flame [05:00]
- 02.Put Your Little Foot Right Out [05:26]
- 03.Cynthia Sue [06:03]
- 04.Donald Duck [04:41](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56795C2CC97E5D25690C54CA21E22B268DE9A56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039480   (594793) от 02.08.2016
-
-Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Got That Feeling! [04:55]
- 02.Pow-Wow [02:42]
- 03.(In The) Wee Small Hours (Of The Morning) [03:22]
- 04.Big John Grady [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89740EA90D976DCC1257BD050C5DEAD9733A20DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039752   (594706) от 02.08.2016
-
-Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594706.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Black And Tan Fantasy [03:29]
-02.East St Louis Toodle-Oo [03:09]
-03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233167   (594052) от 28.06.2018
 
 Bill Perkins Quintet featuring Victor Feldman - Quietly There (1966) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -745,6 +629,122 @@ Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550910   (591237) от 13.05.2022
+
+Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meddler [8:31]
+02. Ode to Ray [6:10]
+03. Whims of the Bluebird [10:09]
+04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551089   (590784) от 14.05.2022
+
+Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944) 2CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590784.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Boogie Woogie Stomp [3:38]
+02. Chicago In Mind [4:03]
+03. Suitcase Blues [3:52](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 02:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F785AB0201367671B5733150257A4B73F52C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916540   (590496) от 09.07.2015
+
+Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jazz, Contemporary Jazz, Jazz fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Jon Jon [06:28]
+02. Pain [07:27]
+03. Peyotl [08:10]
+04. Moods [06:18](   Читать дальше...   )Жанр: Jazz, Contemporary Jazz, Jazz fusionПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A2F24E5ECAE86EC450C45C9403042B49A3750A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551264   (590246) от 15.05.2022
+
+Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Island [4:52]
+02. Three [4:19]
+03. Rue de la Vega [5:26]
+04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 527323   (576212) от 26.07.2012
+
+Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: pop, poprock, disco, blue-eyedsoul, softrockПродолжительность: 00:52:29
+
+ 01. This Is Where I Came In 04:56
+ 02. She Keeps On Coming 03:57
+ 03. Sacred Trust 04:53
+ 04. Wedding Day 04:43
+ 05. Man In The Middle 04:21
+ 06. Deja Vu 04:19
+ 07. Technicolor Dreams 03:04
+ 08. Walking On Air 04:05(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554232   (575776) от 31.05.2022
 
 Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
@@ -751,35 +786,6 @@ Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044629   (565338) от 20.08.2016
-
-Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All In The Bible (3:11)
-02. Down The Bayou (3:06)
-03. Rain, Snow And Ice (2:47)
-04. Honolulu (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, PopПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

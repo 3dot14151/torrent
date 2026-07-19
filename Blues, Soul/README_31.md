@@ -1,3 +1,61 @@
+###  Публикация: 953564   (346967) от 05.11.2015
+
+The Sportin' Lifers - Cigars, Billiards, Lunches (2015) [OGG| 479-544 кб/с]<Blues, Rhythm & Blues, Boogie Woogie, Swing>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Idea
+02. (I've Got a Longing) in My Heart
+03. Count On Me Baby
+04. Born At Night(   Читать дальше...   )Жанр: Blues, Rhythm & Blues, Boogie Woogie, SwingПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A44FAEB4ABD98DDE85D350F60E1FE7A48B130A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953524   (346712) от 05.11.2015
+
+Black Cat Bone - Growl (2015) [MP3|320 кб/с]<Blues Rock, Dirty Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growl
+02. Move On
+03. Remiss
+04. Punks And Pushers(   Читать дальше...   )Жанр: Blues Rock, Dirty BluesПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83813DF21E41C399BB79C72F0C05F37CE896FE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953797   (344765) от 06.11.2015
 
 Amos Milburn - Blues, Barrelhouse & Boogie Woogie: 1946-1955 (1996) [MP3|320 кб/с]<Blues>
@@ -687,64 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A5F971A6B3FB8F56F79A206C0811FE7A8FD48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258842   (333039) от 01.11.2018
-
-Giles - Dancing With Dolores (2006) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (05:20)
-02. Freedom (04:40)
-03. Letter To Bush (04:06)
-04. Fallen Angel (02:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9B3666D48D4BFE0B5124FC725DE33C82C90181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258885   (333033) от 01.11.2018
-
-Janie Cribbs & The T.Rust Band - Queen Of Fire (2018) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Fire (05:04)
-02. No Shelter (04:59)
-03. One Of These Days (05:00)
-04. Wouldn't Change A Thing (05:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C40D8D23752B4EE01FE7D9DEF81A76CC98E915
 ```
 
 https://mybot314.ru/tekegram_catalog/

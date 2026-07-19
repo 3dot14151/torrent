@@ -1,3 +1,32 @@
+###  Публикация: 1110292   (853735) от 02.03.2017
+
+Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrossover, Pop-art, Progressive>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (3:28)
+02. No Man's Land (5:48)
+03. Shine On (4:54)
+04. You Didn't Fall (4:35)(   Читать дальше...   )Жанр: New-Age, Сrossover, Pop-art, ProgressiveПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000891   (852107) от 29.03.2016
 
 John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -708,35 +737,6 @@ Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCD70DE05449FC0B1B4C71A5CC16BE8220B6E232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114700   (832069) от 15.03.2017
-
-Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face
-02. Melancholy Morning
-03. Love's Light
-04. With You, in Spirit(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600AAEC338D93BBA4D451536ABB903BA6341921
 ```
 
 https://mybot314.ru/tekegram_catalog/

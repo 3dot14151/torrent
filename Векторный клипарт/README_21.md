@@ -1,115 +1,3 @@
-###  Публикация: 1291806   (652607) от 26.03.2019
-
-Векторный клипарт - Vector Circus Collection #12 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цирк
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4940CAE07F2E09C8D6147A76DDE3173F8A9238C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291815   (652605) от 26.03.2019
-
-Векторный клипарт - Vector Easter #09 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Пасха
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948493D85E8E58812B4CAD3A806D623B9A66315C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291825   (652604) от 26.03.2019
-
-Векторный клипарт - Vector Fairy Collection #33 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6A3027670A5A1614186A4B476D90E500BF4BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291822   (652603) от 26.03.2019
-
-Векторный клипарт - Vector Fairy Collection #32 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E5557C119D8D7A4BBC1A99A79833C4BC547EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291826   (652602) от 26.03.2019
 
 Векторный клипарт - Vector Fairy Collection #34 [AI]
@@ -717,6 +605,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CEA64153B30B86E4E52BBE2DDA9DC3F7D74760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291943   (650601) от 27.03.2019
+
+Векторный клипарт - Vector Spring Collection #04 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Весна
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAB7A3088D78D2486259D1DD090EB72BC4E2CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291941   (650597) от 27.03.2019
+
+Векторный клипарт - Vector Mushroom #02 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Грибы
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5D868808D8E2817FEEADBB94975C86EBC4EAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291947   (650511) от 27.03.2019
+
+Векторный клипарт - Vector Spring Collection #08 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Весна
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B80612EDDC5A8E31C964A61944E409F66594B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291948   (650507) от 27.03.2019
+
+Векторный клипарт - Vector Travel Collection #07 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Туризм
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143582DC7ECD6EC7A6A7FAAFDB05479ABC0532A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

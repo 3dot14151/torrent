@@ -1,3 +1,204 @@
+###  Публикация: 1493479   (895374) от 03.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
+02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
+03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-pop, HouseПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF46639835DA925FF5539576442D53952FF5DAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992954   (895232) от 05.03.2016
+
+VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of The Rising Sun-Animals (04:30)
+02. Wind Of Change-Scorpions (05:13)
+03. Hotel California-Eagles (06:32)
+04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493796   (893855) от 04.09.2021
+
+Smokey - Alice, Who The F*** Is Alice (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokey - Living Next Door To Alice (3:31)
+02. Smokey - Something's Been Making Me Blue (3:04)
+03. Smokey - It's Your Life (3:38)
+04. Smokey - If You Think You Know How To Love Me (3:30)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ED0AA0CFB37DC84058B5763BD5539F80A1708E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493739   (893680) от 04.09.2021
+
+ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You [00:05:10]
+02. Don't Shut Me Down [00:03:58]Жанр: PopПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739353961066D076F51F7C12B318E8F65B675C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370671   (893513) от 29.03.2020
+
+Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxbow (02:53)
+02. Can’t Do Much (03:44)
+03. Fire (03:37)
+04. Lilacs (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869177   (892594) от 14.02.2015
+
+VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне приходилось уже выкладывать из этой серии диск из своей коллекции (помнится купленный по случаю за границей). И диск заезжен у меня до дыр. Именно поэтому слежу за появлением новых релизов из этой серии. И Вам рекомендую.CD1:
+01. Omi - Cheerleader (Felix Jaehn Remix)  (3:02)
+02. David Guetta ft. Sam Martin - Dangerous  (3:25)
+03. Anouk & Douwe Bob - Hold Me  (3:51)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493948   (892323) от 05.09.2021
+
+Engelbert Humperdinck - Forgotten Promises [1967 – 1975] (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song (La Paloma)
+02. Born To Be Wanted
+03. That Promise
+04. Pretty Ribbon(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C3305A14E3729668FCA8F93820343A85E4DAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994420   (891574) от 07.03.2016
 
 Johnny Hates Jazz - Tall Stories (1991) [FLAC|Lossless|image + .cue] <Pop Rock, Downtempo, Synth-Pop>
@@ -540,207 +741,6 @@ VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103420   (885808) от 12.02.2017
-
-Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je te suivrai
-02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372505   (885618) от 03.04.2020
-
-Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Direct Sunlight (03:27)
-02. I Feel Alive (02:34)
-03. Pirouette (03:06)
-04. Ballads & Sad Movies (03:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372526   (885456) от 03.04.2020
-
-Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Sleep (04:36)
-02. Party's Over (02:42)
-03. Jacket (03:36)
-04. So I Can See (03:22)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372093   (885401) от 03.04.2020
-
-P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop RockПродолжительность: 01:01:24Трэклист: 01. Stupid Girls
-02. Who Knew
-03. Long Way To Happy
-04. Nobody Knows(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995172   (884611) от 11.03.2016
-
-Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01, Winds Of Chance
-02. You Don't Die From Love
-03. Love Once
-04. Born Blue(   Читать дальше...   )Жанр: Pop, Synth-pop, Pop RockПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F360FF45CD9FFF547B1702E7E3FD6140056B11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870781   (884443) от 19.02.2015
-
-Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California (3:00)
-02. Leave a Light On (live) (4:40)
-03. Live Your Life Be Free (live) (5:18)
-04. Heaven is a Place on Earth (live) (4:24)Жанр: Pop RockПродолжительность: 00:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9D3003D5CDDE9E7863306BEAEC83168A617317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995267   (884399) от 11.03.2016
-
-Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный и единственный альбом!01. Stay With Me Tonight
-02. I Just Can't Wait
-03. Victim Of Pleasure
-04. Duel(   Читать дальше...   )Жанр: Europop, Synth-PopПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDF856943C5045E3F0BBA4FFB449167D2E1E4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

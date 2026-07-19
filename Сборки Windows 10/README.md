@@ -1,4 +1,251 @@
 https://t.me/izofen
+###  Публикация: 1881836   (1077261) от 
+
+Windows 10 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2026.07.15 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077261.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 редакций Windows 10 x64 (русские и английские) с обновлениями по июль 2026, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
++6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA55408D4BAABE3A7CE251B9FCB8255718BEB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881945   (1077190) от 
+
+Windows 10 22H2 x64 by OneSmiLe [19045.7548] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 15.07.2026
+Удалены все модерн приложения(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2A1F677C04BC12EB3758FA0AC948B6BA23E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1882059   (1077117) от 
+
+Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 07.2026 by OVGorskiy
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077117.jpg" />
+</div>
+
+
+###  Подробнее
+
+немного настроенные, обновленные и максимально приближенные к оригинальным русским образам ОС "Windows® 10™" от Microsoft 64-х бит. разрядности и разных  редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые, почти "чистые", почти не модифицированные образы ОС Windows 10 Pro, Home и (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18333AE2664704EF94E0DAD6FBA0542DC79F869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881637   (1077051) от 
+
+Windows 10 x64 16in1 +/- Office 2024 x64 by SmokieBlahBlah 2026.07.10 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077051.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 редакции Windows 10 x64 (русские и английские) с обновлениями по июнь 2026, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
++4 такие же редакции со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459A85D98006935626E58C3B09BA5A2862798B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881187   (1076538) от 
+
+Windows 10 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2026.07.10 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076538.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 редакций Windows 10 x64 (русские и английские) с обновлениями по июнь 2026, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
++6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4760EDD1746270530BE0A21D45811739ECF732B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880627   (1076123) от 07.07.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v32 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.7417.260606-1643.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CE90E5E664DB6D213F664534BAA1D696F31FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880631   (1076122) от 07.07.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v32 (esd) [En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.7417.260606-1643.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2F8BC0901F23FFC3A6864FFBD59EFA752138AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880198   (1076009) от 05.07.2026
+
+Windows 10 Professional 22H2 x64 Game OS 1.8 by CUTA [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка была сделана из образа consumer edition - Microsoft Windows 10.0.19045.4412 Version 22H2 - Оригинальные образы от Microsoft MSDN.
+Данная сборка прежде всего создавалась как игровая. Это подразумевает максимальное освобождение ОС от стандартного набора приложений и служб, и настройка на производительность в ущерб энергосбережению. Также она удобна в плане установки (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9A32EF7C4B8361D975E611D9C969434BF8E61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879544   (1075443) от 02.07.2026
+
+Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (06.2026) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 v22H2 19045.7417 и Windows 10 Корпоративная LTSC v21H2 19044.7417, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 06.2026, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929B6D26E30C72A5A6EE5C70819ADF2F68FDAD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875757   (1072782) от 
 
 Windows 10 22H2 x64 by OneSmiLe [19045.7417] [Ru]
@@ -470,253 +717,6 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C082E70769834F27634D5A48060782D945D821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852210   (1055810) от 07.02.2026
-
-Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6809.260109-0949.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6912C326FB52A8C0A41972D7C21817BD2F52AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851965   (1055730) от 05.02.2026
-
-Windows 10 3in1 x64 22Н2 (build 19045.6812) by ivandubskoj 04.02.2026 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 10, с отключенной телеметрией, службами, без METR0-приложений и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06BA85DD1D64320FFC497D02DD571D1B230EA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851920   (1055654) от 06.02.2026
-
-Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.04.02.26) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
-
-   Интегрированы важные и рекомендуемые обновления по Октябрь 2025 года.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F250497E05CC5575DE6BF0C401D8348911468F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851353   (1055147) от 11.02.2026
-
-Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Windows Umbrella (v9, 02.2026) [Ru/En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подходит для слабых ПК. Данная ОС подходит для пользователей которые не пользуются онлайн услугами Microsoft.Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD26F572957585301F1970E3E95421B242C7DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848522   (1052978) от 17.01.2026
-
-Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052978.jpg" />
-</div>
-
-
-###  Подробнее
-
-немного настроенные, обновленные и максимально приближенные к оригинальным русским образам ОС "Windows® 10™" от Microsoft 64-х бит. разрядности и разных  редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые, почти "чистые", почти не модифицированные образы ОС Windows 10 Pro, Home и (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C9FFB1549E2DCD5D8E01D12621835856A52CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847837   (1052493) от 16.01.2026
-
-Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Используется лаунчер от ФБ
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
-Установлены обновления по 14.01.2026 года включительно(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2084C44568719A002C1C6432D07490E898F22D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845603   (1050768) от 02.01.2026
-
-Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v22H2 19045.6691 и Windows 10 Корпоративная LTSC v21H2 19044.6691, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 12.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844383   (1050234) от 28.12.2025
-
-Windows 10 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.12.25 [Ru/En]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050234.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 редакций Windows 10 x64 (русские и английские) с обновлениями по декабрь 2025, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
-+6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6401AFEC283D8B40638172447B0C1FAE2E01B0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842962   (1048935) от 20.12.2025
-
-Windows 10 22H2 Compact (19045.6691) by Flibustier [Ru]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048935.jpg" />
-</div>
-
-
-###  Подробнее
-
-● Компактная необновляемая сборка на основе оригинального образа MSDN.
-● Интегрированы все обновления на 17.12.2025 (OS Build 19045.6691).
-● Удалён Windows Defender, Microsoft Edge, OneDrive, все плиточные приложения, бoльшая часть компонентов(см.скриншоты), формат esd.
-● Microsoft Store, .NET Framework 3.5, Visual C++ и DirectX 9.0c, 7-zip (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50433660A2BED8D4886BEDBE20F70535E9C3B76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1700587   (117029) от 17.02.2024
-
-Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memorabilia (Single Version / Remastered 2023) [00:04:49]
-02. A Man Could Get Lost (7" Single Version / Remastered 2023) [00:03:17]
-03. Persuasion (2023 Edit / Remastered 2023) [00:03:35]
-04. Memorabilia (Extended Version) [00:07:46](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700650   (116997) от 17.02.2024
 
 Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, Rock>
@@ -745,6 +716,35 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711692   (112428) от 31.03.2024
+
+Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kozmoz Intro
+02. Refit Your Mind
+03. Predators From Space
+04. Mission Hyperdrive(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0297309D47EBB9CFCED167C0F495F2A97FF9D79
 ```
 
 https://mybot314.ru/tekegram_catalog/

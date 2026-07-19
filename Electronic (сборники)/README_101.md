@@ -1,3 +1,247 @@
+###  Публикация: 1292969   (641357) от 01.04.2019
+
+VA - Music Fop A Bright Dream (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 01-N - Rudra
+002. Allaby - Black Sands
+003. Berg - Big Bang Machine
+004. Brainiac - Computer Brains(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4B034A596F67B684BC7B9112F75C44B7C77981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292952   (641350) от 01.04.2019
+
+VA - Color Club Life (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641350.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ewаn Rill - Mоvе оn
+002. Mаgnеtiс Brоthеrs - Mоrning Fееlings (оriginаl Miх)
+003. Plаtunоff - аutumn In Yоu
+004. Tunеsquаd - Thе сhаnt(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09 :29 :00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27B3B73E339FBF773476FC67D526937D0B4E239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227964   (641207) от 29.05.2018
+
+VA - Terror Hippie - Terror Trip (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trhip - Terror Trip
+02. T.C.N. - Cosmic Desert
+03. Mappler - The Haunting Soul
+04. Onslaught - Baba Yaga(   Читать дальше...   )Жанр: TranceПродолжительность: 09:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A1772AE86DFE8518263DB435FB01342C6C41D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227433   (641205) от 29.05.2018
+
+Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Boom Den
+02. Earth Deep
+03. Moving Shadows
+04. Low Vine(   Читать дальше...   )Жанр: Trip-hop, Bass, JungleПродолжительность: 04:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979F71ED3449BC7E96A316C95508EEFAFB03691F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227962   (641202) от 29.05.2018
+
+VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clark Funspace - Inca (Cut Version)
+002. Misha G, Mixline - All About House Music
+003. Adisyn - Departure  (Original Mix)
+004. Francesco Sambero - Uoy (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484B5AA946F21884A16F7EEBB1B5638489379C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542144   (640974) от 05.04.2022
+
+VA - Trance Urban Party: Euphoric Mix (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный уикэнд нам подарит очередной сборник "Trance Urban Party: Euphoric Mix". Запоминающиеся мотивы, урбанистическая атмосфера, большое разнообразие вокала делают этот лонгплей привлекательным для ценителей динамичной музыки в стиле транса.001. Billy Daniel Bunter - Mind Games
+002. Carher - Relive Love
+003. Airborn & Clara Yates - With You
+004. Milad E & David Deere - Infiltrate(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64105A5FC93AAB1099A9E4BF299A8B2A08270BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518967   (639601) от 05.07.2012
+
+VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance, uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Marcus Maison & Will Dragen - Another Dimension (Original)
+003. Lunar Motion - Aozora (Original Mix)
+004. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+005. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
+006. Michael Jay Parker - Canberra
+007. Juventa - City On Clouds (Original Mix)
+008. Maguire - Face Yesterday (Original Mix)
+009. John Askew - Fade To Black (Sean Tyas Remix)
+010. Mat Zo - Frequency Flyer (Original Mix)(   Читать дальше...   )Жанр: Trance, uplifting TranceПродолжительность: 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430FBC4F08312CFC1BD085588A2F333875F4E26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518702   (639600) от 05.07.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #89 (2012) [MP3|320 кб/с]<Trance , Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) [07:39]
+ 02. Nic Chagall & Duderstadt feat. Relyk - Alone With You [07:42]
+ 03. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit) [03:45]
+ 04. Paki & Jaro feat. Casey Barnes - Because Of You (Original Mix) [03:54]
+ 05. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix) [07:20]
+ 06. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me [07:15]
+ 07. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) [04:25]
+ 08. Tate & Diamond feat. Nicolai - Electrified (Mat Zo remix) [07:12]
+ 09. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix) [06:22]
+ 10. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) [06:14](   Читать дальше...   )Жанр: Trance , Vocal TranceПродолжительность: 03:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54021713CC8DDD8A28CD96C955D8DE040B231CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519024   (639510) от 05.07.2012
 
 VA - Kiss FM - Dance 10 (04.07.2012) [MP3|320 кб/с]<Dance>
@@ -526,243 +770,6 @@ VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA1D4F440F9A401A4AA67B85B3C4BF30B6FB15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033761   (636274) от 12.07.2016
-
-VA - These Are Tuned 235 One Shots (2016) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axizz & Freek vdH ft Lobke Verheyen -  Atlantis 5:21
-002. Blasterjaxx & Justin Prime -  Push Play (Original Mix) 5:05
-003. Armin Van Buuren feat Mr Probz -  Another You (Cid Radio Edit) 2:59
-004. Dimitri Vegas & Like Mike Vs DVBBS & Borgeous -  Stampede (Original Mix Edit) 2:56(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 21:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2268658A934F8C8E4485C6C4EA7F710454A56D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034204   (636273) от 12.07.2016
-
-VA - Lab Of Music: Deep House Sensation (2016) [MP3|320 Kbps] <Deep House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636273.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Million Questions - Sascha Beek
-002. Luck Bravo - Angel
-003. Change the WayЖанр: Deep House, Electro, ClubПродолжительность: 10:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7369520DF53698FA33F356D207B6E08858CAA666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907984   (636255) от 13.06.2015
-
-VA - Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyoto - Mirablis [09:53]
-02. Kuba - Mirror Dance [04:16]
-03. Dhamika - Polyhedron [07:17]
-04. AstroPilot - Homunculus Nebula [09:03](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843FC6017385190879D54CCCA7EDEC65DFE75475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033731   (636147) от 12.07.2016
-
-VA - Record Super Charts # 444 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blasterjaxx -  The Silmarillia (Original Mix) 4:48
-02. Alan Walker & Mikis -  Sing Me To Sleep (Remix) 3:30
-03. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix) 3:18
-04. Calvin Harris feat. Rihanna -  This Is What You Came For 3:42(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF19D5C29513637BCDCBB121DBD1C3071F3C267D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907641   (636046) от 13.06.2015
-
-VA - Vocal Trance Seduction Vol 3 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ira - Constant Invasions (Purelight Radio Edit) (04:36)
-02. Aeris - What Do You Feel (ReLocate Vs. Robert Nickson Banging Radio Edit) (03:11)
-03. Physical Phase - Don't Let Go (Vocal Mix) (09:34)
-04. Ana Criado - Whispers (Somna & Yang Remix) (06:56)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2AC915EF7859C9FF719B1FF092FB7E74B8E42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908077   (635961) от 13.06.2015
-
-VA - Танцплощадка (mixed by Dj Vitalik) (2015) [MP3|320 кб/с]<Disco House, Club House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Валерий Леонтьев - Кружатся диски
-02-Tom Jones - Venus (Alex Menco & Maculya Re-Boot)
-03-DJ Slon - Jimmy
-04-Самоцветы - Все, что в жизни есть у меня (DJ Nejtrino & DJ Baur Remix)(   Читать дальше...   )Жанр: Disco House, Club House, DanceПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781975A0AFF10432DB50F52CF9523226977954EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518938   (635774) от 07.07.2012
-
-VA - Best of In Da Club Vol.18 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Otten - Mushroom Therapy (Armin van Buuren Remix)
-002. Armin vs. M.I.K.E. - Intruder (Original Mix)
-003. Interstate - Remember Me (Shawn Mitiska & Tyler Michaud Remix)
-004. Arctic Quest - Glaze (Original Mix)
-005. Armin van Buuren - Birth Of An Angel (Original Mix)
-006. Ron Hagen & Al-Exander - Now Is The Time (Original Mix)
-007. Fabio XB & Ronnie Play feat. Gabriel Cage - Inside of You (Original Mix)
-008. TyDi feat. Audrey Gallagher - You Walk Away (Original Mix)
-009. Andrew Bennett feat. Sir Adrian - Run Till U Shine (Original Mix)
-010. Myon & Shane 54 - International Departures (Classic Anthem Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED668D5332516BA2688D9964311F0163ED090AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293531   (635672) от 04.04.2019
-
-VA - Soap Buble: Clubbing Electro House (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leonardo Pancaldi - Nothing You Can Save
-002. David Rull - Be Water My Friend
-003. Ant. Shumak - Objective Dream (Original Mix)
-004. Stil & Bense - Serenade(   Читать дальше...   )Жанр: HouseПродолжительность: 10:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9C3D0594B0980B4BE9CAE5C162144B84F5EDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

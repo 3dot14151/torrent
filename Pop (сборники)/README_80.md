@@ -1,102 +1,3 @@
-###  Публикация: 541473   (501318) от 31.08.2012
-
-VA - Радио Новинки Проверенные Качеством 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Элина - Ты Не Мой (Версия 2012)
-02. Pusha T &amp; Kanye West - New God Flow
-03. 3XL PRO - В Объятья Лета
-04. DJ Caren feat. Violet - I Say (La La La) (Radio Edit)
-05. Maga X feat. MiKKi - Этим Летом
-06. Emin - I Should've Known Better
-07. Алексей Матиас - Горянка
-08. Eric feat. K-Brown - Amor (Radio Edit)
-09. Дмитрий Нестеров - Беспосадочный Перелет
-10. Eva - Get Away (French Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAA9009799EA1A4B5A8E421BF281558CACCFCE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541460   (501306) от 31.08.2012
-
-VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жанна Фриске - Навсегда
-002. Анна Семенович - Июльское Лето
-003. Artik pres. Asti - Облака
-004. Paradox Factory - Te Quiero (Русская Версия)
-005. Анна Седокова - Что Я Наделала
-006. All Давай feat. DJ Ihlas - Москва-Дубай
-007. Катя Баженова - Все О Чем Мечтаю
-008. Отпетые Мошенники - Руссо Туристо
-009. Ева Польна - Весь Мир На Ладони
-010. Parfenov &amp; Balkov - Вселенная моя (City Zen 80's old school mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85981C9A7F4AB2BABC7B5FBFA682DBFB8EB9B63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564389   (500587) от 18.07.2022
-
-Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Waiting For?
-02. Silver Spoon
-03. Absolutely Nothing
-04. Friday Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563998   (500509) от 18.07.2022
 
 Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
@@ -813,6 +714,92 @@ VA - Hit-Mix по осеннему (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67AE0081F3A96C18264FDCD86FFBBD107A7D9DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544168   (491586) от 07.09.2012
+
+VA - Big Italian Music Album { Nagy Olasz Slageralbum } (2007-2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Kent & Luisa Fernandez - Solo Por Ti [04:09]
+02. Al Bano - Sempre Sempre [03:46]
+03. Francesco Napoli - Balla Balla 3.Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7DBC686064D7D3896DB0C059B2B2F6B255F368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565422   (490351) от 25.07.2022
+
+Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafina Como Quieras
+02. Kusha Las Payas
+03. Tengo Un Novio Tantriko
+04. Un Blodymary(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565470   (490337) от 25.07.2022
+
+Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Call Me Baby
+02. Strength Of A Woman
+03. Circles Round The Moon
+04. Desire(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 936262   (496155) от 11.09.2015
+
+Hollywood Vampires - Hollywood Vampires (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элис Купер, Джо Перри и Джонни Депп собрали группу Hollywood Vampires в память об одноимённом клубе по интересам 1970-х годов. В дебютный альбом вошли каверы на хиты The Who, Джона Леннона и других оригинальных «голливудских вампиров», а также две новые песни и трек «The Last Vampire», в котором актёр Кристофер Ли зачитывает фрагмент из «Дракулы» Брэма Стокера.01. The Last Vampire
+02. Raise The Dead
+03. My Generation
+04. Whole Lotta Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5794DAACEA1F405370E771B5E02832D4A4525A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242641   (495580) от 25.08.2018
+
+ZZ Top - Rocking The Castle (1985) 2CD Live [MP3|320 Kbps] <Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheap Sunglasses [05:10]
+02. Arrested For Driving While Blind [07:37]
+03. Party On The Patio [03:14]
+04. Legs [04:30](   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299330D29691CCA2D1EA24B6DA342D0F8A43C735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158191   (495418) от 14.08.2017
 
 Hinder - The Reign (2017) [MP3|320 Kbps] <Hard Rock, Alternative Rock, Post-Grunge>
@@ -720,70 +778,6 @@ Empire - 4 Albums (2001-2007) [MP3|320 kbps]<Hard Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547157   (476469) от 14.09.2012
-
-Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Midnight Oil (3:51)
-02.  Full Pull (2:27)
-03.  Running Away (2:29)
-04.  All Fired Up (3:38)
-05.  Rolling Home (6:11)
-06.  In The Heat (2:38)
-07.  High On The Hog (2:57)
-08.  Rush Hour (3:43)
-09.  Freeriding (2:54)
-10.  Gutterview (3:10)(   Читать дальше...   )Жанр: Hard N' HeavyПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BAED4636AF2FBA1385918FD995E40E01B419D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939383   (475600) от 21.09.2015
-
-Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unity
-02. Never Let You Down
-03. World Has Gone Mad
-04. Spirit Of Light(   Читать дальше...   )Жанр: Melodic Hard Rock / Melodic RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
 ```
 
 https://mybot314.ru/tekegram_catalog/

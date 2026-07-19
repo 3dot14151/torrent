@@ -1,3 +1,61 @@
+###  Публикация: 946955   (422567) от 15.10.2015
+
+Zebrahead - Walk The Plank (2015) Japanese Edition [MP3|320 кб/с]<Punk-Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Brings A Knife To A Gunfight?
+02. Worse Than This
+03. Headrush
+04. Keep It To Myself(   Читать дальше...   )Жанр: Punk-Rock, Pop-PunkПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30155C663B71D55F50B66B5F0C22F4F0AE8869A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250909   (421735) от 29.09.2018
+
+The Hardkiss - Залізна ластівка (2018) [MP3|320 kbps] <Alternative, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привіт (00:49)
+02. Журавлі (02:48)
+03. Коханці (04:01)
+04. Forever More (03:47)(   Читать дальше...   )Жанр: Alternative, Pop-RockПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FBBD757CE4837E6D950056A6FF21598C10FF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167337   (418904) от 19.09.2017
 
 Marilyn Manson - Heaven Upside Down (2017) [MP3|320 Kbps] <Alternative Rock, Heavy Metal, Industrial>
@@ -699,70 +757,6 @@ Guano Apes - Proud Like a God XX (2017) 20th Anniversary Edition [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457B2782D9A26F69546D2F07A319A6E46445CDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568691   (393936) от 01.11.2012
-
-Anberlin - Vital (2012) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393936.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Self Starter (3:17)
-2.Little Tyrants (3:21)
-3.Other Side (4:05)
-4.Someone Anyone (3:28)
-5.Intentions (3:08)
-6.Innocent (4:17)
-7.Desires (3:05)
-8.Type Three (3:56)
-9.Orpheum (3:50)
-10. Modern Age (4:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0CBD2CDA346F3AAA1AB535E9FE8021B5CF0A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172656   (392093) от 09.10.2017
-
-Upcdownc - I, Awake (2017) [MP3|320 Kbps] <Post Rock, Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am I Awake?, Pt. 1
-02. Am I Awake?, Pt. 2
-03. Am I Awake?, Pt. 3
-04. Am I Awake?, Pt. 4(   Читать дальше...   )Жанр: Post Rock, Metal, ExperimentalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE56D46F4613EC3481F4199F623D7035D08BD3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

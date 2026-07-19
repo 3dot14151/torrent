@@ -1,22 +1,22 @@
-###  Публикация: 1769593   (100652) от 29.12.2024
+###  Публикация: 488187   (100468) от 25.04.2012
 
-Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
+Журнал | Школа гастронома №9 [2012] [PDF]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 28.12.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Школа гастронома - журнал для тех, кто любит готовить. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру, будь то яичница-глазунья или замысловатый французский соус, иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить себе средняя семья.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2358D2EE733CE6749C7ED7FF353396D539DA9139
+magnet:?xt=urn:btih:2C24FED8A479BA40C0741F80DF55334482A4D26C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769591   (100634) от 29.12.2024
+###  Публикация: 488130   (100466) от 25.04.2012
 
-Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
+DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 28.12.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+1. Linkin Park - Somewhere I Belong (Tyler Clark Remix)
+2. Anya vs. Klaas & Bodybangers - Fool Me (DJ Alex Up & Le-Roi Mash-Up)
+3. Ase Of Base - All that she want's (DJ Max Payne remix 2012)
+4. Global Deejays - Hardcore Vibes (Twisted Society Edit)
+5. Igor Bagdasar - Ola-Ola
+6. Groove Coverage feat. Rameez - Think About The Way (Rob & Chris Remix)
+7. Sasha Dith & Steve Madana Ft. Sasha Zvereva - Superboy (Greysound Remix)
+8. Michel Telo - A Se Eu Re Pego (Mr. Da-Nos Bootleg Mix)
+9. Plastik Funk - Ready Or Not (Extended Mix)
+ 10. Danko- Московская Ночь (Slash Junior Remix)(   Читать дальше...   )23.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:13:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2524B919B6382BC1F1379838D28B4F9EE2A61BD
+magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769590   (100632) от 29.12.2024
+###  Публикация: 487827   (100461) от 25.04.2012
 
-ПТЭЭП-2022 v3.10 Mod by 0x7d [Ru]
+Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Groove>
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мобильная врсия Правил технической эксплуатации электроустановок потребителей.
-ПТЭЭП 2022 - Правила технической эксплуатации электроустановок потребителей
-Утверждены приказом Минэнерго России от 12 августа 2022 г. N 811
-Данный документ вступает в силу с 07.01.2023 г.(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 28.12.2024Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+1. Recharger2012Жанр: Death Industrial / GrooveПродолжительность: 00:04:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB4D3B1E253E65C8AE612208547EE3B31AD4DF7A
+magnet:?xt=urn:btih:7AD4BF189C6D8AAF14890B4B2B5A4D884B48EEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769783   (100629) от 29.12.2024
+###  Публикация: 488161   (100459) от 25.04.2012
 
-Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
+Вечерний Ургант. Выпуск №7 (2012.04.25) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:27:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67EB915660EE24237920E42456F86410DCEEC920
+magnet:?xt=urn:btih:5760C0CD263E03E120C077643C5C66199F1F7FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +111,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769597   (100621) от 29.12.2024
+###  Публикация: 488125   (100458) от 25.04.2012
 
-STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
+DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-STEEZY - танцевальная студия №1 на вашем устройстве Android или Smart TV - используйте ее, чтобы научиться танцевать шаг за шагом в удобном для вас темпе. С более чем 800 классами, которые добавляются каждую неделю, всегда есть больше стилей и забавных процедур для изучения. Классы варьируются от новичков до экспертов, так что прыгайте в любое удобное для вас место, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.12.2024Разработчик: STEEZYПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский
+1. Ugostar & Daxto feat. Lyya Rokk - Dont Go (Emanuel Kosh Remix)
+2. Base Attack - Techno Rocker (Dimasound Remix)
+3. Purple Cocktail feat. Anna Star - I'm Alive (Original Mix)
+ 4. Markanera Nita - Watching The Sun Go Down (Extended Mix)
+5. Paul Johns - It's Over (DJ Naytove Remix)
+6. Dimasound - Fall in love
+7. DJ DimixeR - We Want Summer (Original mix)
+8. Hotfunkboys feat. Melillavox - Smackdown (DJ Solovey Remix)
+9. Ramada - Clap Your Hands (Ser Twister Remix)
+10. Sergey Forks - Summer Days (Original Mix)(   Читать дальше...   )17.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C928A631E5AB3CCD6B649B3D87FCF951EA01D3D
+magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +146,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769514   (100616) от 29.12.2024
+###  Публикация: 487929   (100457) от 25.04.2012
 
-Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/Multi]
+Журнал | Любимая дача №5 [2012] [PDF]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:479BBC3369C83A310718D78648D725178DCE0F0B
+magnet:?xt=urn:btih:6F6FA900E94A11C7A51DD62B2B13E939873E28F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770143   (100601) от 30.12.2024
+###  Публикация: 487796   (100456) от 25.04.2012
 
-Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
+Журнал | Простые рецепты здоровья №4 [апрель 2012] [PDF]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 28.12.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Издание для всех, кто стремится быть здоровым. Выпуск посвящён витаминам, их полезным свойствам, а также болезням, прогрессирующих из-за их нехватки.апрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C8EEEAA3AD051A153039FD81DA92379B9E72D6
+magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,51 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770035   (100568) от 30.12.2024
+###  Публикация: 487912   (100455) от 25.04.2012
 
-Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: Pro / ExtraModРелиз состоялся: 30.12.2024Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6782AE5C528A57C9DE69B11A2002ABE7B821CFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488476   (100524) от 26.04.2012
-
-[Wallpapers] Best Impressive Full HD Wallpapers (27.04.12)
+[Wallpapers] Girls Desktop Wallpapers Pack 4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Разрешение файлов: 1600х1200 - 3000х2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
+magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,25 +224,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488067   (100522) от 26.04.2012
+###  Публикация: 487534   (100453) от 25.04.2012
 
-[Wallpapers] Desktop Wallpapers Collection (26.04.12)
+[Wallpapers] Girls Desktop Wallpapers Pack 2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Разрешение файлов: 1280х1024 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
+magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,29 +250,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488565   (100521) от 26.04.2012
+###  Публикация: 487549   (100452) от 25.04.2012
 
-[Wallpapers] Computer Desktop Wallpapers Pack 7
+[Wallpapers] Wallpapers Sexy Girls (25.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Computer Desktop Wallpapers Pack 7
-Название: Computer Desktop Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2050
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
+magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,29 +276,97 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488561   (100517) от 26.04.2012
+###  Публикация: 487385   (100449) от 25.04.2012
 
-[Wallpapers] Nature Desktop Wallpapers Pack 5
+Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Desktop Wallpapers Pack 5
-Название: Nature Desktop Wallpapers Pack 5
+01. Aoede 01:32
+ 02. The Burning Plain 04:44
+ 03. Scales Of Justice 05:11
+ 04. The Cave 04:21
+ 05. Lost Child 04:04
+ 06. No Trace 02:51
+ 07. Challenge 05:42
+ 08. Bacchus' Curse I: Curse 00:59
+ 09. Bacchus' Curse II: Possession 04:01
+ 10. Bacchus' Curse III: Maenad 04:12(   Читать дальше...   )2012Жанр: Gothic Metal/Symphonic MetalПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487677   (100448) от 25.04.2012
+
+Motorcitysoul - Technique (2008) [MP3|320 кб/с]<Deep House, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motorcitysoul - Technique (2008)
+Год: 2008
+Жанр: Deep House, Tech House
+Продолжительность: 01:05:46
+Лейбл: Simple Records
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6497036A572BA4BFEA08079E2B3FD840A61C3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487910   (100447) от 25.04.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100447.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 4
+Название: Nature Desktop Wallpapers Pack 4
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1200
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
+magnet:?xt=urn:btih:DDEB5C0D3ECF2F58005B23523EA8C34D42EFC041
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,34 +374,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488531   (100513) от 26.04.2012
+###  Публикация: 488069   (100441) от 25.04.2012
 
-VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
+[Wallpapers] Space Wallpapers (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83668095240496819AEC985AE81B24FD47EDCAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487688   (100440) от 25.04.2012
+
+VA - Case One (1999) [MP3|256 кб/с]<Intelligent, Artcore, Jungle>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Owen Breeze Manuel 2santos Feat. Mercy Grey - Le Grand (Radio Edit)
-02. Dj Alex Ghost Feat. Dj Tagro - Skyrim (Radio Edit)
-03. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
-04. Romano Sapienza Feat. Rodriguez - Tacata
-05. Akcent - I'm Sorry (Reworked Radio Edit 2012)
-06. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)
-07. Laurentiu Duta Feat. Andreea Banica - Shining Heart (Radio Edit)
-08. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
-09. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
-10. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)(   Читать дальше...   )2012Жанр: Dance, ClubПродолжительность: 06:37:52
+VA - Case One (1999)
+Год: 1999
+Жанр: Intelligent, Artcore, Jungle
+Продолжительность: 01:11:18
+Лейбл: Secret Operations
+Страна: SwedenКодек: MP3
+Битрейт: 256 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
+magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,29 +433,125 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488110   (100511) от 26.04.2012
+###  Публикация: 487201   (100431) от 24.04.2012
 
-[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+Waylon Jennings - 5 Original Album Classics (2008) [MP3|320 кб/с]<Country>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
-Название: Wallpapers Mix 29 (1600x1200-4272x2476)
+(2:34) 01. Mammas Don't Let Your Babies Grow Up To Be Cowboys
+(3:04) 02. The Year 2003 Minus 25
+(2:32) 03. Pick Up The Tempo
+(3:04) 04. If You Can Touch Her At All
+(2:38) 05. Lookin' For A Feeling
+(3:20) 06. It's Not Supposed To Be That Way
+(2:24) 07. I Can Get Off On You
+(3:04) 08. Don't Cuss The Fiddle
+(4:00) 09. Gold Dust Woman
+(4:02) 10. A Couple More Years(   Читать дальше...   )Жанр: CountryПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D86AF35020BCD4FFF87052B6987E679EBA2F5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487363   (100427) от 24.04.2012
+
+Texture pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола, отлично подойдут для  программы Rainmeter.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEBBF1F53CE7075273AB9E7033720B2C2AD927C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486872   (100425) от 24.04.2012
+
+Snoop Dogg - Stoner’s EP (2012) [AAC|~260 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snoop Dogg - 1st We Blaze It Up
+02. Snoop Dogg - Stoner's Anthem
+03. Snoop Dogg - Show You How A Gangsta Do
+04. Tha Dogg Pound - Make It Hot (ft. Snoop Dogg)
+05. Snoop Dogg - Breathe It In
+06. Snoop Dogg - It's Gettin' Harder (Interlude)
+07. Chris Starr - Weekend Lovers
+08. Ndastree - Need It In My Life
+09. Snoop Dogg - Really Wanna Be With You
+10. Hustle Boyz - Can You Take Me (ft. Snoop Dogg)Жанр: Rap, Hip-HopПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A230555FADCCD45289BE864A75C62F98665E58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487538   (100424) от 24.04.2012
+
+[Wallpapers] Fantasy Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100424.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Wallpapers Pack 2
+Название: Fantasy Wallpapers Pack 2
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200-4272x2476
-Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+Разрешение файлов: 1600х1200 - 3000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBF2E7BBAB5F14B9E5B9176BF72FBB9053958AD8
+magnet:?xt=urn:btih:75EAFB82174BA0076A9CB4CD1C0B0B2D3073218A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,25 +559,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488289   (100510) от 26.04.2012
+###  Публикация: 487667   (100422) от 24.04.2012
 
-[Wallpapers] Wallpaper Sexy Girls 0.12
+Genuine Registry Doctor 2.5.4.2 + Portable [English]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.Разрешение файлов: 1600х1200,1920х1080,1920х1200
+Genuine Registry Doctor - многофункциональная программа для очистки, оптимизации и исправления ошибок реестра операционной системы Windows. Программа позволяет удалять устаревшие записи из реестра и временные файлы Windows, очистить историю веб-браузера (только для Internet Explorer), есть возможность поиска дубликатов файлов и функция сканирования жесткого диска на наличие ошибок.Название программы: Genuine Registry DoctorЯзык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +585,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488291   (100507) от 26.04.2012
+###  Публикация: 487329   (100420) от 24.04.2012
 
-[Wallpapers] Texture pack 2
+[Wallpapers] Wallpapers Fantasy №12(Pavel)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Текстурные обои(фоны) для рабочего стола.
+Обои для рабочего стола 50 шт
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
+magnet:?xt=urn:btih:6492A9EE7A44110C2AE932B03FD2AADCF11ABDFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,25 +611,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488304   (100505) от 26.04.2012
+###  Публикация: 487698   (100416) от 24.04.2012
 
-Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
+Вечерний Ургант. Выпуск №6 (2012.04.24) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06F847AEBDDB97CDC95A5E358340BCF2D039DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487355   (100415) от 24.04.2012
+
+Mixed Wallpapers 0.10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100415.jpg" />
+</div>
+
+
+###  Подробнее
+
+100-ка отличных обоев для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840E02D8C7D88F48EEA4FA7C2ABA1AAA44817D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485249   (100414) от 24.04.2012
+
+Футбол. Лига Чемпионов 2011-12. 1/2 финала. "Бавария" (Германия) - "Реал" (Испания) (Первый матч) (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100414.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 апреля. Мюнхен, стадион "Альянс Арена"
+"Бавария" (Германия) - "Реал" (Испания)Жанр: СпортПродолжительность: 01:51:56 (00:59:05 + 00:52:51)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0B5860BFF9AF10DF896E72F5A4FCC443C0B896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487337   (100413) от 24.04.2012
+
+Журнал | Сам себе лекарь № 8 [апрель 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
+Сам себе лекарь - средства народной медицины, опыт читателей.
+Перед самолечением необходимо проконсультироваться с врачом.апрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
+magnet:?xt=urn:btih:E0259566EAC8D208D3FCEA15641E69C299912374
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,246 +717,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488479   (100503) от 26.04.2012
+###  Публикация: 487454   (100407) от 24.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls (27.04.12)
+Dropbox 1.3.41 Special Monday build [Multilanguage]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
+Dropbox — облачное хранилище данных, принадлежащее компании Dropbox Inc., позволяющее пользователям хранить свои данные на серверах в облаке и разделять их с другими пользователями в Интернете. Работа построена на синхронизации данных. В данном бета релизе есть возможность получить дополнительные 500Мб до 4,5Гб за 500мб фото или видео, залитых в облако.Название программы: DropboxЯзык интерфейса: Multilanguage (English/German/Spanish/French/Japanese)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488076   (100502) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488075   (100501) от 26.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488078   (100500) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 2881х2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488677   (100499) от 26.04.2012
-
-Улетное видео по-русски. Новый сезон  (2012.04.25) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488481   (100497) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (27.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5440x4080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488077   (100495) от 26.04.2012
-
-[Wallpapers] Sexy Women Wallpaper (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х960 - 5616х3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487523   (100494) от 26.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100494.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 2
-Название: Computer Desktop Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487823   (100493) от 26.04.2012
-
-Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Kind Of World
-02. Bad For Me
-03. Light Of Day
-04. Happy Most Of The Time
-05. Keep Me
-06. Pretty Baby
-07. Here In The Deadlights
-08. Met Your Match
-09. Thru The Ceiling
-10. No One Else But You(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

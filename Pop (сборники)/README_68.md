@@ -1,90 +1,3 @@
-###  Публикация: 1301279   (584229) от 12.05.2019
-
-VA - Glamour Dance Party (2019) [MP3|320 Kbps] <Pop Dance, Club Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flawx - Genesis
-002. Soul Divers - Chasing The Sunset (Original Mix)
-003. Alan Connor - Outer Space
-004. Rosybyndy Feat. Lezlov - One Day Rmx(   Читать дальше...   )Жанр: Pop Dance, Club DanceПродолжительность: 09:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6846814C5D3CD1FBE0FDFA0E08B6A28C735FB72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301340   (584227) от 12.05.2019
-
-VA - Dance Sound Strange May (2019) [MP3|320 Kbps] <Dance, Hands Up, Hard Trance, Nu Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Disco Killerz and GATTUSO - Million Things (Original Mix)
-002. Inner Sinner - Chances (Radio Edit)
-003. DJ Luciano - Do You Miss Me So Much
-004. Dj tomsten - Redy To Blah Baby(   Читать дальше...   )Жанр: Dance, Hands Up, Hard Trance, Nu DiscoПродолжительность: 08:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C99D2845B165BE5B5BA2657DA79FB459C47B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301179   (584215) от 12.05.2019
-
-VA - Heartbeat: Popular Greatest Hits (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrena Line - Outside (Original Mix)
-002. Alex Mota - Samba
-003. Altar Feat. Joelapussy - Cha Cha Cha
-004. Aestria - Into U(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E32F5A2F1F7E1F14538A2CF42F6C9DF182A7BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358554   (584125) от 04.07.2011
 
 VA - Turbo дискотека 50/50 (2011) [MP3|256 kbps]<Pop>
@@ -727,6 +640,90 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C956481A8AC9BB78A1E4A3BBEB70BC65810E1427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041872   (581429) от 10.08.2016
+
+VA - Супер популярный летний Русский (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581429.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дима Билан - В Твоей Голове
+002. Единое Братство Feat. David Argunetta - По Волнам
+003. Наталья Подольская - Сердечко
+004. Оля Полякова - Плавочки(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF4066660D1416C84BC7FF83856E5186969DF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041732   (581419) от 10.08.2016
+
+VA - German Top №8 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - This One's For You (feat. Zara Larsson)Жанр: PopПродолжительность: 05:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528691E1B24E072AF988D4D8A4C147C45726EB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041895   (581236) от 10.08.2016
+
+VA - Молодёжная 100-ка. Презент Летних Новинок (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mnek - More Than A Miracle
+02. Ваня Чебанов - Все Хорошо
+03. Evgen Dia - Меланхолия
+04. Лиза Хегай - Наполовину(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A9D093CD846CB6AC73A905F0EF07C3C03B2184
 ```
 
 https://mybot314.ru/tekegram_catalog/

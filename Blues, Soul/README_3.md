@@ -1,3 +1,61 @@
+###  Публикация: 987435   (926089) от 17.02.2016
+
+VA - Antologia Polskiego Bluesa Cz.2: Swieza Krew (2009) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Doctors - Ja to nie ty
+02. Blues Flowers i Magda Piskorczyk - W pamietniku Cie zapisze
+03. Boogie Boys - BB Are In Town
+04. Marek "Makaron" Trio - Skarga umierajacego(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936AB682DCB27736CCA95F90A10AE75B088D408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987378   (926059) от 17.02.2016
+
+Layla Zoe - Hoochie Coochie Woman (2007) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoochie Coochie Woman (03:27)
+02. Don't Wannah Hurt Nobody (04:45)
+03. No More Stormy Mondays (05:56)
+04. I Am Free (05:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10445C0F0CB2304A17141F76D64401C2567A8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366324   (923857) от 11.03.2020
 
 Gin Soaked Boy - Blues in Your Bones (2020) [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ Kelly Richey - Shakedown Soul (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C41F788C7355927ECE9313A5286112C8309F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371350   (891878) от 30.03.2020
-
-Budda Power Blues - Live 2019 (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Down (Live)
-02. Blues Is a Feeling (Live)
-03. Virtual Blues (Live)
-04. Blues Is Air I Breathe (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F69BDA54D6CCF3BE7E85F5573523B39F31E7F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510769   (890757) от 07.03.2016
-
-VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Document Records - лэйбл, специализирующийся на переиздании записей блюза, кантри, госпела и джаза. Был основан в 1986 году австрийским коллекционером Джонни Партом, который решил выпустить полное собрание довоенных блюзовых пластинок.Список альбомов:
-Newly Discovered Titles And Alternate Takes – Volume 1 (1926-1944)
-More Newly Discovered Titles & Alternate Takes, Volume 2 (1897-1935)
-More Newly Discovered Titles And Alternate Takes, Volume 3 (1927-1960)(   Читать дальше...   )Жанр: Blues, Folk, World, & Country, JazzФормат: CD, Compilation, RemasteredПродолжительность: 16:03:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

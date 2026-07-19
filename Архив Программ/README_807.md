@@ -1,3 +1,29 @@
+###  Публикация: 906543   (642948) от 09.06.2015
+
+CorelDRAW Technical Suite X7 17.5.0.907 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Corel объявила о появлении нового пакета для создания и редактирования технической графики — CorelDRAW Technical Suite X7. Данный продукт ранее имел название Corel DESIGNER Technical Suite. Разработанный специально для профессиональных пользователей, создающих чертежи, технические иллюстрации и подобные инженерные графические документы, новый пакет CorelDRAW (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D69B534D2173F39783BAFB3B4BD4681B7CD42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292926   (642919) от 31.03.2019
 
 KeePassXC 2.4 + Portable [Multi/Ru]
@@ -647,32 +673,6 @@ WinCatalog - это простая в использовании програм�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B631494D637CECE260C98033B3F6AE1CA763998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518133   (642601) от 03.07.2012
-
-ASUS M2N motherboard support CD NVIDIA nForce 430 Chipset Support CD Rev.272.06 [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ оригинального CD диска с драйверами и утилитами для материнских плат.Название программы: ASUS M2N motherboard support CDЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

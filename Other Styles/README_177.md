@@ -1,3 +1,177 @@
+###  Публикация: 1734810   (50998) от 05.07.2024
+
+David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy (5:24)
+02. The Soothsayer Speaks (5:24)
+03. Ancient Magic Awakens (4:53)
+04. Réann (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738585   (48981) от 24.07.2024
+
+Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juno (Zabi Hneff) (6:13)
+02. Mozna (4:02)
+03. 1981 (4:44)
+04. Oda Na Zivot (4:44)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737464   (48962) от 24.07.2024
+
+VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, Застольное настроение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Божья Коровка - Застольная
+02 Унесенные ветром - Давай наливай
+03 Натали - О, Боже, какой мужчина!
+04 Игорь Николаев - Выпьем за любовь(   Читать дальше...   )Жанр: Поп, Застольное настроениеПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740070   (48273) от 31.07.2024
+
+101 Strings Orchestra - Under Paris Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Paris Skies
+02. Can-Can (From Can-Can)
+03. Fleur de Paris (2015 Remastered Version)
+04. The Poor People of Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8688BD397778F3C4D708C33507712DEA73ACAA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741690   (46915) от 13.08.2024
+
+Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin Wild
+ 02. I'm Thru With Love
+ 03. When Love Goes Wrong
+ 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743492   (46583) от 16.08.2024
+
+Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adagietto
+02. Sandrine's Dream
+03. Franz
+04. Evening in Gourmos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743924   (46378) от 18.08.2024
 
 101 Strings Orchestra - Moon River: The Music of Henry Mancini (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -569,180 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661F7B7CDC752A014AAD74028F5A2EC4A967A02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760216   (37471) от 12.11.2024
-
-Руки Вверх! - Руки Вверх! (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Студент (Саундтрек из фильма "Руки вверх!")
-2. Крошка моя (Саундтрек из фильма "Руки вверх!")
-3. Чужие губы (Саундтрек из фильма "Руки вверх!")
-4. Бандито (Саундтрек из фильма "Руки вверх!")(   Читать дальше...   )Жанр: OST, PopПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F4B9800E2FE7C40925AEBF49B5FFA2BAEDD6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759675   (37394) от 13.11.2024
-
-VA - OST Ласковый май (2009) Саундтрек к кинофильму [WavPack|Lossless|image + .cue] <Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые розы
- 02. Седая ночь
- 03. Старый лес
- 04. Месяц июль(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A14C76C9A08E19820D3C7FE969CCA3EDDAC70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760415   (37281) от 14.11.2024
-
-Afro Celt Sound System - OVA (2024) [MP3|320 Kbps] <Folk, Ethnic Fusion, Worldbeat>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hawk Owl's Lament [10:12]
-02. The Mantra [07:43]
-03. Magical Love [06:44]
-04. N'Faly Foli [04:25](   Читать дальше...   )Жанр: Folk, Ethnic Fusion, WorldbeatПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA08A34B92E788299E3CAA9817C9696F674CAAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760770   (37115) от 16.11.2024
-
-Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Symphonic Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment of Peace (New 2025 Jubilee Version) (3:58)
-02. Scarborough Fair (New 2025 Jubilee Version) (4:14)
-03. Lady D'Arbanville (New 2025 Jubilee Version) (3:29)
-04. Sacrifice (New 2025 Jubilee Version) (4:15)(   Читать дальше...   )Жанр: New Age, Crossover, Symphonic RockПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760754   (37081) от 16.11.2024
-
-Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession
- 02. Ecology
- 03. Santa Fe
- 04. Feelin's(   Читать дальше...   )Жанр: Romantic Melody, EasyПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E73EC4C8CF851DD8A2BACEA62E67D42EC100A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761229   (36787) от 19.11.2024
-
-Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [FLAC|Lossless|tracks] <Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Увертюра (3:46)
-02-Живущие лишь небесным (4:24)
-03-Что стряслось (4:13)
-04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A75B3E59EBF1B6D987521ECA7BD3AD5D61FCA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

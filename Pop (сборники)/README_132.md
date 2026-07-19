@@ -1,90 +1,3 @@
-###  Публикация: 1771871   (31593) от 08.01.2025
-
-Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, Electronic dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supreme (Sing When You're Winning 2000)
-02. No Regrets (I've Been Expecting You 1998)
-03. Love Somebody (Escapology 2002)
-04. Lovelight (Rudebox 2006)(   Читать дальше...   )Жанр: Pop rock, Soft rock, Electronic danceПродолжительность: 07:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37349530CDC5463C36BE4E0C286DA149741520D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773242   (30729) от 16.01.2025
-
-Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels In The Night (5:00)
-02. Another World (4:40)
-03. Apocalypse (5:38)
-04. Back To Disco (3:27)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 03:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE09ED3F5E78B52B2A55392E6992FA06DB91BF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774040   (30563) от 18.01.2025
-
-VA - Зима на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (3:53)
-02. Люся Чеботина - ФАРАОН (2:39)
-03. Bella Poarch - Sweet Delusion (2:52)
-04. ANNA ASTI - Топит (3:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E222166F26B09B297FD19998A1C817D9CC53E758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775227   (29786) от 25.01.2025
 
 Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
@@ -746,6 +659,93 @@ VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805051   (12533) от 04.07.2025
+
+Виктор Могилатов - Коллекция (2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листопады (feat. Sevenrose) (3:52)
+02. Мама (feat. Sevenrose) (4:07)
+03. Играет музыка (feat. Sevenrose) (3:58)
+04. Эти розы (feat. Sevenrose) (4:17)(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8EAA3F8CACAD8276E69919CD649BEF91C86A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805721   (12191) от 08.07.2025
+
+Ace Of Base - Compilation (1992-2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For You (The Golden Ratio | 2010)
+02. Travel To Romantis (Flowers | 1998)
+03. Wonderful Life (& Black) (Da Capo | 2002)
+04. My Deja Vu (The Bridge | 1995)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4956B39A3D6DAD2AE819C7446AB144C576B630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805959   (11967) от 10.07.2025
+
+VA - Свежий Русский Хит от ALEXnROCK часть 18 (2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года 4 примерно, я интересуюсь музыкальными студиями и много смотрю, и изучаю связанный с этим отечественный контент. Обзоры студий и интервью с мастерами звука. И задаюсь вопросом. Почему при таких возможностях, шикарных акустических условиях и при такой наикрутейшей апаратуре, не создаётся ничего понастоящему выдающегося? Да есть чёткие песни, но в большинстве (   Читать дальше...   )001. Денис Клявер & Саша Савельева - Твой человек
+002. Ольга Серябкина - На лето
+003. BITTUEV и Ислам Итляшев - Табун
+004. Маша Шейх - Проводник(   Читать дальше...   )Жанр: PopПродолжительность: 04:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505225D3124CD8B4E362EB3178C0164A48E34993
 ```
 
 https://mybot314.ru/tekegram_catalog/

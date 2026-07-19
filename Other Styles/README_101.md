@@ -1,3 +1,177 @@
+###  Публикация: 1312331   (530821) от 05.07.2019
+
+Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doll Opening (00:49)
+02. cemetery pulls (01:16)
+03. it's the Doll (02:23)
+04. Doll container (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312205   (530816) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312200   (530814) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051996   (530789) от 12.09.2016
+
+Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Waltz [00:06:07]
+02. Once Upon a Time [00:04:35]
+03. Say You Love Me [00:04:25]
+04. Chance Encounter [00:04:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312325   (530727) от 05.07.2019
+
+Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From Home Suite Home (08:28)
+02. It's Perfect (00:31)
+03. World's Worst Water Feature (07:31)
+04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312712   (530719) от 05.07.2019
+
+Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change (3:14)
+02. Careless Whisper (3:09)
+03. Honesty (3:46)
+04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312212   (530711) от 05.07.2019
 
 Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
@@ -576,179 +750,6 @@ Taqasim & Layali - Tradition du Caire (1991) [FLAC|Lossless] <world, ethnic>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369157   (527537) от 29.07.2011
-
-VA - Ocora - Egypt. The Musicians of the Nile (2001) [FLAC|Lossless] <world, ethnic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527537.jpg" />
-</div>
-
-
-###  Подробнее
-
-[12:27] 01.  Aamedat el Karnak (The Pillars of Karnak)
-[10:04] 02.  Ya faraoule (O, Strawberry)
-[08:24] 03.  Zarhat el Loxor (Rose of Luxor)
-[14:54] 04.  Abou Zeпd el Hilali
-[03:34] 05.  Taksim with small arghul
-[02:06] 06.  Tayyara (medium arghul)
-[13:02] 07.  Taksim (mizmar)
-[05:12] 08.  Sibs (small high-pitched mizmar)2001Жанр: world, ethnicПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369145   (527449) от 29.07.2011
-
-De Organographia - Music of the Ancient Sumerians, Egyptians & Greeks (1996) [FLAC|Lossless] <world, ethnic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527449.jpg" />
-</div>
-
-
-###  Подробнее
-
-GREEK MUSIC FROM EGYPT
-01. Musical Excerpts1996,Жанр: world, ethnic,Продолжительность: 00:48:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368848   (527429) от 29.07.2011
-
-VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siko Horepse Sirtaki (G. Zabetas - A. Sakelarios) (3:52)
-02. Na Me Thimase (St. Xarhakos - V. Goufas) (3:15)
-03. Nostalgo (I. Kapellas) (3:33)
-04. Mesogios George Moustaki (George Moustaki - D. Christodoulou) (3:21)(   Читать дальше...   )Жанр: Instrumental, DanceПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C001EAB5322988446FC975CD06C48A5135FB13B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156546   (527004) от 08.08.2017
-
-Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Negrita   [4:23]
-02. Night Bird    [3:51]
-03. Rain Dance  [3:59]
-04. Wayrapa - Muspuynin [6:26](   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDA46DE663BBE9A08A0BE4E0D8A61C45F9CEA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369633   (526804) от 30.07.2011
-
-Munir Bashir - Discorgaphy (12 albums, 1987-2007) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987-2007Жанр: arabian traditional music, flamenco, oudПродолжительность: 12:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E914E4EFF1A85B63A80239C323680BBCA3BF7B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052938   (526692) от 16.09.2016
-
-Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation Ritual [00:02:11]
-02. The Wind Speaks My Name [00:03:08]
-03. The Triple Goddess [00:02:54]
-04. Raise the Fire [00:02:31](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

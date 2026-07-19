@@ -1,3 +1,81 @@
+###  Публикация: 1851114   (1054767) от 31.01.2026
+
+M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алгебра в том виде, в каком мы её знаем сегодня, состоит из множества различных идей, концепций и результатов. Примерная оценка числа этих различных «элементов» составляет от 50 000 до 200 000. Многие из них получили названия, и ещё больше могли бы (и, возможно, должны) иметь «название» или удобное обозначение. В дополнение к первичной информации, это руководство (   Читать дальше...   )Жанр: МатематикаИздательство: ElsevierФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F165BA688773C5EFBB850ACBE67A866E046AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850824   (1054633) от 30.01.2026
+
+Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850623   (1054617) от 30.01.2026
+
+Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054617.jpg" />
+</div>
+
+
+###  Подробнее
+
+The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850614   (1054484) от 29.01.2026
 
 Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F10C3BE2A79B69FF99F1281F4393DDA96A28689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843865   (1049674) от 23.12.2025
-
-Ф.К. Кнойбюль | Пособие для повторения физики (1981) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие-справочник, содержащее систематизированное изложение в сжатой форме основных физических закономерностей - от классической механики до физики атомного ядра и элементарных частиц, доказательство ряда важнейших формул, а также методику и примеры решения простейших задач. Объем представленного материала примерно соответствует теоретической части курса (   Читать дальше...   )Жанр: ФизикаПеревод: А.В. БерковИздательство: ЭнергоиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04FA5F15E3C227D78F300771201D8D501327C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843174   (1049253) от 19.12.2025
-
-Е.Ф. Шнюков | Минералы и мир (2008) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Академику Евгению Федоровичу Шнюкову, автору более 600 научных и научно-популярных работ (наиболее известны среди широкого круга читателей ставшие библиографической редкостью его книги "Мир минералов", "Сокровища и загадки", "Катастрофы в Черном море", "Пираты Черного моря", "Опасное Черное море" "Полезные ископаемые (   Читать дальше...   )Жанр: ГеологияИздательство: ОМГОРФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7775D1C98A1FE7CD60450934A7E8AA8A352B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842857   (1048799) от 17.12.2025
-
-Е.А. Мелвин-Хьюз | Равновесие и кинетика реакций в растворах (1975) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой фундаментальный курс химической кинетики реакций в растворах. Основные проблемы этой области науки излагаются с точки зрения статистической термодинамики, современных представлений о структуре жидкостей и растворов, с учетом последних достижений в технике эксперимента по химической кинетике. Существенно новым является введение в общий курс (   Читать дальше...   )Жанр: ХимияПеревод: М.Г. Гольдфельд, И.П. БелецкаяИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90DD686231CD3EA52A02E3BFAE118A2B89A8C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

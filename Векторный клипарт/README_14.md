@@ -1,115 +1,3 @@
-###  Публикация: 1392107   (769813) от 24.06.2020
-
-Векторный клипарт - Beautiful and fashionable top-model girls in different clothes [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Красивые и модные девушки в разных нарядах
-7 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6666B1ECC76255872DF8780EE23362CEC5F965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392592   (769228) от 26.06.2020
-
-Векторный клипарт - Happy Akshaya Tritiya festival decorative illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фестиваль «Happy Akshaya Tritiya» декоративные иллюстрации
-6 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3FF4A6829C8FDBB3055E7491215B5B8C177050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392595   (769181) от 26.06.2020
-
-Векторный клипарт - Wedding invitations and patterns on background colored paper [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Свадебные приглашения и узоры на фоне цветной бумаги
-4 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F7D2E3C18B14398160177904F34B749BBFC058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392755   (769096) от 27.06.2020
-
-Векторный клипарт - German houses, collection of elements, itemset, roof, windows, doors [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Немецкие дома
-10 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5B05868CFFB224E57D270BDFE0D8512778C956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392721   (769085) от 27.06.2020
 
 Векторный клипарт - Adolable Cute Animals Collection Vector [EPS]
@@ -718,6 +606,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48648019BC579312DB627405D7871AB46B23B27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215430   (759957) от 25.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4232DA8BDD0913EA2778F8086EF61CB37B8257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215427   (759721) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #57 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD05891B5C44D01B6A9A852BF3C3F413ABAA67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215426   (759714) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #56 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7F4D59349222E4FE9E993AD5A92ADADE8A433C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215517   (757859) от 26.03.2018
+
+Векторный клипарт - Isometric and Infographics vector concept [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор иконок в бизнес-стиле
+18 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C48C96D7707D47CA3D9D66F592FB51E6C98BF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

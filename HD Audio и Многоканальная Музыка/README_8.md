@@ -1,3 +1,380 @@
+###  Публикация: 1618344   (1034132) от 11.03.2023
+
+Владимир Пресняков - Папа, Ты Сам Был Таким (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034132.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Недотрога
+А2 Папа, Ты Сам Был Таким
+А3 Белый Снег
+А4 Бабушка(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208528   (1034040) от 11.03.2023
+
+VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claudio Baglioni - Un Giorno nuovo
+02. Lucio Battisti - E Penso A Te
+03. Edoardo Bennato - L'isola Che Non C'e
+04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446400   (1032997) от 08.02.2021
+
+VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SPCE - Lightness (06:02)
+ 02. Maizena - The Future (05:55)
+ 03. Mandee & Central - If I Feel Like It (06:28)
+ 04. Hi Mount - U N Me (04:47)Жанр: Deep House, DowntempoПродолжительность: 00:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620890   (1031642) от 22.03.2023
+
+Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Life Is Just What You Make It • Ты хозяин своей судьбы
+A2. The Twelfth Of Never • Буду любить тебя вечно
+A3. Sunshine Rose • Солнечная роза
+A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622220   (1030295) от 28.03.2023
+
+Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
+1998 - The Electric Sleep
+2000 - Celestial Hi-Fi
+2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623730   (1029090) от 03.04.2023
+
+Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029090.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Doctor For My Heart (12" Version) 5:18
+A2. Wings Of Love (12" Version) 5:21
+A3. Colder Than Ice (12" Version) 5:38
+A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450767   (1028846) от 27.02.2021
+
+Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028846.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lutek - Pogromca Lwow
+A2 Boogie Dziadka Skiby
+A3 Jak Nas Gonili Tacy Jedni
+A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450936   (1028743) от 28.02.2021
+
+Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028743.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Break This Glass = Co S Tim Sklem
+A2 Going Downhill = Na Sikme Plose
+A3 It's A Zombie = Chtelas To Videt
+A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 203549   (1025347) от 20.03.2021
+
+Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418304   (1024497) от 25.03.2021
+
+Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody`s Fools (4:40)
+02. Do The Dirty (4:41)
+03. Let`s Call It Quits (3:31)
+04. Pack Up Your Troubles (3:25)(   Читать дальше...   )Жанр: Glam rock, hard rockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329F801534021C32CD1C9D1D859E5BA766D1E22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339790   (1024479) от 25.03.2021
+
+Gary Moore - Greatest Hits 2CD (2010) [DTS 6.1, 44.1/16|tracks (upmix)]<Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues RockФормат: Wave tracksПродолжительность: 02:39:00
+
+Роберт Уильям Гэри Мур (англ. Robert William Gary Moore; 4 апреля 1952, Белфаст, Северная Ирландия — 6 февраля 2011, Эстепона, Испания) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С четырнадцати лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша.
+Гэри Мур скончался (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456348   (1024470) от 25.03.2021
+
+Metallica - Black album (1991)[LPCM 2.0, DTS-HD MA 5.1, Dolby TrueHD 5.1, 96/24] Blu-ray Audio [Custom] <metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metallica — пятый студийный альбом одноимённой американской метал-группы, выпущенный 12 августа 1991 года, также известный как The Black Album «Чёрный альбом».01. Enter Sandman
+02. Sad but True
+03. Holier Than Thou
+04. The Unforgiven(   Читать дальше...   )Жанр: metalПродолжительность: 01:02:48
+Видео: AVC/H.264, 1920×1080 ~ 1 Mbps
+Аудио 1: LPCM 2 ch, 96/24 - 4608 kbps
+Аудио 2: DTS-HD MA 6 ch, 96/24 ~ 9281 kbps(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54E3F5809281254BD0341139633C2B8BEB7C41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461333   (1021778) от 10.04.2021
+
+Московский Камерный Оркестр. J. S. Bach – Brandenburg Concertos No. 1 in F Major BWV 1046 And No. 5 In D Major BWV 1050 (1981) [FLAC 2.0|192/24|image+.сue] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бранденбургский Концерт № 1 Фа Мажор, BWV 1046
+Violino Piccolo – Л. Полеес
+A1 Allegro
+A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461534   (1021712) от 10.04.2021
 
 Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
@@ -366,390 +743,6 @@ A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contempor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484067   (1006084) от 19.07.2021
-
-London Symphony Orchestra, Valery Gergiev - Рахманинов, Стравинский - Symphonic Dances & Symphony in three movements (2012) LSO Live [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rachmaninov: Symphonic Dances 36:18
-01. i. Non allegro 12:55
-02. ii. Andante con moto (Tempo di valse) 9:34
-03. iii. Lento assai – Allegro vivace – Lento assai. Come prima – Allegro vivace 13:49Жанр: ClassicalФормат: DST64Продолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95B8F60C9ED9856554A025B1FB0C28FF5AF5937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486001   (1005065) от 28.07.2021
-
-Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (2:46)
-02. Dreams (4:18)
-03. Never Going Back Again (2:04)
-04. Don't Stop (3:13)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62870034883B1FB434C0A8758A3DDCB96D889423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350156   (1003685) от 04.01.2020
-
-Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003685.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Happy Sound Of Ray Conniff (1974)
-
-01. I'll Be With You In Apple Blossom Time
-02. You Made Me Love You (I Didn't Want To Do It)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350668   (1002912) от 07.01.2020
-
-Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laughter In The Rain (1975)
-
-01. Laughter in the Rain (Sedaka; Cody)
-02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351125   (1002667) от 08.01.2020
-
-Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theme From S.W.A.T. (1976)
-
-01. Police Story
-02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351039   (1002642) от 08.01.2020
-
-Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alone Again (Naturally) (1972)
-
-01. Alone Again (Naturally) (O’Sullivan)
-02. Song Sung Blue (Diamond)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488224   (1001742) от 12.08.2021
-
-Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A1 I'll Find My Way Home
-A2 Italian Song
-A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597511   (1000318) от 02.01.2013
-
-Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (2:46)
-02. Dreams (4:18)
-03. Never Going Back Again (2:04)
-04. Don't Stop (3:13)
-05. Go Your Own Way (3:43)
-06. Silver Springs (4:33)
-07. The Chain (4:28)
-08. You Make Loving Fun (3:34)
-09. I Don't Want To Know (3:14)
-10. Oh Daddy (3:56)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33CEC6B18D9E7CB77D10DE0ABD2D8637627322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600572   (998808) от 08.01.2013
-
-Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600384   (998771) от 08.01.2013
-
-The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600690   (998549) от 09.01.2013
-
-Ария - Магнитоальбом (1989) [FLAC 2.0 24/96|image+.cue (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что вы сделали с вашей мечтой? 5:18
-02. Раскачаем этот мир 5:54
-03. Раб страха 4:33
-04. Искушение 3:58
-05. Игра с огнём 9:02
-06. Бой продолжается 6:03
-07. Дай жару! 4:24
-08. Улица роз 5:53Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600618   (998545) от 09.01.2013
-
-Янка Дягилева - Не Положено (1992) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Acoustic, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы по колено [01:49]
-02. Только дождь вселенский [00:53]
-03. Под руки в степь [02:09]
-04. Фальшивый крест [01:16]
-05. Деклассированные элементы [03:19]
-06. Особый резон [02:30]
-07. Неволя рукам (регги) [01:53]
-08. На чёрный день [02:24]
-09. Берегись [02:19]
-10. Я повторяю 10 раз и снова [00:51](   Читать дальше...   )Жанр: Acoustic, PunkПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600699   (998462) от 09.01.2013
-
-Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nu MetalПродолжительность: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
 ```
 
 https://mybot314.ru/tekegram_catalog/

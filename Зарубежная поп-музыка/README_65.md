@@ -1,3 +1,32 @@
+###  Публикация: 1265058   (276580) от 26.11.2018
+
+VA - Bravo Hits Jesień (2018) 2CD [MP3|320 Kbps] <Pop  Latin, Reggaeton>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276580.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Maroon 5 - Girls Like You
+02. Ariana Grande - God is a woman
+03. Luis Fonsi - Calypso(   Читать дальше...   )Жанр: Pop  Latin, ReggaetonПродолжительность: 02:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E42321BF648EC7BB2847B3B6785E436BB255315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188016   (275977) от 01.12.2017
 
 Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
@@ -723,35 +752,6 @@ VA - Эстрадная орбита (1974) LP [MP3|320 Kbps] <Rock, Funk-Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C99BE79745FDF2660C01ED49C30B214F4B798D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338352   (269306) от 15.11.2019
-
-VA - 110 Hits 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269306.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dadju - Ma Vie 3:27
-02. Maroon 5 - Memories 3:10
-03. Angèle - Flou 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658634F4D20CCC4D60D960969AE6CEB9A992F988
 ```
 
 https://mybot314.ru/tekegram_catalog/

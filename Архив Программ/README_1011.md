@@ -1,3 +1,29 @@
+###  Публикация: 1311403   (541628) от 29.06.2019
+
+EZ CD Audio Converter 8.3.2.2 Ultimate RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541628.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210AFE1131E62B23E8A9335608CA08DB066BA1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311364   (541626) от 29.06.2019
 
 PotPlayer 1.7.18958 [Multi/Ru]
@@ -647,32 +673,6 @@ DxO PhotoLab – мощный RAW конвертер и редактор изо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7323A13469206E872C384441DFE4C5DE3BA55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365942   (540835) от 21.07.2011
-
-AVS All-In-One Install Package 2.0.1.67 [EN/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_540835.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVS All-In-One Install Package - мощный мультимедийный пакет, состоящий из более чем 15-ти приложений таких как: AVS Video Converter, AVS Video Editor, AVS Video ReMaker, AVS Audio Converter, AVS Audio Editor, AVS Audio Recorder, AVS Disc Creator, AVS DVD Authoring, AVS DVD Copy, AVS Ringtone Maker, AVS Media Player, AVS Registry Cleaner, AVS Image Converter, AVS Photo Editor. Все программы имеют русскоязычный интерфейс.Язык интерфейса: EN/Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

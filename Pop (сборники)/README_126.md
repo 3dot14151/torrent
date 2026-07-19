@@ -1,108 +1,3 @@
-###  Публикация: 472391   (97680) от 25.03.2012
-
-VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Потап И Настя Каменских - Если Вдруг
-002. Romadi - My Sister
-003. Непара - В Облаках
-004. Sasha Dith & Dreamway - Crazy Sun
-005. Жанна Фриске И In-Grid - Падает Снег
-006. Ilhama Feat. Dj Ogb - Bei Mir Bist Du Scheen
-007. Гайтана - Самый Лучший
-008. Aqua - How R U Doin
-009. Елка - Около Тебя
-010. Mylene Farmer - Du Temps(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472646   (97676) от 25.03.2012
-
-VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арина Перчик - Шторм
-02. Алекс Малиновский - Я Люблю И От Этого Легче
-03. Vlada Crystal - Я Разрешаю Тебе
-04. Driu Mc Feat. Funky Inlite - Только Тебе
-05. Mc Zali - Облака (Kolya West Remix)
-06. Анастасия Коновалова - Люблю Тебя
-07. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
-08. Сацура - Больше Чем Слова
-09. Music Hayk - Деньги И Слава
-10. Миша Романова - Невесомая(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472752   (97595) от 24.03.2012
-
-VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97595.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пропаганда - Нет-Да (3:37)
-2. Britney Spears - Criminal (DJ Sergey Fisun Bootleg Remix) (2:41)
-3. Ирина Нельсон - Теплое солнце (3:10)
-4. Руслана - Скучаю (3:39)
-5. Вирус - За Тобой - копия (3:11)
-6. Арина Домски - Просто Любить (3:10)
-7. T - Killah Feat. Ольга Бузова - Не Забывай (3:26)
-8. Taio Cruz Feat. Flo Rida - Hangover (Hardwell Radio Edit) (3:12)
-9. Armin Van Buuren feat. Adam Young - Youtopia (2:48)
-10. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri feat. Mat Twice - Tell Me WAF (Radio (3:09)2012Жанр: PopПродолжительность: 05:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471074   (97400) от 21.03.2012
 
 VA - 200-ка Самых Самых 50/50 (2012) [MP3|128 kbps]<Pop>
@@ -892,6 +787,111 @@ VA - Жаркие Танцы. Europa Plus (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D13C0EAF991EE3703673B41CC753F238597633F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485675   (89779) от 21.04.2012
+
+VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Светлана Лобода - Ты Самый Любимый На Свете (Dj Amor Remix) (6:33)
+2. Сергей Жуков & Opium Project - Я Буду С Тобой (4:22)
+3. Issy feat. David Goncalves - You and Me (3:24)
+4. Юрий Шатунов Vs. Eminem - Детство Without Me (Cj Koka Mix) (3:33)
+5. Mixi - Только Я И Ты (Dj Val Remix) (3:46)
+6. Dan Balan - Лишь До Утра (Special Mix) (3:09)
+7. Lenny B, Roxxett - Hysteria (Original Mix) (6:52)
+8. Maria Maria - Ты Обо Мне Не Вспоминай (Icebird Remix) (3:14)
+9. Шахзода Feat. Sean Bay - Flying Tonight (Radio Edit) (4:42)
+10. Алеся Муха - Где Ловить Мечту (Dj Jurij Extended Remix) (5:15)2012Жанр: PopПродолжительность: 06:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C091AFEEC28687FC3FE26C6C889E5981B8D39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485627   (89616) от 20.04.2012
+
+VA - Свежий Хит На Русском Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Винтаж - Стерео
+02. Н. Басков И Валерия - Сохранив Любовь
+03. М. Журавлева - Небо Плакало
+04. Samol feat. A-Sen - Малиновые Сны (DJ Kashtan & Kirillich Remix)
+05. Яжевика - Стены (DJ Xm Remix)
+06. Размер Project - Россия Рулит
+07. Мальчишник - Еще Хотя Бы Раз
+08. Бьянка - А Че Че
+09. Марк Твен - Опять Идет Дождь
+10. Г. Ургант - Голосами2012Жанр: PopПродолжительность: 06:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED7CEB29C4112ACC9DDBD921E6F8A64C404C987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485467   (89598) от 20.04.2012
+
+VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Вместе Мы
+02. ВИА Гра - Диско
+03. Митя Фомин - Хорошая Песня
+04. Чай Вдвоем - Улетай
+05. СтаЯ - Сердце (Radio Edit)
+06. Юрий Шатунов - А Лето Цвета
+07. Пропаганда - Нет-Да
+08. Тимур Темиров - Веришь
+09. Глюкоза - Кошка
+10. Батишта & Shaplin feat. Уляна Глушкова - Когда Наступит Ночь(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

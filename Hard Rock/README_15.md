@@ -1,3 +1,61 @@
+###  Публикация: 913785   (601288) от 30.06.2015
+
+Niva - Relievin' Rain (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relievin' Rain
+02. Save My Soul
+03. Lying To Get Your Trust
+04. Freakshow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDD4B09874750EE02E32149367590AF2D9E729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914025   (600421) от 01.07.2015
+
+Lionsheart - Lionsheart (1992) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Had Enough
+02. World Of Pain
+03. Ready Or Not
+04. So Cold(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB988855A70723FEB98D184F3FAB8E4D1200A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914148   (600359) от 01.07.2015
 
 John West - Earth Maker (2002) [MP3|320 кб/с]<Melodic Progressive, Heavy Metal, Hard Rock>
@@ -704,64 +762,6 @@ Mr.Big - 17 альбомов (1989-2011) [MP3|320 kbps]<Hard Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553460   (577625) от 30.05.2022
-
-Michael Schenker Group - Universal (2022) [MP3|320 kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 emergency [00:03:49]
-02 under attack [00:04:37]
-03 calling baal [00:00:39]
-04 a king has gone [00:04:53](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9729ECC75606E4E48D7FD018870029DC15B680C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303376   (574321) от 20.05.2019
-
-Restless Spirits - Restless Spirits (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Livin' to Live Online [05:28]
-02. Unbreakable [05:04]
-03. I Remember Your Name [04:40]
-04. 'Cause I Know You're the One [04:33](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92175ABDF773B9255304B4E45201F5B315A67170
 ```
 
 https://mybot314.ru/tekegram_catalog/

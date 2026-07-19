@@ -1,3 +1,204 @@
+###  Публикация: 1103420   (885808) от 12.02.2017
+
+Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je te suivrai
+02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372505   (885618) от 03.04.2020
+
+Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Direct Sunlight (03:27)
+02. I Feel Alive (02:34)
+03. Pirouette (03:06)
+04. Ballads & Sad Movies (03:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372526   (885456) от 03.04.2020
+
+Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Sleep (04:36)
+02. Party's Over (02:42)
+03. Jacket (03:36)
+04. So I Can See (03:22)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372093   (885401) от 03.04.2020
+
+P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop RockПродолжительность: 01:01:24Трэклист: 01. Stupid Girls
+02. Who Knew
+03. Long Way To Happy
+04. Nobody Knows(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995172   (884611) от 11.03.2016
+
+Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01, Winds Of Chance
+02. You Don't Die From Love
+03. Love Once
+04. Born Blue(   Читать дальше...   )Жанр: Pop, Synth-pop, Pop RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F360FF45CD9FFF547B1702E7E3FD6140056B11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870781   (884443) от 19.02.2015
+
+Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California (3:00)
+02. Leave a Light On (live) (4:40)
+03. Live Your Life Be Free (live) (5:18)
+04. Heaven is a Place on Earth (live) (4:24)Жанр: Pop RockПродолжительность: 00:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9D3003D5CDDE9E7863306BEAEC83168A617317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995267   (884399) от 11.03.2016
+
+Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный и единственный альбом!01. Stay With Me Tonight
+02. I Just Can't Wait
+03. Victim Of Pleasure
+04. Duel(   Читать дальше...   )Жанр: Europop, Synth-PopПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDF856943C5045E3F0BBA4FFB449167D2E1E4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995189   (884243) от 11.03.2016
 
 Stephanie - Stephanie (1986) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -544,209 +745,6 @@ Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495483   (875964) от 15.09.2021
-
-Aly & AJ - A Touch of the Beat Gets You Up on Your Feet Gets You Out and Then Into the Sun (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Places [00:05:19]
-02. Lost Cause [00:03:15]
-03. Break Yourself [00:03:17]
-04. Slow Dancing [00:04:27](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088E70013B6609CA0EFAFDC80DEC45529D32563A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997203   (875729) от 16.03.2016
-
-Two Of Us - Twice As Nice (1985) 1986, CBS/Sony (Japan) [FLAC|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом популярного немецкого дуэта тех лет!01. Generation Swing
-02. Two Of Us
-03. I Can Feel You Burn
-04. Hollywood Boulevard(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644A33546C1F71171BD932A9F3A23ADD1EE7FB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373984   (875089) от 09.04.2020
-
-EL Кравчук - На облаках (2012) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На облаках
-02. Города
-03. Моя надежда
-04. Лети на свет ( feat. Верка Сердючка )(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236B4E79781B1C15F2FC199B5F3EFCBF63292FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105438   (875048) от 18.02.2017
-
-Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorious
-02. American Science
-03. Skin Trade
-04. A Matter Of Feeling(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A18AEFA91BAE3FCF295B1340ADBE657FC7BB016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105617   (874815) от 18.02.2017
-
-VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Paul feat. Dua Lipa - No Lie (3:43)
-02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye (4:10)
-03. Alan Walker - Alone (2:39)
-04. Nevada feat. Mark Morrison & Fetty Wap - The Mack (2:46)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374353   (874724) от 09.04.2020
-
-Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prenderemos Fuego al Cielo (4:29)
-02. No Esperen Mi Regreso (4:31)
-03. Perfume de Tu Piel (3:55)
-04. Siempre Eres Tu (4:50)(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0CBD352D05D8097167DEA71B1A5EBD4D817D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374294   (874723) от 09.04.2020
-
-Dino Sauro-Rex - Walk The Dino Dance (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk The Dinosaur (4:22)
-02. UPD (Unknown Playing Dinos) (4:28)
-03. Give It Up (3:26)
-04. Moving Rolling (4:05)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC74E865461D298C73117E4C11225EDF945C69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

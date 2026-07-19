@@ -1,119 +1,3 @@
-###  Публикация: 1028659   (688856) от 23.06.2016
-
-Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688856.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.J.O.S. [11:59]
-02.What Is This Thing Called Love [15:18]
-03.Just Friends [15:20](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB54E0BD61458782ADEF8CC7DAE33911F9E457F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028476   (688757) от 23.06.2016
-
-Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image + .cue] <Jazz, Latin, Contemporary R&B, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Flower.
-02. As.
-03. The Secret Life Of Plants (Duet with Will Lee).
-04. Free.(   Читать дальше...   )Жанр: Jazz, Latin, Contemporary R&B, Smooth JazzПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B85133626F215D5B408793C2FC29EDE9F3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403686   (688642) от 21.08.2020
-
-Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [3:02]
-02. Squueze Me [3:03]
-03. Go Go Go [3:12]
-04. I've Got The World On A String [3:36](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E7DC780D8F14D63EAE62C62208A5F448DDBD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403688   (688637) от 21.08.2020
-
-Horace Tapscott with The Pan Afrikan Peoples Arkestra - Why Don't You Listen?: Live at LACMA (1998) 2019, Dark Tree [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jaz ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiee! The Phantom [16:15]
-02. Caravan [13:38]
-03. Fela Fela [14:09]
-04. Why Don't You Listen? [14:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7E7EA1E4CD01BDEE81A1EBABF8A3E225365C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535052   (688606) от 05.03.2022
 
 Sir Roland Hanna - Apres un Reve (2003) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -751,6 +635,122 @@ Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135046   (685228) от 17.05.2017
+
+Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Circus Train [07:29]
+02. Swamp Goo [04:41]
+03. Trombone Buster [03:17]
+04. Bourbon Street Jingling Jollies [03:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3285FFCC7A3B5DEB4AEF4A11EE9AEA9F5FC6472C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135037   (685226) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beautiful Indians - Hiawatha [02:48]
+02. The Beautiful Indians - Minnehaha [03:01]
+03. It Shouldn't Happen to a Dream [03:07]
+04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135039   (685223) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Perfume Suite: Balcony Serenade/Strange Feeling/Dancers in Love/Coloratura [11:46]
+02. Take the 'A' Train [04:37]
+03. Black and Tan Fantasy [05:11]
+04. Perdido [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E09BB6010AB087439CD67E14012BED225C1328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135033   (685222) от 17.05.2017
+
+Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smada [02:33]
+02. Black and Tan Fantasy [05:13]
+03. How High the Moon [05:10]
+04. Serious Serenade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6CA00206AF000384A5B6C8A7111D7EA277FB15
 ```
 
 https://mybot314.ru/tekegram_catalog/

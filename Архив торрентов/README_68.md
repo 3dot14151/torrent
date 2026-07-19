@@ -1,3 +1,32 @@
+###  Публикация: 1442447   (1036615) от 25.01.2021
+
+The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Ground (Shake The Memory)
+02. Like No Other (Bassline)
+03. Come Alive
+04. Bustle and Flow(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B28335F801D5E1D43D988099556F753A6B6448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442602   (1036606) от 25.01.2021
 
 Firefox Browser ESR 78.7.0 [Ru]
@@ -650,33 +679,6 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DB3D28E9E62575D251BE17714C395D5D53F294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616426   (1036413) от 02.03.2023
-
-Hex Editor Neo Ultimate 7.25.02.8467 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hex Editor Neo - мощный Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
-Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA75D5BD9B79FEEE96C09BF2306CA57952175E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

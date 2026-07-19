@@ -1,3 +1,61 @@
+###  Публикация: 964193   (283794) от 10.12.2015
+
+Stevie Babie - Smoke And Mirrors (2015) [MP3|320 кб/с]<Blues, Smooth Jazz, Instrumental, Electric Guitar Solo>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke And Mirrors
+02. Southern Wind
+03. Wanting, Dreaming, Wishing
+04. Cool Change(   Читать дальше...   )Жанр: Blues, Smooth Jazz, Instrumental, Electric Guitar SoloПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A06A8301FF06355754426F12CE4E00991529CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081349   (283028) от 10.12.2016
+
+Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Karlova Blues  (02:19) 
+02|  Winter Blues  (02:54) 
+03|  Thanks For Bringing Me Down  (02:48) 
+04|  Tea For Alex  (03:13) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A332CF410DDE3083D8E6386746AA22C5D08AAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081562   (283017) от 10.12.2016
 
 Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps] <R&B , Soul>
@@ -690,64 +748,6 @@ VA - Texas Guitar Killers (1995) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D1CFAD3AFEDA08CDF7FB812E6ABE8650FF74809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966001   (222765) от 16.12.2015
-
-Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafon AB [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222765.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sweet Mary Jane
-2. Copenhagen Blues
-3. You're so Fine
-4. Somebody(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A745F6B7486A253F8C2BFA23E87D4259250954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966112   (222306) от 16.12.2015
-
-Юкон - Pow-Wow Hard Boogie (2015) [MP3|320 кб/с] <Blues rock, Hard rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодно
-02. Бибикинг
-03. Мне Лень
-04. Кошкин Блюз(   Читать дальше...   )Жанр: Blues rock, Hard rockПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85C9FF5F0B142A56617D4CBA96AE9DFB51BC9BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

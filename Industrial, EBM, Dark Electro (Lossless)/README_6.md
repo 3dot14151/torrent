@@ -1,3 +1,32 @@
+###  Публикация: 1647018   (231101) от 21.07.2023
+
+Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Modern Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taunting the Jesters [00:03:50]
+02. Parasites and Leeches [00:04:43]
+03. Never Question [00:02:52]
+04. Take the Bullet [00:04:03](   Читать дальше...   )Жанр: Industrial Rock, Modern MetalПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CCEB293ACEF6FFC7DC2B59791BBF5E3B05C1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637292   (230817) от 04.06.2023
 
 Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Edition [FLAC|Lossless|image + .cue] <EBM, Industrial>
@@ -714,35 +743,6 @@ Laibach - Wirtschaft Ist Tot (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F388102C16EF91ABFE9E8883DA76CAABD71FAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298432   (166966) от 14.12.2019
-
-Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..) - Discography 100 Releases (1992-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experiment ...
-
->>След.
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoga - Part 1 (09:55)
- 02. Yoga - Part 2 (09:05)
- 03. Spiritcatcher (06:31)
- 04. Yoga - Long Version (27:33)Тип издания: CD, WebЖанр: Dark Ambient/ExperimentalПродолжительность: 131:21:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990D32C4B3E2EB738E4E3A59D2FA8616D1E0B99D
 ```
 
 https://mybot314.ru/tekegram_catalog/

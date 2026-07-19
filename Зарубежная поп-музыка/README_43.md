@@ -1,3 +1,32 @@
+###  Публикация: 1307969   (554392) от 12.06.2019
+
+Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medellín (with Maluma)
+02. Dark Ballet
+03. God Control
+04. Future (feat. Quavo)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAD0D70E6934C65BFC5DEAEFEC9F7E47AEBA718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308608   (553779) от 15.06.2019
 
 VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die Discofox XXL Party) (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -722,35 +751,6 @@ Maroon 5 - V (2014) Deluxe Edition [MP3|320 кб/с]<Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01420860FC78FEA5044176F8415CB5F193F88BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310375   (547008) от 24.06.2019
-
-VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Schlager Sommer Megamix 2019, Pt.1
-02. VA - Schlager Sommer Megamix 2019, Pt.2
-03. Norman Langen - Dieses Gefühl
-04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
 ```
 
 https://mybot314.ru/tekegram_catalog/

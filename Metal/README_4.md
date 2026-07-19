@@ -1,3 +1,90 @@
+###  Публикация: 1445081   (1033998) от 04.02.2021
+
+Everdawn - Cleopatra (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Shadow Requiem (05:42)
+ 02. Stranded in Bangalore (03:26)
+ 03. Cleopatra (05:37)
+ 04. Your Majesty Sadness (04:55)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8DDFB3ED6C165EF317A468ADF985548EFA2DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445052   (1033981) от 04.02.2021
+
+Korpiklaani - Jylha (2021) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verikoira (06:20)
+ 02. Niemi (03:43)
+ 03. Levaluhta (03:50)
+ 04. Mylly (04:43)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095C100BB1215D1453D178019FE874BDF37EE879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952171   (1033937) от 04.02.2021
+
+Cult Of Luna - 8 Albums, 2 EP, 1 Live (2001-2021) [MP3|320 кб/с] <Post-Metal, Sludge Metal, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033937.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001 - Cult Of Luna (Reissue 2003)
+2003 - The Beyond
+2004 - Salvation
+2006 - Somewhere Along The Highway(   Читать дальше...   )Жанр: Post-Metal, Sludge Metal, ProgressiveПродолжительность: 11:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4B0EF2C9D548257EEC20771860A884F2C44E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619549   (1032973) от 16.03.2023
 
 Kamelot - The Awakening (2023) [MP3|320 Kbps] <Progressive Power Metal>
@@ -658,93 +745,6 @@ Evil Dream - Arctic (2021) [MP3|320 Kbps] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04ABB2753052F858828ED591135E8EA87C1E77B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454001   (1026621) от 13.03.2021
-
-Suncrown - Invincible (2021) [MP3|320 Kbps] <Symphonic Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Eternal Way [00:04:10]
-02 - Lost Memories [00:05:35]
-03 - Never Again [00:06:00]
-04 - Step out of the Shadows [00:04:55](   Читать дальше...   )Жанр: Symphonic Epic MetalПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47984C072748F73DF51DEE75032B18C6C99BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454076   (1026613) от 13.03.2021
-
-Red Eye Temple - Vortex (2021) [MP3|320 Kbps] <Progressive Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pareidolia [00:05:03]
-02 - Mind and Matter [00:03:52]
-03 - Flow [00:05:24]
-04 - Vortex [00:06:01](   Читать дальше...   )Жанр: Progressive Metal, Female VocalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BDC7C3419373D091C32CF11FF5142DA47FFE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454310   (1026436) от 14.03.2021
-
-Stefan Petanovski - Eros (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tanaka [00:03:00]
-02 - New Moon [00:07:15]
-03 - Eros [00:05:10]
-04 - Resltess Mind [00:04:17](   Читать дальше...   )Жанр: Instrumental Progressive Metal, ShredПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F550786FD657C672019F2BA102DFDE462622AC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

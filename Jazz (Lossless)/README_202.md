@@ -1,126 +1,3 @@
-###  Публикация: 1068334   (380879) от 01.11.2016
-
-Chris Flory with Duke Robillard - Blues In My Heart (2003) [APE|Lossless|image + .cue] <Swing, Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Scam   (06:46) 
-  02| Willow Weep For Me   (07:20) 
-  03| Bernie's Tune   (04:49) 
-  04| I've Got A Right To Sing The Blues   (05:01) (   Читать дальше...   )Жанр: Swing, Rhythm & BluesПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2181BE16CEBF8A703F3C68F40164E74DB8FC1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068349   (380871) от 01.11.2016
-
-Jay McShann - Hootie's Jumpin' Blues (1997) [APE|Lossless|image + .cue] <Piano Blues, Jump Blues, Jazz Instrument>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Hootie Blues   (03:52) 
-  02| Vine Street Boogie   (04:31) 
-  03| 'Fore Day Rider   (02:12) 
-  04| Hands Off   (02:56) (   Читать дальше...   )Жанр: Piano Blues, Jump Blues, Jazz InstrumentПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA60A0754B3BFA1D7C416E402535FD566574D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573405   (380858) от 10.11.2012
-
-Victor Wooten - Sword and Stone & Words and Tones (2012) [FLAC|Lossless]<Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sword and Stone [5:02]
-02. Love Is My Favorite Word [4:08]
-03. Pass Me Not, O Gentle Savior [3:31]
-04. Get It Right [4:55]
-05. A Woman's Strength [4:23]
-06. It's All Right [4:02]
-07. Love To Hear U Laugh [5:28]
-08. Say Word [4:06]
-09. Be What U Are (I Love you More) [3:55]
-10. H.O.P.E. [1:45](   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410231   (380472) от 10.10.2020
-
-Glenn Miller - The Missing Chapters. Vol. 1 – 9 (1995 - 1998) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гленн Миллер (англ. Alton Glenn Miller; 01.03.1904 - 15.12.1944) - американский тромбонист, аранжировщик, лидер биг-бэндов.
-Создал собственный коллектив в 1937 году. Новый биг-бэнд Гленна Миллера, созданный в 1938 году, достиг значительного успеха - с этим оркестром он записал музыку к фильмам «Серенада Солнечной долины» (Sun Valley Serenade) и «Жены оркестра» (англ. (   Читать дальше...   )Список альбомов:
-Volume 1. American Patrol (1995)
-Volume 2. Keep 'Em Flying (1995)
-Volume 3. All's Well Mademoiselle (1995)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 14:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B2172CF6757DC1E63B12A89C14833333C3522C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253837   (379632) от 11.10.2018
 
 Clifford Brown with Strings (1955) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -750,6 +627,124 @@ Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC0124A2D6670FDE1C07C8AAE70E1F4BB86B4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949404   (377587) от 23.10.2015
+
+Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.To Be Continued [05:13]
+ 02.By Chance [05:30]
+ 03.Indigo [04:17]
+ 04.Beyond [03:52](   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B77D8EF93912AA915E14D2309BE81708F362A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949594   (377417) от 23.10.2015
+
+VA - Smooth Jazz Relaxing (2015) [FLAC|tracks]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominic Miller - Air (feat. Danny Gottlieb, Richard Drexler) (04:55)
+02. Eumir Deodato - I Want You More (feat. Novecento, Al Jarreau) (04:09)
+03. Novecento - Vision (feat. Danny Gottlieb, Wayne Dockerty) (04:39)
+04. Alfredo Golino - Delicious (feat. Maurizio Fiordiliso) (04:48)(   Читать дальше...   )Производство: J.jazzЖанр: Smooth JazzПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6A09AC9104EC1EA43597220648223CA9C8239B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254179   (377387) от 12.10.2018
+
+Stan Getz - The Girl from Ipanema - The Bossa Nova Years (1984) 4CD, 1989, Verve Records [FLAC|Lossless|tracks + .cue] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377387.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Desafinado (5:53)
+ 02. Samba Dees Days (3:36)
+ 03. O Pato (The Duck) (2:32)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: CD1 - 01:07:16
+CD2 - 00:46:46
+CD3 - 00:52:47
+CD4 - 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3010FDF1F305D7EFF304953C8DCA3595749F9434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327328   (376848) от 24.09.2019
+
+Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now's the Time [9:03]
+02. How Insensitive (Insensatez) [26:04]
+03. Medley [31:58]Жанр: Hard Bop, Soul Jazz, Guitar JazzПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CAC5A24F062AC3A2E84C1FE6CEB2E049A595B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

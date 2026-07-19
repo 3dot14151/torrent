@@ -1,3 +1,32 @@
+###  Публикация: 1033302   (639882) от 10.07.2016
+
+VA - FitHits (2016) [MP3|256 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639882.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Пpодолжительность: 01:11:52
+
+01. Avicii Ft Simom Aldred - Waiting For Love(   Читать дальше...   )Жанр: PopПродолжительность: 2:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D1D3893BD1BFD4A85BF91C2DA7F09D0DEFFD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907337   (639729) от 11.06.2015
 
 MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
@@ -733,36 +762,6 @@ Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A626BE2F5A3D839A981583BD831FBD2224BFDA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229021   (632203) от 03.06.2018
-
-Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632203.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы желаем Вам космического Рождества" - таков слоган у этой пластинки. Вас ждут волшебные мгновения при прослушивании "Ave Maria" Шуберта, "Gloria" Генделя или всенародной "Jingle Bells" в стиле космик. И праздник в доме будет не только в предновогоднее время, а всегда!
-Philippe Renaux -  продюсер, автор и аранжировщик работавший (   Читать дальше...   )01.  Ave Maria De Schubert (5:21)
-02.  Noel Blanc (White Xmas) (3:21)
-03.  Il Est Ne Le Divin Enfant (3:11)
-04.  Anges Dans Nos Campagnes - Gloria De Haendel (2:57)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Easy ListeningПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
 ```
 
 https://mybot314.ru/tekegram_catalog/

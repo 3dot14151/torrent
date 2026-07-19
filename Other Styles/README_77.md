@@ -1,3 +1,174 @@
+###  Публикация: 1140887   (653945) от 08.06.2017
+
+VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [MP3|320 Kbps] <Ambient, New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spiritual Music Collection - Life Force (Natural Meditation)  3:57
+02.  Restful Music Consort - Gold Awakening  3:46
+03.  Buddhist Meditation Music Set - Crystal Healing Journey  3:57
+04.  Chakra Healing Music Academy - Yoga And Massage  3:39(   Читать дальше...   )Жанр: Ambient, New Age, RelaxПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E018D1CE640ADC371B4523C29FC01BF14D514BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140952   (653856) от 08.06.2017
+
+Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing and Calm Classical Pieces (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Questions - Chris Snelling
+02. Raindrops - Jonathan Sarlat
+03. Fyrsta - Chris Snelling
+04. White Light (Eastfjord Mix)Жанр: Classical, InstrumentalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A254F98660E00196ADAF1B85B4751FB0511B334E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226856   (653785) от 22.05.2018
+
+Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prism 05:37
+02. Falling Through Time 04:50
+03. Every Moment 05:07
+04. Twilight 04:20(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4131B30A2C9FDDD19D10087560BF93E7289A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031614   (651997) от 04.07.2016
+
+Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen's Boat [00:03:21]
+02. Inishowen Dawn [00:03:16]
+03. Vardo [00:04:50]
+04. Mantra [00:03:26](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031468   (651807) от 04.07.2016
+
+Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Space [00:18:02]
+02. Angelic Whispers [00:11:14]
+03. Lit by Stars [00:12:35]
+04. Floating Spa [00:12:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031043   (651789) от 04.07.2016
+
+Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Sleep. Music for Blissful Sleep (Full Album Continuous Mix) [01:02:38]Жанр: New AgeПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4E66E9068805A631AC6BB281F9B746EFED2D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031594   (651656) от 04.07.2016
 
 Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks] <New Age, Folk, World>
@@ -571,186 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9437F5C22089299A1DD3DAC5FBAF6A38B5B770F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032166   (647764) от 06.07.2016
-
-George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is The Key
-02. You're Still Here
-03. Misirlou
-04. Sky Blue(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905722   (647694) от 07.06.2015
-
-Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это оригинальный саундтрек для игры Лемма. Некоторые из треков были написаны Джеком Мэнхорн, прежде чем Эштон Моррис начал работу над проектом. Так что это совместное творчество.01. Rain - By Jack Menhorn 01:30
-02. Dawn - By Ashton Morris 03:56
-03. Forest - By Jack Menhorn 02:48
-04. Run - By Jack Menhorn 03:11(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E586E51E53694443FC8C8634C58B5834A00CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517511   (647614) от 01.07.2012
-
-VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647614.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Whereabouts - Afterthought (2:50)
- 2. Champion - Backing Off (2:53)
- 3. Karl Kimmel - Brand New Day (2:37)
- 4. The Barrymores - Can't Stop The Rock (2:34)
- 5. Fat Sue - Like You Love Her (3:47)
- 6. Above Envy - My Revolution (2:37)
- 7. Two Hours Traffic - No Advances (3:18)
- 8. The GGGG's - Now I Can Be The Real Me (3:18)
- 9. Central Park Feat. Maylee Todd - Touch The Ground (1:58)
- 10. Debby Ryan - True Every Day (3:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAA6F39D68EB128FF049675B9ADA20C6DED647D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906112   (647543) от 07.06.2015
-
-Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duma Sa Duma
-02. Bay City Shimmy (Fusion Mix)
-03. Golden Gate Mist
-04. Raqs Shehani(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905944   (647540) от 07.06.2015
-
-Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. Fragrant Mountain
-03. Anchoress
-04. Bouddica, Heart On Fire(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905612   (647307) от 07.06.2015
-
-VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Luc Ponty - New Country (3:15)
-02. John Fogerty - Big Train (3:04)
-03. Reba McFutire - Cumb That Mountain High (3:01)
-04. S.Buono - Ode To 33 (2:42)(   Читать дальше...   )Жанр: CountyПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8D5E09BE8F6F7915333F80564DB0D958085ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

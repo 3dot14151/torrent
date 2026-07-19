@@ -1,3 +1,38 @@
+###  Публикация: 601982   (997895) от 12.01.2013
+
+VA - Trance Road Uplift (2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kimura Feat. Dee Dee - The Chosen (Cold Rush Remix)
+02. Johan Ekman - Duende (Araya Remix)
+03. Magdelayna - La Graciosa (Adam Lester Chilled Remake)
+04. Ruback - Great Feelings (Original Mix)
+05. Dmitry Ference - Initium Novum (Nianaro Remix)
+06. Mosahar - Passion
+07. Daniel Kandi - Fade (2012 Edit)
+08. Villanaranjos - Marina Alta (Original Mix)
+09. Iversoon & Alex Daf - El Exceso De Amor (Original Mix)
+10. Nomad Vs. Wragg - Roar (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FD740B2443D1DDC535FB7A7A06A0E6DD06940A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602368   (997894) от 12.01.2013
 
 tyDi - Global Soundsystem 166 (2013-01-11) [MP3|320 кб/с]<Trance, Progressive Trance>
@@ -718,32 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F342A78AFF17C816186FCC9016F343C00188DC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602209   (997778) от 12.01.2013
-
-Месть / Возвращение / The Return (2006) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодую женщину Джоанну часто преследуют странные видения. Во время одного из них, она видит, как какой-то маньяк убивает женщину, с которой Джоанна никогда не была знакома. Поняв, что это все не просто так, и она может быть следующей жертвой, девушка едет в тот город, где произошло убийство в ее кошмарном видении. Здесь она узнает, что не все тайны оказываются похоронены вместе с людьми, и что прошлое не только никогда не умирает, но и может убить.Жанр: Триллер, Драма, ДетективРежиссер: Азиф Кападиа / Asif KapadiaАктеры: Сара Мишель Геллар (Joanna Mills), Питер О’Брайэн (Terry Stahl), Адам Скотт (Kurt), Кейт Бихан (Michelle), Сэм Шепард (Ed Mills), Дж.С. МакКензи (Griff / Young Griff), Эринн Эллисон (Annie), Дарриан Маккланахэн (Young Joanna Mills), Уолли Уэлш (Snack Stand Vendor), Фрэнк Эртл (Ambrose Miller), Брэд Лелэнд (Mr. Marlin), Бонни Гэллап (Bella) и др.Перевод: Профессиональный |дублированный|Продолжительность: 01:25:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1196425   (824003) от 02.01.2018
+
+Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow On The Wall (4:27)
+02. Frozen Love (4:52)
+03. Soran (5:27)
+04. The Rain (5:13)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBFB92D37762D538B6DA3E2D9EF3C5D579F5085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007020   (823484) от 14.04.2016
 
 VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -716,35 +745,6 @@ VA - Chillout Vol.44 (Compiled By ZeByte) (2018) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6BFCDCE2F1E79746033C34927E3DC76C2B1CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277090   (784911) от 21.01.2019
-
-VA - Piano Music Vol.1 (1978-2016) 250 tracks [MP3|192-320 Kbps] <Classical Crossover, Neoclassical, Фортепиано>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784911.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amy Lauren - Carry This Soul
-002. Amy Lauren - Cedar Rush
-003. Amy Lauren - Dragonfly Blue
-004. Amy Lauren - Fire and Flint(   Читать дальше...   )Жанр: Classical Crossover, Neoclassical, ФортепианоПродолжительность: 15:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3268377C47F02168C22A89AB08D9AC131EFF2955
 ```
 
 https://mybot314.ru/tekegram_catalog/

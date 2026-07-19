@@ -1,3 +1,31 @@
+###  Публикация: 1285094   (724324) от 24.02.2019
+
+JetBrains ReSharper Ultimate 2018.3.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724324.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
+Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
+Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DFC7ACC2C71B6C0B240A996C3EE86B5AE074CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531325   (724268) от 14.02.2022
 
 Ventoy 1.0.67 [Multi/Ru]
@@ -643,32 +671,6 @@ Vivaldi 1.0.161.2 Technical Preview [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC80A6BD93EF8C2F60D5E338853801817902BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023415   (723434) от 05.06.2016
-
-DivX Pro 10.6.0 Retail (веб-установщик) [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723434.jpg" />
-</div>
-
-
-###  Подробнее
-
-DivX Pro - это свежий пакет кодеков (DivX, HEVC-H265, H.264, AAC и MKV). В его состав также входит DivX H.264 Decoder для аппаратного ускорения с помощью DXVA (DirectX Video Acceleration). Это даёт возможность смотреть видео высокой чёткости, почти не опасаясь чрезмерной загрузки процессора. При использовании более сложных и ресурсоёмких методов сжатия получится (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2361B6437241D38F784FEABFD26C7951766F2E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

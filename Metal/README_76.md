@@ -1,3 +1,90 @@
+###  Публикация: 951594   (363314) от 29.10.2015
+
+Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Lies the Crown
+02. The Wretched Tide
+03. Pale Tortured Blue
+04. Stellar Tombs(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071365   (362032) от 09.11.2016
+
+Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reflection
+02 - Remain Intact
+03 - Mind Control
+04 - On The Dead Snow(   Читать дальше...   )Жанр: Progressive, Avant-Garde, Melodic Death MetalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88206D4BF73A26288A7F3A70DB77D2FAF0E5299C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071132   (362027) от 09.11.2016
+
+Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	The Prophecy
+2.	They Will Not Believe What I Will Say
+3.	Light Lies
+4.	Light Truths(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071413   (361862) от 09.11.2016
 
 My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
@@ -668,93 +755,6 @@ Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B08ED30B33D5735AE1F2D1CF49F5A11BAF374DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953127   (351790) от 03.11.2015
-
-Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Our Souls
-02. Staring Organic Stars
-03. Summoning Ocean's Son
-04. Suicide: Open Solution(   Читать дальше...   )Жанр: MDMПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179119   (351525) от 30.10.2017
-
-Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zionism (The Reaping) (0:44)
-02. Twisted Logic (3:24)
-03. The Underground (3:39)
-04. General Guidance (4:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179213   (351274) от 30.10.2017
-
-Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrestrial Demise 04:49
-02. Terrorborn 03:34
-03. Color Me White 02:48
-04. Into Doom 05:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
 ```
 
 https://mybot314.ru/tekegram_catalog/

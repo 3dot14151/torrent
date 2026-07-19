@@ -1,115 +1,3 @@
-###  Публикация: 1010816   (801956) от 25.04.2016
-
-Векторный клипарт - Urban style T-shirts Vectors [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-Урбан-стайл принты на футболки.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADC79EF29023D63C3EACA522975FE66E60F52DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010837   (801948) от 25.04.2016
-
-Векторный клипарт - Skulls T-shirts Vectors [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-Принты на футболки.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9BE0AE75370B2B2130C8F3C46BF7628D5F99FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199237   (801713) от 15.01.2018
-
-Векторный клипарт - Fotolia - Little kitten [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Маленькие котята
-12 EPS +JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D8AE04BE43AAAB3610326AE8CB853415190B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199234   (801711) от 15.01.2018
-
-Векторный клипарт - Cartoon Funny Robots 11 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Мультяшные смешные роботы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC8152FD0B152AABFA417078367E425D4FF161C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199230   (801709) от 15.01.2018
 
 Векторный клипарт - Different Shops Set 19 [AI]
@@ -719,6 +607,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E16F81BFF6DE430DC9948F3B78B15F696BE8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511730   (788341) от 22.11.2021
+
+Векторный клипарт - Chinese new year 2022 year of the tiger in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511717   (788339) от 22.11.2021
+
+Векторный клипарт - Happy chinese new year 2022 vector design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511777   (788335) от 22.11.2021
+
+Векторный клипарт - Cute animals for the new year and christmas vector illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+9 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511728   (788334) от 22.11.2021
+
+Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+7 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

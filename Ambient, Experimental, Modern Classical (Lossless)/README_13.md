@@ -1,32 +1,3 @@
-###  Публикация: 1158591   (492086) от 16.08.2017
-
-Frameworks - Kings (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Komorebi (1:16)
- 02. Kings (4:18)
- 03. Titles (4:10)
- 04. Three Years (4:54)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0694F3B96D9A9F860F20DA8083C9D4AE5A7A6953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319103   (488728) от 09.08.2019
 
 Sigur Rós (Sigur Ros) - Sigur Rós presents Liminal Sleep (2019) Krúnk [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -739,6 +710,35 @@ VA - The Ambient Cookbook II (2002) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D090F7EB1CC6F732747996E366E58EB3CF5376AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411699   (425572) от 26.09.2020
+
+Lingua Lustra - Concentric (2020) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. String Of Lights (07:29)
+02. Emergence (04:11)
+03. Can't Sleep (04:01)
+04. Concentric I (10:56)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090BC17894A5FB120BDC4A4BF69501F6C0B843BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

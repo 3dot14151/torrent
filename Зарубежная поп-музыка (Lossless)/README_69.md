@@ -1,3 +1,145 @@
+###  Публикация: 1184951   (296942) от 19.11.2017
+
+Sia - Everyday Is Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa's Coming For Us
+02. Candy Cane Lane
+03. Snowman
+04. Snowflake(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBF6C670B874C324D7C25A3D9167757F9C99D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334260   (296923) от 28.10.2019
+
+VA - Best Hits Of Jerusalem Radio (2012) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dor Daniel - Kor'e Lach (03:57)
+02. Adir Getz - Ani She'lach (04:10)
+03. Gilad Segev - Isha Me'Hashamaim (03:47)
+04. Harel Moyal - Matchil Mehedash (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DCB7FDA15ACF52B3D9700909B18FB0D6356715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184941   (296839) от 19.11.2017
+
+VA - 100 Hits 90s Originals (2017) Box Set, Demon Muzic Group [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новым этот релиз, конечно, назвать нельзя. Он вышел 17 февраля 2017 года, но до меня "доехал" только недавно, поэтому делюсь как новым. И хотя 90-е от нас убежали не так уж далеко, думаю, что вспомнить есть, что хорошего в музыке было в тот период.CD1:
+01. Backstreet Boys - Everybody (Backstreet’s Back)  (3:45)
+02. *NSYNC - I Want You Back  (3:21)
+03. New Kids on the Block - Step by Step  (4:26)(   Читать дальше...   )Жанр: Pop, Electronic, Hip HopПродолжительность: 06:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD18465443F61DE0510117DED17137D38C777DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106831   (296087) от 18.12.2009
+
+Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New Wave, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, New Wave, Rock, DanceПродолжительность: 12:17:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423380   (295798) от 15.11.2020
+
+VA - Hotel Lobby Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown Singers - My Heart Will Go On (4:37)
+02. Graham BLVD - No Scrubs (3:24)
+03. Stockholm Honey - Mamma mia (3:07)
+04. Blue Suede Daddys - Be-Bop-a-Lula (2:39)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF46BC3F34D639227710F97D153B27A472FF9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423479   (295795) от 15.11.2020
 
 VA - Elevator Music: Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
@@ -602,151 +744,6 @@ Dalida - Music Box (2004) [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62DAD451BE53C6F8E6D83D9D759BD8A54841F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963284   (288949) от 07.12.2015
-
-Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holiday>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland (Feat.Rick Astley) (2:47)
-02. Hope (3:56)
-03. One (3:30)
-04. Have Yourself a Merry Little Christmas (3:14)(   Читать дальше...   )Жанр: Pop, HolidayПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1EBD79D85380CBA2947B9D295510D7DD4CB854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263376   (287807) от 19.11.2018
-
-VA - BRAVO The Hits 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynoro & Gigi D'Agostino - In My Mind (3:03)
-02. Calvin Harris & Dua Lipa - One Kiss (3:33)
-03. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days (3:31)
-04. DJ Snake feat. Selena Gomez, Ozuna & Cardi B - Taki Taki (3:32)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 02:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5069137C11219A31AD5161562B0C83FE3558E41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335340   (287544) от 02.11.2019
-
-Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norman Fucking Rockwell [04:08]
-02. Mariners Apartment Complex [04:07]
-03. Venice bitch [09:37]
-04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963387   (287443) от 08.12.2015
-
-Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Ya Gettin Down (Live) (3:12)
-02. Keep On Movin' (Live) (4:01)
-03. Don't Wanna Let You Go (Live) (2:55)
-04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335379   (287358) от 02.11.2019
-
-Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287358.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. The Sign (3:11)
-2. All That She Wants (3:32)
-3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1248897   (440176) от 21.09.2018
-
-Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP3|320 Kbps] <Folk Rock, Country Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepytime in the Western World (3:30)
- 02. Gold For Bread (2:47)
- 03. Furr (4:08)
- 04. God & Suicide (2:21)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Alternative RockПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248660   (440025) от 21.09.2018
 
 Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
@@ -767,6 +738,35 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2872046F9A774F7E488ADD189661765D890BA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946387   (427358) от 13.10.2015
+
+Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Next To You
+02. Jesus Just Left Chicago
+03. Burden
+04. Look On Yonder Wall(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5E12F159DBAED59D2552A331CA98F151A24FC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

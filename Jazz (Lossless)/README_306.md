@@ -1,119 +1,3 @@
-###  Публикация: 1688553   (125018) от 30.12.2023
-
-VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (1929 - 1980) 2023, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima Orch. - What Will Santa Claus Say (When He Finds Everybody Swingin') (3:13)
-02. Bob Crosby's Bob Cats - Blow Blow Thou Winter Winds (2:18)
-03. The Ramblers - Let It Snow! Let It Snow! Let It Snow! (2:32)
-04. Louis Armstrong Orch. - I Hope Gabriel Likes My Music (3:19)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688516   (125000) от 30.12.2023
-
-Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960) 2CD, 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Blues [7:36]
-02. Outburst [4:39]
-03. Left Alone [6:08]
-04. Contour [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688531   (124996) от 30.12.2023
-
-VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosemary Clooney - Christmas Time Is Here (3:12)
-02. The Ken Peplowski Quartet - Have Yourself a Merry Little Christmas (3:40)
-03. The Gene Harris Quartet - I'll Be Home for Christmas (4:49)
-04. Jeannie & Jimmy Cheatham - An Apple, an Orange and a Little Stick Doll (3:39)(   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Mainstream JazzПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6E88F18C0D8C34CE90FC54EA7B2679F09E8116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688677   (124994) от 30.12.2023
-
-#1 Hits Now - Winter Chillout Experience Smooth Beats to Zone Out To(2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Dimension (3:46)
-02. Chill Trance (3:38)
-03. Sense of Freedom (3:50)
-04. New Energy (6:06)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689553   (124643) от 02.01.2024
 
 Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
@@ -745,6 +629,122 @@ Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6502EB3410AF42F06E82FC4FF14BFEEFBBC0F1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692235   (122503) от 16.01.2024
+
+VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Lalinga (Vi Mode Inc. Project) - Out Of Here (3:20)
+02. Soulstance - Funny Funky (5:40)
+03. Giopop - Alprazolam (2:42)
+04. Bright Magus - Lullaby For My Father (6:54)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC8ABF8BAF000136A50715F95404CF7E793FCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692190   (122501) от 16.01.2024
+
+Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Emerald: Intro (Live In Glasgow) [00:00:44]
+02. One Day (Live In Glasgow) [00:04:35]
+03. Completely (Live In Glasgow) [00:02:38]
+04. The Maestro (Live In Glasgow) [00:02:41](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 2 CD, 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBA312937D80429A63E873574985DDCA30747B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692201   (122492) от 16.01.2024
+
+Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Let a Song Go Out of My Heart [2:59]
+02. Moonshine over Kentucky [2:43]
+03. Rock It for Me [2:54]
+04. If You Were in My Place [3:10](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A095314444599963B2D4FB9A9A5EAE9CD4EF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692572   (122346) от 17.01.2024
+
+Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormy Weather [7:27]
+02. Nothing or All [3:27]
+03. Horace is Blue [8:31]
+04. Laura [2:09](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76FFA21E2BAFD69B218CDB3A0B4719A1DA5E8B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

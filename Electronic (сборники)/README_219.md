@@ -1,3 +1,235 @@
+###  Публикация: 1808917   (64827) от 27.07.2025
+
+Umideep - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stay With Me
+02 - Missed Call
+03 - I Miss You More
+04 - You Are My Love(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 01:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90708174BB47F94FDC0D7FF3878F3AB176126522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705498   (63485) от 09.03.2024
+
+VA - Electronic compilation part 62 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akmalov - Marvelous
+02. Riltim - Nayeli
+03. Hamidshax - Bonita
+04. Adik - Long Journey(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EE86034D685AA04A899847313BCB4C3662950E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705492   (63481) от 09.03.2024
+
+VA - Electronic compilation part 63 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirham - Skynet
+02. Limora - Manami
+03. Akmalov - I Love You
+04. Riltim - Bitter Dessert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EBDCCECE9DB9D15FD732AF1EC8830E762887A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707670   (62693) от 17.03.2024
+
+VA - In Your Dreams: Deep House Session (2024) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anton Lacosta - Play (00:02:13)
+002. Alex Menco - Don't Leave Me Alone (00:02:18)
+003. Kate Linch - You Hate Me (00:02:18)
+004. Levorica - Moonshield (00:02:32)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 11:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44012A5C7AC22533C080776CDDA5F07B557E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707676   (62691) от 17.03.2024
+
+VA - Good Morning (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Harrington - The Pictures (00:01:19)
+002. Adrian Lane - Marking Time (00:02:32)
+003. Ialaz - Interlude (00:01:50)
+004. Magnus Moone - Cave Paintings (00:02:01)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E8FE8582DC91C031CF06089AE23B381BD94AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707681   (62689) от 17.03.2024
+
+VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Music Cafe - Secret Paradise (00:01:54)
+02. Luna Dreamscapes - Captain's Cuddle (00:02:20)
+03. Afternoon Bike Ride - Bois Dormant (00:02:28)
+04. Salami Rose Joe Louis - Dimcola Reprise (00:02:31)(   Читать дальше...   )Жанр: Chill, Electronic, Relax, ExperimentalПродолжительность: 08:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706638   (62621) от 18.03.2024
+
+Enigma - Collection (2024) [MP3|320 Kbps] <New Age>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Enigma — это самое гениальное творение, что было создано, за всю историю электронной музыки. Множество звуковых наворотов и красивых вокальных партий. Когда в 91 году, я впервые услышал альбом MCMXC a.D, детской душе казалось, что это звуки вселенной и ночное небо и космос разговаривают со мной. Повзрослев, услышал, что это энергия любовной страсти воплощённая (   Читать дальше...   )001. The Voice Of Enigma
+002. Principles Of Lust (A- Sadness. B- Find Love.
+003. Callas Went Away
+004. Mea Culpa(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FA17197E4CAFCB837A67FAE3B6D88B32950318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708573   (62239) от 21.03.2024
+
+VA - Vocal Trance NNM 2 (2024) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Bed Of Rain (3:51)
+02. Gareth Emery - house in the streetlight (2:55)
+03. Nicholas Gunn - Here I Am - Richard Durand Remix (7:07)
+04. Richard Durand - Fall Through the Earth (3:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C09959FB98EBCDDDB005603365BB9CEB7448C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711008   (61532) от 28.03.2024
 
 VA - Techno Bunker 4 (2024) [MP3|320 Kbps] <Techno>
@@ -512,239 +744,6 @@ VA - Electronic compilation part 72 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93770A74BD020BABF09DFA8E7860E66E14D3119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718495   (58352) от 27.04.2024
-
-VA - HITS AND MORE HITS 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Lose Control (03:30)
-02. Benson Boone - Slow It Down (02:41)
-03. Dua Lipa - Training Season (03:29)
-04. Dasha - Austin (02:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB259C6C63A48E337A4A179D2059D15575EECD1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718769   (58343) от 27.04.2024
-
-VA - Electronic compilation part 73 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davvi - Always
-02. Dj Aurm - Call on Me
-03. Hayit Murat - Chicago
-04. Triticum - Dark Space(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E303C8515DF9A9D495859EA9BF17A999E3B853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719334   (58224) от 28.04.2024
-
-VA - Record Super Chart 27.04.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joezi & Lizwi - Amathole (Radio Edit) (2:45)
-02. Robin Schulz & Topic feat. Oaks - One By One (Jax Jones Remix) (2:52)
-03. Purple Disco Machine feat. Asdis - Beat Of Your Heart (Marten Horger Remix) (4:02)
-04. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694CE9A71ADF2F9EADAB10FE8ABB48485EFF8291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719528   (58037) от 30.04.2024
-
-VA - Electronic compilation part 74 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimoff - Dolphin
-02. Ramseen - Don`t Stop
-03. Azkom - Eliza
-04. Dj Artur - I Love You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0ACDC77304214EB97EF1EC2ECF4FD44F606D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719821   (57836) от 02.05.2024
-
-VA - Electronic compilation part 75 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zakirovec - Aero
-02. Zakirovec - Bridge
-03. Hayit Murat - Close Your Eyes
-04. Zakirovec - Crazy(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF84A0B4F1045307CA3B2CD514267C0DBB79845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721306   (57407) от 06.05.2024
-
-VA - Electronic compilation part 76 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davbo - Alisa
-02. Dnb - Angel
-03. Hilaldeep - Clouds
-04. Elno - Dopamine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4E81B3DFDC819E7D8A7CB80F341C60C23B5E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449572   (56642) от 14.05.2024
-
-VA - Workout Motivation (2018-2024) Mixed by Sergey Sychev [MP3|320 Kbps] <Club, House, Remix>-Обновляемая раздача
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия миксов Workout Motivation записана для занятий. Специально для спортивного клуба 42Club. Раздача будет обновляться по мере появления новых миксов. Приятных занятий. Всем спорт.
-P.S. Все релизы начались с этих миксов, затем появились все остальные варианты EDITION.1. Rave Republic & BONKA feat. Maikki - Rebels Of The Night (Extended Mix)
-2. AXMO, Groove Coverage & Aki-Hiro - Poison (Extended Mix)
-3. The Prodigy - No Good (Kristian Llov BigRoom Techno Edit)
-4. Haddaway - What About Me (S. Z. Radio Remix)(   Читать дальше...   )Жанр: Club, House, Remix, Mash-UpПродолжительность: 18:23:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429680FB4D953A4FDF04E1568FD0422DA866A478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722744   (56563) от 14.05.2024
-
-VA - Electronic compilation part 77 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Dark
-02. Nurpeisoff - Diamonds
-03. Nurpeisoff - Dont Cry
-04. Akmalov - Don't Stop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F17F688FA9D5A22B614E3E96FAC0DDBDF5B7D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

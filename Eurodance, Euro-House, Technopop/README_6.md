@@ -1,32 +1,3 @@
-###  Публикация: 1698423   (118475) от 09.02.2024
-
-VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118475.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anton Lacosta/Novoland Music - Synergy
-2. SATOMIC/Melis Treat - SKIN
-3. Hrederik - Somebody That You Loved
-4. JeeGas - All Night(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CDC0460AE94E5BEA13E0C6541C50B511B9A63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698381   (118454) от 09.02.2024
 
 VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>

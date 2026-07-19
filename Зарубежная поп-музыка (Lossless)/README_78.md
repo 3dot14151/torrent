@@ -1,3 +1,148 @@
+###  Публикация: 1084240   (220778) от 18.12.2016
+
+Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading Shades (Part I) (1:03)
+ 02. Nights In White Satin (3:36)
+ 03. Son Of A Time Machine (5:07)
+ 04. Won't Run Away (4:17)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425668   (220446) от 21.11.2020
+
+Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Show Me How To Love You
+02. Nella Fantasia
+03. There For Me
+04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966191   (220392) от 17.12.2015
+
+Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad (4:08)
+02. The Way You Make Me Feel (4:58)
+03. Speed Demon (3:59)
+04. Liberian Girl (3:55)(   Читать дальше...   )Жанр: Pop Rock, Ballad, DiscoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585696   (220252) от 23.10.2022
+
+Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender My Heart
+02. Joshua Tree
+03. Talking to Yourself
+04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651807   (220209) от 08.08.2023
+
+Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One By One (3:37)
+02. I Watch My City Sleep (3:14)
+03. Mega-Millionare (4:26)
+04. You Are The Only One (3:32)(   Читать дальше...   )Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585686   (220022) от 23.10.2022
 
 Taylor Swift - Midnights (2022) 3am Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89DB01BA950E1598F85864988ECCD58FA8500A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343922   (214767) от 08.12.2019
-
-Supermax - Living In A World (1996) [FLAC|Lossless|image + .cue] <Pop, reggae, disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Living In A World 6:04
-2 Going Back Home 4:59
-3 Hara Hara 5:51
-4 Scream Of A Butterfly 4:38(   Читать дальше...   )Жанр: Pop, reggae, discoПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEB6C5ADECC6E1A14D2BBEEBB0EA036F70CFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085230   (214312) от 21.12.2016
-
-Supermax - 20th Anniversary (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungledance (6:57)
-02. Bango bongo (6:28)
-03. Kick the nation (6:59)
-04. Good times (4:42)(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40B728F2214411103993898DD0B2FD1E7C5ADAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270204   (214215) от 18.12.2018
-
-VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue] <Pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем ближе новогодние праздники и Рождество, тем чаще задумываемся, а что к столу за музыкальное сопровождение будет. Кто-то смотрит телеэкзерсизы с басковыми и прочими дублируемыми на каждом канале, а кто-то загодя подбирает музычку по душе. Ведь Новый год и Рождество праздники для души. Чтоб помочь таким искателям, предлагаем вот этот свеженький сборник.01. Justin Bieber - Mistletoe  (3:02)
-02. Ariana Grande - Winter Things  (2:37)
-03. Pentatonix - Mary, Did You Know  (3:19)
-04. Sam Smith - Have Yourself a Merry Little Christmas  (2:42)(   Читать дальше...   )Релиз состоялся: 6 октября 2018 г.Жанр: Pop, rockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9940BA00180FF74CE3BA9AC5730F2BD44289A667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344111   (213621) от 09.12.2019
-
-Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <French Pop, Pop-Rock, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angora (2:08)
-02. Dans l'univers (4:07)
-03. Le baiser (4:10)
-04. Tu me manques (pourtant tu es là) (4:15)(   Читать дальше...   )Жанр: French Pop, Pop-Rock, Chanson |Продолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92DE99B0ABD151B0A68076A195926BA7C4382F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960836   (213562) от 18.08.2023
-
-Скрябiн та Проекти Кузьми (Скрябин) - 18 Albums + 6 Single + 2 Live's + Compilation & Remixes (1995-2019) [APE, FLAC|Lossless|image + .cue, tracks + .cue, tracks] <Alternative Pop, Rock, Syn ...
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213562.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Скрябін» - український музичний гурт, що за час своєї творчої активності пройшов шлях від дарквейву, синті-попу, постпанку і техно до нової романтики та поп-року. Склад гурту також неодноразово змінювався. Єдиним постійним учасником колективу з часу його заснування і до своєї смерті був Андрій «Кузьма» Кузьменко. Як правило, музику гурту поділяють на «старий» (приблизно (   Читать дальше...   )1995 - Птахи
-1997 - Казки
-1997 - Мова Риб
-1999 - Технофайт(   Читать дальше...   )Жанр: Alternative Pop, Rock, Synth Pop |Продолжительность: 33:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0B57345681070F32141AB8BF006898DB911565
 ```
 
 https://mybot314.ru/tekegram_catalog/

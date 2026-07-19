@@ -1,119 +1,3 @@
-###  Публикация: 1231954   (603277) от 21.06.2018
-
-Mose Allison - The Best of Mose Allison (1962 - 1970) 1988, Atlantic Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Worry About a Thing [2:19]
-02. Your Mind Is on Vacation [2:37]
-03. It Didn't Turn Out That Way [2:44]
-04. If You're Goin' to the City [3:50](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7C0899CC27DB60CE4BFB93173B65B9D4060B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231950   (603276) от 21.06.2018
-
-Bob Brookmeyer - Four Classic Albums (1956 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603276.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Minuet Circa [10:40]
-02. Who Could Care [4:47]
-03. Nice Work If You Can Get It [5:57](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44521A5BD064A25DC52D047AB0BA2B1FD2E82A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297721   (603143) от 24.04.2019
-
-Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul-Leo [8:08]
-02. Shape Shifting [6:58]
-03. Lush Life (Intro) [2:27]
-04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297695   (603114) от 24.04.2019
-
-Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аскеза (4:10)
-02. Костры амбиций (5:46)
-03. Колкие нити (4:44)
-04. Дары моря иллюзий (4:26)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD9E7B9560BC96BE815A5F3CC353D89E3E01A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297694   (603111) от 24.04.2019
 
 Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
@@ -744,6 +628,122 @@ Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63DE8E11B05EAF53ABA93BA67065F765F82306F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913935   (601355) от 30.06.2015
+
+Illinois Jacquet with Kenny Burrell - Desert Winds (2004) [FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Dreamboat Comes Home [05:23]
+02. Desert Winds [04:21]
+03. Star Eyes [04:17]
+04. Blues For The Early Bird [03:18](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADD91E030BD69EB12D6D2190A4530B7CB9A4F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149326   (601227) от 10.07.2017
+
+Andy LaVerne Trio - Bud's Beautiful (1996) 2010, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celia [06:51]
+02. Danceland [05:14]
+03. I'll Keep Loving You [02:43]
+04. So Sorry, Please / In The Mood For A Classic [05:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D16CBDC77FC0A67E51CC8AF44A95FE21C94B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149359   (601225) от 10.07.2017
+
+Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (This is an Orchestra!) [10:00]
+02. Portrait of a Count [03:17]
+03. Young Blood [03:15]
+04. Frank Speaking [03:14](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8E6B1B5B19934F894CD886C082210BD5B79FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149446   (601220) от 10.07.2017
+
+John Hicks, Cecil McBee, Elvin Jones - Power Trio (1991) BMG Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cousin Mary [06:37]
+02. After The Rain [08:10]
+03. “D” Bass-ic Blues [06:50]
+04. Duke's Place [09:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057BC4D8EF7203B4C6CAC9431586CA04BE105251
 ```
 
 https://mybot314.ru/tekegram_catalog/

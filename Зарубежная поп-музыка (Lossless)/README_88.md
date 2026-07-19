@@ -1,3 +1,148 @@
+###  Публикация: 1684104   (127994) от 14.12.2023
+
+VA - Bravo Hits 11 (1995) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Reggae, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127994.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Technohead - I Wanna Be A Hippy (Original Mix)
+02. The Outhere Brothers - Boom, Boom, Boom (Lalala Radio Mix)
+03. Pizzaman - Sex On The Streets(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, Funk / Soul, PopПродолжительность: 02:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1EE59A4E4ACB18A74603B8E881EED1F1743559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684668   (127585) от 16.12.2023
+
+Мэйби Бэйби - SHAWTY (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, My Name Is Baby (00:02:20)
+02. DURAGA (00:02:22)
+03. Принцесса Диана (00:03:20)
+04. Ice Baby (00:02:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECFC67FE9109AA38FD207CC404B7A1E2AE8CE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685001   (127422) от 17.12.2023
+
+VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceelo Green - All I Want for Christmas
+02. The Pogues & Kirsty Maccoll - Fairytale of New York
+03. Michael Buble & Rod Stewart - Winter Wonderland
+04. Brenda Lee - Rockin' Around the Christmas Tree (Re-Recorded Version)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1D84C8D61CA605B89D6457420EECA8F4A6B281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684081   (127389) от 17.12.2023
+
+TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <Hypnotic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Taking What's Not Yours (03:25)
+02.Song About Me (feat. Maddie Acid) (04:03)
+03.Cigarettes Out The Window (03:18)
+04.Till You Tell Me to Leave (03:26)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206DAC8842FB5E0410C689FE5E7922E590C1580A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685610   (127088) от 19.12.2023
+
+Kylie Minogue - Extension (The Extended Mixes) (2023) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc1:
+01. Padam Padam (Extended Mix) (4:04)
+02. Hold On To Now (Extended Mix) (5:29)
+03. Things We Do For Love (Extended Mix) (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24EBBCD3908DFA299972F75B0C07E9645B1AE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685903   (126923) от 20.12.2023
 
 Michael Cretu - Ausgewahlte Goldstucke (1994) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
@@ -597,151 +742,6 @@ Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BBE074C945C2E0E1A1A2341FD5EAD8CB1E39F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695406   (120290) от 29.01.2024
-
-Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Days (4:33)
-02. Now or Never (3:18)
-03. Beautiful (3:21)
-04. Still Loving You (5:34)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697109   (119149) от 05.02.2024
-
-Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Here (3:37)
-02. Love (Send Him Back To Me) (4:37)
-03. Storm In Our Hearts (5:06)
-04. World In Perfect Harmony (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9094394FCCFA8F06F53FD89391458112B7D3E9F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697102   (119120) от 05.02.2024
-
-Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Mister Heartache (4:37)
-02. You Came (4:34)
-03. Four Letter Word (4:04)
-04. Love In The Natural Way (4:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697396   (118992) от 06.02.2024
-
-VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Mraz - I’m Yours (4:02)
-002. Bruno Mars - Just the Way You Are (3:40)
-003. Big Mountain - Baby, I Love Your Way (4:09)
-004. Christina Perri - A Thousand Years (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698528   (118298) от 10.02.2024
-
-Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parle-moi d'amour, mon amour (3:16)
-02. Aime-moi (2:50)
-03. Pour te dire je t'aime (4:21)
-04. Histoire d'un amour (3:04)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 02:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

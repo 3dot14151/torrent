@@ -1,119 +1,3 @@
-###  Публикация: 1047517   (549396) от 30.08.2016
-
-Masahiko Togashi - Song For Myself (1974) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Chamber Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Haze [09:55]
- 02.Fairy-Tale [10:53]
- 03.Song For Myself [08:11]
- 04.Song For My Friends [11:39]Жанр: Avant-Garde Jazz, Chamber MusicПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F829748B0AFC8AA3F14C941B590BAEFA97BAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047582   (549392) от 30.08.2016
-
-Eddie Marshall - Dance Of The Sun (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The High Priestess Of Gone [12:13]
- 02.The Stroll [07:25]
- 03.Salt Peanuts [08:01]
- 04.Dannielle [08:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80BAB7D7E15A4B52B4C0BCF35B12E5C0B87403E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047669   (549388) от 30.08.2016
-
-Les McCann - On The Soul Side (1995) Jazz Heritage[FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Shabalala [05:10]
- 02.Early Riser [08:42]
- 03.Back Rub [07:17]
- 04.Vu Jade (The Feeling Of Never Having Been There Before) [08:13](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE032D31AE6F5D60ED71655BAEEC120D74BD3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309755   (549360) от 21.06.2019
-
-Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Soul, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически каждый релиз этой группы - это маленький спектакль с замечательными актерами. Я уже рассказывал про один из их альбомов. С тех пор вышло несколько релизов (почти все они есть в клубе благодаря стараниям коллеги01. Old Town Road  (feat. Miche Braden) (3:54)
-02. Young Dumb & Broke (feat. Scotty Grand) (3:28)
-03. Misery Business (feat. Scotty Grand)  (4:04)
-04. Сhandelier (feat. Scotty Grand)  (4:39)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98740C9386218548955B633A6B4BF22ABEA40B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047490   (549258) от 30.08.2016
 
 Fats Waller - Ain't Misbehavin' (1990) [WavPack|Lossless|image + .cue] <Jazz, Stride>
@@ -751,6 +635,122 @@ Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E776DD42A85FB7A1D6D20622FB644AB876066D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048791   (545806) от 03.09.2016
+
+Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collectables[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perfidia [02:48]
+ 02.Adios [02:39]
+ 03.Blue Moon [03:12]
+ 04.Georgia On My Mind [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F3418F0DD27A4DC1FD4B84465F6507047176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310756   (545340) от 26.06.2019
+
+Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ontology [4:32]
+02. Chasing Myself [4:21]
+03. Frozen Roses [3:40]
+04. Sweet Delia [7:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28CAF682E5E1DB877DFA7E42B429B71D618D8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049289   (544979) от 04.09.2016
+
+Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mr. Blues [03:53]
+ 02.On A Clear Day (You Can See Forever) [03:08]
+ 03.Hush Puppies [03:28]
+ 04.Danger Zone [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048954   (544970) от 04.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage     (04:21)
+02. How Long Is Now      (04:02)
+03. Snapchat      (04:13)
+04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
 ```
 
 https://mybot314.ru/tekegram_catalog/

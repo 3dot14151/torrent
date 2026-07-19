@@ -1,3 +1,177 @@
+###  Публикация: 1364755   (931971) от 06.03.2020
+
+Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sioux
+02. South America's Dream
+03. Toro Seduto
+04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986480   (931011) от 14.02.2016
+
+MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run
+02. Baanwarey
+03. Nadia
+04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986672   (931010) от 14.02.2016
+
+Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dijieridoo
+02. Non e semplice
+03. La voce del vento
+04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986634   (931000) от 14.02.2016
+
+John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Potter's Gift
+02. Yilowe
+03. Even in Your Darkest Hour
+04. Dance of the Moon and Stars(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986467   (930938) от 14.02.2016
+
+Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Sunshine
+02. Dreams Of Sunbeams
+03. Sunlights On The Calm Lake
+04. Sundown Magic(   Читать дальше...   )Жанр: New Age, ChilloutПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365567   (930679) от 07.03.2020
+
+a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental, Ambient, Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viridian (7:06)
+02. Emerald (4:40)
+03. Ao (3:42)
+04. Midnight Green (5:32)Жанр: Instrumental, Ambient, Acoustic, Piano, Progressive RockПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364916   (930399) от 07.03.2020
 
 VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American, New age, World music>
@@ -577,180 +751,6 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988055   (922637) от 19.02.2016
-
-Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/2000 [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (Titanic) (3:28)
-02. I Will Always Love You (The Bodyguard) (3:26)
-03. Love Theme (Romeo & Juliet) (3:20)
-04. We Have All TheTime InThe World (On Her Majesty's Secret Service) (3:21)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ACE64C3A297EF60A8B093AAF98DEE651F986A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366524   (922336) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922336.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366463   (922335) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922335.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3990566FAD3BE209A28410F9922F1DE888DAC99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366525   (922331) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922331.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2030577BCFA0D52E0A3D609F3A01D3268CEAA4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366603   (922250) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922250.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA089D2277BE7815CA22BB2F76215634D5C6722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366462   (922247) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922247.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
 ```
 
 https://mybot314.ru/tekegram_catalog/

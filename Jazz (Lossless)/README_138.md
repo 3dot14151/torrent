@@ -1,125 +1,3 @@
-###  Публикация: 356906   (596946) от 29.06.2011
-
-VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ella Fitzgerald - Black Coffee[03:30]
-02.Noro Morales & His Orchestra - Isla Verde [02:38]
-03.Paul Desmond - El Condor Pasa [03:06]
-04.Lalo Schifrin - Rapaz De Bem [02:35]
-05.Joe Henderson - Boto [06:37]
-06.Les McCann - Guantanamera [02:56]
-07.Cal Tjader - It Didn't End [03:58]
-08.Kenyon Hopkins - Hard Latin [02:13]
-09.Baja Marimba Band - Flyin' High [02:08]
-10.Chico O'Farrill - A Man And A Woman [02:31](   Читать дальше...)Жанр: Jazz, Bossa Nova, Smooth JazzПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150065   (596648) от 13.07.2017
-
-Edmond Hall - Four Classic Albums Plus (1954 - 1959) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596648.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Petite Fleur [04:09]
-02. Ellington Medley [09:43]
-03. Clarinet Marmalade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4186CCECFFE294CFFE21FAE2A5D58D2319ECA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150090   (596627) от 13.07.2017
-
-Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forward [04:42]
-02. Der Kleine Nasenbar [04:11]
-03. Jungle [04:32]
-04. Bologna [04:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Modern CreativeПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0325D46369B4CCDDF31213F033A479A2A2664FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914824   (596581) от 03.07.2015
-
-Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clan [06:20]
-02. In The Wee Small Hours Of The Morning [04:58]
-03. Newdles [07:41]
-04. The Breeze And I [04:04](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8B66A921A67F4C0F5C09002E911255894C5B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914739   (596295) от 03.07.2015
 
 Twin Danger - Twin Danger (2015) [FLAC|Lossless|WEB-DL]<Jazz Vocals>
@@ -763,6 +641,122 @@ Zoot Sims - Choice (1954, 1959) Remaster, 2002, Toshiba[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AA24516198E8978A9A8A4B8E593DD80C755D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039910   (594796) от 02.08.2016
+
+Charlie Mariano Quartet - Portrait Of France (2002) [FLAC|Lossless|tracks] <Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Mer    04:40
+02. C'est Si Bon    05:48
+03. Les Parapluies De Cherbourg    05:17
+04. La Vie En Rose    04:42(   Читать дальше...   )Жанр: Jazz, BopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C58B670984062669CBA3BBA6D99063F3115213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039509   (594794) от 02.08.2016
+
+Sonny Stitt Quartet With Don Patterson - Low Flame & Feelin's (1962) 2013, Essential Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Low Flame [05:00]
+ 02.Put Your Little Foot Right Out [05:26]
+ 03.Cynthia Sue [06:03]
+ 04.Donald Duck [04:41](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56795C2CC97E5D25690C54CA21E22B268DE9A56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039480   (594793) от 02.08.2016
+
+Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Got That Feeling! [04:55]
+ 02.Pow-Wow [02:42]
+ 03.(In The) Wee Small Hours (Of The Morning) [03:22]
+ 04.Big John Grady [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89740EA90D976DCC1257BD050C5DEAD9733A20DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039752   (594706) от 02.08.2016
+
+Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594706.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Black And Tan Fantasy [03:29]
+02.East St Louis Toodle-Oo [03:09]
+03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

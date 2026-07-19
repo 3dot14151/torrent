@@ -1,131 +1,3 @@
-###  Публикация: 562928   (405253) от 20.10.2012
-
-Caetano Veloso - A Foreign Sound (2004) [FLAC|Lossless]<Jazz, Tropicalia, Psychedelic rock, Folk rock, Bossa nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Carioca (Eliscu, Kahn, Youmans) [03:33]
-02. So in Love (Porter) [05:30]
-03. I Only Have Eyes For You    [01:20]
-04. It's Alright, Ma (I'm Only Bleeding) (Dylan)    [06:07]
-05. Body and Soul (Eyton, Green, Heyman, Sour)    [03:30]
-06. Nature Boy (Ahbez)    [01:58]
-07. The Man I Love (Gershwin, Gershwin)    [04:09]
-08. There Will Never Be Another You (Mack Gordon, Harry Warren)   [01:47]
-09. Smoke Gets in Your Eyes (Harbach, Kern)    [02:38]
-10. Diana (Anka)    [03:28](   Читать дальше...   )Жанр: Jazz, Tropicalia, Ballads, Bossa novaПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562745   (405226) от 20.10.2012
-
-VA - Venus Jazz Cafe - 20th Anniversary Special Blend (2012) 2CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maucha Adnet -  Ceu E Mar  [04:34]
-02. Simone & Her Hawaiian Jazz Band -  I'll Remember You  [03:35]
-03. Joe Beck -  And Here's To You  [05:49]
-04. Giovanni Guidi -  Norweigian Wood  [03:28]
-05. Cyrille Aimee & Diego Figueiredo -  Tea For Two  [04:54]
-06. Eddie Higgins Trio -  Again  [04:44]
-07. Phil Woods with Strings -  Easy To Love  [04:16]
-08. Marion Brown -  Crucificado  [07:23]
-09. Tessa Souter -  The Island  [05:57]
-10. Enrico Rava -  Gnid  [07:03](   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168863   (405064) от 25.09.2017
-
-The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Hopes [05:21]
-02. Our True Friends [06:24]
-03. One to Love [05:21]
-04. An Ancient Civilization [05:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB7AD89D262C9BF3E5935D21794AAD418DBBBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168929   (405063) от 25.09.2017
-
-Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We See [04:53]
-02. I'll Keep Loving You [05:44]
-03. Brilliant Corners [07:51]
-04. Rootie Tootie [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDEF6599E03FFDF70131A7A86736A1868B6CA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168871   (405062) от 25.09.2017
 
 Antonella Catanese - Red Inside (2012) Jazzy Record Label [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -799,6 +671,140 @@ Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E16DFEE234B252043EBACE163307819E891AE46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565363   (401281) от 25.10.2012
+
+Cy Coleman - It Started with a Dream (2002) [APE|Lossless]<Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some Kind of Music
+02. Witchcraft
+03. The Colors of My Life (Performed by Tony Bennett)
+04. Nothing to Do But Dance
+05. I Love My Wife/It Amazes Me
+06. September's Coming
+07. The Best Is Yet to Come
+08. I Really Love You
+09. Atlantic City
+10. Bad Is for Other People(   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565380   (401279) от 25.10.2012
+
+Custo - Cold Jazz (2008) [APE|Lossless]<Nu Jazz, Lounge, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musica
+02. Цветы эфемерны
+03. Bio Thoughts
+04. Vynil Fantasies
+05. Jazzfuzz
+06. Dream
+07. Cosmic Zoo
+08. Beautiful Thing
+09. Gods Laughing
+10. DreamЖанр: Nu Jazz, Lounge, AmbientПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564945   (401189) от 25.10.2012
+
+Mr. Chop - Switched On (2011) [FLAC|Lossless]<Funk, Acid Jazz, Electronic, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hung-Up
+02. Root Down (& Get It)
+03. Breakthrough
+04. Givin' Up Food For Funk
+05. Blow Your Head
+06. Deep Gully
+07. Greedy G
+08. Happy Birthday
+09. Vitamin C
+10. CortexЖанр: Funk, Acid Jazz, Electronic, InstrumentalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711922   (400759) от 22.10.2013
+
+Big Bad Voodoo Daddy - Live (2004) [FLAC|Lossless]<Swing Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Boogie Bumper
+03. Jumpin' Jack
+04. I Wanna Be Just Like You (Jungle Book Song)(   Читать дальше...   )Жанр: Swing RevivalПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FB1F43FCC9586FD278623A2DB2593766C14849
 ```
 
 https://mybot314.ru/tekegram_catalog/

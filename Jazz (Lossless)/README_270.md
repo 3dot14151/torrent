@@ -1,119 +1,3 @@
-###  Публикация: 853467   (214730) от 26.12.2014
-
-Dave Koz & Friends - The 25th of December (2014) [FLAC|Lossless]<Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сам Dave Koz рассказывал об этом альбоме, он был сделан на одном дыхании. И в нем слышится рождественская любовь и радость в каждой ноте. Помогли создать этот альбом великие исполнители. И как золотое обрамление, завершает этот шедевр Битловская All You Need is Love в джазовой обработке. И пусть она не покажется Вам очень не похожей на оригинал. Ведь праздник (   Читать дальше...   )01. Dave Koz - The First Noel (3:43)
-02. Dave Koz/Johnny Mathis - It’s the Most Wonderful Time of the Year (3:23)
-03. Dave Koz/Eric Benet - This Christmas (4:34)
-04. Dave Koz/Gloria Estefan - Do You Hear What I Hear? (4:12)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy ListeningПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1758E3A14ED4C15B7FA7F367049A6AE03C3C74F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653375   (214720) от 16.08.2023
-
-VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - Can’t Stop the Feeling! (4:07)
-02. Larkster Quartet - As It Was (3:34)
-03. Meg Birch - Smells Like Teen Spirit (3:41)
-04. George Lanza - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653370   (214713) от 16.08.2023
-
-VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - Let’s Stay Together (3:48)
-02. George Lanza - More Than a Woman (3:55)
-03. Larkster Quartet - As It Was (Mellow Mix) (3:35)
-04. John Burnsby - Don’t Leave Me This Way (4:33)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEA3FCE5283C13EDD15E654F92C1AFD21453950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653506   (214652) от 16.08.2023
-
-Paul Hardcastle - X (The Eclipse) (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill'n'Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavelength (Paul Hardcastle feat. Rock Hendricks)
-02. Come to Me (Paul Hardcastle feat. Maxine Hardcastle)
-03. Coastline Crusader (Paul Hardcastle feat. Rock Hendricks)
-04. Why Do We Dream(   Читать дальше...   )Жанр: Smooth Jazz, Chill'n'LoungeПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2E035AB39E5CD771A69EE4A428ACBD1B65EBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270350   (214479) от 18.12.2018
 
 Benjamin Bobenrieth - Travels (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Jazz Manouche, Swing>
@@ -744,6 +628,122 @@ VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA166919D9BE2A223B6E127963D8CA83D6A11087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638893   (211747) от 11.06.2023
+
+VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean -- Shine (4:13)
+02. eJazz Artistry -- Real Love (4:16)
+03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
+04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638880   (211734) от 11.06.2023
+
+VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima -- Pennies From Heaven (2:22)
+02. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
+03. Norah Jones -- Don't Know Why (3:06)
+04. Vince Guaraldi Trio -- What Child Is This (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20AAB1A247B6BE6C2B16D96484431026CB3F530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638894   (211726) от 11.06.2023
+
+VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion -- It Dews (5:02)
+02. Chillaxonic -- Oasis (4:58)
+03. Kool&Klean -- Guessing Game (4:17)
+04. Chillaxing Jazz Kollektion -- Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CBABD0C244752B65A75BBCC4DF8FB05C9727E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638887   (211720) от 11.06.2023
+
+VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Ellington -- In A Sentimental Mood (4:16)
+02. John Lee Hooker -- The Motor City Is Burning (2:53)
+03. Phil Woods -- Guess What? (2:50)
+04. Stan Getz -- The Girl From Ipanema (5:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819229C53FDB59A62B969ACD48AD5A70FA948F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

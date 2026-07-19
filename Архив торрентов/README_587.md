@@ -1,32 +1,3 @@
-###  Публикация: 1366248   (925740) от 10.03.2020
-
-$uicideBoy$ - Stop Staring at the Shadows (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 01 All Dogs Go to Heaven (2:34)
-02. I Wanna Be Romanticized (2:14)
-03. One Last Look at the Damage (1:38)
-04. {whispers indistinctly} (2:45)(   Читать дальше...   )Производство: G59 RecordsЖанр: Hip-Hop, TrapПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA74031D8250D733A8996D91D3B8B4725A312C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366113   (925736) от 10.03.2020
 
 File Explorer 2.1.3 [En]
@@ -684,6 +655,32 @@ uDock 2.01 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259788293B74D9D35122C3A51EA60889063603A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489487   (925650) от 16.08.2021
+
+Boring Old Menu Bar 1.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925650.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS 11 Big Sur многое делает правильно и после небольшого привыкания визуальный стиль действительно начинает вам нравиться. Однако прозрачная строка меню - это своего рода кошмар для разборчивости, и разработчик не мог с этим смириться. Поэтому он и разработал Boring Old Menu Bar, чтобы перенести «идеально прекрасную» строку меню macOS Catalina в macOS 11 Big Sur.Тип издания: macOS SoftwareРелиз состоялся: 30.06.2021Разработчик: Frank ReiffПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F05C5CD796DBE184107C172D9F1975A22B15D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

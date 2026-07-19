@@ -1,22 +1,25 @@
-###  Публикация: 1769772   (100656) от 29.12.2024
+###  Публикация: 1771015   (71936) от 05.01.2025
 
-Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock>
+Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mood SwingsЖанр: Blues, RockПродолжительность: 00:45:52
+01 - Raving And Drooling (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [13:49]
+02 - You've Got To Be Crazy (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [16:34]
+03 - Shine On You Crazy Diamond (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [22:16]
+04 - Speak to Me (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [3:18](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:14:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A559EDFED74BB10E2D876AC9AB805B819078327
+magnet:?xt=urn:btih:32F85E0AA18F73751AAC4FC354875B7405F33EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769782   (100649) от 29.12.2024
+###  Публикация: 1771017   (71933) от 05.01.2025
 
-Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
+Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Its gotta be love (3:09)
-02. Bad (3:09)
-03. Pencil lead (3:09)
-04. Driving me to drink (3:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:31:32
+01 - Shine On You Crazy Diamond (Live At Palais De Sports, Paris, France, 24 June 1974) [20:58]
+02 - Raving And Drooling (Live At Palais De Sports, Paris, France, 24 June 1974) [10:16]
+03 - Echoes (Live At Palais De Sports, Paris, France, 24 June 1974) [22:58]
+04 - Speak to Me (Live At Palais De Sports, Paris, France, 24 June 1974) [3:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01A1AF9D7EBC03B3A10E0ADC84B35A5380D14312
+magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769740   (100648) от 29.12.2024
+###  Публикация: 1771018   (71932) от 05.01.2025
 
-FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anytime You Want (Album Version) (3:59)
-02. Jailhouse Blues (3:15)
-03. Can't Stand The Blues (3:22)
-04. Don't Step Out Of Line (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:13
+01 - Raving And Drooling (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [12:01]
+02 - You've Got To Be Crazy (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [16:27]
+03 - Shine On You Crazy Diamond (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [21:09]
+04 - Speak to Me (Live At The Empire Theatre, Liverpool, UK, 29 November (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECFCF9B803C010489517C50021966DE391781D20
+magnet:?xt=urn:btih:283393551E9D6F8C975EAD7D95706CC251BAEBD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770163   (100608) от 30.12.2024
+###  Публикация: 1771252   (71931) от 05.01.2025
 
-Natalia Lafourcade - Natalia Lafourcade Live at Carnegie Hall 2022 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Son, Bolero, Jazz, Latin>
+Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (En VivoЖанр: Son, Bolero, Jazz, LatinПродолжительность: 01:45:12
+01.  Hey Mama (3:08)
+02.  Rock and Roll Band (4:13)
+03.  Mystic Lady (2:41)
+04.  Reunion (6:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8C5A63E8D8FC5248106E80DDF6878F3226E3142
+magnet:?xt=urn:btih:ECC4C0B4BDE412B14238C6CF08FC0877D1E227CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770082   (100606) от 30.12.2024
+###  Публикация: 1771010   (71926) от 05.01.2025
 
-Настя Кравченко - Первый альбом (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Rock>
+Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_100606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чокнутая любовь [00:03:21]
-02. Картошка [00:02:51]
-03. Это Я [00:03:10]
-04. Алешка [00:02:43](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:41:17
+01 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [21:58]
+02 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [12:30]
+03 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [18:05]
+04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 16 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0AC0A5209602425CE85B042EEEA6DA071124033
+magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770344   (100558) от 31.12.2024
+###  Публикация: 1771249   (71923) от 05.01.2025
 
-Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
+Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We are Bump2Soul - Live at TONE Studio, Seoul (1:38)
-02. Let’s Clap - Live at TONE Studio, Seoul (5:05)
-03. Dopamine - Live at TONE Studio, Seoul (4:17)
-04. Do you like F? - Live at TONE Studio, Seoul (5:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
+01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
+02.  The Times They Are A-Changin' (2:38)
+03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
+04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
+magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770340   (100557) от 31.12.2024
+###  Публикация: 1771224   (71922) от 05.01.2025
 
-A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bamako Convention Center (4:48)
-02.  Corny Big (4:58)
-03.  Mr. Well Dressed (4:25)
-04.  At Least The Sky Is Blue (6:34)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:42:31
+01.  Algebra Anthem (2:50)
+02.  Automatic arithmetic (1:57)
+03.  Coordinate geometry (2:36)
+04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEFEE42248294764046708E27FCCEE20122FCB43
+magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770347   (100556) от 31.12.2024
+###  Публикация: 1771267   (71920) от 05.01.2025
 
-Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Three O'Clock Blues (3:42)
-02. Fruit Boots (2:34)
-03. Tell me what's the reason (2:39)
-04. Mary Ann (4:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:19
+01.  Ain't Misbehavin' (5:14)
+02.  East of the Sun (and West of the Moon) (5:42)
+03.  Out of Nowhere (5:14)
+04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22E4767ACDA3B85045987BB87E081E85D89BC19B
+magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770350   (100555) от 31.12.2024
+###  Публикация: 1771223   (71918) от 05.01.2025
 
-Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Claw Hammer (4:27)
-02. Shop Around (3:34)
-03. Trying to Live My Life Without You (4:07)
-04. The Love Mechanic (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:45
+01.  Lovely Day (3:32)
+02.  It Runs Through Me (3:04)
+03.  Until The End of Time (4:30)
+04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C85D7619B7FC6642AD7E134785B519085544DA90
+magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770360   (100553) от 31.12.2024
+###  Публикация: 1771264   (71913) от 05.01.2025
 
-Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hitchhiking (5:02)
-02. Worried About It (6:27)
-03. Willoughby, for Mr. Serling (4:08)
-04. Close to the Truth (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
+01.  Crisis (4:42)
+02.  First Light (4:19)
+03.  Latina (4:04)
+04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2B2B696ACE10BAC26165F9B814FD0D36424E796
+magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770356   (100551) от 31.12.2024
+###  Публикация: 1771013   (71909) от 05.01.2025
 
-Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
+Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can't Get No Grindin' (2:15)
-02. Pipeline (2:42)
-03. Long Distance Call (3:31)
-04. Ida Red (2:34)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:45:43
+01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
+02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
+03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
+04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C22A2BB9A4DC9EE39422E544BA26237D8D7F2A2
+magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770352   (100550) от 31.12.2024
+###  Публикация: 1771012   (71908) от 05.01.2025
 
-Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Electric Session, Burning Again (4:16)
-02. Lazy Night (3:21)
-03. Don't Get Me Around (5:22)
-04. Junky Funky (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:24
+01 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [14:20]
+02 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [16:27]
+03 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [21:37]
+04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 17 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0638F2B64387146E2372E62228BCECB18D672E45
+magnet:?xt=urn:btih:EE53E09F913C5B40521CA0A98BEBB686FE613BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770277   (100549) от 31.12.2024
+###  Публикация: 1771248   (71906) от 05.01.2025
 
-Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocals>
+Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Ballad of the Broken Bard [00:04:39]
-02. Mistress of Nightfall [00:04:38]
-03. The Siren and the Sailor [00:07:41]
-04. Jester [00:04:44](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalsПродолжительность: 00:42:30
+01.  Deblon Jackson feat. Jerald Daemyon & Stanley Cooper - Flutopia (4:42)
+02.  Deblon Jackson feat. Jerald Daemyon - Hypnotic (4:37)
+03.  Deblon Jackson feat. Jerald Daemyon & Kevin Levi - Mozambique (3:59)
+04.  Deblon Jackson feat. Greg Dokes & Stanley Cooper - Cruisin' (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E1F8C4162DD55BD9E3E4FB8C346265A73FDAF08
+magnet:?xt=urn:btih:1D76D2F9EF0DAB81C563BF87933180AC116ED391
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770367   (100548) от 31.12.2024
+###  Публикация: 1771903   (71814) от 08.01.2025
 
-Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just Getting Started (3:53)
-02. Wait a Minute (3:21)
-03. Whole Lotta Rosie (5:04)
-04. Listen to Her Heart (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+01.  Morning Pour 朝の一杯 (1:37)
+02.  Velvet Steam ベルベットの蒸気 (2:00)
+03.  Cinnamon Clouds シナモンの雲 (2:24)
+04.  Gentle Roast 優しい焙煎 (2:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F37902159D47E93662FCE8B40AEF0C3ACA9AC53
+magnet:?xt=urn:btih:B0C613B51C050D0DA34409F9B3C8543C96DCF04A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770341   (100545) от 31.12.2024
+###  Публикация: 1771905   (71812) от 08.01.2025
 
-Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  When You Got a Good Friend (3:43)
-02.  Blue Suede Shoes (3:44)
-03.  Riding with the King (4:21)
-04.  River of Tears (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:12
+01.  Colors of Spring (3:59)
+02.  Tea (3:58)
+03.  Pure Delight (Quincy Jones Tribute) (4:32)
+04.  Just Have Something to Say (3:57)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40AA2AC650DC24306688D7EA36AE8334A5662A39
+magnet:?xt=urn:btih:C8FB1EDD4E365600B8F09912FABE0A94D0060A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770370   (100539) от 31.12.2024
+###  Публикация: 1771901   (71811) от 08.01.2025
 
-Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Make You Mine (3:29)
-02. Tell Me (3:22)
-03. A50 Avenue (5:24)
-04. The Wool (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
+01.  A love that never ends (3:20)
+02.  A night remembering you (4:01)
+03.  A song that never fades (3:48)
+04.  Bangkok Twilight (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
+magnet:?xt=urn:btih:396C8368E0A23A05151D0110ED23C55BA0B04173
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770365   (100537) от 31.12.2024
+###  Публикация: 1771899   (71806) от 08.01.2025
 
-Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Feeling You (4:37)
-02. Lonnie Brooks' Blessing (0:14)
-03. Blues In My DNA (4:48)
-04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
+01.  Dusk 'Til Dawn Blues (3:29)
+02.  Midnight Confessions (4:41)
+03.  River's Edge Blues (3:58)
+04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
+magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770362   (100536) от 31.12.2024
+###  Публикация: 1771911   (71804) от 08.01.2025
 
-River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. God Damn It, Fred (4:13)
-02. In the Neighborhood (4:01)
-03. Queen of Hearts (4:56)
-04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
+01.  Brain Freeze (3:26)
+02.  Say Whut?! (4:03)
+03.  Black Rain (4:58)
+04.  Kelly Green (4:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
+magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822157   (98605) от 05.10.2025
+###  Публикация: 1771906   (71799) от 08.01.2025
 
-Sparks - MADDER! (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
+Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Porcupine
-02. Fantasize
-03. Mess Up
-04. TheyЖанр: SynthpopПродолжительность: 00:14:51
+01.  Tobin Mueller feat. Niels van der Steenhoven, Amit Erez & Roy Agee - Dueling on Tobacco Road (6:53)
+02.  Tobin Mueller feat. Bob Lanzetti - Feels So Good (LP version) (8:39)
+03.  Tobin Mueller feat. Mikie Martel & Tomás Martinez - Electric Boots (7:17)
+04.  Tobin Mueller feat. Mikie Martel - Dreamer (6:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:148E6D222494EFE4DB8AF097E6DDEFC8E04712A5
+magnet:?xt=urn:btih:C13C97A4C41EA523CF50335022B6CA4BA2A9A607
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822117   (98601) от 05.10.2025
+###  Публикация: 1771931   (71798) от 08.01.2025
 
-Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. how long will it take to walk a mile? (interlude) [00:00:36]
-02. F**K Everyone [00:03:23]
-03. One Thing [00:03:28]
-04. d£aler [00:02:40](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:46:35
+01. PEARLESCENT (03:38)
+02. PLAYING THE FOOL (03:43)
+03. LEVERAGE (03:08)
+04. HOPE SICK (03:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0C4252BA9249BAC987C7FAD20D96ED3DBD5D973
+magnet:?xt=urn:btih:614AE5328749B97C2DD4D4666384BE32623EC250
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822131   (98593) от 05.10.2025
+###  Публикация: 1771897   (71796) от 08.01.2025
 
-Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fate of Ophelia [00:03:46]
-02. Elizabeth Taylor [00:03:28]
-03. Opalite [00:03:55]
-04. Father Figure [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+01.  Heaven Inside My Head (3:08)
+02.  Tears over Gaza (3:10)
+03.  A Worried Man Blues (3:41)
+04.  I've Got You (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
+magnet:?xt=urn:btih:06DF7F31E36478F196DA04A01E6093805372D78C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822168   (98591) от 05.10.2025
+###  Публикация: 1772304   (71789) от 10.01.2025
 
-Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
+Beriedir - Liminal Spaces (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somewhere
-02. Finca Del Sol
-03. Grand Canyon Du Verdon
-04. French Dinner(   Читать дальше...   )Жанр: Lounge, Chillout, BalearicПродолжительность: 00:24:04
+01 - Halo (03:40)
+ 02 - Neon (03:58)
+ 03 - In The Corner Of My Eyes (04:26)
+ 04 - As Tight As Phantoms Hold (03:51)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:439611E1E0C8E26D5A1FBF1EDCE85B11CE0F1DF7
+magnet:?xt=urn:btih:B7C07A5A953A6917B57D0B47CD6FB9B7594B49E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822132   (98589) от 05.10.2025
+###  Публикация: 1772448   (71780) от 11.01.2025
 
-Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+The Smoothies - Winter Chill (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cherry Valley [00:03:52]
-02. Sex, Drugs, & Country Music [00:03:36]
-03. Arrows (Die For That Man) [00:03:51]
-04. Bar Star [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+01. Daily Steps [00:03:34]
+02. Deep Waters [00:03:24]
+03. Borrowed Life [00:03:03]
+04. Always Blessed [00:03:24](   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8B10F1147985A26CD5DB83AC1FF1CF44CD58595
+magnet:?xt=urn:btih:99314E72CF98E748E52A9CE8C48B792BB72B8B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821754   (91288) от 03.10.2025
+###  Публикация: 1772667   (71779) от 11.01.2025
 
-Владимир Высоцкий - Высота (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Авторская песня>
+Eguana - Destiny, Vol. 4 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient | Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Песня о Земле [00:02:31]
-02. Охота на волков [00:03:42]
-03. Дом хрустальный [00:02:25]
-04. Песня о переселении душ [00:02:06](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:35:49
+01. Interstellar Journey [00:07:52]
+02. Stellar Phenomenon [00:05:14]
+03. Space Drift [00:07:10]
+04. Dreams of Home [00:06:26](   Читать дальше...   )Жанр: Ambient | ElectronicПродолжительность: 00:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:635FD4F0D3642557A4623AAE3FA550FB542AFA9C
+magnet:?xt=urn:btih:D6F04B66423B59022B1592431E0BC0C08750A12D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821775   (91287) от 03.10.2025
+###  Публикация: 1772455   (71769) от 11.01.2025
 
-Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Breaks, Techno, Abstract>
+Vampires Everywhere - The Devil Made Me Do It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Polygon Window [00:05:27]
-02. Audax Powder [00:04:40]
-03. Quoth [00:05:36]
-04. If It Really Is Me [00:07:03](   Читать дальше...   )Жанр: Breaks, Techno, AbstractПродолжительность: 01:15:22
+01. Antichrist [00:03:36]
+02. Cry Little Sister [00:04:28]
+03. Ghost [00:03:22]
+04. Immortal Love: Resurrection [00:05:01](   Читать дальше...   )Жанр: MetalПродолжительность: 00:36:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
+magnet:?xt=urn:btih:ED44B17C3E7D8F80AADDE46DF68CCF3ADED8C6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821759   (91286) от 03.10.2025
+###  Публикация: 1772637   (71768) от 11.01.2025
 
-Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
+Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zunge [00:04:35]
-02. Sport frei [00:04:12]
-03. Altes Fleisch [00:04:24]
-04. Übers Meer [00:03:19](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:24:54
+01 - Days of No Trust (Live) [6:07]
+02 - Lost on the Road to Eternity (Live) [6:13]
+03 - The Monster Roars (Live) [4:15]
+04 - The Archway of Tears (Live) [6:07](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D018C5C611249416F462202F564607DF46FA9D73
+magnet:?xt=urn:btih:4656589FC6760F6983BE8D50AEC7BF7D66F7217B
 ```
 
 https://mybot314.ru/tekegram_catalog/

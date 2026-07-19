@@ -1,96 +1,3 @@
-###  Публикация: 507827   (683265) от 08.06.2012
-
-VA - В Машину! Лето Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E.Lena - Истерика
-02. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (DJ MEG & NERAK Remix)
-03. 25-17 - Звезда
-04. Hi-Fi - Не Покидай
-05. DNA Family - С Пятницы По Воскресенье
-06. Lerika & DJ Sebastian - Небо и Земля
-07. Юрий Федотов & А-Нет - Волшебная Игра
-08. Roma Kenga - Ты Будешь Счастливой
-09. Music People Deejays - Выпускной (New 2012 Radio Version)
-10. David & Dino MC 47 - Ты Больше Не Моя (DJ Oleg Perets Remix)2012Жанр: PopПродолжительность: 05:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06D494FEF39B0EFA8C2CB51BCC7885800C62334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535832   (682499) от 08.03.2022
-
-Saphir - Compilation (2022) [MP3|320 Kbps] <Pop, Synth-Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shot in the Night (Instrumental Version)
-02. I Feel Good (I Feel Fine)
-03. Through Your Eyes
-04. The Witch-Queen of New Orleans (Special Witch-Mix)(   Читать дальше...   )Жанр: Pop, Synth-Pop, DiscoПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92703FA73C07B82E6E8C0518FD243F3483BF7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535585   (682234) от 08.03.2022
-
-Adele - Compilation (2022) [MP3|320 Kbps] <Pop, Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in the Dark
-02. Can I Get It
-03. Hello
-04. He Won't Go(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B58C64E317F955797631AFE41376C02EB88ED1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029535   (682207) от 26.06.2016
 
 VA - Deep in the Club - Loudness Hits Vol.1 (2016) [MP3|320 кб/с] <Pop>
@@ -757,6 +664,93 @@ VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2698A5DCFC928EB40CA63F60712BCE5EDBFC626B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030185   (674782) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 29 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avant Garde - You Got To Be Strong ( Hi-Q Mix 1994 )
+02. Paul Boy - Lucky Guy ( 1988 )
+03. Brooklyn Bounce - Take A Ride ( Radio Mix 1997 )
+04. Laserdance - Shotgun ( Into The Night ) ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EE0EA324BAFD88E90C6D9FA272201514858C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030181   (674776) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 28 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desireless - John ( 1986 )
+02. Curacao - You ( 1988 )
+03. Steel Mind - Bad Passion ( 1982 )
+04. Primadonna - I Wanna Give You My Heart ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756E562822C1344F8331623A0B7F71FA769C15CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030204   (674721) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 33 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Going - Casanova ( 1980 )
+02. Brando - Rainy Day ( 1983 )
+03. Deblanc - Monnalisa ( 1986 )
+04. Rainbow - Catch The Rainbow ( 1975 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BAE8A4C5406B6D8A8DF32471EE5E6E367BDC19
 ```
 
 https://mybot314.ru/tekegram_catalog/

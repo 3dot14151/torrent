@@ -1,31 +1,173 @@
-###  Публикация: 567753   (395772) от 30.10.2012
+###  Публикация: 1414137   (406738) от 06.10.2020
 
-Michael Cretu - Gambit (2012) [FLAC|Lossless]<Pop>
+Secret Service - Secret Mission (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Love Is The Missing Word (Extended Version, 1987)
-02. Samurai (Did You Ever Dream) (Long Version, 1985)
-03. Spiel Auf Zeit (Single Version, 1983)
-04. Zeitlose Reise (Extended Version, 1983)
-05. Silver Water (Single Version, 1985)
-06. Carte Blanche (Single Version, 1985)
-07. Captain Right (Single Version, 1988)
-08. Crazy Life (Single Version, 1988)
-09. Mona Lisa (Album Version, 1988)
-10. School's Out (Extended Version, 1987)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:55
+01. Secret MissionЖанр: PopПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023329AA6983093AB15AFDFF7333306ED0894160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414014   (406732) от 06.10.2020
+
+Patricia Kaas - Patricia Kaas (2016) Warner Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406732.jpg" />
+</div>
+
+
+###  Подробнее
+
+О выходе нового альбома певица объявила в 2015 году, сказав, что она возвращается к своему привычному стилю. Это фактически первый за 13 лет альбом, где присутствуют только новые и оригинальные песни. Позже певица рассказала, что альбом личный и отражает события последних событий её жизни, также Каас заявила, что решила затронуть на альбоме остросоциальные темы, (   Читать дальше...   )01. Adele (03:07)
+02. Cogne (03:34)
+03. Madame tout le monde (02:48)
+04. Sans tes mains (03:34)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C38F1ACBFAA8B34666EAFBECE63FE3B76E0499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564303   (402701) от 23.10.2012
+
+Taylor Swift - Red (2012) [FLAC|Lossless]<Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_402701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Grace
+02. Red
+03. Treacherous
+04. I Knew You Were Trouble
+05. All Too Well
+06. 22
+07. I Almost Do
+08. We Are Never Ever Getting Back Together
+09. Stay Stay Stay
+10. The Last Time (ft. Gary Lightbody of Snow Patrol)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:05:09
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169994   (400441) от 30.09.2017
+
+Belinda Carlisle - Wilder Shores (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adi Shakti (7:19)
+ 2. Ek Ong Kar Sat Gur Prasad (6:32)
+ 3. Light of My Soul (4:29)
+ 4. Rakhe Rakhan Har (4:51)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836895E4B7A18A93D5C8EEEC9EC93245A9F537C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 714351   (399509) от 23.10.2013
+
+Helene Segara en duo avec Joe Dassin - Et Si Tu N'existais Pas (2013) [FLAC|image + .cue]<Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Et Si Tu N'existais Pas   (3:35)
+02.  Salut Les Amoureux   (4:00)
+03.  Les Champs-Elysees   (3:11)
+04.  Salut   (3:14)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A629A7EE40D964E3FC341374A56FAA02B99FD03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171083   (397618) от 03.10.2017
+
+VA - Legacy: A Tribute To Fleetwood Mac's Rumours (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonic - Second Hand News [3:31]
+02. The Corrs - Dreams [4:02]
+03. Matchbox 20 - Never Going Back Again [3:45]
+04. Elton John - Don't Stop	[4:39](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F053FE083C33110BC2211EE5BA6FD65297A50147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,149 +741,6 @@ Billie Eilish - No Time To Die (2020) Single [FLAC 2.0|44/24|tracks|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A376F8FD7E617F9C0A9FA48F24B9893F41BAD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253466   (381693) от 10.10.2018
-
-Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image + .cue] <Classical, RnB/Swing, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Everything's Gonna Be Alright (Radio Version 85 Bpm)
-2.	Everything's Gonna Be Alright (Video Version 88 Bpm)
-3.	Everything's Gonna Be Alright (Geo's "E" Club Mix)
-4.	Everything's Gonna Be Alright (Classic Version)(   Читать дальше...   )Жанр: Classical, RnB/Swing, Hip HopПродолжительность: 00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253355   (381689) от 10.10.2018
-
-BZN  - A Symphonic Night (1996) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		Sing Of Love And Faith
-2.		Lilly Marlene
-3.		La Paloma
-4.		Le Printemps(   Читать дальше...   )Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253363   (381621) от 10.10.2018
-
-BZN - A Symphonic Night II (1998) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Il Trovatore
-2.	Les Pêcheurs De PerlesЖанр: Pop, Classical, BalladПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5C3039238B9FD4C9EF7139A1F8E90EC0D222DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252614   (381614) от 10.10.2018
-
-Loreen - Ride (2017) [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. '71 Charger (4:12)
-02. Dreams (4:40)
-03. Jupiter Drive (5:25)
-04. Fire Blue (4:20)(   Читать дальше...   )Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414734   (381598) от 10.10.2020
-
-Hundredth - Somewhere Nowhere (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Shoegaze, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere Nowhere (03:07)
-02. Out Of Sight (03:31)
-03. Bottle It Up (03:51)
-04. Leave Yourself (03:32)(   Читать дальше...   )Жанр: Indie Pop, Shoegaze, ElectronicПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA1F810EFF1857CC8DBF8FADDD236BF1BC124F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

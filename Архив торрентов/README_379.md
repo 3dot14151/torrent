@@ -1,3 +1,32 @@
+###  Публикация: 973364   (980322) от 08.01.2016
+
+DJ Nike Twist - TranceWave 132 @ GTI Radio (07.01.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shake - Teleporter 7.5 (Original Mix) (TesseracTstudio)
+2. Alan Morris - Nothing Left (Uplifting Mix) (Transistic)
+3. A.R.D.I. - Morning Sunlight (ReOrder & Dave Deen Remix) (Silent Shore)
+4. ACCADIA - Blind Visions (Neptune Project's Third Eye Remix) (Lost Language)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214CB4E7A25EE745D499140861D81A2DD9A6CD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973108   (980294) от 08.01.2016
 
 Волейбол. Отбор на Олимпийские Игры 2016. Женщины. Группа B. 3 тур. Россия - Бельгия. (07.01.2016). HDTVRip [H.264/720p-LQ]
@@ -703,41 +732,6 @@ Perpetual Loop - Nocturnal Symbiosis (2015) [MP3|320 кб/с] <Psybient, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1009D59314D6208A0CD91992D8DCBA383AB34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437069   (980095) от 15.01.2012
-
-Eluveitie - Helvetios (2012) [MP3|192-320 kbps]<Folk/Melodic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:25)
-02. Helvetios (04:01)
-03. Luxtos (03:55)
-04. Home (05:17)
-05. Santonian Shores (03:58)
-06. Scorched Earth (04:18)
-07. Meet the Enemy (03:46)
-08. Neverland (03:43)
-09. A Rose For Epona (04:26)
-10. Havoc (04:05)(   Читать дальше...   )2012Жанр: Folk/Melodic Death MetalПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A155C02DA53E2D7CAD67E0D6B3817D163AA33446
 ```
 
 https://mybot314.ru/tekegram_catalog/

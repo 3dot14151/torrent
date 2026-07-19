@@ -1,3 +1,235 @@
+###  Публикация: 1098879   (907324) от 31.01.2017
+
+VA - Chillout Dream. Winter (2017) [MP3|320 Kbps] <Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack-O-Lantern - Dreamer
+002. Norman Amarth - Intrance
+003. Artem Sky - Remember Me
+004. Xavier Baptist - The Early Bird(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CC184CD5D7A11B7F2C02E6F7B4B21E657344F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099008   (907215) от 31.01.2017
+
+VA - Beatport Trance Pack (31.01.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bluskay - Breakthrough (Original Mix)  7:22
+02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
+03.  Alex M.O.R.P.H. & Song ft. The Moon - Dont Talk Away The Magic (Heatbeat Remix Extended)  6:42
+04.  Gary McPhail - Scott (Ula Remix)  7:10(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32002A2D41DB7291896F44F7035612985055681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991474   (906566) от 28.02.2016
+
+VA - Sexy House (Cool Rhythms) (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Factor 7 - The Latest News (Sunrise Avenue Mix)
+02. Tribaphonic - Reception (Pacific Groove Mix)
+03. Love Funky - Lesson of Funky Deep (John Cambridge Mix)
+04. Gaetan Rivers - Movements Deep (Houzy Express Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E66D694B989368F6693C467A61C21267DAEA829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991495   (906558) от 28.02.2016
+
+VA - Avantgarde Chillout Vol 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pasqualle - Symbiose - Higher Mix [02:51]
+02. Masa - Cosmic Chant [06:09]
+03. Ellabi - Skyflute [06:07]
+04. DJ Kadarka - Promise Me - Chillout Remix [06:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2755CB8AB8E8A03D2E7DDB83A2DA5B91FF70DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991503   (906551) от 28.02.2016
+
+VA - Avantgarde Chillout Vol 3 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex Artists - A Timbre Touch (Slow Down Mix) [05:35]
+02. Joxephad - The Piano for Annapaola [05:35]
+03. Arkadash - Up in the Trees (Beatizer Remix) [04:16]
+04. Soulful-Cafe - Giani Sent His Donkey [02:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87B2EA6BB59D14180B2EB80D779271ACB7B7CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991469   (906537) от 28.02.2016
+
+VA - Empire Garage And U.S.House (2011 - 2013) [MP3|191-320 кб/с] <House, Funky, UK Jackin, Vocal, Tribal House, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit) 03:17
+02. Matteo Marini - Rush (Original Mix) 06:07
+03. Futuristic Polar Bears - Jetlag 05:28
+04. Deep Divas & Rehnoir - Phaze (Original Mix) 05:30(   Читать дальше...   )Жанр: House, Funky, UK Jackin, Vocal, Tribal House, TropicalПродолжительность: 09:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C8E2C5886C9F5B36C7999A59687C988070F2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368699   (906350) от 21.03.2020
+
+VA - Ремиксы от MGDC FM Vol 4 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A-Mase & Sharliz - Адреналин (Total Cover) (Radio Mix) (3:46)
+2.AMCHI - Не сходи с ума (Eugene Star & Wayne Radio Edit) (2:40)
+3.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
+4.Artik & Asti - Девочка танцуй (SAlANDIR radio remix) (4:01)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5859CD2AFF104A34A51435918BD13D9AA380FF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991476   (906325) от 28.02.2016
+
+VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906325.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kapote - Fuck Music.mp3
+002. Daviddance - Time (Feat. J. Cockburn) (Original Mix).mp3
+003. Alfrenk - Big Up (Original Mix).mp3
+004. Dj Le-Roy - She's On Fire (Original Mix).mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 08:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E3DE3A830E851BEF16541DC6F995B53509FE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991451   (906316) от 28.02.2016
 
 VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
@@ -517,238 +749,6 @@ VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492121   (902474) от 30.08.2021
-
-VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Atlas Mountains - Coucou
-002. Baits - Feelings
-003. Major Murphy - Blind
-004. Elbow - Can't Stop(   Читать дальше...   )Жанр: Alternative, rock indieПродолжительность: 07:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383CC47F80861E615EEEA1112CD22EA654902DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492082   (902412) от 30.08.2021
-
-VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902412.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Hybrid - Badboy
-002. Jungle Department - Side A
-003. Kumarachi & Dj Hybrid - Never Stop
-004. Deekline, Ed Solo - Bam Bam(   Читать дальше...   )Жанр: Jungle, D&B, Electro BassПродолжительность: 07:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E322F0A05DFDC397E4CAE1E97DC56B44A82F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492123   (902406) от 30.08.2021
-
-VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bongo & Pusk - Smalltalk
-002. Italobros - Jack
-003. Kemp&Thompson - 9th House
-004. Vorslov - Party(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 12:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F815EA0151481DAFF71B5793102B17BD59ACDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492090   (902404) от 30.08.2021
-
-VA - Beatport Jackin House: Sound Pack #337 (2021) [MP3|320 Kbps] <Jackin, Funky House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902404.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. S-Project - I Need feat Laura Welle
-002. Jerem A - Color Me
-003. Penford & Pearson - So Brand New
-004. Andradez - Splash (Original Mix)(   Читать дальше...   )Жанр: Jackin, Funky House, Nu DiscoПродолжительность: 09:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2551F80FBA5267E7C00BCC7C2EA58CF66A64682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492086   (902403) от 30.08.2021
-
-VA - Beatport Trance: Sound Pack #335 (2021) [MP3|320 Kbps] <Trance, Electro Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evolving Suns Audio - Back To The Dancefloors
-002. Musu DJ - Response To Kyo'o
-003. Roman Messer - Risk It All
-004. Rafael Osmo - Let Me Be(   Читать дальше...   )Жанр: Trance, Electro ProgressiveПродолжительность: 10:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0002AD5F08BA4335FF4B1A07FBA6F0F1C25764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492128   (902400) от 30.08.2021
-
-VA - Space Psychedelic Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902400.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neutro - Hypnosis
-002. Ashvin - Mama India
-003. Amtinaous - Apocalyps-Hilan
-004. Sun - Hidden Secrets(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9C7B6340FDC9603B5B8099EC325BFFE51C0165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492077   (902399) от 30.08.2021
-
-VA - 7 Club: Exclusive Chill House (2021) [MP3|320 Kbps] <Chill House, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Katabtu - Twisted Mind
-002. Lu York - Owe It All
-003. Matthias Vogt - Hyperjazz
-004. Sensoreal - From Tatras To Dublin(   Читать дальше...   )Жанр: Chill House, Chillout, Deep HouseПродолжительность: 09:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A04B9068B97C0F5C4393E57C7A85548A1DA5A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492125   (902398) от 30.08.2021
-
-VA - Peak Time: Techno Party (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902398.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bass Modulators - Teckzoom
-002. Phase Objekt - Wasp-12b
-003. Agustin Giri - Spectare
-004. Eduardo De La Calle - The Dub Math(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 11:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75AE7FFF5F4429E80593D09E299A7B24D62571D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 552825   (443605) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 86[MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky King - Dalilah
+02. J.Last - Concierto De Arangues
+03. Alain Musichini - La Polka Musette
+04. Armik - Gypsy Romance
+05. А.Серов - Пою тебе
+06. Arabian Night - Fantasia
+07. Ocarina - Camilleva
+08. Karunesh - Sahara Sunset
+09. А.Зацепин - Темы из кинофильмов VII
+10. Roy Etzel - Tell Laura I Love Her(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CAC7A4923B39E1C1BC21C0AE5E3C71BEB98B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552821   (443603) от 28.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 кб/с]<Instrumental>
@@ -787,35 +822,6 @@ VA - Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2556ACB423FD089202E3408D0BC07C869B41C503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573157   (410312) от 01.09.2022
-
-VA - Spa Music (2022) CD, Compilation [MP3|320 Kbps] <Meditation, Relaxing, Spa Music, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State of Concord - Eta Carinae
-02. Mantra Zone - Ascended
-03. Relaxing Piano Music - The Prayer
-04. Moonsphare - Everlasting(   Читать дальше...   )Жанр: Meditation, Relaxing, Spa Music, New AgeПродолжительность: 02:35:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E318265899D29E6040D440A244F56F1325CE73E
 ```
 
 https://mybot314.ru/tekegram_catalog/

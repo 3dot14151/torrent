@@ -1,3 +1,90 @@
+###  Публикация: 1606940   (1044078) от 26.01.2023
+
+Almach - Don't Look Back (2023) [MP3|320 Kbps] <Atmospheric Black, Oriental Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Path of the Night (Intro) [00:02:54]
+02 - Wolf [00:05:10]
+03 - Three Steps Beyond the Horizon [00:04:55]
+04 - Don't Look Back [00:06:20](   Читать дальше...   )Жанр: Atmospheric Black, Oriental Metal, Folk MetalПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A07EB5820F107871322F54DF28C08A13576396A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607428   (1043976) от 27.01.2023
+
+Walg - 3 Albums (2021-2023) [MP3|320 Kbps] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Walg
+2022 - II
+2023 - IIIЖанр: Melodic Black MetalПродолжительность: 3 CD, 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84563FD8F02333DE774A929731B59917C01FD9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607614   (1043973) от 27.01.2023
+
+Turbid North - 2 Albums (2015-2023) [MP3|320 Kbps] <Death, Groove Metal, Doom Metal, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Dying [00:04:19]
+02. The Oppressor [00:03:13]
+03. Slaves [00:03:39]
+04. Life over Death [00:04:10](   Читать дальше...   )Жанр: Death, Groove Metal, Doom Metal, StonerПродолжительность: 2 CD, 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686EB69E0A7275C58F1346D7BA29CA33EFEA92F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607370   (1043972) от 27.01.2023
 
 Iron Void - 4 Albums (2015-2023) [MP3|320 Kbps] <Doom Metal>
@@ -658,93 +745,6 @@ Delain - Dark Waters (2023) Deluxe [MP3|320 Kbps] <Symphonic, Melodic Metal, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28748497C9492541343F21501EA98E8DCCE48773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438117   (1041451) от 07.01.2021
-
-Midnight Spell - Sky Destroyer (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood for Blood (04:11)
- 02. Between the Eyes (03:44)
- 03. Lady of the Moonlight (04:29)
- 04. Midnight Ride (02:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A54939FCAB34D904BEC7C963FE138346FEFB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438141   (1041444) от 07.01.2021
-
-Alta Reign - Mother's Day (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine (04:44)
- 02. Witness (04:11)
- 03. Thin Red Line (05:42)
- 04. Never Say Never (04:59)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846D055EFCF146FDC04F6E1AA7220FBE8B0C6F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438413   (1041152) от 08.01.2021
-
-Concerto Moon - Rain Fire (2020) 2xCD, Jараnese Еditiоn [MP3|320 Kbps] <Power Metal, Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041152.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Long Way to Go (05:12)
- 02. Rain Fire (03:53)
- 03. Run for the Light (04:51)(   Читать дальше...   )Жанр: Power Metal, Neoclassical MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DEC2139ADFBC8D60C2E78A70FC822002FF87FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

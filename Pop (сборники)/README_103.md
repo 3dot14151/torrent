@@ -1,90 +1,3 @@
-###  Публикация: 1181768   (321794) от 08.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 019 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ямскова Лена - Я Без Тебя Не Умела Летать ( Rave Fly Mix 1996 )
-02. Минаев Сергей - 22 Притопа ( 1991 )
-03. Лагуна ( Виктория Харенко ) - Вот И Всё ( 1992 )
-04. Охо-Хо - Все Танцуют ( 1999 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0970B75B4AD7C230B0BE3118D3CCB490E1BD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181748   (321783) от 08.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 016 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Афанасьев Леонид - Леди № 1 ( 1989 )
-02. Метрополь - Снежная Королева ( 1991 )
-03. Джимми ( Дмитрий Сильницкий ) - Моя Печаль ( 1991 )
-04. Белые Розы ( Андрей Шишкин ) - Художник ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C65B184C6B2C72A17DCD729752294DAADF16D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958756   (321618) от 22.11.2015
-
-VA - Классный музон в твою тачку (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuteki - Песня Счастливых
-02. The Pierces - Must Be Something
-03. Анжелика Начесова - Разорву
-04. Дима Карташов - Всё Что Было С Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4645E7E9F444D6F82DCF180073FA5A09C282E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181775   (321580) от 08.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 020 (2017) [MP3|320 Kbps]<Pop>
@@ -763,6 +676,93 @@ VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076491   (312027) от 26.11.2016
+
+VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Fileum Feat. Kalle Johansson - My Father Said 3:21
+002.Andy Rey - Любви Ноль 3:52
+003.Frans - Young Like Us 3:32
+004.Анита Цой - Без Вещей 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6CA0921E50B42769B52819DB0A4A4DE4488B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076454   (311729) от 26.11.2016
+
+VA - Mega dance hits №16 (2016) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sia feat. Sean Paul - Cheap Thrills.mp3
+002. Shawn Mendes - Treat You Better.mp3
+003. The Weeknd feat. Daft Punk - Starboy.mp3
+004. Major Lazer feat. Justin Bieber & M0 - Cold Water.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B141CE015F27543B428F82D36DDC0666514DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182809   (311703) от 12.11.2017
+
+VA - Ukrainian Hits - 33 Tracks (Volume 2) (2017) [MP3|320 Kbps]<Pop, Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воплі Відоплясова - Чуваки Всьо Чотко (4:10)
+02. Estradarada - На Буковині (#Nabukovyni) (3:39)
+03. MetaMoreFozzey - ТОбi (3:04)
+04. Platina - Злива (3:55)(   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1E9157667E508770FB9931B095B9776FD53987
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1207695   (780397) от 19.02.2018
-
-На-На - По накатанной (2018) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тук-тук
-2. По накатанной
-3. 10 днейЖанр: PopПродолжительность: 00:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3A6E9AA3A7AA892F875F0410E14E61C8674850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208323   (780039) от 21.02.2018
 
 Григорий Лепс - Зае...вшие рожи (2018) Single [MP3|320 Kbps] <Pop>
@@ -741,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281713   (749816) от 09.02.2019
+
+Юрий Антонов - Юрий Антонов (1981) LP [MP3|320 Kbps] <Pop, Pop Rock, Chanson, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Вспоминаю (Sjecam Se) (5:44)
+02. Моё Богатство (Moje Bogatstvo) (2:34)
+03. Зеркало (Ogledalo) (3:38)
+04. Золотая Лестница (Zlatne Stepenice) (2:46)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, VocalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A361A1F0F6792550B43C9714C2E61906FB53A5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

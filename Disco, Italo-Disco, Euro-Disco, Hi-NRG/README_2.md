@@ -1,32 +1,3 @@
-###  Публикация: 1478642   (1010186) от 20.06.2021
-
-Patti Austin - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Electronic, Soul, Jazz-Funk, R&B, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская поп, R&B и джазовая исполнительница а так-же бэк-вокалистка, родилась 10 августа 1950 года в Нью-Йорке.01. Body Language (5:06)
-02. Another Nail For My Heart (3:14)
-03. S.O.S. (3:57)
-04. We've Got Tonight (4:18)(   Читать дальше...   )Жанр: Electronic, Soul, Jazz-Funk, R&B, Downtempo, DiscoПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161A416C5E92D002BFE4A463DC9D7212C5981E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480910   (1008737) от 30.06.2021
 
 Trinity - We'll Make It Together (1976) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -772,6 +743,35 @@ Judit Szucs - Judit (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8926FFA045ECF6F824491F6B8DA8ABC5E8308EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361539   (954276) от 20.02.2020
+
+King Sporty & The Root Rockers - Fire Keep On Burning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Keep On Burning (5:48)
+02. L-O-V-E (3:49)
+03. Get On Down (6:47)
+04. That Funky Groove (4:31)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A3D6ED65685EBD7E4C804A47E096BA09BCDB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

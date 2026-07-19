@@ -1,3 +1,102 @@
+###  Публикация: 519899   (635350) от 07.07.2012
+
+Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
+</div>
+
+
+###  Подробнее
+
+JOAQUIN RODRIGO
+
+   Concierto de Aranjuez
+01. Allegro con spirito	   5:46
+02. Adagio	 10:35
+03. Allegro gentile	   4:55
+
+   Tres piezas espanolas
+04. Fandango	[04:06]
+05. Passacaglia	[07:20](   Читать дальше...   )Жанр: Classical GuitarФормат: 6 x CDПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520920   (630865) от 09.07.2012
+
+Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
+02. A.M. Radio :: 02:46
+03. Blair Mountain :: 03:34
+04. Angel Dust :: 03:00
+05. Olden Days :: 04:43
+06. Maud Only Knows :: 03:03
+07. Penny Arcade :: 03:41
+08. Silver Fiddle :: 03:21
+09. Radiation Blues :: 03:25
+10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037277   (613768) от 24.07.2016
+
+VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moonlighters / Right On [0:02:09.49]
+02. Willie K / Holoholo Ka'a [0:02:14.32]
+03. Ehukai / Moloka'i Slide [0:03:54.11]
+04. Teresa Bright / The Cockeyed Mayor of Kaunakakai [0:02:06.66](   Читать дальше...   )Жанр: WorldПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522638   (612832) от 18.07.2012
 
 VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Stage & Screen>
@@ -697,93 +796,6 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767C8424EBE3154DECCC8FB7F55B004C9BCF949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410708   (433867) от 22.09.2020
-
-François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barn Dance (01:18)
-02. Mazurka (01:12)
-----
-Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410668   (433862) от 22.09.2020
-
-VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|image + .cue] <Pop, Folk, World & Country, Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - James Last – Biscaya (04:03)
-02 - Billy Vaughn And His Orchestra - Sail Along Silvery Moon (02:12)
-03 - Mantovani And His Orchestra - The Moulin Rouge Theme (02:50)
-04 - Frank Chacksfield & His Orchestra - Three Coins In The Fountain (03:41)(   Читать дальше...   )Жанр: Pop, Folk, World & Country, Stage & ScreenПродолжительность: 03:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BCB014A69F319BCAFF5CAC30815FF956F45167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410790   (431825) от 23.09.2020
-
-Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneback (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие под морем: приключенческие звуки Маттиаса Анебека. Присоединяйтесь к нему в фантастическом экзотическом подводном приключении со звуком! Плывите в открытое море, исследуйте его глубины, восхищайтесь их странными и красочными обитателями. Под волнами и в глубинах ждут забытые миры. Вас ждут биолюминесцентные существа, которые никогда не видели дневного (   Читать дальше...   )01. Triton, God of the Sea (05:32)
-02. Silent World (05:15)
-03. Voyage Beneath the Sea (07:43)
-04. Starfish (02:58)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBC9F5845FEDF466D09978D6A814938E64F9BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

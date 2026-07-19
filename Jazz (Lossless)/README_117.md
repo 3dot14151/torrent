@@ -1,119 +1,3 @@
-###  Публикация: 901073   (665604) от 24.05.2015
-
-Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As Your Living (6:18)
-02. Now Or Never (6:41)
-03. Guess Who I Saw Today (4:52)
-04. Perdido (4:27)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B89B4CB696FA9AED946835A2ABBF4ADD4818AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537902   (665586) от 18.03.2022
-
-Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:12]
-02. Blue Monk [8:51]
-03. For Dancers Only [9:06]
-04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224634   (664894) от 11.05.2018
-
-Helen Merrill - Parole E Musica (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notte E Giorno [01:05]
-02. Night and Day [03:07]
-03. Accade Tutto A Me [01:19]
-04. Everything Happens to Me [02:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9505C805EF6D47E704A45ECC800FDDF1BEDE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138241   (664564) от 29.05.2017
-
-Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for the Dreamer [03:54]
-02. Hodgy [02:34]
-03. My Ship [05:27]
-04. Flow Gently, Sweet Afton [04:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138439   (664558) от 29.05.2017
 
 Alice Babs - What a Joy (2014) 2CD, Prophone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -748,6 +632,122 @@ The Chet Baker Quintet - Cools Out (1956) 1991 [WavPack|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D49CC62266A439E912FB2B7E57195897C9B2AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139244   (661402) от 01.06.2017
+
+Sonny Rollins - Road Shows, vol. 2 (2011) Doxy Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Say It's Wonderful [14:47]
+02. In A Sentimental Mood [05:41]
+03. Sonnymoon For Two [21:50]
+04. I Can't Get Started [08:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DA713C8AED4FA9378AB8283E84149FE39C1C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538830   (661385) от 22.03.2022
+
+Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [4:56]
+02. Deed I Do [3:34]
+03. Here's That Rainy Day [3:08]
+04. Only You [4:34](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5229ACD1CDF703E68ACAEE6C397CCDEBCE8300D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139127   (661194) от 01.06.2017
+
+Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step into My Time Machine
+02. Hush Hush Magazine
+03. Love Gun
+04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902367   (660886) от 28.05.2015
+
+Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Misunderstand
+02. Don't Talk
+03. It Gonna Come
+04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

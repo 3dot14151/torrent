@@ -1,3 +1,91 @@
+###  Публикация: 1005954   (830483) от 10.04.2016
+
+VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slade - Did Ya Mama Ever Tell Ya
+02. Status Quo - Hard Time
+03. Paul Stanley - Take Me Away (Together As One)
+04. Slade - Look What You Dun(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9E880A934EF5A7AD1D5C26FC8FC99F1CDE8EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855575   (830348) от 10.04.2016
+
+VA - Hair Force One (2014-2015) [MP3|320 кб/с]<Hard'n'Heavy, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Private Life - Fallin' Apart [00:03:37]
+02. Electric Angels - Head Above Water [00:04:16]
+03. Joshua - Back To The Rock [00:03:34]
+04. Talisman - I'll Be Waiting [00:02:59](   Читать дальше...   )Жанр: Hard'n'Heavy, Glam RockПродолжительность: 10:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52485C9ED9ACB236C5E4A040361A111C81CD1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599891   (829127) от 22.03.2015
+
+VA - Heavy Instrumentals 01-45 (2012-2015) [MP3|177-320 кб/с]<Instrumental Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segor - Kingdom Of Heaven [00:05:50]
+02. Racer X - Catapult To Extinction [00:04:54]
+03. Mendel - Shores [00:06:46]
+04. Marcus Jidell - Rei Zan [00:03:18]
+05. Sanity Decay - Dis [00:01:54](   Читать дальше...   )Жанр: Instrumental MetalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DEF86D99EEB050EA493461BFCEAA4439BB8DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381776   (824464) от 08.05.2020
 
 Styx - Best of the Best (1972-2017) 2 CD (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Progressive Rock, Hard Rock>
@@ -658,93 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73D19495A327E8E54A2013EC04C7EE55402B3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120760   (800386) от 02.04.2017
-
-VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zero Down - No Limit to the Evil (03:39)
-002. Annihilator - Syn. Kill 1 (04:27)
-003. Anthem - Go Insane (04:43)
-004. Anthem - You (03:55)(   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5C9F2A11EEC9D1D558B83BFF2929077FB30C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384783   (800123) от 23.05.2020
-
-VA - Women of Rock (2020) [MP3|320 Kbps] <Alternative, Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800123.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blondie - Atomic (3:50)
-2. Gossip - Heavy Cross (4:02)
-3. No Doubt - Just A Girl (3:28)
-4. Hole - Celebrity Skin (2:42)(   Читать дальше...   )Жанр: Alternative, Rock, PopПродолжительность: 02:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E843441D17522B812CF2A38F725CAC52B01D249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273593   (799407) от 03.01.2019
-
-Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1 - Barrow Wake:
-01.The Enchanted Realm (5:53)
-02.Woman to Hare (Daemon Romantica Mix) (5:20)
-03.Lost to the Sea (5:34)(   Читать дальше...   )Жанр: Pagan, RockПродолжительность: 03:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

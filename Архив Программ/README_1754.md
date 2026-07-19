@@ -1,3 +1,32 @@
+###  Публикация: 1615750   (202142) от 27.02.2023
+
+Winamp Update Pack 5.9.1(c).10030 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202142.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Fix erroneous "URL: Winamp Command Handler" filetype association
+- Fix Big Bento skin drag titlebar issue
+- Fix Big Bento skin config overlap issue
+- Fix detection of Windows 11 for error reporterЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534AAE318A4EAA709D5957466911A505936437B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615860   (202138) от 27.02.2023
 
 Apache OpenOffice 4.1.14 Stable [Multi/Ru]
@@ -644,32 +673,6 @@ Revo Uninstaller Pro 5.1.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA01D52D58387CC2A1909BB37EFC3DC88E21B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655936   (201945) от 28.08.2023
-
-Adobe Audition 2023 23.6.1.3 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F4F0453183CF4A4E51462968722CEA563EAF6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

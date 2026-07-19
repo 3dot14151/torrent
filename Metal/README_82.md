@@ -1,3 +1,93 @@
+###  Публикация: 1078070   (304826) от 29.11.2016
+
+Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum
+02. Suffer the Children
+03. Nazi Punks Fuck Off
+04. Breed to Breathe(   Читать дальше...   )Жанр: Grindcore, Death MetalПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF130DF53CA76EFCF24075697D625CC11EB7D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583292   (303596) от 06.12.2012
+
+Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [MP3|320 кб/с]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Act I: The First Seal - 09:39
+2. Act II: Beyond the Black Diamond Gates - 07:14
+3. Act III: Carnal Delight in the Vortex of Evil - 06:13
+4. Act IV: Congressus Cum Daemone - 10:24
+5. Act V: The Magic Temple - 04:16
+6. Act VI: The Sixth Seal - 07:50
+7. Bela Lugosi's Dead (Bauhaus cover) - 05:28Жанр: Symphonic Black MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184225   (303536) от 16.11.2017
+
+Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium
+02. The Flower Born Of Itself
+03. Dark Daughter Of The Snake
+04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184188   (303525) от 16.11.2017
 
 Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
@@ -670,93 +760,6 @@ Saint Asonia - Flawed Design (2019) [MP3|320 Kbps] <Alternative Metal, Modern Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3918729C4727F4C60D87E1CAE739DB776A34E1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078789   (298148) от 02.12.2016
-
-Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of Tomorrow
-02. Burn It All
-03. A New Dawn
-04. Rise Again(   Читать дальше...   )Жанр: Gothic, Melodic Death MetalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423816   (298072) от 14.11.2020
-
-Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Doom Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultraviolet (06:52)
- 02. The Oldest House (06:08)
- 03. Ghost Bird (08:44)
- 04. Another World (05:47)(   Читать дальше...   )Жанр: Progressive Metal, Doom Metal, Female VocalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006A7DE2BCB01FFBC52487F0C9DD7C795A18F2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079053   (298053) от 02.12.2016
-
-Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karelia
-02. The Gathering
-03. Exile of the Sons of Uisliu
-04. Into Hiding(   Читать дальше...   )Жанр: Progressive, Doom, Folk, Melodic MetalПродолжительность: 02:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF057E84821597F21CCFFD49B25313EEB4D59D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

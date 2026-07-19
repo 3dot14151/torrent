@@ -1,119 +1,3 @@
-###  Публикация: 1601131   (152886) от 30.12.2022
-
-Howard Rumsey’s Lighthouse All Stars - Sunday Jazz a la Lighthouse (1953) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Others [6:01]
-02. All the Things You Are [5:16]
-03. Creme de Menthe [4:31]
-04. Viva Zapata! [8:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3DB9F92B4FFED8AAA1E07D8D99AECD4B929348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601117   (152791) от 30.12.2022
-
-Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tracks + .cue] <Cool, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnabout [2:17]
-02. Sunday Kind of Love [2:03]
-03. I Want to Be Happy [2:12]
-04. Tenderly [3:18](   Читать дальше...   )Жанр: Cool, SwingПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35D57B33B1B3BAECD6D6F750CCB7DBB312C9531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601120   (152784) от 30.12.2022
-
-Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Happy [5:36]
-02. If I Had You [4:35]
-03. Lullaby Of Birdland [5:16]
-04. Out Of Nowhere [6:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982AF6AB71E567EBBD70D8BA35F2FAB3C6E08FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271190   (152673) от 22.12.2018
-
-Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down Yonder in New Orleans [3:30]
-02. You Took Advantage Of Me [4:35]
-03. Mean to Me [4:51]
-04. Shake It & Break It [3:52](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2EDF122EB5B5B320A2ACEC70E02BF86C1BF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271124   (152658) от 22.12.2018
 
 Joey DeFrancesco & "Papa" John DeFrancesco - All In The Family (1998) HighNote [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
@@ -745,6 +629,122 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439C7FE74CFDCCB65C35A07D8014DCCD75F5D33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826049   (150697) от 18.10.2025
+
+Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Daniele) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Laura Lanzillo - Keep On Movin'
+02. Vento Di Passione
+03. Femmena
+04. Anna Verrà(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677515   (150571) от 18.11.2023
+
+Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaw [6:10]
+02. Melancholy Mood [6:38]
+03. Pyramid [6:42]
+04. Moon Rays [11:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5B93ECC42ECAA00E94C798D45C27F58816A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677522   (150569) от 18.11.2023
+
+Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [5:46]
+02. Perdido [7:58]
+03. Thunderbird [5:18]
+04. Polka Dots and Moonbeams [6:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154BFA258670BB985B0F3236CC93781776D04564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677500   (150568) от 18.11.2023
+
+Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Queen Bess [7:10]
+02. I Can't Get Started [5:26]
+03. Mess A Stomp [3:20]
+04. Stompy Jones - Limbo Rock [9:34](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 05:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA22902B6937802F3FF63148207A8BD167E0072D
 ```
 
 https://mybot314.ru/tekegram_catalog/

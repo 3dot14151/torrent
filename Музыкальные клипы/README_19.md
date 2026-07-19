@@ -1,3 +1,115 @@
+###  Публикация: 686687   (601321) от 06.08.2013
+
+DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548339   (600129) от 02.05.2022
+
+Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песня «ДНК» была написана больше года назад. Предложил Володе дуэт и очень благодарен другу, что он откликнулся. Выход в свет «ДНК» намечался на начало марта. Известные события внесли коррективы в наши планы. Изначально песня написана о любви. О том как взрослые люди осознанно переживают настоящую привязанность, настоящую человеческую близость, которая выше страсти. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FBD31BFADF13EF35B169F50C2CC29E9CDA3C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913609   (599965) от 01.07.2015
+
+VA - Летний марафон № 175 / Видеоклипы (Turbo Дискотека) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (29.06.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.1. 5Angels - Long Lost Weekend (Official Video) (00:03:19)
+2. Andeeno Damassy ft. Jimmy Dub - Ese Amor (Official Video) (00:03:42)
+3. Auryn - I'll Reach You (Official Video) (00:04:25)
+4. Claydee & Ermal Mamaqi - Senorita (Official Video) (00:04:14)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Reggaeton, RockПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038600   (597094) от 31.07.2016
+
+Сборник клипов - Philizz "I covered the 80s" (season 1, episode 1-5) (2016) WEB-DLRip [H.264/720-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "I covered the 80s" - фирменный видеомикс от голландского ви-джея Philizz, составленный из небольших фрагментов клипов.
+Ваши любимые композиции 80-х годов - в современной обработке.
+- Разбивка по трекам отсутствует.Episode 1:
+Modern Talking - You're My Heart, You're My Soul '98
+Rickrollerz - Never Gonna Give You Up
+Alyssa Reid ft. Jump Smokers - Alone Again(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: от 00:26:12 до 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AD374E008576E08C2BFE220E1458938578EACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548829   (596035) от 04.05.2022
 
 Владимир Пресняков – Странная (2020) WEBRip [H.264/1080p]
@@ -588,122 +700,6 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270D7EEE9EC28C96A637428B10CC4FCC08CE2750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924477   (558871) от 03.08.2015
-
-VA - Летний марафон № 178 / Видеоклипы (Зажигательный Латинский Хит ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (03.08.2015) поп. новинки латинской эстрады. Не пропустите, держите новые треки.1. Ale Blake ft. Hevito- Latin Heart (Official Video) (00:03:30)
-2. Alexis y Fido - Santa de mi devoción (Official Video) (00:04:27)
-3. All The Way ft. Bebe Rexha - Reykon (Official Video) (00:04:04)
-4. BB Bronx ft. Farruko - Bronx Whine (Official Video) (00:03:22)(   Читать дальше...   )Жанр: Latino, ReggaetonПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F18B824C7C3EDE7176762D09BFB5DB2F49AF980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924050   (558870) от 03.08.2015
-
-Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индейская музыка - музыка, которая используется, создается или выполняется коренными американцами в Соединенных Штатах и людьми индейцев Канады, определенно традиционной племенной музыки. В дополнение к традиционной музыке индейских групп, там теперь существуют межплеменные жанры, а также отличные индейские поджанры популярной музыки включая: скала, блюз, хип-хоп, (   Читать дальше...   )01. Blue Chip Orchestra - Ate Heye Lo [03:53]
-02. The Wings  [23:51]
-03. Big City Indians Earth Is Crying - Dry Her Tears - Earth Hour Song [05:00]
-04. Nature - Song for Mornings Stars [02:36](   Читать дальше...   )Жанр: Native American, Folk, New Age, EthnoПродолжительность: 03:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC37DB0C07469DA000B3E0464030BB70A54B608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924681   (557234) от 04.08.2015
-
-VA - Летний марафон № 179 / Видеоклипы (Зарубежные Клипы) (2015) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (04.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Meriem - Dilemma (00:03:30)
-2. Alexandra Stan - Cherry Pop (00:03:19)
-3. Alexandra Stan - Dance (00:03:41)
-4. Andreea Balan - Baila (Spanish Version) (00:04:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, RapПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693067   (550320) от 25.08.2013
-
-VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Level 42 - Hot Water 1984
-02. Level 42 - Lessons In Love
-03. Lionel Richie - Hello 1984
-04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

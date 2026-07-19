@@ -1,32 +1,3 @@
-###  Публикация: 1770519   (32290) от 01.01.2025
-
-VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amandi - Space Hunter (5:33)
-02. Digital Galaxy - Wind Of Phaeton (5:33)
-03. Laserlight feat. NeoSpace - Flying To The Stars (6:09)
-04. Ray Orion - Synapse (6:05)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E74C80C9E92ED53E0EBD5C57EF4A45C7CD3595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771255   (31881) от 05.01.2025
 
 Black - Wonderful Life (1987) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>

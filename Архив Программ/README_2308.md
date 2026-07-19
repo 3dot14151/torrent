@@ -1,3 +1,29 @@
+###  Публикация: 1779987   (27447) от 16.02.2025
+
+Display Driver Uninstaller 18.0.9.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E0E29415AFF4D09D91C460954B07A774A9B484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780152   (27438) от 16.02.2025
 
 Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 13.02.2025) [Multi/Ru]
@@ -649,32 +675,6 @@ Activation Program 1.03 Portable by Ratiborus [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0FA8EB9FDCE2433A7881208C94FCFA59C43798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780509   (27219) от 18.02.2025
-
-Foobar2000 2.24.2 include Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27219.jpg" />
-</div>
-
-
-###  Подробнее
-
-foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для других форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5FB60896CF8F0A38C1E9169197064ACE3B80C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

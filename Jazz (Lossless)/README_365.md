@@ -1,119 +1,3 @@
-###  Публикация: 1756476   (39560) от 22.10.2024
-
-Gary Burton & Paul Bley - Right Time Right Place (1991) GNP Crescendo [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ida Lupino [9:13]
-02. Isn't It Romantic? [6:04]
-03. Laura's Dream [7:01]
-04. Carla [5:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D292FA4E0668F62F5CF8F32A73AC63D8470DBCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000302   (39525) от 23.10.2024
-
-Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I've Got the World on a String [05:39]
- 02.Midnight Sun [04:41]
- 03.How Long Has This Been Going On? [06:04]
- 04.You're Blase [05:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEF17FF6E4452E9919036D605E777515AEBC521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290023   (39506) от 23.10.2024
-
-Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Too Soon [2:55]
-02. I'm Scared [2:36]
-03. September Song [3:06]
-04. You Go to My Head [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318666   (39502) от 23.10.2024
-
-Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown [1:51]
-02. Take the 'A' Train [2:42]
-03. I Left My Heart in San Francisco [4:08]
-04. S'Posin' [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507EBBCE06E28C732B694E3E977112E5AE6D2E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140938   (39501) от 23.10.2024
 
 Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Shanachie [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2B0288C61CB6C19626DB06AA429D63B4B2FB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554093   (39354) от 24.10.2024
+
+Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One of Those Things [3:00]
+02. Fly Me to the Moon [4:46]
+03. Announcement Sarah Vaughan [1:32]
+04. Love Finds a Way [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DDEDD06F7B9C962326EA7366541CE64E5427E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554831   (39352) от 24.10.2024
+
+Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dedicated to You [2:48]
+02. My Funny Valentine [3:01]
+03. Shulie a Bop [2:42]
+04. Lover Man [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757102   (39285) от 25.10.2024
+
+Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's New [10:37]
+02. My Melancoly Baby [9:06]
+03. Easy Living [4:16]
+04. All The Things You Are [8:24](   Читать дальше...   )Жанр: CoolПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757202   (39179) от 26.10.2024
+
+Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby I'm A Fool (3:32)
+02. If The Stars Were Mine (2:50)
+03. C’est Magnifique (4:52)
+04. Morning Sun (5:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6285C537ED9BB9519792E1285FABB1DD75A1D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

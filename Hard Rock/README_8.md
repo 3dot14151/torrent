@@ -1,3 +1,61 @@
+###  Публикация: 1209007   (779634) от 24.02.2018
+
+Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of A
+02. The Black Widow (Live In Columbus)
+03. Public Animal #9 (Live In Columbus)
+04. Is It My Body (Live In Columbus)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5263805AB8DD14A55967737434DE6434FF3558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209915   (779109) от 28.02.2018
+
+Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart and Soul (feat. Robin McAuley & Kirk Hammett) (4:20)
+02. Warrior (feat. Gary Barden, Graham Bonnet, Robin McAuley & Doogie White) (5:21)
+03. Take Me to the Church (feat. Doogie White) (4:46)
+04. Night Moods (feat. Graham Bonnet) (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D3D15F4B5A52D9A596368EF67042B0F5FE2FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013917   (776935) от 06.05.2016
 
 Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] <Hard Rock>
@@ -686,64 +744,6 @@ Odyssey Desperado - Don't Miss The Sunset (2018) [MP3|320 Kbps] <Melodic Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E412B63CCACA8C20627B14AA24001876D190354A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396100   (750071) от 13.07.2020
-
-Shout The Band - Made Of Gold (2020) [MP3|320 Kbps] <Melodic Hard Rock, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Into You (03:29)
- 02. Memories (03:07)
- 03. Wake Up Call (04:12)
- 04. Loser Boy (03:26)(   Читать дальше...   )Жанр: Melodic Hard Rock, Alt.RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF34900C8330D81638D14DEDC66B5B475697B5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020148   (746822) от 25.05.2016
-
-Acacia Avenue - Early Warning (2016) [MP3|320 кб/с] <Hard Rock, Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Love    04:40
-02. Running Out Of Time    04:44
-03. Broken Dreams    05:14
-04. Early Warning    04:48(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard Rock, AORПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA01B86C2D3458F8658B33C8BBDBF78043C843BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

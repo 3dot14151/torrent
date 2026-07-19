@@ -1,3 +1,38 @@
+###  Публикация: 437069   (980095) от 15.01.2012
+
+Eluveitie - Helvetios (2012) [MP3|192-320 kbps]<Folk/Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:25)
+02. Helvetios (04:01)
+03. Luxtos (03:55)
+04. Home (05:17)
+05. Santonian Shores (03:58)
+06. Scorched Earth (04:18)
+07. Meet the Enemy (03:46)
+08. Neverland (03:43)
+09. A Rose For Epona (04:26)
+10. Havoc (04:05)(   Читать дальше...   )2012Жанр: Folk/Melodic Death MetalПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A155C02DA53E2D7CAD67E0D6B3817D163AA33446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614802   (980077) от 06.02.2013
 
 Трейси Слэттон | Бессмертный [2007] [FB2]
@@ -687,32 +722,6 @@ Wallpapers - Computer Desktop Wallpapers Collection 605 [JPEG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3AAAC72A75AD7B2DEA760122B4B8FEF4B0E112D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614722   (979907) от 06.02.2013
-
-IDimager Pimp My Picture 1.1.5.87 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pimp My Picture - забавный редактор изображений, который позволяет вам добавить на любую фотографию мультяшные изображения (и не только) и текст из собственной библиотеки, содержащей более 600 изображений, практически для любого случая.Название программы: IDimager Pimp My PictureЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

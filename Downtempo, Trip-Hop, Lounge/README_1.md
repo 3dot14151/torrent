@@ -1,3 +1,32 @@
+###  Публикация: 1762479   (102866) от 29.11.2024
+
+Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (02:02)
+02 - Delusion (04:50)
+03 - Ангелы (05:37)
+04 - The Heart Of The World (04:43)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E388257563C8A8E8ED32C86D9015FFF2B8EE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769730   (100647) от 29.12.2024
 
 VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>

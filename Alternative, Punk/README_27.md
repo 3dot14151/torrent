@@ -1,3 +1,67 @@
+###  Публикация: 405617   (370648) от 03.11.2011
+
+Leningrad Cowboys - Buena Vodka Social Club (2011) [MP3|192-320 kbps]<Rock'N'Roll / Hard Rock / Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Gun Blues (02:26)
+02. All We Need Is Love (03:35)
+03. Drill A Hole (04:04)
+04. Gimme Your Sushi (03:05)
+05. Rock n Roll Show (04:57)
+06. I Kill The Dog (02:55)
+07. Gasolina (03:19)
+08. Buena Vodka Social Club (04:25)
+09. Frijoles Y Lager (01:33)
+10. Wash Your Ass (04:40)(   Читать дальше...   )2011Жанр: Rock'N'Roll / Hard Rock / SkaПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66480226924875A4286DF4D8727E5D86C1818F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950515   (370362) от 26.10.2015
+
+40 Below Summer - Transmission Infrared (2015) [MP3|320 кб/с]<Alt. Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mangina (4:21)
+02. Snake Charmer (4:05)
+03. Birthright (3:28)
+04. She Is The Atmosphere (4:18)(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AA21A1B4DDF624B5D80F46489628A0C03C565A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416387   (367496) от 16.10.2020
 
 Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, Post-Hardcore>
@@ -695,70 +759,6 @@ VA - Punk Rock Halloween - Loud Fast And Scary (2017) 2CD [MP3|320 Kbps] <Punk R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB88E8DAA7B0A32D5779F7A1D103B38E51ED62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579517   (348201) от 23.11.2012
-
-The Stranglers - Greatest Hits On CD&DVD (2012) [MP3|320 кб/с]<Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Get A) Grip (On Yourself)
-02. Peaches
-03. Go Buddy Go
-04. Something Better Change
-05. No More Heroes
-06. 5 Minutes
-07. Nice N' Sleazy
-08. Walk On By
-09. Duchess
-10. Nuclear Device(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD7B30ED77C2BDB10FF0B2AA6E7A19ED2C24425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953736   (346965) от 05.11.2015
-
-Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Church Bell
-02. You Walk Alone
-03. Blood Red
-04. Son Of Mine(   Читать дальше...   )Жанр: Alternative, 80's Darkwave, Indie RockПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
 ```
 
 https://mybot314.ru/tekegram_catalog/

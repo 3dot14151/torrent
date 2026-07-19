@@ -1,148 +1,3 @@
-###  Публикация: 1272029   (147039) от 25.12.2018
-
-Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World looking in (4:08)
-02. Rome wasn't built in a day (3:36)
-03. The sea (5:48)
-04. Col (4:11)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, Downtempo |Продолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684F0D36F9F4AADCDAA720B9E4EBED6046E22B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272224   (145846) от 26.12.2018
-
-VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Deepluxe
-02. Living Room - Lazy Days
-03. Thomas Siffling Trio - Die Leichtigkeit des Seins
-04. Francois Maugame - Vitra(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 01:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEDB75D3186DE0735B258E5FBEF5B44E2CDDFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678418   (145654) от 21.11.2023
-
-Jean Mare - Atmospheric Dreams (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everlasting Love
-02. Pictures In My Mind
-03. Timeless
-04. Popmod(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D503CABCA4C260809759C087323E18F086C2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520541   (142070) от 28.12.2021
-
-VA - A Day to Relax: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Happy Daze (original mix) (03:42)
-02. Leo De La Rosa - Easy Game (05:16)
-03. The Soul Crusaders - The Garden Of Eden (05:10)
-04. Digby Jones - No Other Smile (original mix) (04:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D137D73F210FF5DDEDF10A3410C69BFBA4DA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969230   (141674) от 30.12.2015
-
-Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandas In Tandem (5:46)
-02. You And Me Against The Sky (4:12)
-03. And Then She Stepped Aside (4:58)
-04. Around The Corner From Everywhere (4:51)(   Читать дальше...   )Жанр: Trip Hop, AmbientПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348579   (141626) от 29.12.2019
 
 VA - Cafe Del Mar Ibiza (2010) 8 CD [FLAC|Lossless|tracks + .cue]<Lounge, Chill Out, Easy Listening>
@@ -745,6 +600,148 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29D69DBCFA8D833C71C40C28A78D8FADC7E54B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688737   (125057) от 30.12.2023
+
+VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Romantic Paris (Original Mix) (2:28)
+02. Giovanni Tornambene - Gentle Kiss (4:36)
+03. James Butler - Valse De La Noblesse (Original Mix) (3:01)
+04. Euphonic Traveller - Café Champs Elysées (Original Mix) (6:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCEE77FC4EB45055455D1AB28C74C6C9621DE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689145   (124884) от 31.12.2023
+
+Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Shores (Chilltronica)
+02. Winter Whites
+03. Hourglass (Marcus Loeber Ambient Mix)
+04. Concept OneЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CB856DF67A591DCB493A24ED509EF579A147CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689464   (124651) от 02.01.2024
+
+draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, glitch hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. like a nuisance [00:02:56]
+02. cut the check [00:01:52]
+03. wax figures in the rain [00:02:51]
+04. throwing rocks [00:02:21](   Читать дальше...   )Жанр: alternative, glitch hopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66670C99FEF90966FB3DA41B234E9DB4BCF69076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690041   (124193) от 05.01.2024
+
+Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being One
+02. Heat Of The Night
+03. A New Age
+04. The Water(   Читать дальше...   )Жанр: Lounge, Chillout, BalearicПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9B49E57CDD51CF638EF61EC25D2A9F06FF987D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690393   (123945) от 07.01.2024
+
+Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109F6110BD63D3F66021F3EA23738B6BE038E438
 ```
 
 https://mybot314.ru/tekegram_catalog/

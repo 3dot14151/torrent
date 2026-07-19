@@ -1,125 +1,3 @@
-###  Публикация: 366242   (537094) от 23.07.2011
-
-Shakatak - The Ultimate Collection (2008) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_537094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Start Over Again (3:43)
-02. Sunshine (3:52)
-03. Catwalk (4:24)
-04. All Because Of You (4:18)
-05. Without You (4:28)
-06. Night Moves (4:38)
-07. Day By Day (3:44)
-08. Summer Of Love (4:31)
-09. Jazz Creepin' (3:36)
-10. Steveland (4:12)(   Читать дальше...)Жанр: Jazz, Smooth JazzПродолжительность: 02:30:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050444   (536748) от 09.09.2016
-
-VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Old Black Magic [04:41]
- 02.Johnny Come Lately [03:31]
- 03.Tea For Two [02:53]
- 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050760   (536746) от 09.09.2016
-
-Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New Groove [06:47]
- 02.The Awakening [04:27]
- 03.White Lightnin' [05:23]
- 04.Sultry Serenade [07:14](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFC2CF5AF12D01C04A8DA6141BF6ECA455AD159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050736   (536738) от 09.09.2016
-
-Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.All Through The Night [03:18]
-02.Anything Goes [03:23]
-03.Miss Otis Regrets [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D5187CA61F06360DF1A027D99D842390BDB84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050507   (536735) от 09.09.2016
 
 Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -751,6 +629,122 @@ Dickie Wells - 1927 - 1943 (1997) Classics [FLAC|Lossless|tracks + .cue] <New Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C2D95F7F628BC0D65ECEC6935483AFDA5BB75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312257   (534498) от 03.07.2019
+
+James Williams - Magical Trio 2 (1988) Emarcy [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bohemia After Dark [3:42]
+02. Too Late Now [6:42]
+03. A Portrait of Elvin [6:13]
+04. Roadlife [6:15](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB56681613C62F57A3208EC82F9C495D6285AA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558248   (533768) от 19.06.2022
+
+Gene Krupa & Harry James - The Complete Capitol Recordings Of Gene Krupa & Harry James (1946 - 1958) 7CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533768.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Indiana [3:00]
+02. My Old Flame [2:19]
+03. Wings On My Shoes [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63267E6E84DC2725F53A5488606DB5948F920591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926525   (533663) от 10.08.2015
+
+Mavis Rivers & Shorty Rogers - Mavis Meets Shorty (1962) /2014, Warner/[FLAC|tracks+.cue]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember You [02:12]
+02. You Brought A New Kind Of Love To Me [03:04]
+03. When Sunny Gets Blue [02:28]
+04. Nothing But The Best [02:47](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD33C1750745E5D5B7F6F7A2228EF9B4F3E73F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926529   (533662) от 10.08.2015
+
+Lester Bowie's Brass Fantasy - I Only Have Eyes For You (1985) [FLAC|image+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Only Have Eyes For You [10:32]
+02. Think [01:32]
+03. Lament [13:56]
+04. Coming Back, Jamaica [05:17](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5697AC04DC0EACA04CDE4CEDFD8D85A5D1D986E
 ```
 
 https://mybot314.ru/tekegram_catalog/

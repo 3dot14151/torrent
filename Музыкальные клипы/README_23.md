@@ -1,3 +1,110 @@
+###  Публикация: 701921   (472726) от 20.09.2013
+
+Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Black Sabbath
+02. Rare Bird - Sympathy
+03. Blodwyn Pig - See My Way
+02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547677   (471962) от 16.09.2012
+
+Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386753   (469518) от 12.09.2011
+
+Калевала / Сон Река (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED534BE9D41677009E16AE4BEA23C8847F43ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386720   (469420) от 12.09.2011
+
+Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Wish You Were Here» — третий сингл с четвертого альбома Аврил Лавин Goodbye Lullaby. Впервые о песне как о сингле упоминалось в телефонном интервью, когда Аврил находилась в Германии на ежегодной выставке-показе «The Bread & Butter Surepshow».Жанр: ВИДЕОКЛИПРежиссер: Марк УэббАктеры: Avril LavigneПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B771C69AEB95AFCC549FC08C2956D446281469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702256   (467982) от 22.09.2013
 
 Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
@@ -593,117 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7D8AE18D2D0471F2B14105B223D4B84D299959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550358   (458367) от 22.09.2012
-
-Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550366   (458365) от 22.09.2012
-
-Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388575   (458069) от 17.09.2011
-
-Legends Disco Star-80 (2009) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
-хркъSandra:
-Maria Magdalena
-The Night is Still Young
-ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321667   (456447) от 25.08.2019
-
-Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
-01. La Bouche - Be My Lover
-02. Backstreet Boys - Everybody
-03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

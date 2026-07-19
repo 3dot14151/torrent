@@ -1,3 +1,32 @@
+###  Публикация: 1253206   (385551) от 08.10.2018
+
+VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forestdene - Sweet Lullaby (03:57)
+02. Ron Asprey - I Will Always Love You (04:00)
+03. Louis Clark - Pachelbelt`s Canon (03:31)
+04. Alessandra Ruffini - The Flower Duet from Lakme (01:36)(   Читать дальше...   )Жанр: New Age,Instrumental,JazzПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253057   (385447) от 08.10.2018
 
 Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -713,35 +742,6 @@ Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F657DFD3B9A04616CC8BD48141F778D2CAE5C6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070935   (363997) от 08.11.2016
-
-Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered [FLAC|Lossless|tracks+.cue] <New Age, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Landing (1:05)
-02. Turn Around (3:51)
-03. Gravity Of Love (3:58)
-04. T.N.T. For The Brain (5:17)(   Читать дальше...   )Жанр: New Age, TranceПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
 ```
 
 https://mybot314.ru/tekegram_catalog/

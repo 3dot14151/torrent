@@ -1,119 +1,3 @@
-###  Публикация: 1246593   (461571) от 11.09.2018
-
-J.J. Johnson & Nat Adderley - Yokohama Concert (1977) 2CD, 1997, Pablo Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461571.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Horace [7:23]
-02. Cyclops [6:28]
-03. Why Not [8:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3011261D1F43A4BD842D0B92CE678CA6488AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161861   (461511) от 31.08.2017
-
-Marius Neset - Golden Xplosion! (2011) Edition Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introducing: Golden Xplosion [02:01]
-02. Golden Xplosion [05:27]
-03. City on Fire [07:43]
-04. Sane [03:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF769B66095D16B9E755AF1765175925CDDCEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162110   (461509) от 31.08.2017
-
-Masabumi Kikuchi Trio - Sunrise (2009) 2012, ECM Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad I [05:40]
-02. New Day [04:49]
-03. Short Stuff [02:12]
-04. So What Variations [05:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC09FB5FD213EB37F6D77936DCB1C512A8E43DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941683   (460291) от 28.09.2015
-
-Opa - Goldenwings (1976) /1996, BMG Ariola/ [FLAC|tracks+.cue]<World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Goldenwings [04:16]
-02.Paper Butterflies (Muy Lejos Te Vas) [07:11]
-03.Totem [04:41]
-04.African Bird [05:41](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4E7269347A0ED58836B7F6C3EC49CF27C52315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941726   (460290) от 28.09.2015
 
 Paul Quinichette - On The Sunny Side (1957) /1996, OJC/ [FLAC|tracks+.cue]<Mainstream Jazz>
@@ -744,6 +628,127 @@ Al Jarreau - Heart's Horizon (1988) [FLAC|Lossless|image + .cue] <Smooth Jazz, J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC29FA659849F1BA0650C0D95466FAF1D76EABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549947   (457265) от 22.09.2012
+
+Hiromi Uehara - 5 альбомов (2004 - 2011) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice [09:14]
+02. Flashback [08:39]
+03. Now Or Never [06:17]
+04. Temptation [07:55]
+05. Labyrinth [07:41]
+06. Desire [07:20]
+07. Haze [05:54]
+08. Delusion [07:47]
+09. Beethoven's Piano Sonata No. 8, Pathetique [05:13]Жанр: Jazz, Vocal, Contemporary Jazz, Post Bop, FusionПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247102   (457123) от 13.09.2018
+
+Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elephant Dust [7:26]
+02. Scorned as Timber, Beloved of the Sky [6:55]
+03. Mirror Image [8:23]
+04. Rosie [6:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B8A8CC3019DC855A3D6681AB39647A57E4FE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247027   (457122) от 13.09.2018
+
+Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumping at the Woodside (3:04)
+02. All of Me (3:06)
+03. One O'Clock Jump (3:50)
+04. Lester Leaps In (4:05)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E841944BBF7183600DAD3C1814FA4672918A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247075   (457113) от 13.09.2018
+
+Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United [4:06]
+02. Ruby [7:50]
+03. I Fall in Love Too Easily [7:03]
+04. We See [7:25](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F971F5994C7A55FCE29C2274414E69A04E0C5D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

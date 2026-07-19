@@ -1,3 +1,30 @@
+###  Публикация: 1275108   (790914) от 10.01.2019
+
+Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybrid x86 & x64 (от 09.01.2019) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
+Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BA3B347CAFF1F1F88FEA5A5C837C5EE0613984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202021   (790892) от 27.01.2018
 
 Easy Duplicate Finder 5.10.0.992 RePack (& Portable) by elchupacabra  [Multi/Ru]
@@ -645,32 +672,6 @@ Ocenaudio — аудио-редактор, распространяемый ав
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1972B481702FEAA3C3E3B018D6BF7FCF9EAFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387714   (790656) от 03.06.2020
-
-GPU Caps Viewer 1.45.0.0 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790656.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34244D1BA83031B67FBDDF6EA0F22F1EED2BE8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

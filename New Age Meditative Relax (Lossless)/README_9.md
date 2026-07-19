@@ -1,3 +1,32 @@
+###  Публикация: 1122959   (793425) от 06.04.2017
+
+Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hommage To Buddha Dhamma Sangha
+02. Perfecting the Ten Paramitas
+03. Calling The Lama
+04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D302C3E60E80DED6BA4F24F88A2EDD80976C219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201009   (792778) от 24.01.2018
 
 Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
@@ -713,35 +742,6 @@ Kathryn Kaye - There Was a Time (2016) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CEB72BF50580908C7709A565D01E6181DC5F880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211296   (777561) от 07.03.2018
-
-Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium (The Time Of The Time) (3:28)
-02. 11:11 Rendezvous (4:07)
-03. Desert (4:25)
-04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9784BC796258A449E547D0CCBD587322980357D
 ```
 
 https://mybot314.ru/tekegram_catalog/

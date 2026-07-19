@@ -1,3 +1,31 @@
+###  Публикация: 1355623   (982120) от 27.01.2020
+
+Векторный клипарт - Fotolia - Color Patterns [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Цветные узоры
+28 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310D03DA0A6B06D0D2B0D285F2A81FDA6C6D403A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355632   (982113) от 27.01.2020
 
 Векторный клипарт - Fotolia - Cute Cartoon Animals In A knitted Cap [EPS]
@@ -619,32 +647,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CDED62E73217D8BF827A7C53D1356CAA05D229E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747842   (959445) от 21.01.2014
-
-Векторный клипарт - Сборник стокового вектора / Shutterstock Collections [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_959445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стокового вектораФормат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DA693208F778743EFAD9E307664E513B8F3CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

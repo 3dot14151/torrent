@@ -1,3 +1,29 @@
+###  Публикация: 1466728   (1018252) от 01.05.2021
+
+Internet Download Manager 6.38 Build 22 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB35934E2010515B150E924BC6BD786A8159F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466824   (1018225) от 01.05.2021
 
 Soft Organizer Pro 8.18 (акция comss) [Ru/En]
@@ -649,35 +675,6 @@ Foreca Weather - локальные прогнозы погоды и данны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3EEDB9810E4A5E5DF914ED812A2C7D2F54B3028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467162   (1017917) от 03.05.2021
-
-Tim van Werd - Live  @ Molin De Hoop Gorinchem, Netherlands (2021-04-30)[MP3|320 Kbps] <Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim van Werd - Believe (Intro Edit)
-02. Ben Böhmer & Tinlicker ft. Felix Raphael - Run Away
-03. Reflekt ft. Delline Bass - Need To Feel Loved (Tim van Werd Remix)
-04. deadmau5 - luxuria (ov) (Tinlicker Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFBAB29C312C7F2FF1D14AA415EEF04D19FD1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

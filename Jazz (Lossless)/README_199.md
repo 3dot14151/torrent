@@ -1,119 +1,3 @@
-###  Публикация: 1171881   (394926) от 06.10.2017
-
-Ruby Braff - Ruby Braff Goes “Girl Crazy” (1958) 2009, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraceable You [04:57]
-02. Treat Me Rough [04:19]
-03. But Not For Me [06:29]
-04. Boy! What Love Has Done For Me [03:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B93B1D9937934F563EF4134991D6E6ACB33501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171787   (394892) от 06.10.2017
-
-EABS - Repetitions (Letters To Krzysztof Komeda) (2017) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Hip-hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knowledge (Introdukcja do Etiudy Baletowej) 04:08
-02. Perły i Dukaty XIV / Repetition 10:55
-03.Private Conversation VIII 06:16
-04. Niekochana 05:07(   Читать дальше...   )Жанр: Jazz-Funk, Hip-hopПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9BA55E126F2189CB32297058BEA8AF6E408413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172165   (394165) от 07.10.2017
-
-Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394165.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - That Night at Birdland:
-01. Alien Chase On Arabian Desert [08:57]
-02. Silent Story In Her Eyes [07:33]
-03. Roller Jubilee [04:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C065A3EAF299DD8F6D9CF5DB1D411AF26D189A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172155   (394164) от 07.10.2017
-
-Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bei Mir Bist Du Schon [05:02]
-02. Papirossen (Cigarettes) [04:25]
-03. Kazochok (Russian Dance) [02:51]
-04. Vuloch (A Folk Dance) [04:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D6E6D3E027C68800193CCC618A824FDD9C5AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172171   (394097) от 07.10.2017
 
 VA - Disney Adventures in Bossa Nova (2009) Disney [FLAC|Lossless|tracks + .cue] <Bossa Nova, Brazilian Jazz>
@@ -767,6 +651,122 @@ Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, War
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFEDD18D8BB868A1688717DB0FAD31F3A22E062F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067489   (387923) от 29.10.2016
+
+Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Classics[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Opening Theme: Straighten Up And Fly Right [01:12]
+ 02.Sunday [01:35]
+ 03.Wildroot Cream Oil Commercial [00:54]
+ 04.Wildroot Charlie [01:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C50B48BBA1150F6FF5A293D02687F46E53D1CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414210   (387890) от 07.10.2020
+
+Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RIAS-ticity [7:25]
+02. Work Song, Part I [1:43]
+03. Work Song, Part II [6:55]
+04. Lost in Zurich (Verloren in Zurich) [7:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8EF9CD7CD4E5BEED224C99FFCA4FF50E57462F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414171   (387889) от 07.10.2020
+
+Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Again [3:13]
+02. Little Joe [3:12]
+03. I'll Be Glad When You're Dead, You Rascal You [3:12]
+04. Them There Eyes [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DF7FA6405EEA28D5F41FE03D8C788210A7A490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414213   (387884) от 07.10.2020
+
+Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Dance [7:41]
+02. Chant [6:41]
+03. Means and Ends [7:52]
+04. Dual Nature [7:09](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95023D8A1F2CED13CFC4798F176FD96F68CEBCB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

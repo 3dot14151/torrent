@@ -1,32 +1,3 @@
-###  Публикация: 1318285   (496586) от 05.08.2019
-
-Tight Fit - The Lion Sleeps Tonight (1982) Vinyl Rip [MP3|320 Kbps] <Pop, Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion Sleeps Tonight    [03:29]
-02. Fantasy Island    [03:36]
-03. Hearts Of Stone    [04:09]
-04. Break Hearts Of Glass    [03:21](   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E636F0F46CD90385B1875C26035B0E6FDB8CB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243095   (496002) от 25.08.2018
 
 Angie Gold - 4 Albums (1982-2012) [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
@@ -739,6 +710,35 @@ A' La Carte - 4 Albums (1980-1989) Reissue CD [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A6A5CE4C0A99284886AEE1372D58186AAFA614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320311   (473371) от 17.08.2019
+
+Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Moves On (6:01)
+02. Said You Didn't Love Him (3:13)
+03. Front Row Romeo (Instrumental) (4:23)
+04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
 ```
 
 https://mybot314.ru/tekegram_catalog/

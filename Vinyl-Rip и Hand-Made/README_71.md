@@ -1,25 +1,25 @@
-###  Публикация: 1705829   (113752) от 10.03.2024
+###  Публикация: 1708835   (112923) от 22.03.2024
 
-Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
+Маркиза - Маркиза (1990) [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Barcelona (F.Mercury – Moran) 5.38
-02. La Japonaise (F.Mercury – Moran) 4.49
-03. The fallen priest (F.Mercury – Moran – Rice) 5.45(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:39:46
+Сторона 1
+01. 220 вольт (Д. Лукьянов — Е. Соколова)
+02. Спи, дитя (А. Василенко — Е. Соколова)
+03. Зря ты пришел(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
+magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705833   (113743) от 10.03.2024
+###  Публикация: 1708828   (112922) от 22.03.2024
 
-Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
+Игорь Николаев - Мисс Разлука (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112922.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1.
-01 - Именно так
-02 - Свети ярче
-03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
+01. Стефания. (Музыка и стихи И.Николаева)
+02. Я сказал себе "Стоп!". (Музыка и стихи И.Николаева)
+03. Консуэло. (С.Краевский - Д.Берков)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
+magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706054   (113674) от 12.03.2024
+###  Публикация: 1708699   (112913) от 22.03.2024
 
-ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
-02 - Когда-нибудь. (М. Минков - А. Макаревич)
-03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
+A1 Lifeless
+A2 The Beast
+A3 The Claws Of Time
+B1 Across The Vacuum(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
+magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706322   (113670) от 12.03.2024
+###  Публикация: 1708935   (112912) от 22.03.2024
 
-VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112912.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Weakling Avenger
+A2 Raining Murder
+A3 Sin Origin
+B1 Command(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DFD1F23E84D899651C9087B7FFCD79906F3681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708848   (112911) от 22.03.2024
+
+Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready?
+02. Love Hungry
+03. Burning Up
+04. The Fight Goes On(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25F32133441C14161B96E23F78C7A37EB878476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708784   (112907) от 22.03.2024
+
+Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
+02. "Stealing Away" (Samson, Aylmer, Moore)
+03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
+04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709103   (112902) от 23.03.2024
+
+Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ведьма (М. Рябинин) — 3.56
+02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
+03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709105   (112882) от 23.03.2024
+
+Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
+02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
+03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709097   (112873) от 23.03.2024
+
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112873.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1:
-01-Эй, гражданка (В. Гин) – Ирина Понаровская
-02-Пустынный берег (В. Дюнин) – Аркадий Укупник
-03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706045   (113669) от 12.03.2024
+###  Публикация: 1709186   (112863) от 23.03.2024
 
-The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Дай мне прибежище.
-02 - Тщетная любовь.
-03 - Деревенщина.(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:03
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706317   (113660) от 12.03.2024
+###  Публикация: 1709183   (112860) от 23.03.2024
 
-VA - Вот какая любовь. Песни Романа Майорова (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Вот какая любовь (М. Рябинин) — Ирина Уварова и Николай Караченцов
-02. Город (Я. Гальперин) — Ансамбль «Пламя»
-03. Твой портрет (Л. Волков) — Юрий Охочинский(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:42
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706168   (113655) от 12.03.2024
+###  Публикация: 1709109   (112855) от 23.03.2024
 
-VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
+Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1.
-01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
-Rock Aid Armenia - 4.05
-02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
+01. Mars Within (Intro)
+02. Abduction
+03. Soul Intruders
+04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
+magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706403   (113645) от 12.03.2024
+###  Публикация: 1709141   (112852) от 23.03.2024
 
-S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
+Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 March Of The S.O.D.
-A2 Sargeant D & The S.O.D.
-A3 Kill Yourself
-A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
+Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
+2017 - Kingslayer
+2020 - Rush Of Death
+& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
+magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706377   (113642) от 12.03.2024
+###  Публикация: 1709396   (112844) от 24.03.2024
 
-S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash, Hardcore>
+Новая коллекция - Край наших надежд (1990) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. March Of The S.O.D.
-A2. Sargeant D & The S.O.D.
-A3. Kill Yourself
-A4. Milano Mosh(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:28:31
+Сторона 1
+01. Ностальгия
+02. Неизвестная история
+03. Над суетой(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F5387B593C58308B580708704B1BCF20331AD3
+magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706436   (113629) от 12.03.2024
+###  Публикация: 1709400   (112823) от 24.03.2024
 
-Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Ольга Воронец - Поёт Ольга Воронец (1973) [FLAC 24/192|Lossless|tracks] <Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Cromlech
-A2 Sunrise Over Locus Mortis
-A3 Soulside Journey
-A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
+01. Зачем вы, девочки, красивых любите (Е.Птичкин – И.Шаферан)
+02. Бабья доля (Г.Пономаренко – М. Агашина)
+03. Как случилось (Е.Птичкин – В.Харитонов)
+04. Семёновна (Е.Барыбин – Ю.Погорельский)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
+magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706537   (113593) от 13.03.2024
+###  Публикация: 1709748   (112801) от 25.03.2024
 
-VA - Летная погода. Песни на стихи Михаила Танича (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112801.jpg" />
 </div>
 
 
 ###  Подробнее
 
 1 Сторона.
-01. Всюду только ты
-С. Березин
-ВИА «Пламя» п/у С. Березина(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:42
+01-Пролог
+02-Песенка Керри
+03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63126EB0B7897E07B1C15273756C1E0F2F1F0262
+magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706538   (113587) от 13.03.2024
+###  Публикация: 1710234   (112763) от 26.03.2024
 
-VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112763.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1:
-01. Подмосковные вечера (В. Соловьев-Седой) – оркестр Рея Коннифа
-02. Пей из источника (Д. Холидей) – Джонни Холидей
-03. Влюбленные из Софии (В. Казасян - Д. Ценов) – Лили Иванова(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:07
+01. О мое солнце (Э. Капуа)
+02. Аве Мария (Ф. Шуберт)
+03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5117310C952C2444FCC81F1E705322C1916057A1
+magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706531   (113571) от 13.03.2024
+###  Публикация: 1710244   (112744) от 26.03.2024
 
-VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <Pop>
+София Ротару - Монолог о любви (1987) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112744.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01 - Птица счастья (А. Пахмутова) — 3.16
-ВИА «Здравствуй, песня». Художественный руководитель А. Хаславский
-02 - День в сентябре (Р. Газизов) — 3.32(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:06
+01. Песня нашего лета (В. Матецкий — М. Танич)
+02. Ночь (музыка и слова В. Лащука)
+03. Осень (И. Поклад — Г. Тараненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C77DC329D6362CAB98D68F297861606B1447455
+magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +520,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706532   (113567) от 13.03.2024
+###  Публикация: 1710056   (112740) от 26.03.2024
 
-VA - Леонид Дербенев - Треугольное солнце (Робинзон II) (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112740.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Panic Attack
+A2 The Serpent And The King
+B1 Invincible Shield
+B2 Devil In Disguise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710232   (112733) от 26.03.2024
+
+Ренат Ибрагимов - Все вернется (1980) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Все вернется (Р. Паулс - Я. Петерс, русск. текст И. Резника)
+02. Дождь (Р. Паулс - Я. Петерс, русск. текст А. Дементьева)
+03. Шире круг (Р. Паулс - Я. Петерс, русск. текст И. Резника)
+04. Любовь настала (Р. Паулс - Я. Петерс, русск. текст Р. Рождественского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F80DBD276E9591EF02C08D7F7B1F19F20FA919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710261   (112719) от 26.03.2024
+
+София Ротару - Нежная мелодия (1985) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112719.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01 - Новый танец «Робинзон» (О. Сорокин)
-02 - Небывальщина (О. Сорокин)
-03 - Треугольное Солнце (О. Сорокин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:40
+01. Магазин «Цветы» (Д. Тухманов— Л. Григорьева)
+02. Песня о моей жизни (А. Кирияк — Г. Виеру)
+03. А музыка звучит (А. Мажуков — Н. Зиновьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64E8A347E130BF14A72F250733C93DDF7619177
+magnet:?xt=urn:btih:FA32957AFFF1E09CE8C91401CB21832DC2A209C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,173 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706543   (113564) от 13.03.2024
+###  Публикация: 1710528   (112662) от 27.03.2024
 
-ВИА «Скальды» (Польша) - Скальды (1973) [FLAC 24/192|Lossless|tracks] <Folk Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Размышления деревенского почтальона. (Слова Л.Мочульского, русский текст Г.Хила)
-02 - Прелестная виолончелистка. (Слова В.Миннарского, русский текст Г.Хила)
-03 - Если ты любим. (Слова А.Ястшембец-Козловского)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF325A340C78E3BCB2C441E20289BC180A4E19E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706497   (113537) от 13.03.2024
-
-Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Эдита Пьеха - Эдита Пьеха (1974) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113537.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kathaarian Life Code
-A2 In The Shadow Of The Horns
-A3 Paragon Belial
-B1 Where Cold Winds Blow(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706679   (113536) от 13.03.2024
-
-M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113536.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Aren't You Hungry
-A2 Get A Real Job
-A3 I Executioner
-A4 Don't Feed The Bears(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30EE1E98ADF72E3B6A7E779F085AA30AC48D3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706803   (113506) от 14.03.2024
-
-VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Раз, два, три - хорошая погода (Б. Емельянов - Л. Завальнюк)
-Ансамбль «Рапсодия»
-02. Вечерние встречи, танго (С. Туликов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C15F270DE47441CE6B5AD50BD71AE2EDF356D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706796   (113493) от 14.03.2024
-
-VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Букет (А. Барыкин — Н. Рубцов)
-А. Барыкин и рок-группа «Карнавал»
-02. Она идет по жизни смеясь (А. Макаревич)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612496321138E34F83DE0AE2697AE70E6D990E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706805   (113488) от 14.03.2024
-
-ВИА "Экспресс" (Венгрия) - Серебрянный "Экспресс" (1979) [FLAC 24/96|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112662.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1:
-01 - Уже четыре часа (М. Малек — Т. Шоймош);
-02 - Губная гармоника (А. Шие — Ф. Кондьел);
-03 - Мечта (П. Калмус — Т. Шоймош);(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:21
+01. Край берёзовый (А. Броневицкий – И.Резник)
+02. Гвардии сестрёнка (В. Соловьев-Седой – Я.Голяков)
+03. Наташка (В. Потёмкин – А.Аускерн)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B11C51DAD9F45DE3786709B13545783C2345EEF
+magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706799   (113477) от 14.03.2024
+###  Публикация: 1710526   (112656) от 27.03.2024
 
-VA - Перекати-поле. Песни на стихи Лидии Козловой (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+Тухманов - Памяти гитариста. Памяти поэта (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112656.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01 - Перекати-поле (А. Лунев)
-Надежда Чепрага
-02 - Не повторяй (А. Кальварский)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
+1. Памяти гитариста (Д. Тухманов — Р. Рождественский)
+Сторона 2
+2. Памяти поэта (Д. Тухманов — А. Вознесенский)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:12:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0084FDC69A0D983069AB6C45967536D1B1CFA753
+magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706709   (113471) от 14.03.2024
+###  Публикация: 1710525   (112643) от 27.03.2024
 
-Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Стеллинии Эгг, Ванжи Орико (Бразилия) - Бразильские песни (1956) [FLAC 24/96|Lossless|tracks] <Folk, World, & Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Natassja In Eternal Sleep
-A2 Summer Of The Diabolical Holocaust
-A3 The Dance Of Eternal Shadows
-A4 Unholy Black Metal(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:39:36
+Д-3110
+Стеллиния ЭГГ
+01 - Бум-ки-ти-бум (нар. танец);
+02 - Негритянский танец (Э. Таварес - сл. нар.);(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE8043BDA0ABD65552E7AB1DB668F9A3830EA30A
+magnet:?xt=urn:btih:BF16DE49AA322BC156EEA5DAB873EFACA28C28BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707114   (113369) от 16.03.2024
+###  Публикация: 1710935   (112585) от 28.03.2024
 
-VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <Pop>
+Александр Градский - Русские песни (cюита на темы народных песен) (1980) [FLAC 24/192|Lossless|tracks] <Rock, Folk, World, & Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112585.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1.
-01. Хор и оркестр Рея Коннифа - Смех под дождем. (Н.Седака - П.Коди)
-02. Демис Руссос - От сувенира к сувениру. (С.Влавианос - Р.Костадинос)
-03. Вокальный дуэт "Баккара" - Дорогой. (Р.Сойа - Ф.Достэл)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
+01 - Ничто в полюшке
+02 - Дарю платок (страдания)
+03 - Таня белая (хоровод-танок)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:36:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8D70161BCD134BFC21B925B940E01382FA103D5
+magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,86 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707111   (113367) от 16.03.2024
+###  Публикация: 1711499   (112497) от 30.03.2024
 
-VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вальс из к/ф «Анна Павлова» (Е. Дога) — Ленинградский концертный оркестр л у А. Бадхена
-02. Расскажите, птицы (муз. и сл. И. Николаева) — Алла Пугачева
-03. Созвездье Гончих Псов (И. Якушенко – И. Шаферан) — группа «Диалог»(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55384416176FCC706B87AA4CCD13D15875F7DD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707328   (113362) от 16.03.2024
-
-VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+Алексей Глызин и группа "Ура" - Зимний сад (1990) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112497.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01. Маскарад (И. Саруханов — О. Писаржевская, А. Монастырев) — 5.07
-И. Саруханов
-02. Предсказание (Д. Тухманов — Г. Кантор) — 2.53(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:57
+01. Зимний сад — 4.35
+02. Африка — 4.35
+03. Все позади — 3.40(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:044D48609E12F54357734761AFF866778E03BBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707333   (113360) от 16.03.2024
-
-Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Поезд. (Н.Олев)
-02 - В саду играет музыка. (М.Танич)
-03 - Танцуем "диско". (А.Дементьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CC2ABCA3284B62DB9CE190F52CCAAA5EDCE547
+magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

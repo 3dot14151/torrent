@@ -1,3 +1,119 @@
+###  Публикация: 1011372   (796298) от 28.04.2016
+
+Blue October - Home (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coal Makes Diamonds
+02. Driver
+03. Heart Go Bang
+04. I Want It(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A352DA0A1C1D2C18E0C0B11AFFADE34B6B078582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508896   (796278) от 10.11.2021
+
+Emma Ruth Rundle - Engine of Hell (2021) [FLAC|Lossless|tracks + .cue] <Post Rock, Experimental, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return (05:16)
+ 02. Blooms of Oblivion (05:39)
+ 03. Body (05:27)
+ 04. The Company (04:12)(   Читать дальше...   )Жанр: Post Rock, Experimental, AlternativeПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A10EA61C91E8E954E22C175BD6E602C11DFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508999   (795480) от 11.11.2021
+
+Radiohead - Kid A Mnesia (2021) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, IDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Spinning Plates ('Why Us?' Version) (05:05)
+ 02. Untitled V1 (01:49)
+ 03. Fog (Again Again Version) (02:25)
+ 04. If You Say The Word (04:23)(   Читать дальше...   )Жанр: Alternative Rock, IDMПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D13C1FCAAB444B994A1814E0CFBE64F6B806F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011847   (795456) от 29.04.2016
+
+The Gathering - Nighttime Birds (1997) 2CD remastered, 2008, limited edition [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On Most Surfaces (Inuit)  6:55
+02.  Confusion  6:33
+03.  The May Song  3:45
+04.  The Earth Is My Witness  5:31(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5550B43DF2C9FD552F1E3D7EC24D576F9F5CE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011211   (795444) от 29.04.2016
 
 Interpol - Our Love To Admire (2007) Deluxe Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
@@ -629,122 +745,6 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275310   (790487) от 11.01.2019
-
-Alter Bridge - AB III (2010) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip to the Void (4:52)
- 02. Isolation (4:13)
- 03. Ghost of Days Gone By (4:25)
- 04. All Hope Is Gone (4:48)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D42EB4F24C71FB4F7057742061B1AB43B1AAFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388157   (790130) от 04.06.2020
-
-Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violet (3:24)
-02. Miss World (3:00)
-03. Plump (2:34)
-04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275903   (789483) от 13.01.2019
-
-Baby Jey - Someday Cowboy (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah Holliday's Son
-02. U Don't Have 2 Go Alone
-03. Toboggan
-04. Someday My Space Cowboy Will Come(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED7B22CDAF46DB4F9DCABCBAE572209BD33C64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202957   (789090) от 31.01.2018
-
-Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time in Joy (6:19)
-02. Count It Up (3:42)
-03. Front of House (1:45)
-04. Share a Pillow (2:54)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

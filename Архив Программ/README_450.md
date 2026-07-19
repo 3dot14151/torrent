@@ -1,3 +1,29 @@
+###  Публикация: 1197840   (813054) от 08.01.2018
+
+Adguard Premium 6.2.437.2171 RePack by elchupacabra (7.01.2018) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73D94BC8F9B65DD49E290C22E81C8B2C4129E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118336   (813047) от 25.03.2017
 
 Stellarium 0.15.2 + classic [Multi/Ru]
@@ -644,33 +670,6 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D647E0C1738ADE1DF171BB1EC60D3E9B7CAD863A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008832   (812064) от 20.04.2016
-
-Mp3tag 2.76 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах.
-Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883837B997A7C68FE171DE9B775DC7CD91280190
 ```
 
 https://mybot314.ru/tekegram_catalog/

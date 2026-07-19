@@ -1,22 +1,22 @@
-###  Публикация: 1791680   (21322) от 15.04.2025
+###  Публикация: 1789797   (22371) от 05.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Christmas Bokeh and Glitter Texture Digital Paper [PNG]
+Шрифты - Creative Fabrica - Sweet Romantic Collection Font & Graphics Bundle [OTF, TTF, PNG, PSD, AI]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с рождественским боке и блестящей текстуройФормат: PNGРазрешение файлов: 3600 x 3600
+Большой комплект интересных шрифтов. К некоторым шрифтам бонусом идет комплект алфавита png, psd, ai и svg файлами.Формат: OTF, TTF, PNG, PSD, AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3EE933A922FB13F46CDFA982D8C7C052BC10E0E
+magnet:?xt=urn:btih:318FD209EAA0B0809C145FB5C22D7357DEC9A6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791694   (21320) от 15.04.2025
+###  Публикация: 1789799   (22370) от 05.04.2025
 
-Текстуры - Creative Store - Creative Fabrica - Modern Mid Century Digital Papers [JPG]
+Звуковые библиотеки - Triune Digital - Sound Design Tools [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с разрешением 300 DPI.Формат: JPGРазрешение файлов: 3600 x 3600
+Более 600 высококачественных звуков в 32 папках. Записано в живом звуковом павильоне для мощного звука. Идеально подходит для звукового дизайна, сочинения музыки, создания ресурсов и редактирования.Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:830CBA60A44EBD421ED46A1641E6D63DA607E04B
+magnet:?xt=urn:btih:3295A680C4CCBE0552D0E5A5FA6259CCA4DAC59B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791695   (21318) от 15.04.2025
+###  Публикация: 1789732   (22369) от 05.04.2025
 
-Фоны - STCrafts - Creative Fabrica - Eastern Enchantment Digital Paper Backgrounds [PNG]
+Пресеты (LUTs) - Tropic Colour - BLACKMAGIC CONVERSION LUTS [CUBE]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очарование востока на цифровом бумажном фоне.Формат: PNGРазрешение файлов: 3600 x 3600
+Мы создали 5 конверсионных LUTs, предназначенных для работы со всеми камерами Black Magic! Надежно сконструированные и проверенные в бою, эти LUTS мгновенно преобразуют ваше LOG / FLAT изображение в более естественный вид "709 Inspired"!Формат: CUBE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95676AAD28BEEC53DE5E78DA1CCD42909C4055FF
+magnet:?xt=urn:btih:FED2B34B0D42C2FD8D5331CEAED3466A1DC4F946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791692   (21313) от 15.04.2025
+###  Публикация: 1789667   (22364) от 05.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Overgrown Brick Texture Digital Paper [PNG]
+Пресеты (LUTs) - SpectrumGrades – ARCUS Contemporary Collection Film Looks Presets LUTs [CUBE]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с заросшей кирпичной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Этот пакет предлагает передовые LUT-ы и ценность , которая включает аналоговые/архетипные, полихромные и новые современные световые образы.
+Отличный пакет для улучшения ваших фильмов, чтобы достичь современного кинематографического вида, который в противном случае был бы достигнут только профессиональными экспертами-колористами.Формат: CUBE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADF6BD768491EC7E71BEB0FE08B5D130B4F26606
+magnet:?xt=urn:btih:DF99D6E85B5C0015D9C0D94F9B8A14BD1771960E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791700   (21312) от 15.04.2025
+###  Публикация: 1789725   (22356) от 05.04.2025
 
-Паттерны - Creative Fabrica - Abstract Boho Festive Mandala Seamless 6 [JPG, PNG, EPS, SVG, PDF, AI]
+Пресеты (LUTs) - Joel Famularo - Phantom LUTs [CUBE]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактная праздничная мандала в стиле бохо - бесшовная.Формат: JPG, PNG, EPS, SVG, PDF, AIРазрешение файлов: 4000 x 4000
+Для пользователей Canon, которым нужны более творческие возможности для постобработки или которых не устраивают стандартные технические LUT-таблицы Canon, я разработал LUT, которая точно имитирует цветовую технологию ARRI Alexa 709 для C-Log2 и 3. Наряду с LUT-таблицей для эмуляции существуют 4 креативных вариации LUT , которые поставляются вместе как пакет ARRI (   Читать дальше...   )Формат: CUBE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DABC5E721B7B3D1B3DD84022E085FFBEF2439A6
+magnet:?xt=urn:btih:2BE8EAF6CD33A8A39007A7FA183A5DE73A3B9122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791671   (21309) от 15.04.2025
+###  Публикация: 1789852   (22291) от 06.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Winter Night Texture Digital Paper [PNG]
+Звуковые библиотеки - Bryan Delimata - Essential Sound Pack [WAV, PRFPSET]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с текстурой зимней ночи.Формат: PNGРазрешение файлов: 3600 x 3600
+Мгновенно добавляйте стандартные бытовые и промышленные звуки, используемые профессионалами в настоящее время в свой звуковой дизайн.
+Свыше 100 полностью оригинальных высококачественных звуков в 14 различных категориях и 4 предустановки звуковых эффектов Premiere Pro, разработанные AyoDouson в сотрудничестве с Bryan Delimata.Формат: WAV, PRFPSET
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFACA9EC1285B97C40C8A547DD393179CACCCACE
+magnet:?xt=urn:btih:9B2701F68F9D9DC1A6999EDA70E71EB2D8C894AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791697   (21306) от 15.04.2025
+###  Публикация: 1789934   (22286) от 06.04.2025
 
-Растровый клипарт - Designworld - Creative Fabrica - Cute Tropical Animal Clipart [PNG]
+Пресеты - Triune Digital - Hipster LUTs [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением тропических животных.Формат: PNGРазрешение файлов: 3600 x 3600
+35 пресетов, вдохновленных некоторыми из наших любимых хипстерских фильмов: «Наполеон Динамит», «Бёрдмэн», «Клуб «Завтрак», «Большой Лебовски», «Отель «Гранд Будапешт», «Реквием по мечте», «Прерванная жизнь», «Эдвард Руки-ножницы» и многими другими.Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B791680DF35FD53F84A0540A9A7131AA59729AE8
+magnet:?xt=urn:btih:D667BD2F5B98BBAB10866F6D50AEFD4067A3CAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791889   (21261) от 16.04.2025
+###  Публикация: 1789842   (22274) от 06.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Luxury Emerald Green Texture Digital Paper [PNG]
+Звуковые библиотеки - Cinepacks - Sound FX [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с изумрудно-зелёной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Индивидуальные звуковые эффекты идеально подойдут для тизеров музыкальных клипов, трейлеров или собственных кинопроектов. В этот пакет входит более 100 специально созданных звуков. Все файлы высокого качества.Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:976057CEFAFF74ADEF1B47A07AF3CEA882937DFE
+magnet:?xt=urn:btih:4C660496AA17C27A900C81F57205B35560CBCF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,26 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791870   (21258) от 16.04.2025
+###  Публикация: 1789862   (22273) от 06.04.2025
 
-Фоны - themefire pro - Behance - Free Frosted Glass Backgrounds - 205428025 [JPG]
+Пресеты - Life Through Optics - LTO 2.0 Editing Masterclass & Preset Pack [XMP, DNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные абстрактные яркие градиентные фоны с зернистостью.
-Матерал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5300 x 3333
+Если вы устали от непоследовательного редактирования, трудоемких рабочих процессов и испытываете трудности с получением высококачественных результатов, мой мастер-класс по редактированию и набор пресетов дадут вам все необходимое, чтобы вывести ваши фотографии на новый уровень.Формат: XMP, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFC80B2E3268CFD4A56319A6D258CE3EA284CC0B
+magnet:?xt=urn:btih:E5CA35E9801702EF3F13D57DB557C2E99A5B8464
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +234,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791890   (21256) от 16.04.2025
+###  Публикация: 1789949   (22271) от 06.04.2025
 
-Фоны - Wout Hardy - Behance - Aqua Drift - 8 Premium 3D Gradient Backgrounds - 219025167 [PNG]
+Пресеты - Gumroad - The Wedding Collection [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-8 высококачественных 3D-градиентных фонов на тему воды.Формат: PNGРазрешение файлов: 2912 x 1664
+Стиль редактирования Николь Иванов характеризуется классическим и естественным подходом, подчеркивающим вневременную элегантность и подлинность. Набор пресетов Wedding Collection представляет собой смесь сбалансированных цветовых палитр с тонкими, реалистичными тонами, избегая чрезмерно насыщенных или сильно контрастных эффектов. Пресеты были тщательно настроены, (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:037EE923A568424AB27CD2F4992990A3E429DD54
+magnet:?xt=urn:btih:DD450E7D373E69C6D2A435D4029755E143C88A4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +260,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791869   (21242) от 16.04.2025
+###  Публикация: 1789877   (22257) от 06.04.2025
 
-Фоны - Burhan Khawaja - Behance - 120+ AI Backgrounds 5K Free - 210869059 [JPEG]
+Шрифты - MyFonts - Solomon Sans [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор бесплатных фонов в 10 тематических вариациях, сгенерированных ИИ.Формат: JPEGРазрешение файлов: 5376 x 3584 - 5824 x 3264
+Новое семейство шрифтов Solomon Sans включает 14 уникальных стилей дизайна. Семейство шрифтов характеризуется превосходной читаемостью, хорошо законченными геометрическими узорами, оптимизированным кернингом и т. д.
+
+Кириллица поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6536A4620919BBA7DCD6277FA44025B41E57B897
+magnet:?xt=urn:btih:488BACC67449957D4355EE0F7B5FBA1E0FB2551F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +288,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791885   (21240) от 16.04.2025
+###  Публикация: 1789915   (22253) от 06.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Pastel Spring Butterflies Digital Paper [PNG]
+Пресеты - gerardneedham - Modern Film Collection - V2 [XMP, DNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
+От автора: "Создавайте чистые снимки с мягкой, средней насыщенностью и контрастностью, сохраняя при этом динамичные цвета пленки и достигая великолепных оттенков кожи.
+
+Первые 5 пресетов основаны на моих любимых пленочных материалах, за ними следуют еще 5 пресетов, которые черпают вдохновение из пленки, но адаптированы для пейзажей, времен года и портретов. (   Читать дальше...   )Формат: XMP, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F80C6364215CDC2A7C1BB7AABA38C59F7F9787CA
+magnet:?xt=urn:btih:C401091D9547CB34567ACBDB72918BE538477A70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791879   (21238) от 16.04.2025
+###  Публикация: 1789881   (22251) от 06.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Portuguese Azulejo Blue Delft Tumbler Wrap [PNG]
+Пресеты - Jenny Pearl Photography - JENNY PEARL PRESETS 02 [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки для стаканов.Формат: PNGРазрешение файлов: 2790 × 2460
+От автора: "Мои НОВЫЕ пресеты версии 02 уже здесь! Я так рада поделиться ими с вами! Идеальный пресет с теплыми кремовыми тонами, при этом делая ваши изображения четкими. Мой пакет пресетов включает в себя пресеты «Лето», «Осень», «Зима», «В помещении» и «Ч/Б»."Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1A9989B9FEB3299EAF9E861C7D970D22DB4068
+magnet:?xt=urn:btih:A039270D847FC267E1563A873524D1169C231009
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791873   (21234) от 16.04.2025
+###  Публикация: 1789860   (22250) от 06.04.2025
 
-Фоны - STCrafts - Creative Fabrica - French Cottagecore Blue Floral Digital Paper Backgrounds [PNG]
+Шрифты - MyFonts - Nanami Rounded Pro [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Синие цветочные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+Nanami Rounded Pro содержит все чудеса оригинальных семейств Nanami, но с существенно расширенной языковой поддержкой, включая кириллицу и расширенную латиницу, что приводит к общему количеству 458 тщательно созданных глифов.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E82B4308782BF3F39977F516630B1FC61C60AE6
+magnet:?xt=urn:btih:4E88A90768FF9FE60DE3A8CA03C21B312516378A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791886   (21230) от 16.04.2025
+###  Публикация: 1790067   (22186) от 07.04.2025
 
-Фоны - STCrafts - Creative Fabrica - Neon Yellow Damask Digital Paper Backgrounds [PNG]
+Шрифты - Stan Podoba - Behance - Topor Free Font - 195720257 [TTF, OTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неоново-жёлтые Дамасские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Stan Podoba
+Материал раздаётся с официальной документацией.
+В добавленных файлах в папке "Topor By He Rez AD" от "He Rez AD" расширенная кириллица (добавлена Украинская, Белорусская, Молдавская), добавлены знаки пунктуации и прочие символы, у некоторых глифов объединены контуры по причине их фрагментации.Формат: TTF, OTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
+magnet:?xt=urn:btih:2AAE955FB7F4AD313BAE1A3D907370154D0002E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +397,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791888   (21222) от 16.04.2025
+###  Публикация: 1790190   (22184) от 07.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Luxury Indigo Texture Digital Paper [PNG]
+Пресеты - Stewart Wood Photography - Macro Presets V3 (16 AI Adaptive Presets) [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роскошная цифровая бумага с текстурой цвета индиго.Формат: PNGРазрешение файлов: 3600 x 3600
+Термин  «адаптивные пресеты»  просто относится к пресетам, которые могут каким-то образом адаптироваться к изображению, к которому они применяются. Вы, возможно, слышали об адаптивных пресетах ISO, которые поддерживает V3, они адаптируются к вашим изображениям, применяя различные настройки в зависимости от того, как пресет был обучен реагировать на значение ISO изображения. (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A91E020265FAED7AA891F76E8F0A8AAE3D03D5AF
+magnet:?xt=urn:btih:0F81F1C9B5994F26B4DB28B97B5A25133E20AE88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +423,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791855   (21213) от 16.04.2025
+###  Публикация: 1790167   (22182) от 07.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Cute Poppy Flowers Mug Wrap Sublimation Design [PNG]
+Пресеты - TWIG & OLIVE - Lightroom and ACR Presets| Sweet Light [XMP, LRTEMPLATE]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки для кружек с цветами мака.Формат: PNGРазрешение файлов: 2925×1425
+С пресетами Sweet Light Lightroom и ACR от Twig & Olive вы добавите сладкий свет в свои изображения независимо от условий освещения. Добавьте тепло и немного розового в холодные тона, чтобы согреть кожу и придать новорожденным, детям и невестам свежий вид. Завершает легким матовым эффектом, чтобы тон кожи был ровным и блестящим. Как и все наши пресеты, они лучше (   Читать дальше...   )Формат: XMP, LRTEMPLATE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A8A96200B43FCA925C10DB763CF105E48C5E483
+magnet:?xt=urn:btih:766EA67AFF74CEAE81A58BF97EBE9E429FC5F2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +449,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791877   (21208) от 16.04.2025
+###  Публикация: 1790112   (22180) от 07.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Yellow & Teal Flowers Mug Wrap Sublimation Design [PNG]
+Пресеты - MODERN MARKET - Modern Kodak Gold 200 Lightroom Desktop Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки для кружек с желтыми и бирюзовыми цветами.Формат: PNGРазрешение файлов: 2925 × 1425
+Представляем наши пресеты Kodak Gold 200 Lightroom Desktop — ваш шлюз к запечатлению тепла и яркости культовой пленки Kodak Gold 200. Поднимите свои цифровые изображения с ноткой ностальгии, достигая этой вневременной аналоговой эстетики всего одним щелчком мыши. Наша коллекция предлагает ряд пресетов, подходящих для различных стилей и условий освещения, обеспечивая (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BA05CBE08B95B5A0D756DBBF1AD4B6204F79E2
+magnet:?xt=urn:btih:BF1E24A71766F11E85D31BEB9B741BD2BDA5D17E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791871   (21206) от 16.04.2025
+###  Публикация: 1790052   (22166) от 07.04.2025
 
-Растровый клипарт - Designworld - Creative Fabrica - Daisy Seamless Digital Paper [PNG]
+Пресеты - TWIG & OLIVE - Lightroom and ACR Presets | Floral Matte [XMP, LRTEMPLATE]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные изображения с ромашками.Формат: PNGРазрешение файлов: 3600 x 3600
+Набор пресетов Floral Matte Lightroom и ACR от Twig & Olive — это набор, который идеально подходит для фотографий, сделанных во все четыре сезона. Мы взяли светлые тона и добавили немного матовой отделки, чтобы придать фотографиям, сделанным при облачном или плоском освещении, легкий подъем. Слегка выделите блики и добавьте цветочную тональность, соответствующую (   Читать дальше...   )Формат: XMP, LRTEMPLATE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87BD95A72645A06C67EA07D7C30DC6F36DC9984F
+magnet:?xt=urn:btih:A76C14D9AF0B0EDAEFF7AF56CEB1B2F3EADA6F83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +501,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791872   (21205) от 16.04.2025
+###  Публикация: 1790060   (22163) от 07.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Delicate Rainbow Blossoms Mug Wrap Sublimation Design [PNG]
+Шрифты - Mikhail Mamikonyan - Behance - SK Gudini Grotesk - Free Font - 216902283 [TTF, OTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки для кружек с радужной расцветкой.Формат: PNGРазрешение файлов: 2925 × 1425
+Бесплатный шрифт с кириллицей.
+Разработчик: Mikhail Mamikonyan
+Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40BA28BABC6133AC443E50CDC8F2EA8C9D8ACA99
+magnet:?xt=urn:btih:9FE285909C03F3F10A2D603D90F56984448A77D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,25 +529,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791883   (21204) от 16.04.2025
+###  Публикация: 1790123   (22161) от 07.04.2025
 
-Фоны - STCrafts - Creative Fabrica - Pink Pastel Rainbow Girly Glitter Hearts Digital Paper Backgrounds [PNG]
+Пресеты - Meridian Presets - HELIOS by Gabe McClintock [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоны с розовыми пастельными радужными сердечками с блёстками.Формат: PNGРазрешение файлов: 3600 x 3600
+Представляем набор Helios Set — революционную коллекцию, тщательно созданную для воссоздания культового стиля бликов на объективе, который Гейб МакКлинток довел до совершенства в своих глубоко эмоциональных и ярких свадебных и парных фотографиях.
+
+Исключительное мастерство Гейба в использовании бликов в объективе привело в восторг бесчисленное множество поклонников, (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC773C857BB35D788F8B7076885E58045C5D1CDF
+magnet:?xt=urn:btih:669BFF73A10986A77BE15D58A86E7746554229B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,25 +557,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792341   (21012) от 18.04.2025
+###  Публикация: 1790109   (22160) от 07.04.2025
 
-Фоны - Creative Fabrica - Unicorn Background Digital Paper Pack [JPG, PNG, PDF]
+Шрифты - MyFonts - TT Norms Pro [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор цифровой бумаги с фэнтезийными фонами.Формат: JPG, PNG, PDFРазрешение файлов: 3600 x 3600
+TT Norms® Pro — универсальный функциональный гротеск для красивых решений, бестселлер студии TypeType. Мы добавили в семейство шрифтов 22 начертания Compact, соответствующих базовым шрифтам, чтобы расширить сферу применения TT ​​Norms® Pro. Теперь в распоряжении дизайнеров есть еще более современная и функциональная версия шрифта.
+
+Кириллица поддерживается.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A16BE4CF0528083E860494410D268E0F9CFF22A
+magnet:?xt=urn:btih:3AD6A436463DE078E54626EDB5898800E10448BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +585,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792693   (20787) от 20.04.2025
+###  Публикация: 1790068   (22155) от 07.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Rainbow Zodiac Texture Digital Paper [PNG]
+Пресеты - TWIG & OLIVE - Lightroom and ACR Presets | Sleepy Matte [XMP, LRTEMPLATE]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Радужная зодиакальная текстура на цифровой бумаге.Формат: PNGРазрешение файлов: 3600 x 3600
+Обязательный набор Lightroom и ACR от Twig & Olive для младенцев и детей — это, без сомнения, Sleepy Matte. Разработанный для смягчения, согревания и добавления матового оттенка, этот набор — идеальный выбор для новорожденных и малышей. Совместимый как с работой в студии, так и с работой на открытом воздухе, вам понравятся кремовые тона, которые они добавляют, (   Читать дальше...   )Формат: XMP, LRTEMPLATE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53924DD841078356D46991226062024CBF7FE0C4
+magnet:?xt=urn:btih:689A61EC6D46ADEA97E63C85D58450635D55283F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,25 +611,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792828   (20691) от 21.04.2025
+###  Публикация: 1790066   (22154) от 07.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Abstract Seamless Patterns [JPEG]
+Пресеты - TWIG & OLIVE - Lightroom and ACR Presets| Rustic Matte Vol. I [XMP, LRTEMPLATE]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные абстрактные узоры на летнюю тему. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
+Rustic Matte Vol. I Lightroom и ACR Preset Pack — это «первый ребенок» Twig & Olive и, возможно, набор действий, который до сих пор является одним из самых популярных у фотографов. В этом наборе есть все, от намека до шепота переменных теплых тонов, и он завершается богатым матовым профилем. Он придает вашим изображениям деревенский вид, который вы ищете, не (   Читать дальше...   )Формат: XMP, LRTEMPLATE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA36DB7AEF26D47F5FE3D5C32A0C4EB83C3313FA
+magnet:?xt=urn:btih:F3F44008AEBCC4570A7B8B72C1ADF69359858403
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +637,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792829   (20686) от 21.04.2025
+###  Публикация: 1790138   (22153) от 07.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Spring Dandelions Seamless Patterns [JPG]
+Пресеты - TWIG & OLIVE - Lightroom and ACR Presets | Harvest Matte [XMP, LRTEMPLATE, ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные узоры из весенних одуванчиков. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+Подходит для Lightroom или ACR, Harvest Matte — правильный выбор для фотографа, который хочет получить смелые, яркие, бархатистые тона на своих снимках. Эта серия пресетов подходит для условий, когда свет не такой прямой и может быть приглушенным. Нам нравится, что Harvest Matte добавляет яркости, не жертвуя тенями. Это пресеты, которые Twig & Olive используют (   Читать дальше...   )Формат: XMP, LRTEMPLATE, ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BB6EB269C45A7D3B2CC1D6CDD7F15DA3835549F
+magnet:?xt=urn:btih:06DE9A71A41ADFE75C7DEBB2586E03AA362FAD3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +663,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792689   (20682) от 21.04.2025
+###  Публикация: 1790058   (22152) от 07.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Witch Mystical PNG Bookmark Design [PNG]
+Шрифты - Ilya Designgsta - Behance - Onmark Рукописный шрифт - 222944479 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мистический дизайн закладок.Формат: PNGРазрешение файлов: 600 x 2100
+Бесплатный шрифт с кириллицей.
+Разработчик: Ilya Designgsta
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96CBC09A04ED24B17DDBFF0464FDCC884B075C7F
+magnet:?xt=urn:btih:3845F5CF2D01582C6FB249002AC2EC806C8CB871
 ```
 
 https://mybot314.ru/tekegram_catalog/

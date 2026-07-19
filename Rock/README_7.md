@@ -1,32 +1,3 @@
-###  Публикация: 1475584   (1012115) от 08.06.2021
-
-Kings Hollow - How Do We Fall (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Are You Listening [00:03:46]
-02 - Chudoku [00:05:00]
-03 - Brake [00:03:32]
-04 - Medusa [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B338EE06836C0AE1A95F0A2D17631774CC25D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475823   (1012005) от 09.06.2021
 
 Black Label Society - The Song Remains Not The Same, Vol II (2021) [MP3|320 Kbps] <Southern Rock>
@@ -745,6 +716,35 @@ Mudhoney - 2 Albums (2021) [MP3|320 Kbps] <Alternative Rock, Grunge, Garage Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F66669D57C1E66BFE89FBF8A6F0B43894E8D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485171   (1005425) от 25.07.2021
+
+The Rolling Stones - Playing With Fire (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under My Thumb (Mono) [00:03:24]
+02 - Who's Driving Your Plane? (Mono) [00:03:17]
+03 - Love In Vain (Remastered 2019) [00:04:19]
+04 - Back Street Girl [00:03:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A5DA246669C29B87F1731E295E83BD201BA19B
 ```
 
 https://mybot314.ru/tekegram_catalog/

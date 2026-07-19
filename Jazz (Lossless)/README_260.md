@@ -1,119 +1,3 @@
-###  Публикация: 1622798   (234217) от 30.03.2023
-
-Wynton Marsalis - Uptown Ruler: Soul Gestures in Southern Blue, Vol. 2 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psalm 26 [1:29]
-02. Uptown Ruler [11:11]
-03. The Truth Is Spoken Here [6:50]
-04. The Burglar [8:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64E65042784F8566A89A633B1BF07FCCF0187AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644089   (234157) от 04.07.2023
-
-Carlos Montoya - Flamenco Meets Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <World Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alegría-Rosa 03:38
-02 - Blues In The Night 03:37
-03 - Zapateado 03:39
-04 - Antonio Vargas Heredia 05:02(   Читать дальше...   )Жанр: World JazzПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF1D7F54BADECE558E7E0022CA6F5D66EFFF660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633664   (234156) от 16.05.2023
-
-V.A. - Smooth Jazz Hits 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cindy Bradley - Drive
-02. Lemek - Co-motion
-03. Nick Colionne - Just Like That
-04. Nathan Mitchell,Marcus Anderson - 100% Cotton(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE253D8B340464B2080BD54924F3221746078F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622800   (234152) от 30.03.2023
-
-Wynton Marsalis - Levee Low Moan: Soul Gestures in Southern Blue, Vol. 3 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levee Low Moan [11:15]
-02. Jig's Jig [8:49]
-03. So This Is Jazz, Huh? [7:00]
-04. In the House of Williams [10:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD111DF87ABB0D64FAB278FE8A23D165C44A925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640522   (234137) от 18.06.2023
 
 Billy Childs - The Winds Of Change (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +629,122 @@ David Newman - Heads Up (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2A5F298BF9BFCC66B0F6B3833E23609075E436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644297   (233404) от 05.07.2023
+
+Jacques Loussier - Four Classic Albums (1960 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Chamber Jazz, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allegro [5:38]
+02. Andante [4:39]
+03. Finale [6:03]
+04. Invention A Deux Voix No.1 [2:24](   Читать дальше...   )Жанр: Chamber Jazz, Third Stream, Piano JazzПродолжительность: 02:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1939BE20772001BB653E2016194AD127C9541B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627962   (233330) от 22.04.2023
+
+Richie Cole With Phil Woods - Side By Side (1980) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love for Me [8:50]
+02. Naugahyde Reality [2:27]
+03. Scrapple from the Apple [8:14]
+04. Rain Go Away [8:07](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDBF329738EE78E5396E86D161DCB8689687180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644688   (233327) от 06.07.2023
+
+Lucky Thompson - I Offer You (1973) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Munsoon [5:08]
+02. Sun Out [6:22]
+03. Yesterday's Child [4:27]
+04. Aliyah [5:10](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1FFF3CEA5439C2592A277344D4708DB73ACD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628234   (233322) от 22.04.2023
+
+George Shearing - Conception (1944 - 1958) 2015, Sound Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move [3:20]
+02. I'll Never Smile Again [3:15]
+03. Swedish Pastry [2:53]
+04. I'll Be Around [3:16](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B5579329025937338D2446079D5CBF599BF7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

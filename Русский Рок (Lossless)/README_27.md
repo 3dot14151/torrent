@@ -1,328 +1,3 @@
-###  Публикация: 1154082   (542419) от 29.07.2017
-
-ДДТ - Иначе. Live in Essen 2013 (2014) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live In Essen 2013 концерт группы ДДТ исполненный 11 мая 2013 года в Эссене (Германия) в рамках европейского тура в поддержку альбома Иначе, вышедшего в 2011 году. Режиссёрами концерта стали Андрей Могучий и Пауль Хауптман (ранее работавший с Дэвидом Боуи, Apocalyptica и Tokio Hotel). В первом отделении была целиком сыграна программа «Иначе». Новый музыкальный материал, (   Читать дальше...   )01. Noise №1
-02. Родившимся этой ночью
-03. Солнечный свет
-04. Эй, ты, кто ты(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3E06AD2EC4BDA3C47BBE6BD7AA29D446D32483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310133   (541450) от 29.06.2019
-
-Кино - Группа Крови (1988) Limited Edition, Remastered, 2019, Maschina Records [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лимитированное расширенное издание на трёх компакт-дисках. Включает в себя ремастированную версию альбома, неальбомный сингл «Мы ждём перемен», запись концертного выступления КИНО на V фестивале Ленинградского рок-клуба с презентацией программы «Группа Крови» и архивное черновое сведение альбома. Издание выполнено в виде двух раздельных пластиковых боксов, укомплектовано (   Читать дальше...   )1. Группа крови
-2. Закрой за мной дверь, я ухожу
-3. Война
-4. Спокойная ночь(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E11A06E61B9D9ADBD87F30134A8971DD21747D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557479   (539258) от 16.06.2022
-
-Воху - Дорога неспокойной души (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вирус (00:03:47)
-02 - Дурак (00:03:07)
-03 - Обречённый (00:03:23)
-04 - Оболочка (00:04:23)(   Читать дальше...   )Жанр: Hard Stoner RockПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11CA574347D1AD9B28798A0ABCD28FF81C27373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312158   (536592) от 02.07.2019
-
-Зноев - Ты на меня любишь (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эрафлот (3:02)
- 02. Тайный дневник (3:11)
- 03. Ты на меня любишь (2:42)
- 04. Падали (3:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066BB3F0ACE92DE0BBC3084CA19F421B720E80E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312034   (536210) от 02.07.2019
-
-The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forte (Sounds Like Teen Spirit) (5:55)
- 02. Обижен (3:48)
- 03. Я твой (3:21)
- 04. Танцы (3:19)(   Читать дальше...   )Жанр: Rock, Ska, Punk RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F64B19535B141CFD2A45BFC6393E3DEAE5CE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926399   (535278) от 09.08.2015
-
-Аэлла - Мания величия - 30 лет спустя (2015) [FLAC|image+.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535278.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Страшно подумать, но всем этим песням уже 30 лет! А значит, у нас вновь есть повод вспомнить риффы, заигранные еще в детстве до дырок в пальцах. И опять звучит трубы призывный зов. Группа Аэлла всегда относилась к творчеству Арии с трепетным уважением. И насмешливое прозвище «Ария в юбках» воспринимала как комплимент. И, хоть девчонки из Аэллы живут в другом времени (   Читать дальше...   )01. Это рок
-02. Тореро
-03. Волонтёр
-04. Бивни чёрных скал(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83189B8ECF48E374EC24E6BC0C81B95197A58C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239724   (535105) от 07.08.2018
-
-Imperial Age - Turn the Sun Off! (2012) Japanese Edition, Reissued, 2018 [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn the Sun Off!
-02. Wings of Your Heart
-03. Anthem of Valour
-04. Hallow the Morning Sun(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0CFE668DD5BFB5B39CC3BBCEC227EB13062F8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227099   (534019) от 17.08.2010
-
-Водопад имени Вахтанга Кикабидзе - Первый всесоюзный панк-съезд (1987) [APE|Lossless]<Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (орг. базары)
-02. Песня про «…а ну его на фиг»
-03. Мой папа — аппаратчик
-04. Вальс Лехи Дубль-Во
-05. Ария Никака
-06. Рейганкашечка (540 Предупреждение г-ну Рейгану
-07. Памяти дужинника Дубова
-08. Вечный кайф (Жидкий стул)
-09. Берегите цинк!
-10. Заключение (Юрмальский Водопад)Жанр: Rock, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558095   (533649) от 19.06.2022
-
-Moratory - The Old Tower Burns (2021) [FLAC|Lossless|image + .cue] <Thrash, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Haunting Eye
-02. Wagner's Path
-03. Dances Of The Damned
-04. Project: Humankind(   Читать дальше...   )Жанр: Thrash, PunkПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A748C601D1CCA537DBEC74D558B76650936BD763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239874   (533240) от 08.08.2018
-
-Imperial Age - Warrior Race (2016) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem of Valour
-02. Aryavarta
-03. Warrior Race
-04. To Mega Therion (Therion Cover)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249C3EB2068973FCC868A6CFA01D1DFF94A99A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926880   (531721) от 11.08.2015
-
-Roz Vitalis - Compassionizer (2007) [WavPack|image+.cue]<Avantgarde, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragic Fate 07:05
-02. Autumn Of Hypocrisy 03:59
-03. Compassionizer 05:21
-04. Elusive Goodness 04:24(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB392B74CDFDA8CFD92A9F907715E8C7C37D8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926866   (531715) от 11.08.2015
 
 Roz Vitalis - Patience Of Hope (2012) [WavPack|image+.cue]<Avantgarde, Prog Rock>
@@ -754,6 +429,331 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CAE90BCC4404F5640F13C8219E4206544C48CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929715   (517197) от 21.08.2015
+
+Наутилус Помпилиус - Grand Collection (2010) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я хочу быть с тобой   [4:22]
+  02. Одинокая птица   [4:50]
+  03. Скованные одной цепью   [4:17]
+  04. Шар цвета хаки   [2:43](   Читать дальше...   )Жанр: RockПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440C2044AFDFB579D146E4E062EB2B5151CF2B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561169   (516644) от 03.07.2022
+
+Алексей Никитин и группа 9 Район - Не Забывай (2022) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Забывай [5:29]
+02. Я Буду Рядом [5:17]
+03. Сняв Гитару С Плеч [3:57]
+04. Непрошеный Гость [4:25](   Читать дальше...   )Жанр: RockПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26B13971BE82A28A1C5870E4DD938263C04CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930163   (516152) от 22.08.2015
+
+Сурганова и Оркестр - X лет. Юбилейный концерт в Кремлевском дворце (2013) 2CD [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В небе, полном звёзд
+02. Ангел седой
+03. Ты - моё дыхание
+04. Не тобой болеет сердце(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E0269C6508D3B9713918686C76F5631984F09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315063   (515987) от 17.07.2019
+
+СашБаш (Александр Башлачев) & Алиса - Чернобыльские Бобыли На Краю Света (1998/1999) 2006, Bomba-Piter (Manchester) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пляши в огне (5:59)
+ 02. Время колокольчиков (4:54)
+ 03. Все от винта (5:11)
+ 04. Некому березу заломати (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1141CBD269ED6E78574917DE4FB87529AD17610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931179   (512867) от 25.08.2015
+
+Наутилус Помпилиус - Концерт в Москве (2013) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в ДК МЭЛЗ, Москва, 1987 г.01. Эпиграф (Разлука)   [2:43]
+  02. Мальчик зима   [2:26]
+  03. Стриптиз   [7:35]
+  04. Казанова   [4:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562037   (512449) от 07.07.2022
+
+Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Metal, Grrove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Savant (00:04:38)
+02 - Ignoramus (00:03:32)
+03 - Reformer (00:04:29)
+04 - Villain (00:03:24)(   Читать дальше...   )Жанр: Modern Death, Math Metal, Grrove MetalПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534526   (512372) от 20.08.2012
+
+Август - Ответный Удар (1989) [FLAC|lossless] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Орел (05:20)
+02. Ответный Удар (02:49)
+03. Гонка (04:57)
+04. Точка Отсчета (06:51)
+05. Дорога В Никуда (04:33)
+06. Металл (05:09)
+07. Рок-н-ролл (05:07)
+08. Цветной Сон (06:05)
+09. Я И Ты (бонус) (04:46)
+10. Шестое Чувство (бонус) (03:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562230   (511526) от 08.07.2022
+
+Ангел-Хранитель - Преступления и Наказания (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Раньше Было
+03. Везучий
+04. Волчья Ягода(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C13F5DEF5AE9A6A29CC52946699D54B4F02149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562104   (511487) от 08.07.2022
+
+Стас Намин и Группа Цветы - Homo Sapiens, Flower Power (2013) 2xCD [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Стаса Намина презентовала сразу два концертных альбома. Альбом «Человек разумный» представляет из себя рок-спектакль со своей внутренней драматургией, включающий в себя инструментальное вступление и 12 новых песен; альбом «Власть Цветов» включает современные обработки известных хитов группы и новые песни, которые группа исполнила вместе со своими друзьями (   Читать дальше...   )CD - 1 - Homo Sapiens / Человек Разумный:
+01. Homo Sapiens — Intro
+02. Мятеж
+03. Силы природы(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DD7D723DA702B6FC222F5837D391286A0E17EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315941   (510976) от 22.07.2019
+
+Ракоший Нелч - Книга Боли (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блокада (3:58)
+ 02. Юные Ангелы (3:45)
+ 03. Брест (5:06)
+ 04. Где Вы (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5940DFCAA37E5DE8042E92A7434A47B71019C1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315913   (510906) от 22.07.2019
+
+Александр Устюгов & Ekibastuz - Дороги (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога Павлодар-Экибастуз (5:10)
+ 02. Семнадцатый апрель (3:05)
+ 03. Экибастузская осень (4:46)
+ 04. Я шел к тебе (5:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9B55ED77CE8EBB72345DDC7C4C943831F76F60
 ```
 
 https://mybot314.ru/tekegram_catalog/

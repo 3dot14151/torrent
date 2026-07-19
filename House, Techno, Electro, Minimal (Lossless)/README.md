@@ -1,5 +1,179 @@
 https://t.me/izofen
-###  Публикация: 1878625   (1074769) от 
+###  Публикация: 1881848   (1077197) от 
+
+VA - Ibiza Afro 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Return To Life (4:31)
+02. Elegant Ape - Closer (2:51)
+03. Elegant Ape - Desert Bloom (Lino Tenerife Remix) (5:34)
+04. Elegant Ape - Freedom (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BAEA72191E065547C2E93F0D43D11A7128D45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880462   (1076261) от 06.07.2026
+
+VA - Milk & Sugar Summer Sessions 2026[FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Novacek, Anto's Mars - What You Got (Extended Mix) (4:43)
+02. Gabry Sangineto, Jame Starck - The Holy Power (Extended Mix) (5:44)
+03. Sophia Guerrero - Are You Ready (Extended Mix) (5:32)
+04. Mark Row - Back to Love (Extended Mix) (6:30)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BD8C025F39D64A8473456F406FBB82BE92CB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880524   (1076208) от 07.07.2026
+
+VA - Gym Dance Class (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli xcx - 1999 (3:09)
+02. Felicia - Black Widow (2:40)
+03. BL3SS - Afters (2:04)
+04. Danny Avila - Chase the Sun (WILL K Remix) (3:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45649AD5F480CFB1DCFF963398E6EB5AD985F7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880653   (1076104) от 07.07.2026
+
+VA - Ibiza Open Party 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Osupa Ti (3:52)
+02. Cristian Ferrer - Away (4:43)
+03. Elegant Ape - Desert Bloom (Cristian Ferrer) (4:07)
+04. N.E.O.N - Yemaya Mama (3:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD43799068D06E71B61BA5426F9E6FF89010DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879827   (1075581) от 03.07.2026
+
+VA - Ibiza Lounge (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Stay Here Forever (3:04)
+02. Magthegreat - Move Your Body (3:32)
+03. Elegant Ape - Stay With Me (3:07)
+04. Raul Sodré - Sad Boy (2:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA0C21DFD41AA09C4859CFA33BBFADCDD4D435E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879149   (1075236) от 
+
+VA - Ibiza Top Hits 2026 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvatore Mancuso - The Drill (2:20)
+02. Kid Massive - The Answer (2:29)
+03. Alboa - Power of Love (3:35)
+04. Mafo - Rhythm of the Sun (2:42)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBADE4ECEA8F79E3881E868468EAAE39669CD4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878625   (1074769) от 27.06.2026
 
 VA - Ibiza Pool Lounge Bar (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -28,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1878616   (1074585) от 
+###  Публикация: 1878616   (1074585) от 27.06.2026
 
 VA - Ibiza Afro House 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -572,180 +746,6 @@ VA - Summer Pool 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84323B4342C8464455B69414E9EE5C34F5074949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870814   (1069461) от 14.05.2026
-
-VA - The Unity Mixers – Dance Computer - The Full 1993 Megamix 1 (1993) [FLAC|Lossless|image + .cue] <Trance, Euro House, Hard Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twenty 4 Seven - Slave to the Music 0:47
-02. 2 Unlimited - Tribal Dance 2:07
-03. Deborah Wilson - Free (Exposure mix) 3:39
-04. Jens Lissat Project - Energy Flow 2:45(   Читать дальше...   )Жанр: Trance, Euro House, Hard TranceПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E012A85C0709105E042B2C70B6F12E5E4C8C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870213   (1069153) от 11.05.2026
-
-VA - World Of Dance: The 90's (1996) [FLAC|Lossless|tracks + .cue] <Dance-pop, House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Box / Strike It Up (club version) [0:05:18.08]
-02. Snap! / Rhythm Is a Dancer (club version) [0:05:15.22]
-03. Crystal Waters / Gypsy Woman (She's Homeless) (club version) [0:03:50.00]
-04. Cathy Dennis / Touch Me (All Night Long) (club version) [0:04:03.30](   Читать дальше...   )Жанр: Dance-pop, House, Hip-House, Garage HouseПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD1872729446D2FC3E1E7A90447D77254288F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869934   (1068573) от 09.05.2026
-
-VA - Poolside Lounge 2026 (Deep Strips 5/8/26 ) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zvana - Not Your Angel (2:46)
-02. N.E.O.N - More Than This (3:09)
-03. Lino Tenerife - Losing Myself Tonight (4:13)
-04. Anton Ishutin - Be My Lover (Afro House Mix) (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DAAB077933ADF2033CF443FE7F1CC81FFF1F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866761   (1066268) от 21.04.2026
-
-VA - Afro Summer Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Ferrer - Deep Inside (5:20)
-02. Elegant Ape - Desert Bloom (3:09)
-03. Elegant Ape - My Moment (3:15)
-04. DJ David Kim - In Your Eyes (4:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FDDCF1847F804980C605F8D570972A46963971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865469   (1065751) от 
-
-VA - Fresh Afro Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Cristian Ferrer - Osupa Ti (3:52)
-03. N.E.O.N - Yemaya Mama (3:30)
-04. Cristian Ferrer - Tu Mirada (6:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3370C37FEF1F799A867797797CFE648B0418EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865857   (1065489) от 17.04.2026
-
-VA - Ibiza Nights 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KMÖBA - Go Home (4:05)
-02. Cristian Ferrer - Perfect Storm (6:09)
-03. Fleanger - Pure Odyssey (4:32)
-04. Nikita Marasey - Stay Human (4:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A38F6D748E27484248CB308CFB07842FD9BBC0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

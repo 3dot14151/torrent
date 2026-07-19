@@ -1,3 +1,29 @@
+###  Публикация: 992534   (900552) от 02.03.2016
+
+Emsisoft Internet Security 11.5.0.6191 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emsisoft Internet Security - полностью интегрированный пакет безопасности "антивирус + фаервол", который сочетает в себе возможности Emsisoft Anti-Malware и совершенного нового ядра брандмауэра. По сравнению с ядром брандмауэра Online Armor, в Emsisoft Internet Security фаервол имеет полную поддержку IPv6, дифференциальные правила фильтрации пакетов, более (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9368EAEB511CDA01353DB4885F924DC9DECE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492894   (900532) от 31.08.2021
 
 MAGIX Movie Edit Pro 2022 Premium 21.0.1.85 (x64) [Multi]
@@ -646,32 +672,6 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB07A62659D00B8E430D66AD94250740317644BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369822   (900046) от 25.03.2020
-
-Microsoft Visual Studio 2019 Professional 16.4.6 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6A542A6514AF2AE359FD0E586CCC3287B376BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

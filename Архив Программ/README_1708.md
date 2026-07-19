@@ -1,3 +1,29 @@
+###  Публикация: 1644744   (209583) от 06.07.2023
+
+Macrorit Disk Scanner 6.5.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Disk Scanner Unlimited - инструмент для проверки жесткого диска и выявления на нем битых секторов. Такой тест полезен для оценки качества вашего винчестера, т.к. чем больше поврежденных секторов, тем больше вероятность того, что данные на диске могут потеряны.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEBD8967FC83006981D9E992CDAB0B83808E688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644745   (209581) от 06.07.2023
 
 Macrorit Partition Extender 2.3.0 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
@@ -642,35 +668,6 @@ Bandicam позволяет записать определенную облас
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC289A82563D24874473F284CA236AB6DBD564D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606385   (209307) от 22.01.2023
-
-Windows 10 (v22h2) x64 PRO by KulHunter v4 (esd) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
-updated_jan_2023_x64_dvd_0b3d540e.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162D71D3563376DD7899E109E767AAB8EF8AA1E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

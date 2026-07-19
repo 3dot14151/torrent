@@ -1,119 +1,3 @@
-###  Публикация: 1520444   (142205) от 28.12.2021
-
-Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's A Wonderful World [3:11]
-02. 720 In The Books [2:48]
-03. Busy As A Bee [2:51]
-04. So Far, So Good [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435695   (142189) от 29.12.2020
-
-James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142189.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Last Train from Overbrook [3:07]
-02. Don't Worry About Me [2:34]
-03. Why Don't You [2:26](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903BE6F697E36E7522B30BA547CEEE5D98FEAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520438   (142113) от 28.12.2021
-
-The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You [5:49]
-02. Cry Me a River [5:48]
-03. Teach Me Tonight [4:52]
-04. Take the 'A' Train [6:21](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348897   (142080) от 29.12.2019
-
-Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minor Blues [4:39]
-02. Five, Four and Three [3:34]
-03. Komonia [4:46]
-04. Midnight Mood [3:51](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9638CAC76B60465DD4D7DBC55ADD51B475125B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348858   (142065) от 29.12.2019
 
 Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -743,6 +627,122 @@ Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220447764E7DA552297801446BF1E0C6E6832340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436031   (139838) от 30.12.2020
+
+Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 2016, Justin Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue 'n' Boogie (10:59)
+02. If I Should Lose You (5:56)
+03. Darben the Redd Foxx (5:48)
+04. Time on My Hands (8:16)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC544A491FD37D6D28C54563F15751030463BCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273023   (139819) от 30.12.2018
+
+Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dick's Holler [4:53]
+02. Silver City Bound [2:42]
+03. Take This Hammer [4:19]
+04. Black Betty [2:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273112   (139814) от 30.12.2018
+
+Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [2:56]
+02. Out of This World [2:55]
+03. Cottage for Sale [2:36]
+04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273109   (139795) от 30.12.2018
+
+Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem on My Mind [4:17]
+02. I Can't Believe That You're in Love with Me [4:12]
+03. Swing! Brother, Swing! [2:34]
+04. The Very Thought of You [5:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 953127   (351790) от 03.11.2015
+
+Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Our Souls
+02. Staring Organic Stars
+03. Summoning Ocean's Son
+04. Suicide: Open Solution(   Читать дальше...   )Жанр: MDMПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179119   (351525) от 30.10.2017
+
+Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zionism (The Reaping) (0:44)
+02. Twisted Logic (3:24)
+03. The Underground (3:39)
+04. General Guidance (4:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179213   (351274) от 30.10.2017
+
+Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrestrial Demise 04:49
+02. Terrorborn 03:34
+03. Color Me White 02:48
+04. Into Doom 05:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179018   (351266) от 30.10.2017
 
 Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
@@ -655,93 +742,6 @@ Lacrimosa - Hoffnung (2015) [MP3|320 кб/с]<Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB074439520AEAFC3FA5E1CBA4586ACD099DFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578424   (345853) от 23.09.2022
-
-Saber - Without Warning (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm of Steel [00:03:59]
-02. Without Warning [00:04:16]
-03. Midnight Rider [00:04:35]
-04. Strike of the Witch [00:03:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8AE27A1753947296E16C1DB729E69ED391346E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330084   (345608) от 08.10.2019
-
-Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halloween (Live) (13:37)
-02. Dr. Stein (Live) (05:36)
-03. I'm Alive (Live) (03:47)
-04. If I Could Fly (Live) (04:00)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BB5A68CE0F6DBD0EA9569C3401AF39F0FC959C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179801   (344577) от 02.11.2017
-
-Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Libera (Part I) - Saturnine Spheres
-2. Libera (Part II) - Ascent Of Burning Moths
-3. Intra Venus
-4. Eyrie(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF98D16C33790165BC5040687F02F3A4B3EE58AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

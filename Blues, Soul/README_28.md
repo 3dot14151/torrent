@@ -1,3 +1,61 @@
+###  Публикация: 1066039   (414579) от 25.10.2016
+
+Ali Maas & Micky Moody - Black & Chrome (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horse Or A Harley   (05:45) 
+  02. Why Does A Man   (05:07) 
+  03. Hanging On A Chain   (04:01) 
+  04. Same Blues, Different Day   (03:58) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5D193B45D022E4DE58148201661B96BC7F91BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412809   (413612) от 01.10.2020
+
+Jackie Venson - Live in Texas (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On (Live)
+02. Only Have You (Live)
+03. Intro to Destruct (Live)
+04. Destruct (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B0A2278FE4D7B931AB7106794A2E40686FB6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251824   (413351) от 03.10.2018
 
 Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
@@ -687,64 +745,6 @@ Blues Ball - Blues Ball (2003) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D13323BD0253BCDCF3B3518E7699FAF559C6C52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174504   (385567) от 15.10.2017
-
-Cary Morin - 2 Albums (2015 - 2017) [MP3|320 Kbps] <Acoustic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cradle to the Grave
-02. Laid Back
-03. Dawn's Early Light
-04. Lay Baby Lay(   Читать дальше...   )Жанр: Acoustic BluesПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3781E418CC7F4814F92038F08A3C5D0025E1DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253187   (385546) от 08.10.2018
-
-Springer & Cagle - Everyday Blues (2018) [MP3|320 Kbps] <Blues Vocals, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everyday Blues
-02. Lucille
-03. Nasty Little Words
-04. Finally(   Читать дальше...   )Жанр: Blues Vocals, Female VocalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A8C84A7419649FA6A89F3F252D22BB3A691729
 ```
 
 https://mybot314.ru/tekegram_catalog/

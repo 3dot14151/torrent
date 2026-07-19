@@ -1,32 +1,3 @@
-###  Публикация: 1677990   (149192) от 19.11.2023
-
-Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible [00:03:21]
-02. Terminal 001 [00:03:20]
-03. Breathe [00:04:01]
-04. Axiom [00:04:02](   Читать дальше...   )Жанр: Dance, retrowave, synthpop, synthwaveПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F021FABDA5DCF081FC96C623E25C3915C183B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677878   (149180) от 19.11.2023
 
 Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
@@ -744,6 +715,35 @@ Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCB57CAB8602DA30D5B2C495CE054D52B6E693B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682603   (129810) от 09.12.2023
+
+Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter [00:05:37]
+02. Alleys Of Your Mind [00:03:32]
+03. Industrial Lines [00:06:13]
+04. The Line [00:05:01](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1795903   (66873) от 13.05.2025
-
-Растровый клипарт - Dream Studio - Creative Fabrica - Watercolor Hawaii Clipart Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный Гавайский клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD66B8E403B922F64BDD9B9C3AFA6952CC81AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797344   (66588) от 24.05.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
@@ -670,6 +644,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F73730722C75072011BBA9F2CB1C102FCA00F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782922   (25837) от 03.03.2025
+
+Растровый клипарт - Phhh Phhh - Behance - Вырезки буков в стиле "Ransom Notes" - 219569711 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит - кириллица, в комплекте есть цифры, знаки препинания и т.п.
+Разработчик: Phhh PhhhФормат: PNGРазрешение файлов: 3000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E27667FD1E07F724B8ED573DD43BCB18FC85CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

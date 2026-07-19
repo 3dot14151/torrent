@@ -1,3 +1,32 @@
+###  Публикация: 1330921   (336251) от 12.10.2019
+
+VA - Magic Sounds Of Piano Keys (2019) [MP3|320 Kbps] <Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336251.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7 Yеаrs - Musiс Lаb Cоllесtivе
+002. Tim Linghаus - Lооking Fоr Dаd In Rаdiо Nоisе
+003. Autumn Lеаvеs - Art Of Mоuntаin
+004. Dоminiquе Chаrреntiеr - Bruinе(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 08 :12 :12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AE194F137DCEFAE58CE454AC363968ABEFDED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579900   (333070) от 29.09.2022
 
 Henry Mancini & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -728,35 +757,6 @@ VA - Yogafest: Yoga Class & Session (2019) [MP3|320 Kbps] <Ambient, New Age, Med
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928D2F2E5BE5261E1AD61BB9F3F199E49E43C952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185132   (294888) от 20.11.2017
-
-VA - Kundalini: New Age Anthology (2017) [MP3|192-320 Kbps] <New Age, Meditation, Futuristic Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fabrice Tonnellier - Chakra racine
-002. Molly Valentine - Fantasyland
-003. beGun - Kelle
-004. Magic Ear - Circles Of Desire(   Читать дальше...   )Жанр: New Age, Meditation, Futuristic AmbientПродолжительность: 10:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C96035E7942B98112E3C463BEF9E015ADCCADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

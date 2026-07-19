@@ -1,3 +1,235 @@
+###  Публикация: 1079776   (291196) от 05.12.2016
+
+VA - Top 100 DJs Drive Sounds Massive (2016) [MP3|320 Kbps] <Stadium Trance, House, Bigroom, Dutch, Bassline, Melodic Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simon Lee And Alvin - Xcelerate (Extended Mix) 5:24
+002. Andrew Rayel & Jwaydan - Until The End (MaRLo Remix) 5:41
+003. Mark Sixma And Jonathan Mendelsohn - Way To Happiness (Club Mix) 4:47
+004. Armin van Buuren Ft Eric Vloeimans - Embrace (Andrew Rayel Extended Remix) 5:13(   Читать дальше...   )Жанр: Stadium Trance, House, Bigroom, Dutch, Bassline, Melodic TechПродолжительность: 08:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329369AD8E75B776B2C004F196ECF290869A39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962967   (291161) от 06.12.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 4 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audrey Langston - After Dinner - Martin Wesser Mix
+02. Thomas Garner - Blue Panorama - Original Mix
+03. Danny Hay - Officially Excl. - Original Mix
+04. Tedd Easy - The Night - Selected Soul Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E3F87DE00802360695837EEBB2143C7175135E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962992   (290987) от 06.12.2015
+
+VA - Extra Trance: Bonus [03] (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veselin Tasev - You Will Be Mine (Extended Vox Mix) (09:29)
+02. Dash Berlin - Till The Sky Falls Down (Andrew Rayel Remix) (06:01)
+03. Sean Mathews - Paradise (Andy Tau Remix) (07:08)
+04. Andrew Bayer - Memories (Original Mix) (08:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393ABE73908FB48D4C0739BAAF3E056032FCEC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962952   (290982) от 06.12.2015
+
+VA - Top 100 Club Tracks (November) (2015) [MP3|320 кб/с]<Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (Ryan Kenney Remix)
+02. Afrojack Ft. Pitbull & Mike Taylor & Gumanev & Shishkov - Summer Thing (ATOM MIX MASH UP)
+03. Agua Sin Gas By Antoine Clamaran - Oh Yeah (Original Mix)
+04. Alex Hill - Regen The Sky (Original Mix)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7966CCC69461906C1EF2183906F258C25BC788C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962960   (290971) от 06.12.2015
+
+VA - Top 100 Deep House (November) (2015) [MP3|320 кб/с]<Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - All That She Wants (Abhishek Negi Remix)
+02. Ahmet Kilic, Stoto - Swept Away (Original Mix)
+03. Alekseev - Пьяное Солнце (Roma Pafos Extended)
+04. Alex Hill - Regen The Sky (Original Mix)(   Читать дальше...   )Жанр: Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 09:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E1493AC8B10784E6320EFA3BBFD6A75943411E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079998   (290449) от 06.12.2016
+
+VA - Ultimate Perfection Winter Sessions (2016) [MP3|225~320 Kbps] <House, Electro, Progressive, Bigroom, Funky, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andre Picar Feat. Enlight - Cocaine (Radio Edit) 2:57
+002. Dimaro - Hold You (Robert Abigail Remix) 5:38
+003. Avicii - You Make Me (Diplo & Ookay Remix) 3:27
+004. Bass Kleph - Going Crazy (Original Mix) 6:32(   Читать дальше...   )Жанр: House, Electro, Progressive, Bigroom, Funky, Club, DanceПродолжительность: 10:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8BCE4CDC605832C9382D72329871375CC1A9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080119   (290445) от 06.12.2016
+
+VA - Hot Hits New Cities (2016) [MP3|320 Kbps] <Future House, Tech House, Drum & Bass, Moombahton, Reggaeton>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dash Berlin Ft. Do - Heaven 3:18
+02. Scooter & Lavelle - We Got Chicks (Original Mix) 4:27
+03. Ibranovski & Carta - Traffic 2k16 (Extended Mix) 5:11
+04. DC Breaks - Never Stop (Mark Knight & D.Ramirez Remix) 7:18(   Читать дальше...   )Жанр: Future House, Tech House, Drum & Bass, Moombahton, ReggaetonПродолжительность: 02:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE5B91396A847626D85D7DBE7172455AAA4DAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080255   (290412) от 06.12.2016
+
+VA - Panorama Progressive Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thruggar - Silent Oneirographer (Original Mix) 6:44
+002. Spencer Tarring - Come On Now (Original Mix) 5:44
+003. Timewave - Against The Wall (Original Mix) 8:58
+004. TSE - Freedom Wings 5:52(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 13:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E442495C121AC7E7ED2B0C3104CA07967ACF82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080216   (290411) от 06.12.2016
 
 VA - Flight Times Worlds Music (2016) [MP3|218~320 Kbps] <House, Electro, Hands Up, Bigroom, Funky, Club, Dance>
@@ -518,236 +750,6 @@ VA - Options Remake Of Tracks November -B- (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B00BA61FA9ED37F586456A22EE476D67E0FC68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963419   (287442) от 08.12.2015
-
-VA - Comfort Time (Compiled by Idenline) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. idenline - Love You (04:08)
-02. RJ Chevalier - Last Summer (Feat. Tara Minton)Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F800F3BF820132C85848CC39FADC998C9555957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186334   (286952) от 24.11.2017
-
-VA - Melodic Techno Tom IV [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melokind - Skyblue [04:34]
-02. Schallfeld - Zarathustra [08:45]
-03. Einmusik - Maan [07:30]
-04. Blancah - Hamato [07:25](   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1E2600F312F42B4C803CC4E104A17E1E50DAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080934   (286696) от 08.12.2016
-
-VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juliya Philippova - Out Of The Darkness (original mix) (06:17)
-02. DJ Yuri Button - Ghost In The Town (original mix) (06:01)
-03. Jean Luvia - Remembrance (extended mix) (06:55)
-04. James Fiby - History Love (feat Anna Miracles - vocal mix) (08:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080968   (286689) от 08.12.2016
-
-VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaal - Wander To Hell (Locked Groove Remix) 06:27
-02. Charles Fenckler - Stellar Acid (Original Mix) 07:11
-03. Monoloc - Muted 07:14
-04. Rampa - Necessity (Original Mix) 07:49(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080945   (286647) от 08.12.2016
-
-VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Larichev - Smile Me (Original Mix) 7:27
-002. Beat Service & Susana - Reach The Sun (Original Mix) 7:42
-003. Lee Osborne - Omission (Original Mix) 7:17
-004. Chris Cockerill & Red Sky - Closing In (Original Mix) 7:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080789   (286637) от 08.12.2016
-
-VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, Hands Up, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dhany ft. DJ Simon Weeks - New York City (D@Niele Tek Mix) 05:08
-02. John Saylor Feat. Yanki - Not So Far Away (Extended) 05:23
-03. Max Gabani Feat. Harmon - Coming To Find U (Extended) 05:09
-04. Spring-Rush - Summernight (Extended Mix) 04:40(   Читать дальше...   )Жанр: Club, Vocal, Commercial, Progressive, Hands Up, FunkyПродолжительность: 09:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C3B71CC9253277A12E83D4A15CF9E9AE46FDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080777   (286633) от 08.12.2016
-
-VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, Bigroom, Progressive, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286633.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Uberjak'd & Nuthin Under A Million - All I Need (Bomber) (Vocal Mix) 4:28
-002. DJ Klubbingman & Andy Jay Powell - Overdrive (Raindropz  Remix Edit) 3:07
-003. Klubfiller - Coming Home (Karlston Khaos Remix) 5:26
-004. SASH! feat. Plexiphones - Can't Change You 4:04(   Читать дальше...   )Жанр: House, Electro, Hands Up, Bigroom, Progressive, Club, DanceПродолжительность: 08:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11334AD60C9480790CD730358D723D4B648B0479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080979   (286556) от 08.12.2016
-
-VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Soulful, UK Jackin, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Full Intention - Keep Pushing 6:27
-002. Kevin McKay - The Oooh Song (Original Mix) 5:30
-003. Kisch, Leela D - Love All Day (Extended Mix) 5:13
-004. 3 Winans Brothers feat Karen Clark Sheard - I Choose You (Louie Vega Chosen Dub) 8:47(   Читать дальше...   )Жанр: Afro House, Minimal, Soulful, UK Jackin, Indie Dance, Nu DiscoПродолжительность: 11:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
 ```
 
 https://mybot314.ru/tekegram_catalog/

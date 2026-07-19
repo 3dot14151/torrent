@@ -1,90 +1,3 @@
-###  Публикация: 1105027   (876739) от 17.02.2017
-
-Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pepper Returns [04:26]
- 02.Broadway [05:01]
- 03.You Go To My Head [04:19]
- 04.Angel Wings [04:43](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1153B701FDC88A0B5EB12E9468D41238D5525BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105694   (876635) от 17.02.2017
-
-Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright With Me (8:59)
-02. Only The Lonely (7:21)
-03. Don't Interrupt The Sorrow (4:58)
-04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104894   (876415) от 17.02.2017
-
-Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Broken Beat, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Focus (4:34)
-02. Strings of Light (8:29)
-03. Remembrance (9:01)
-04. Yo Chavez (3:59)(   Читать дальше...   )Жанр: Experimental, Broken Beat, Acid JazzПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD6CF0D90C807A5701EBBB5035FBC204592FDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495940   (876041) от 15.09.2021
 
 Roy Hargrove & Mulgrew Miller - In Harmony (2006, 2007) 2CD, 2021, Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -751,6 +664,93 @@ Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3118EAC5B9EE48520047E8857C0EB80E6B91227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106777   (871805) от 20.02.2017
+
+The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On The Street Where You Live [05:03]
+ 02.The Thrill Is Gone [06:25]
+ 03.Ow [05:56]
+ 04.Milestone [05:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7660C865C1C49C74F17B6C28C68B6E2C6C9D6228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106144   (871675) от 20.02.2017
+
+Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peel Me A Grape
+02. The Moon Is Swinging On A Line
+03. She Ain't The Kinda' Girl
+04. You're My Thrill(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106782   (871674) от 20.02.2017
+
+Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Imagine That [04:11]
+ 02.Savannah [05:03]
+ 03.After Hours [03:54]
+ 04.Another Time [05:02](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

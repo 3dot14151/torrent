@@ -1,81 +1,3 @@
-###  Публикация: 1031298   (651028) от 04.07.2016
-
-Живые обои - Animated Wallpapers 3 (DREAM-NNM) [DREAM]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живые видео обои на рабочий стол (Часть 3)Формат: DREAMРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD9C9345CAAD8623BE88766EF004CA1E36E77D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031154   (651023) от 04.07.2016
-
-Живые обои - Animated Wallpapers 2 (DREAM-NNM) [DREAM]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живые видео обои на рабочий стол (Часть 2)Формат: DREAMРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B00EB22D9AB99859DA5A3382D12664130E6A261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031481   (651020) от 04.07.2016
-
-Живые обои - Animated Wallpapers 4 (DREAM-NNM) [DREAM]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Animated Live Wallpapers - живые видео обои (часть 4)Формат: DREAMРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4777689C27E6E6C8F3B1AF7F00CDB2AC1C7E973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516664   (650956) от 29.06.2012
 
 Репродукции картин - Художник Сергей Лим [JPG]
@@ -673,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:090E93E6F5489F571DECA87B0D9308C98C83010C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292390   (642935) от 31.03.2019
+
+Обои - Desktop Wallpapers Full HD. Part (411) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE9337D46E39D7F476F891320B420A26FA16F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292401   (642931) от 31.03.2019
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 377 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642931.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5621E5F3FFFFE6C2E04BE9104EC3225B8F24121E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292386   (642930) от 31.03.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (228) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36A2BBC87EF9D36EBD56DC5B9D28F6395C157FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

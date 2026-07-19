@@ -1,32 +1,3 @@
-###  Публикация: 1448575   (1030711) от 18.02.2021
-
-The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (2012) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Jungle (Karaoke Version)
-02. Jump (Karaoke Version)
-03. Another One Bites the Dust (Karaoke Version)
-04. Dude (Looks Like a Lady)Жанр: Rock, Hard RockПродолжительность: 03:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3049F3F9DBD020EDE4C64A9E90E0139F6F22D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448748   (1030444) от 19.02.2021
 
 The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, Blues Rock>
@@ -745,6 +716,35 @@ Shawn Pittman - Stompin' Solo (2021) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE231825F6313514D7719FF56B63F27C6897D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454108   (1026438) от 14.03.2021
+
+Toby Jepson - Viewfinder (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Better off Dead [00:03:35]
+02 - Unwind [00:03:45]
+03 - Back in the Day [00:03:35]
+04 - Dear Mama [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FB283D85370807E1BAA351941C9CDF3BBAFD05
 ```
 
 https://mybot314.ru/tekegram_catalog/

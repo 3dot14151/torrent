@@ -666,63 +666,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608205   (1043653) от 30.01.2023
-
-The Dogma - Studio Albums (3 releases) (2006-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1043653.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Dogma — прогрессив-метал/пауэр-метал группа из Анконы, Италия.2006 - Black Roses
-2007 - A Good Day to Die
-2010 - Black WidowЖанр: Symphonic Gothic/Power MetalПродолжительность: 02:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609809   (1042934) от 05.02.2023
-
-Type O Negative - Studio Albums (8 releases) (1991 - 2007) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1042934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Type O Negative (с англ. — «первая группа, резус-отрицательный»)— метал-группа из Бруклина (Нью-Йорк), одни из основателей жанра готик-метал. Основной чертой группы была медленная, мрачная музыка с частым использованием клавишных и низким, но чистым мужским вокалом в исполнении Питера Стила. Питер также писал тексты группы, посвящённые эротике, страсти, (   Читать дальше...   )1991 - Slow, Deep And Hard
-1992 - The Origin Of The Feces
-1993 - Bloody Kisses
-1996 - October RustЖанр: Gothic/Doom MetalПродолжительность: 09:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4A6D39E7607E360FF6C737C93E3B07D4C25247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436864   (1042756) от 02.01.2021
 
 Sing Sing - Sex Attraction (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
@@ -745,6 +688,64 @@ A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610733   (1041888) от 09.02.2023
+
+Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
+1993 - Genesis
+1994 - Humanimal. Part 1
+1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437921   (1041705) от 06.01.2021
+
+Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041705.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Рэгтайм
+A2 Улыбка Старой Москвы
+A3 Рэг-Дикси
+A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
 ```
 
 https://mybot314.ru/tekegram_catalog/

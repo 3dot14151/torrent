@@ -1,119 +1,3 @@
-###  Публикация: 1040165   (587467) от 04.08.2016
-
-Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Jazz, ChillOut>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catwalk (4:08)
-02. Kaleidoscope (4:43)
-03. Constellation (6:17)
-04. A Method To The Madness (5:14)(   Читать дальше...   )Жанр: Crossover Jazz, ChillOutПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1F66788E84C726C889585CF51DE4179FBD7070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918342   (587030) от 15.07.2015
-
-Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Griots [06:05]
-02. Black Monday [08:56]
-03. Duplicity [06:12]
-04. Le Serpent Qui Danse [06:56](   Читать дальше...   )Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F9FC470F41667CC5661038299154EF90327C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918590   (587029) от 15.07.2015
-
-Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Jazz-Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving This Planet [07:32]
-02. Red Clay [07:10]
-03. Warp Factor 8 [06:20]
-04. Brown Eyes [11:46](   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Soul JazzПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4482272BFD467FA34CE04174575F075DF02C6B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918466   (587028) от 15.07.2015
-
-Stanley Turrentine - Another Story (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It [07:54]
-02. The Way You Look Tonight [09:16]
-03. Stella By Starlight [05:37]
-04. Quittin' Time [06:54](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840877EBF985229BA6EF9B2CB993202E902CF5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918334   (586983) от 15.07.2015
 
 Zoot Sims - Tenorly (1950/1953) /1993, Disques Vogue/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
@@ -748,6 +632,122 @@ Hampton Hawes - Here And Now (1965) 1991, Original Jazz Classics [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7716DCBBA6309E5852D7904D689DD2BC4C5F572D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552937   (584824) от 23.05.2022
+
+Chico Hamilton - The Complete Pacific Jazz Recordings Of The Chico Hamilton Quintet (1954 - 1959) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584824.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Drums West [4:20]
+02. A Nice Day [2:55]
+03. My Funny Valentine [4:21](   Читать дальше...   )Жанр: West Coast Jazz, Hard BopПродолжительность: 06:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF55CCBEC33DE305169B57A3EE2B432F3B0F1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552948   (584821) от 23.05.2022
+
+Sarah Vaughan - Ballads (1960 - 1963) 2002, Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All or Nothing at All [3:14]
+02. Midnight Sun [5:36]
+03. Dreamy [2:58]
+04. You Go to My Head [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF3E510950035B2FE2E93E68CDF708B84221820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552978   (584692) от 23.05.2022
+
+Dixie Kings Of Hungary - Still Alive (2018) [FLAC|Lossless|tracks + .cue] <Dixieland, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz me blues (Tom Delaney)
+02. Big butter and egg man (Percy Venable)
+03. Dippermouth blues (K. Oliver / L. Armstrong)
+04. We'll meet again (R. Parker / H. Charles)(   Читать дальше...   )Жанр: Dixieland, Big BandПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A560C89D24C7505C97FB2FB9C3376B4FD48E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810180   (584548) от 04.08.2014
+
+Count Basie and his orchestra - Fancy Pants (2000) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put It Right Here [05:14]
+02. By My Side [05:18]
+03. Blue Chip [04:04]
+04. Fancy Pants [04:27](   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8454BD43C0E4D773C3CB0E70A16A49B302F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

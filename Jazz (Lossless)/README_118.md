@@ -1,119 +1,3 @@
-###  Публикация: 1139244   (661402) от 01.06.2017
-
-Sonny Rollins - Road Shows, vol. 2 (2011) Doxy Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Say It's Wonderful [14:47]
-02. In A Sentimental Mood [05:41]
-03. Sonnymoon For Two [21:50]
-04. I Can't Get Started [08:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DA713C8AED4FA9378AB8283E84149FE39C1C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538830   (661385) от 22.03.2022
-
-Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Blues [4:56]
-02. Deed I Do [3:34]
-03. Here's That Rainy Day [3:08]
-04. Only You [4:34](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5229ACD1CDF703E68ACAEE6C397CCDEBCE8300D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139127   (661194) от 01.06.2017
-
-Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step into My Time Machine
-02. Hush Hush Magazine
-03. Love Gun
-04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902367   (660886) от 28.05.2015
-
-Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Misunderstand
-02. Don't Talk
-03. It Gonna Come
-04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225380   (660819) от 15.05.2018
 
 Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
@@ -763,6 +647,121 @@ Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8290B74DAEE927205DDFB1DEEC32ED2C17C5DAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225838   (658831) от 17.05.2018
+
+Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Parts [11:14]
+02. Stella by Starlight [09:37]
+03. T.I. [08:51]
+04. Sleep, My Love [07:49]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767D68201EE3E5A5FFD6C0301279774E50B2D035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903466   (658173) от 31.05.2015
+
+Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Trane's Name [33:28]
+02. Brother Joseph [04:45]
+03. Thulani [22:11]Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225962   (658046) от 18.05.2018
+
+Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Fire [07:50]
+02. Mysterious Jump [08:32]
+03. Fancy Free [02:34]
+04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903380   (657986) от 31.05.2015
+
+Joyce Elaine Yuille - Welcome to My World (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow the Sun
+02. Come with Me
+03. Too Soon You're Old
+04. Late I Rise(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D64F52819FAD1D6E887A37FB99BA5F5F9D696B
 ```
 
 https://mybot314.ru/tekegram_catalog/

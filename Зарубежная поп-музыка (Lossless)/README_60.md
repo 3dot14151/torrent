@@ -1,3 +1,177 @@
+###  Публикация: 1410366   (433865) от 22.09.2020
+
+Hank Marvin - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433865.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. The Good, The Bad and The Ugly (4:14)
+02. Sealed With A Kiss (3:31)
+03. Peggy Sue (2:48)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft RockПродолжительность: 03:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411430F87BE692518097D052D2C89DB86673E348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571418   (433729) от 21.08.2022
+
+Madonna - Finally Enough Love: 50 Number Ones (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holiday (7 - Version)
+02. Like A Virgin (7 - Version)
+03. Material Girl (7 - Version)
+04. Into The Groove (You Can Dance Remix Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4111458024EB0B24BF7022B9119A2A7A0AD6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571736   (429668) от 23.08.2022
+
+The Beach Boys - The Beach Boys with the Royal Philharmonic Orchestra (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Suite (01:32)
+02. California Girls (02:45)
+03. Wouldn’t It Be Nice (03:13)
+04. Fun, Fun, Fun (02:23)(   Читать дальше...   )Жанр: Pop Rock, SurfПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B563FB2F60D05B8307F0C67B074FC8B39C5459C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571776   (429667) от 23.08.2022
+
+Demi Lovato - HOLY FVCK (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freak (02:36)
+02. Skin Of My Teeth (02:42)
+03. Substance (02:40)
+04. Eat Me (03:00)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA7E46E79D9FFA2B5311325DB1F01A6B3C9EA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064211   (428212) от 19.10.2016
+
+Clea Vincent - Retiens Mon Desir (2016) [FLAC|Lossless|tracks] <French Pop, Electropop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jmy attendais pas
+02. Retiens mon désir
+03. Electricité
+04. Soulevant(   Читать дальше...   )Жанр: French Pop, Electropop, ChansonПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0818C48CCE6A038C5A06A2A32D64AA061A70C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064204   (427914) от 19.10.2016
+
+JoJo - Mad Love. (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music.
+02. I Can Only. (feat. Alessia Cara)
+03. F*** Apologies. (feat. Wiz Khalifa)
+04. FAB. (feat. Remy Ma)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5F5852640E97CC0B8959A8728E7728F8DBE6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571768   (427417) от 24.08.2022
 
 Suzanne Vega - Close-Up Extras (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Acoustic, Contemporary, Folk>
@@ -571,180 +745,6 @@ True Party - настоящий отдых, ну какой ещё релиз р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BB3AE92BE039FD235BF5A9EA12E88609351D3B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947573   (417979) от 17.10.2015
-
-VA - Very Best Of Jeans Hits (1994) 2CD [FLAC|tracks + .cue]<Pop, Rock, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Lee Hooker / Boom Boom [0:02:41.70]
-02. Lee Dorsey / Working in the Coalmine [0:02:46.40]
-03. Sam Cooke / Wonderful World [0:02:07.27]
-04. Desmond Dekker / You Can Get It If You Really Want [0:02:43.63](   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF571EA3BBB464A2B3A35B6A237E98DD55E3B9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167349   (417340) от 20.09.2017
-
-Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dama Fina
-02. HelL.A. (featuring Siobhan Fahey)
-03. Tchaikovsky
-04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065742   (417210) от 24.10.2016
-
-Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barfu. bis ans Ende der Welt
-02. Liebe gibt und Liebe nimmt
-03. Urlaub fur die Seele
-04. La Isla Felicita(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D365E0990B09EF6E862B753544A6D4C21FD4B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573046   (417121) от 29.08.2022
-
-Lucio Battisti - Umanamente uomo: il sogno (1972) remaster 1989 [FLAC 2.0|192/24|WEB-DL|tracks] <Soft Rock, Chanson, Canzone italiana>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I giardini di marzo [00:05:31]
-02. Innocenti evasioni [00:03:47]
-03. E penso a te [00:04:25]
-04. Umanamente uomo: il sogno [00:03:18](   Читать дальше...   )Жанр: Soft Rock, Chanson, Canzone italianaПродолжительность: 00:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D609323B96E6886B3862B94A7B977CEB855B2E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066026   (416657) от 24.10.2016
-
-Olivia Newton-John - Greatest Hits (1976) Japanese Edition, 1984, EMI [WavPack|Lossless|image + .cue] <Pop, Country Rock, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Home Country Roads   (03:19) 
-  02. If Not For You   (02:55) 
-  03. Changes   (02:32) 
-  04. Let Me Be There   (03:01) (   Читать дальше...   )Жанр: Pop, Country Rock, WorldПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA6B08C239F9A18BF94EE94EE578F960DE94B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065991   (416652) от 24.10.2016
-
-Tom Chaplin (Keane) - The Wave (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Post-Britpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Waiting
-02. Hardened Heart
-03. The River
-04. Worthless Words(   Читать дальше...   )Жанр: Pop, Post-BritpopПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB7ED17512EF4CE2293ABD15038AE5718FEA1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

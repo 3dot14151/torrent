@@ -1,3 +1,32 @@
+###  Публикация: 1092832   (937419) от 13.01.2017
+
+VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tsaho - Love in da House  3:55
+02.  E.M.C.K. - Can We Go (Club Mix)  4:40
+03.  Jeremy Bass & Rio Dela Duna - Tropicana  4:34
+04.  DJ Sign & Vince La Monica - Going Crazy  4:32(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092776   (937417) от 13.01.2017
 
 Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -716,35 +745,6 @@ VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096065   (922588) от 22.01.2017
-
-VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Branzei - I'll Never Be Free (original mix) (07:05)
-02. Dogus Cabakcor - Trouble (original mix) (04:20)
-03. Love Vibes & Valentina - Show Me (Deepjack & Altaci remix) (05:52)
-04. Andrey Keyton & Chunkee - Want Your Love (original mix) (05:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

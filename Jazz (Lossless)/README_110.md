@@ -1,119 +1,3 @@
-###  Публикация: 1135046   (685228) от 17.05.2017
-
-Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Circus Train [07:29]
-02. Swamp Goo [04:41]
-03. Trombone Buster [03:17]
-04. Bourbon Street Jingling Jollies [03:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3285FFCC7A3B5DEB4AEF4A11EE9AEA9F5FC6472C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135037   (685226) от 17.05.2017
-
-Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beautiful Indians - Hiawatha [02:48]
-02. The Beautiful Indians - Minnehaha [03:01]
-03. It Shouldn't Happen to a Dream [03:07]
-04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135039   (685223) от 17.05.2017
-
-Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Perfume Suite: Balcony Serenade/Strange Feeling/Dancers in Love/Coloratura [11:46]
-02. Take the 'A' Train [04:37]
-03. Black and Tan Fantasy [05:11]
-04. Perdido [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E09BB6010AB087439CD67E14012BED225C1328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135033   (685222) от 17.05.2017
-
-Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smada [02:33]
-02. Black and Tan Fantasy [05:13]
-03. How High the Moon [05:10]
-04. Serious Serenade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6CA00206AF000384A5B6C8A7111D7EA277FB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135051   (685221) от 17.05.2017
 
 Duke Ellington - 40 Great Jazz Performances (1990) 3CD, That's Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -748,6 +632,122 @@ Duke Ellington - The Best of Duke Ellington (1991) Pablo [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABE563DC666929257B19494C197C55B60BA4B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135266   (683046) от 18.05.2017
+
+Duke Ellington - Happy Birthday, Duke!, Vol.1-5 (1953 - 1954) 5CD, 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1:
+01. Lullaby of Birdland [03:07]
+02. Time on My Hands (You in My Arms) [05:36]
+03. Don't Worry 'Bout Me [04:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0071EB0CEC3F26AA20DDB294B0E76F44ECA7AA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029440   (682601) от 26.06.2016
+
+Art Pepper - Chili Pepper (2001) [FLAC|Lossless|tracks] <Instrumental Jazz, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Count On Rush Street    03:11
+02.  Pooch Mcgooch    02:43
+03.  Brown Gold    02:26
+04.  Holiday Flight    03:11(   Читать дальше...   )Жанр: Instrumental Jazz, Saxophone JazzПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7F96D5C1DBA94415DD68C95F6CC68598269416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535762   (682509) от 08.03.2022
+
+Buddy Rich - Seven Classic Albums (1955 - 1961) 4CD, 2019, Real To Reel [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682509.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Yellow Rose Of Brooklyn [4:33]
+02. Easy Does It [8:18]
+03. All Sweets [2:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 04:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8028328CAB36A96EE326BCCBE6FC37E52A5FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029390   (682345) от 26.06.2016
+
+The Rippingtons feat. Russ Freeman - True Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Tales
+02. Sundance
+03. Flamenco Beach
+04. My Promise To You (feat. Jeffrey Osborne)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A2F35765189B144BB2093D18D18810E5DB277
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1000624   (857569) от 26.03.2016
-
-ForstWölfin - You Will Find Me In The Forest (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Will Find Me In The Forest (FW Deep remix) (06:57)
-02. You Will Find Me In The Forest (FW Melodic remix) (06:57)
-03. You Will Find Me In The Forest (Original mix) (06:57)Жанр: Ambient, Dub TechnoПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B761D25B17EBFC07FDC0D70FE70667695DD3B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186372   (846521) от 25.04.2020
 
 0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
@@ -739,6 +711,35 @@ Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274476   (793058) от 07.01.2019
+
+Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory (05:06)
+02. R O Y G B I V (04:31)
+03. Dot (05:00)
+04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 955366   (335416) от 10.11.2015
-
-Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue N' Boogie [04:25]
- 02.Nature Boy [04:27]
- 03.Melancholy Baby [05:11]
- 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331000   (335116) от 13.10.2019
-
-Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335116.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Russian Lullaby [9:23]
-02. Jeepers Creepers [12:07]
-03. I Cover The Waterfront [8:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDADCE16E88AAE7847909D9423929594F994FF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331089   (334990) от 13.10.2019
-
-Soul Ballet - 2019 (2009) [FLAC|Lossless|image + .cue] <Trip Hop, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom! It's On!
-02. Sly Girl
-03. 2019
-04. She Is Infinite(   Читать дальше...   )Жанр: Trip Hop, Smooth JazzПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD8F417A528F9FD7B3F34CA7DE6D77159F99AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257494   (334713) от 31.10.2018
-
-Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nevertheless, She Persisted [6:15]
-02. Little Did She Know [4:10]
-03. She Needed A Hero, So That's What She Became [6:07]
-04. Females Are Strong As Hell [3:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258684   (334702) от 31.10.2018
 
 Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -755,6 +639,119 @@ Sam Rivers - A New Conception (1966) 2014, Universal[FLAC|tracks+.cue]<Avant-Gar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3C597923B3DD1DC02A4222715DDA4A197375D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956204   (331142) от 13.11.2015
+
+Tommy Flanagan - Jazz Poet (1989) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Raincheck [05:01]
+ 02.Lament [05:10]
+ 03.Willow Weep For Me [06:05]
+ 04.Caravan [06:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5200CEA8B2E34EBCAECCFB2B423AE2DFD6B9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260336   (330692) от 20.11.2010
+
+Billie Holiday - Collection (5 альбомов) (1956 - 2002)[FLAC, APE|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956249   (330392) от 14.11.2015
+
+Alex Pangman - New (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fit As A Fiddle (3:39)
+02. I'll Never Smile Again (3:05)
+03. It's Never Enough (3:34)
+04. Rhythm Is Our Business (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D361A85CD2E5DEAAD7E1FD1177B50FE8F05DF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956417   (330391) от 14.11.2015
+
+Ronnie Mathews Trio - Selena's Dance (1988) 2015, Timeless Records[FLAC|tracks+.cue]<Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In A Sentimental Mood [10:05]
+ 02.My Funny Valentine [06:29]
+ 03.Stella By Starlight [05:24]
+ 04.Selena's Dance [06:51](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E85A240CD3EEC6F2FCBA37AAB34E8980C849FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

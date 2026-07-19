@@ -1,32 +1,3 @@
-###  Публикация: 1417747   (319321) от 04.11.2020
-
-Deep Purple - In Rock (1970) Self-made Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Speed King (04:23)
-02-Bloodsucker (04:16)
-03-Child In Time (10:22)
-04-Flight Of The Rat (07:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71329E3D8A89D7A6A4370B78A8A4A1677EA81266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959193   (319129) от 23.11.2015
 
 Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
@@ -739,6 +710,35 @@ Boneyard Dog - Bluesbound Train (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3327ADF083652123FA2B7E4D58B396416DBAAB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422045   (312851) от 07.11.2020
+
+AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatseeker
+02. Shoot To Thrill
+03. Dirty Deeds Done Dirt Cheap
+04. Back In Black(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4B5115142AD3D9AA7298A09A50893313BB76FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

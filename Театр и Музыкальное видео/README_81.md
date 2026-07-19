@@ -1,229 +1,3 @@
-###  Публикация: 1158712   (489615) от 17.08.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 5) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Пятая часть серии видеомиксов популярных клипов легендарных 90-х. Полное погружение в мир танцевальной музыки в стиле Eurodance, Hip-Hop и EDM (электронная музыка)! Вспоминаем и наслаждаемся музыкой 90-х!
-- Разбивка по трекам отсутствует.Queen ft. David Bowie – Under Pressure (Rah Mix)
-Mousse T. ft. Hot ‘n’ Juicy – Horny ‘98
-Army Of Lovers – Crucified
-New Kids on the Block - Step By Step(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6217677E2711FD20FFCA3EE75AF82F01FF23B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937141   (489563) от 14.09.2015
-
-VA - Осенний марафон № 189 / Видеоклипы (Самые Танцевальные Зарубежные Хиты) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (13.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexi Blue - Royalty (Official Video) (00:03:55)
-2. Amure - Horses (Official Video) (00:05:15)
-3. Bankrupt - Bipolar Bear (Official Video) (00:02:47)
-4. Betty Blue - Acolo sus (Official Video) (00:03:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0053B4741D028DE2E55F1AE607F7C220F753A5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937213   (489551) от 14.09.2015
-
-James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой концерт оркестра в Королевском Альберт-Холле, который не нуждается в особом представлении. Около двух часов прекрасной инструментальной музыки различных стилей и направлений, некоторые номера сопровождают вокал, как индивидуальный, так и ансамблевый.01. Pulstar
-02. The Way we Were
-03. Medley: Charmaine / Ja Ja Der Chiantiwien / Singing In The Rain
-04. Candle In The Wind(   Читать дальше...   )Жанр: Classical Pop, Rock, Jazz, Instrumental, Film ScoreПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17DC2837593337FD00A9B567CF209E5EE5A2658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699272   (489127) от 12.09.2013
-
-Madonna - MDNA World Tour (2013) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3196A078B7294699932F2421306B5BF8F1090C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382268   (489113) от 03.09.2011
-
-Виа Гра - Стоп! Снято! (1993) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_489113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~Продолжительность: Клипы: 00:44:38,  Презентация альбома: 00:44:27
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE52413B2C54D32EC2A2EAD1E5D39EABE138FE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381980   (489017) от 03.09.2011
-
-Sting. A Winter's Night... Live From Durham Cathedral (2009) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стинг, культовый певец из Великобритании, научил поклонников своего творчества быть готовыми к сюрпризам, которые ждут их на его новых работах. Чего стоит один альбом Songs From The Labyrinth, где компанию певцу составила исключительно средневековая музыка, да и то сыгранная на одном только инструменте. Та пластинка получилась настолько сильной, настолько яркой, (   Читать дальше...   )01. Gabriel's Message
-02. Soul Cake
-03. There Is No Rose Of Such Virtue
-04. The Snow It Melts The Soonest(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6EA9BFFE672D05E852EACAC2FD0A9F2A28AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544820   (487700) от 09.09.2012
-
-MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544823   (487697) от 09.09.2012
-
-Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544847   (486785) от 09.09.2012
 
 Сборник клипов - VA - Various Music part. 33 (2012) WEBRip 720p, 1080p
@@ -722,6 +496,235 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12271591DCEEA4372A3AE1EE845AE0D95A54771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822004   (481851) от 17.09.2014
+
+Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481851.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTunes Festival - ежегодный музыкальный фестиваль, проходящий в Лондоне в легендарном концертном зале "The Roundhouse",01. Lose Yourself to Dance
+02. Come Get It Bae
+03. Frontin'/Hunter
+04. Marilyn Monroe(   Читать дальше...   )Жанр: Hip Hop, R&B, FunkПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F678162929A6178C6F34E1077D3D2EFEE6E23A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159498   (481626) от 21.08.2017
+
+Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это дань, благородная попытка воспроизвести превосходное музыкальное выражение PINK FLOYD; Разные люди, разные континенты, те же самые чувства. Талант каждого человека может светить как сумасшедший бриллиант и льется бесконечной рекой. И никто не имеет права умалять его.  Очень хорошо сделано. Это не Pink Floyd. Каждый маленький гитарный рифф или барабанный бой или (   Читать дальше...   )01. Shine On You Crazy Diamond
+02. Learning To Fly
+03. High Hopes
+04. Take It Back(   Читать дальше...   )Производство: Монголия, Улан БаторПродолжительность: 01:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFB8374D4785DA05EB06953CC6C1C6C3075F098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159656   (481617) от 21.08.2017
+
+Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary Show] BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europe почти четыре десятка лет играют мелодичный коммерческий хард-поп, который, в зависимости от угла зрения, можно назвать как эталонным, так и сверхпредсказуемым. Нужно сказать, что «The Final Countdown» стал, возможно, первым хард-роковым номером, запись которого была показана по Центральному телевидению Советского Союза. Многим русским тинейджерами этот мелодичный (   Читать дальше...   )01. Hole In My Pocket
+02. The Second Day
+03. Praise You
+04. Nothin To Ya(   Читать дальше...   )Производство: Германия | AdaЖанр: Hard RockРежиссер: Patric UllaeusПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119D4CD3F5651C2F071F8DB3C7C443995DE8B56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822235   (481543) от 17.09.2014
+
+Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительный концерт первого самостоятельного тура Queen в 1974 году, который группа записала и сняла в том же году и месте. Концерт получил название в честь шоу, которое состоялось в лондонском заведении Rainbow.01. Procession
+02. Now I'm Here
+03. Ogre Battle
+04. Father To Son(   Читать дальше...   )Производство: Великобритания / Universal MusicЖанр: Hard RockСубтитры: ОтсутствуютПродолжительность: 01:19:39 + 00:10:30 (бонус трек)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E03469C3C4C3CAED5BF17B14F028653768CE18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822218   (479770) от 18.09.2014
+
+I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cat's Parade
+02. Thank you Great Spirit
+03. Adult Swim - Neon Indian
+04. Marie-Louise - Skinny Dip(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, Instrumental, RockПродолжительность: 02:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC44BD0B6883AE4028F1C9F212324DD7392877E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159883   (479750) от 22.08.2017
+
+Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary Show] BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europe почти четыре десятка лет играют мелодичный коммерческий хард-поп, который, в зависимости от угла зрения, можно назвать как эталонным, так и сверхпредсказуемым. Нужно сказать, что «The Final Countdown» стал, возможно, первым хард-роковым номером, запись которого была показана по Центральному телевидению Советского Союза. Многим русским тинейджерами этот мелодичный (   Читать дальше...   )01. Hole In My Pocket
+02. The Second Day
+03. Praise You
+04. Nothin To Ya(   Читать дальше...   )Производство: Германия | AdaЖанр: Hard RockРежиссер: Patric UllaeusПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C887296BA0BC454ECA382DC80BB16456D14186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244594   (479729) от 02.09.2018
+
+Квартирник на НТВ у Маргулиса. Юрий Стоянов (09.01.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу в атмосферную студию Евгения Маргулиса пришел российский актер театра и кино, народный артист России Юрий Стоянов. Он сыграл на гитаре, исполнил любимые композиции, а также поделился интересными воспоминаниями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C68D712B2E1B858C8B73DD7A6BE749F827B316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938637   (479676) от 19.09.2015
+
+VA - Осенний марафон № 191 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (18.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A Great Big World  ft. Futuristiс - Hold Each Other (Official Video) (00:03:40)
+2. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+3. Anda Adam - Save Me Tonight (Official Video) (00:03:06)
+4. Anja Nissen - Triumph (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, IndieПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F766EF1ADE20D825EBB23C9EF71C9F367230D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

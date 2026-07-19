@@ -1,32 +1,3 @@
-###  Публикация: 1583677   (228694) от 15.10.2022
-
-Gazuzu - 2 Albums (1984, 1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drums On Fire (4:54)
-02. Nana-Banana (3:00)
-03. Go Go Gorila (6:30)
-04. Aruba (6:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649850   (228570) от 29.07.2023
 
 Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul, Jazz-Funk>
@@ -748,6 +719,35 @@ Black Devil Disco Club (ранее Black Devil) это совместный му
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EFC72D4F9A48E24E528EC9AE59A1FFEDEDB1559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640063   (211380) от 16.06.2023
+
+VA - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italo Emotion - My Dreams (Synthesis Remix) (6:54)
+02. Paralyze - Wonders Of Space (4:43)
+03. DJ CON-T - First Contact (4:38)
+04. KOTO - Chinese Revenge (Flemming Dalum Remix) (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD467ED7CA1F96EAA9F2D23D3540A00B6397AAA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

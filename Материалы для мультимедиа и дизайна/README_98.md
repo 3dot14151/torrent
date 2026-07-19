@@ -1,22 +1,23 @@
-###  Публикация: 1386755   (793129) от 30.05.2020
+###  Публикация: 1010795   (801992) от 25.04.2016
 
-Шаблоны сайта - Elegant Themes - Divi v.4.4.6 [PHP, CSS]
+Векторный клипарт - Love backgrounds vector [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Divi Theme v4.4.6 - универсальный шаблон для WordPress, имеет 46 элементов для настройки страниц, что делает ее универсальной и выводит на первое место среди самых удобных тем для создания сайтов.Формат: PHP, CSS
+Векторный клипарт для дизайна.
+6 EPS | + JPG PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63EFC40C24C34DD10E11D98DF388AC247DA16BAC
+magnet:?xt=urn:btih:6F60DD1B3180521783CA766D95DC6FA88E2AFD69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274655   (792965) от 07.01.2019
+###  Публикация: 1010816   (801956) от 25.04.2016
 
-Шрифты - Creative Market - Bilbao | Handcrafted Sans Serif - 2266873 [TTF, OTF, WOFF, EOT]
+Векторный клипарт - Urban style T-shirts Vectors [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бильбао - это многоязычный рукописный шрифт без засечек. С его повседневным стилем, он может быть победителем для свадебных бланков и блоггеров. Его непринужденный рукописный вид идеально подходит для логотипов, печатных цитат, приглашений на свадьбу, заголовков социальных сетей, упаковки товаров и многого другого!Формат: TTF, OTF, WOFF, EOT, SVG
+Декоративные шаблоны для дизайна.
+Урбан-стайл принты на футболки.
+6 EPS | + JPG PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
+magnet:?xt=urn:btih:1ADC79EF29023D63C3EACA522975FE66E60F52DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274456   (792962) от 07.01.2019
+###  Публикация: 1010837   (801948) от 25.04.2016
 
-Шрифты - RenegadeFonts - Hela [TTF, OTF]
+Векторный клипарт - Skulls T-shirts Vectors [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hela-это высококонтрастный округлый шрифт с интерполяцией. Hela происходит от надписи старой чешской текстильной компании Helana, которая больше не существует, но вывеска все еще находится на здании.
-Поддержки кириллицы нет!Формат: TTF, OTF
+Декоративные шаблоны для дизайна.
+Принты на футболки.
+6 EPS | + JPG PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
+magnet:?xt=urn:btih:8A9BE0AE75370B2B2130C8F3C46BF7628D5F99FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +81,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274643   (792958) от 07.01.2019
+###  Публикация: 1199237   (801713) от 15.01.2018
 
-Шрифты - Creative Market - LaMonaPro"72 FontsGreek+Cyrillic - 552487 [TTF]
+Векторный клипарт - Fotolia - Little kitten [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-La Mona Pro (2015-2016) Концепция: La Mona Pro, Mona - это редизайн дизайна 2012 года. Греческий язык чувствителен к регистру, как и в кириллице, он содержит лигатуры, орнаменты, слои, тени, альтернативные штрихи, типографику Mona. Pro разработан с большим количеством вариантов.Формат: TTF
+Векторный клипарт для дизайна.
+Маленькие котята
+12 EPS +JPG PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F21692E5BDB2BCF7363A765DB7FCFB6AE0819CF4
+magnet:?xt=urn:btih:D6D8AE04BE43AAAB3610326AE8CB853415190B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +109,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274620   (792954) от 07.01.2019
+###  Публикация: 1199234   (801711) от 15.01.2018
 
-Шрифты - Creative Market - BullyGirl Complete - 4697 [OTF]
+Векторный клипарт - Cartoon Funny Robots 11 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BullyGirl - это два весовых нерегулярных и шумных шрифта. Он имеет 3 стилистических набора для верхних и нижних символов, для имитации ручного набора текста. Более того, у BullyGirl есть множество альтернатив и лигатур.Формат: OTF
+Векторный клипарт для дизайна.
+Мультяшные смешные роботы
+3 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:289D952A4E921D229955099DE59A37544BC4CA56
+magnet:?xt=urn:btih:EEC8152FD0B152AABFA417078367E425D4FF161C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +137,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274622   (792953) от 07.01.2019
+###  Публикация: 1199230   (801709) от 15.01.2018
 
-Шрифты - Creative Market - Croogla 4F Regular - 479898 [TTF, OTF]
+Векторный клипарт - Different Shops Set 19 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Croogla 4F это простой шрифт, который хорошо и стильно выглядит. Используйте его для различных Ваших идей и целей.Формат: TTF, OTF
+Векторный клипарт для дизайна.
+Различные магазины
+4 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57B5453AA1810B928B66AA7F8253262DEE7B3457
+magnet:?xt=urn:btih:F7CB42157C40B68DB28A0CEC12DAEB1B33D6DDE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +165,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274642   (792950) от 07.01.2019
+###  Публикация: 1199232   (801693) от 15.01.2018
 
-Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
+Векторный клипарт - Floral Ornaments Set 26 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
+Векторный клипарт для дизайна.
+Набор цветочных украшений
+3 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
+magnet:?xt=urn:btih:C98CCDDCCC8E12DAFC9F013D082C27A17A8CEF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +193,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274618   (792924) от 07.01.2019
+###  Публикация: 1199226   (801691) от 15.01.2018
 
-Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
+Векторный клипарт - Various Tattoo Set 18 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
+Векторный клипарт для дизайна.
+Различные тату
+4 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
+magnet:?xt=urn:btih:0B2629E52FDF9E782DC323A5038882D32298ED23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,26 +221,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274425   (792923) от 07.01.2019
+###  Публикация: 1199236   (801642) от 15.01.2018
 
-Шрифты - Creative Market - Juxta Script | 7 fonts - 1969528 [OTF, WOFF]
+Векторный клипарт - Ornate Vintage Frames 54 [AI]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Juxta (сокращение от juxtaposition) составляет два совершенно разных стиля шрифта: моноширинный sans для программирования и монолинейный скрипт. Идеальная геометрия сетки и некоторые декоративные элементы, такие как перечеркнутые буквы, придают Juxta дух скандинавского минималистичного дизайна.
-Разработчик: Petr BushuevФормат: OTF, WOFF
+Векторный клипарт для дизайна.
+Декоративные винтажные рамы
+3 AI +TIFF PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
+magnet:?xt=urn:btih:52D10393A89FA18C93A66055114D69A3A26DDADE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,181 +249,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274621   (792922) от 07.01.2019
+###  Публикация: 1199240   (801552) от 15.01.2018
 
-Шрифты - Creative Market - Cookie Font - 954738 [TTF, OTF, EOT, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cookie - один из первых шрифтов автора, тонкий и рукописный в верхнем и нижнем регистре. Похож на написание мелом или карандашом, с рваным краем, но в то же время это красиво. Кроме того, Cookie включает в себя не только латинские, но и кириллические символы и цифры, всего 184 символа. Шрифт тонкий, но вы можете сделать его средним или жирным.Формат: TTF, OTF, EOT, EPS, AI, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0906A530DBB4EAE788407D77ECD03633B633CE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274619   (792920) от 07.01.2019
-
-Шрифты - Creative Market - Blacktear Script | Roman&Cyrillic - 959441 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blacktear харизматичный рукописный шрифт с современным креативным штрихом, простой и удобный для создания потрясающих надписей. Blacktear поставляется с прописными и строчными буквами, пунктуацией, цифрами, особыми европейскими иероглифами, кириллическими символами и дополнительными символами.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179544B88AD6E62C162D4DD333268E6F03CFF1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386963   (792510) от 31.05.2020
-
-Растровый клипарт - Небольшая подборка клипарта [TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая подборка клипарта сетка, молнии, шестеренки и т.дФормат: TIFРазрешение файлов: 624x3626-22481x336
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06EF400BF5280625A4CBE1BFB7E6B7B5D8A5526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386965   (792479) от 31.05.2020
-
-Растровый клипарт - Наклейки для авто и мото [TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наклейки для авто и мото 333шт.Формат: TIFРазрешение файлов: 7008x1336-15120x6048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749F7755980756DF953FCE48B48A81683EA06D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386971   (792474) от 31.05.2020
-
-Растровый клипарт - Наклейки для авто и мото №2 [TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наклейки для авто и мото 484шт.Формат: TIFРазрешение файлов: 3480x1160-4830x360
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A7D90C5F3B16FD70D1DC58BDFF23FB636F2C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387062   (792462) от 31.05.2020
-
-3D модели - Hum3D - Toyota ToyoAce Flatbed 2006 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792462.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8124D3B0158BCB2C8C7044365ED95AF81B31AE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386973   (792433) от 31.05.2020
-
-Текстуры - Текстуры кожи змеи [TIF]
+Фоны - Цветочные фоны для открыток и пригласительных [JPG, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Текстуры кожи змеиФормат: TIFРазрешение файлов: 4500x1620
+Красочные цветочные фоны подойдут для оформления открыток, пригласительных и других творческих работ.
+60 png и jpegФормат: JPG, PNGРазрешение файлов: 523x740-3000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A89B4D2560BEE56611A52D73E1B675205C3EE7E3
+magnet:?xt=urn:btih:F45713DED15DAC9C2177ED1DBDD3B338188B7D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +276,363 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387057   (792395) от 31.05.2020
+###  Публикация: 1506060   (801357) от 29.10.2021
 
-3D модели - Hum3D - VAZ Lada 2103 1972 [MAX, FBX, OBJ]
+Растровый клипарт - Fotolia, Shutterstock - Сборник растрового клипарта люди [JPG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди с Shutterstock, Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPG, TIFРазрешение файлов: 880x900-10624x5288
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF80394E8E944B7AFF13B3FA19F19ACF4BC914E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199455   (801034) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot jam [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрикосовый джем с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3201x2500-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D903CD4D86331B26EBF89D716860155CF98E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199453   (801028) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрикос с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3254x4700-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13949AC987B8BBC87DBC174C77D783DDB596784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199452   (801023) от 16.01.2018
+
+Растровый клипарт - Different Cargo Transport 21 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Различные грузовые перевозки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5221x3480-6750x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FC358E5BCCFAC371C16B302F56B8CBC0AF5533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199457   (801022) от 16.01.2018
+
+Растровый клипарт - Fotolia - Aircraft on the background of the city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет на фоне города с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2738x1825-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE194DADF98408E1A495B34553CF11FB8A3BEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199449   (801019) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Apples in a basket [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яблоки с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 1909x2250-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA7DDD573EB1EAEBC965DC937DA7C6C2F315C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199447   (800953) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Backgrounds autumn leaves [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние листья с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2200x2200-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B08782BC412D11E435E31B9CB114E74F934728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199456   (800949) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Background night city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночной город с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2200x3300-4854x3343
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867678C9BA4344D44C65044BEEC216FF4BE82DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199570   (800878) от 16.01.2018
+
+Растровый клипарт - Creative Market - Autumn Leaves - Creator Kit - 1977039 [JPG, PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из осенних листьев, веток, цветов бархатцы  для создания осенних проектовФормат: JPG, PNG, PSDРазрешение файлов: 1200x1200-4000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05D21A3F11B81AEB385D7CED5129C98B7D3F54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199579   (800872) от 16.01.2018
+
+Текстуры - Creative Market - AL's Vintage Picture Automator - 2122207 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800872.jpg" />
+</div>
+
+
+###  Подробнее
+
+AL's Vintage Picture Automator -это мой любимый инструмент . Я предпочитаю использовать, если мне нужно создавать фотографии с аутентичным изношенным винтажным взглядом. Когда я сделал его образцы цветов и текстур из старых фотографий, книг и документов, чтобы я мог достичь правильного взгляда.Формат: PSDРазрешение файлов: 3000x2000-4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34315CF443BAD6597CEADDDB7F8DF69FB22796FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199459   (800864) от 16.01.2018
+
+Кисти - Creative Market - Clouds Brushes - 2165569 [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 32 облачных кистей с высоким разрешением для Adobe Photoshop CS2-CS6Формат: ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EB8B591CA79EFA17425D02CC27EA456A355495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384931   (800791) от 22.05.2020
+
+Сборники - Creative Fabrica - The Valentine's Scrapbook Bundle [AI, EPS, PNG, PSD, SVG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступает самый романтичный день в году, и чтобы подготовить вас к нему, мы хотели бы представить The Scrapbook Bundle от Valentine. Этот прекрасный набор включает романтические бумаги и узоры, наборы клипартов и наборы сердечных элементов, идеально подходящие для всех ваших поздравительных проектов.Формат: AI, EPS, PNG, PSD, SVG, JPGРазрешение файлов: 960x960-6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803900B30401BAAC7D4A29B4BCBCC14AFBD1B253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384922   (800754) от 22.05.2020
+
+Стили - GraphicRiver - 66 Creative Text Effects Bundle 5 - 26168423 [ASL, ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800754.jpg" />
+</div>
+
+
+###  Подробнее
+
+66 стилей и макетов Creative Text Bundle vol.5: 8 пакетов в одном комплекте.Формат: ASL, ATN, PSDРазрешение файлов: 1400x1400-2500×1875
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DC83101E12D14F39034770A2B052EABF0C22E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385208   (799990) от 23.05.2020
+
+3D модели - Bugatti Centodieci 2020 Low-poly [MAX, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ВАЗФормат: MAX, FBX, OBJ
+3d модель автомобиля марки BugattiФормат: MAX, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5259999394CEE7B2C987CAA0EBDD70840CF61B22
+magnet:?xt=urn:btih:D621D5B151A5A06A5DDA09EA090179561EA2174B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387072   (792385) от 31.05.2020
+###  Публикация: 1385217   (799986) от 23.05.2020
 
-3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Hum3D - BMW X6 M with HQ interior 2015 [MAX, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+3d модель автомобиля марки BMWФормат: MAX, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D536650BDB327495449D52E161727F349CDF7BA5
+magnet:?xt=urn:btih:8635B2A8D307CCB2B869C148EF1296B5560D7B66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,208 +666,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387056   (792383) от 31.05.2020
+###  Публикация: 1385228   (799985) от 23.05.2020
 
-NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.05 [MP3]
+Текстуры - Текстуры каменной кладки [TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник музыкальных треков очищенных от "голосовых вставок" ("watermark").
-Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+Текстуры каменной кладки
+29штФормат: TIFРазрешение файлов: 4250x1530-4500x1800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF3795363808B7BD86E52AF20210EBA45A3385E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387059   (792382) от 31.05.2020
-
-3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792382.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ВАЗФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF71B60161E3E4207E7495833A06203685BC225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387081   (792358) от 31.05.2020
-
-3D модели - Hum3D - Toyota RAV4 5-door 2001 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792358.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1671B091ADF82A74A0C35181747852B659735401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387088   (792313) от 31.05.2020
-
-3D модели - Hum3D - Ural Solo sT 2013 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792313.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки UralФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E2A386D1B0F05216CE701BF458F16F8F7BD00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274665   (792176) от 08.01.2019
-
-Шрифты - Creative Market - Galpon Family, Greek+Cyrillic - 365913 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galpón довольно интересный, стильный шрифт, который подойдет под Ваши веселые мультяшные идеи.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9FAEACCACC603D770E8156672FB8C20D209C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274791   (792134) от 08.01.2019
-
-3D модели - Daz 3D - Millennium Dragon [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D Драконы из категории AnimalsФормат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2D7736D130E18AD12196EB89CA15B4625BC8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274666   (792132) от 08.01.2019
-
-Шрифты - Creative Market - Kontora | Font Family - 923871 [OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontora - это базовый и универсальный геометрический гротеск, который можно применять для разных стилей. В нем минимум ненужных деталей, в основном современные пропорции и формы букв, но с оттенком ретро качества от таких шрифтов, как Futura и Akzidenz Grotesk. Идеально подходит для заголовков, постеров, упаковок и т.д.Формат: OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EDA70A142004A4CA95AF3EB19580268608E0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274667   (792131) от 08.01.2019
-
-Шрифты - Creative Market - Maika Font - 363458 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maika - это рукописный шрифт, выполненный чернильной ручкой. Он содержит латинские и кириллические символы, цифры и знаки препинания.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FDB9386A10055C4FD73ECDFAC3097BD18E2954
+magnet:?xt=urn:btih:DABC5851F2DDABC9200DDC5ABEEED535B0711698
 ```
 
 https://mybot314.ru/tekegram_catalog/

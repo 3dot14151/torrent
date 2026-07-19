@@ -1,3 +1,67 @@
+###  Публикация: 940094   (471324) от 23.09.2015
+
+Modern Day Babylon - The Ocean Atlas (2015) EP [MP3|320 кб/с]<Progressive Metal, Djent, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wings (3:23)
+02. Water drops (feat.Plini) (4:21)
+03. Illusion (3:41)
+04. Falls (3:44)(   Читать дальше...   )Жанр: Progressive Metal, Djent, InstrumentalПродолжительность: 00:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FF005A2A31F3F724FDADE70247836677A46BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548155   (469750) от 17.09.2012
+
+Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Suck At Love (03:11)
+02. Can’t Keep My Hands Off You (Feat. Rivers Cuomo) (03:20)
+03. Jet Lag (Feat. Natasha Bedingfield) (03:23)
+04. Astronaut (Feat. Jim Irvin & Julian Emery) (03:40)
+05. Loser Of The Year (Feat. Claude Kelly) (03:26)
+06. Anywhere Else But Here (03:43)
+07. Freaking Me Out (Feat. Alex Gaskarth) (03:06)
+08. Summer Paradise (Feat. K’naan) (03:55)
+09. Gone Too Soon (03:15)
+10. Last One Standing (03:27)(   Читать дальше...   )Жанр: Pop-Punk / Punk RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B7723474B2801E669106B24948D39228624862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320626   (469274) от 19.08.2019
 
 Tash Sultana - Notion (2016) EP [MP3|320 Kbps] <Psychedelic rock, alternative rock, reggae rock>
@@ -697,64 +761,6 @@ Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4DC55CB1BB5DD61689354808322004B1894D6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409382   (447496) от 16.09.2020
-
-Militarie Gun - My Life Is Over (2020) EP [MP3|320 Kbps] <Post-Hardcore, Garage Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A New Low for Progressive Society (1:51)
-2. Dislocate Me (2:03)
-3. Kept Talkin’ (1:46)
-4. Life in Decline (2:16)Жанр: Post-Hardcore, Garage Hardcore PunkПродолжительность: 00:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A1445307BDF41D63D9A1A1BDD9F9C18EBEC918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569814   (447305) от 15.08.2022
-
-Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Judgment [00:03:33]
-02 - Good Fight [00:03:55]
-03 - Won't Stay Down [00:02:27]
-04 - We Are the Resistance [00:02:56](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AA4DF3C46BA6E06E695319C17ACB197E1EBD20
 ```
 
 https://mybot314.ru/tekegram_catalog/

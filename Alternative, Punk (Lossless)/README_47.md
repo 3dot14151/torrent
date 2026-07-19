@@ -1,3 +1,119 @@
+###  Публикация: 1332797   (309870) от 22.10.2019
+
+Waterparks - FANDOM (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry Red
+02. Watch What Happens Next
+03. Dream Boy
+04. Easy To Hate(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFFC8BFF7CBAD52C3341F7910AFDAA561DEA3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183502   (309677) от 13.11.2017
+
+The Rasmus - Dark Matters (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise
+02. Something In The Dark
+03. Wonderman
+04. Nothing(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE3897CD825B2D0855E2D288B8FF5C670A085E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332799   (309366) от 22.10.2019
+
+Swans - Leaving Meaning (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hums (02:00)
+02. Annaline (05:17)
+03. The Hanging Man (10:48)
+04. Amnesia (05:49)(   Читать дальше...   )Жанр: Industrial, Post-PunkПродолжительность: 01:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A970501FAB0B787E25B0695B1B8FF011DD9A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332994   (307661) от 23.10.2019
+
+Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelter (03:48)
+02. Show Me (04:51)
+03. Feel It All (04:58)
+04. Fire (04:35)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3D11C5B907827D0B04426BA8F5FFDEBCFD377E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333193   (307644) от 23.10.2019
 
 Jimmy Eat World - Surviving (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -623,122 +739,6 @@ P.O.D. - 11 Альбомов, 3 EP, 4 Сингла, 2 Компиляции (1994
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48951666172559087B4DFD88C8B1109AC8132FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962738   (292634) от 05.12.2015
-
-Coldplay - A Head Full of Dreams (2015) [FLAC|tracks + .cue] <Pop Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Head Full Of Dreams
-02. Bird
-03. Hymn For The Weekend
-04. Everglow(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627675F0FD341F2D780C73D6B15A97C0CDF89D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334834   (291669) от 31.10.2019
-
-White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BS (Live) (03:07)
-02. SHORT SHAKE (Live) (00:08)
-03. MOVES (Live) (03:08)
-04. DORGS (Live) (03:04)(   Читать дальше...   )Жанр: Indie Rock, Garage RockПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A9E7BBF6BEA0DF32A601B7CC9E393BCA6C1BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624238   (290990) от 06.12.2015
-
-Серцевий Напад - 2 альбома (2009-2010) [FLAC|Lossless|image+ .cue] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 | Пробач | 03:09
-02 | Оптимістична | 02:27
-03 | Москва | 03:05
-04 | Черепашки Нінзя | 02:25(   Читать дальше...   )Жанр: Pop Punk |Продолжительность: 01:09:47 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080128   (290160) от 06.12.2016
-
-The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Great Big Sled (4:23)
- 02. Don't Shoot Me Santa (4:05)
- 03. Joseph, Better You Than Me (4:52)
- 04. ¡Happy Birthday Guadalupe! (4:34)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF3A2F2345FBEBA294B55F5C7C0251AC9F35F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

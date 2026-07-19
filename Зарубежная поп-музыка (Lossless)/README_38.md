@@ -1,3 +1,206 @@
+###  Публикация: 792527   (708138) от 03.06.2014
+
+VA - Pure... Guitar Heroes (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-Roc>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pure... Guitar Heroes предназначен для уже несколько подготовленного слушателя. Я бы даже сказал для любителя хорошего, забойного, культового поп-рока. Именно такой слушатель получит истинное удовольствие от знаковых, классических гитарных рифов, узнаваемых потому, что они появляются у настоящих героев гитары. На этих четырех дисках золотого рок-н-ролла вы услышите (   Читать дальше...   )01. Boston - More Than a Feeling  (3:30)
+02. Steve Ray Vaughan & Double Trouble - The House Is Rockin'  (2:25)
+03. Johnny Winter - Rock and Roll, Hoochie Koo  (3:33)
+04. Rory Gallagher - Moonchild  (4:47)(   Читать дальше...   )Жанр: Pop, Rock, Pop-RocПродолжительность: 04:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7F05BD3699A979C9F24FFBD05179300E435EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026004   (707617) от 13.06.2016
+
+VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько сборников от Sony вышли под общим заголовком Ultimate. Часть из них уже представлена на трекере (правда большая в мп3), ну а для тех кто любит потанцевать представляем сегодня сборник Dance.CD1:
+01. Calvin Harris feat. John Newman  - Blame   (3:32)
+02. Omi  - Cheerleader (Felix Jaehn Remix Radio Edit)   (3:02)
+03. Mr. Probz  - Waves (Robin Schulz Radio Edit)   (3:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDC0B6AEC2967B58367E55F68D74E6219A403D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131663   (706841) от 06.05.2017
+
+Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Message (03:33)
+02. Willow Tree (05:05)
+03. Elevator (03:47)
+04. Shadow (05:17)(   Читать дальше...   )Жанр: Indie Pop Rock, Psychedelic Pop RockПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3A726BC874FF4FB3731D37BA508942CFAB923B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131709   (706715) от 06.05.2017
+
+K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop Rock, Electronic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamers
+02. Giver
+03. Blood in the Cut
+04. Champagne(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop Rock, Electronic Rock, Alternative Hip HopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A835465F83842A12C4191758CF08FCA47557112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026181   (706040) от 14.06.2016
+
+Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping In My Car    03:34
+02. The Look (Unplugged)    05:12
+03. Sleeping In My Car (The Stockholm Demo Version)    03:14
+04. Almost Unreal    03:56Жанр: Pop RockПродолжительность: 00:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4DA6396269369761E5D871DA31B7027CF67E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401428   (705484) от 12.08.2020
+
+Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (05:18)
+02. Stop The Rain In The Night (03:34)
+03. Love Is Just A Word (03:18)
+04. Time For Love (Super Action Mix) (05:20)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287180   (705207) от 06.03.2019
+
+VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Belinda Carlisle - I Get Weak
+02.	Chaka Khan - Through The Fire
+03.	George Michael - Jesus To A Child
+04.	The Pretenders - I'll Stand By You(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 06:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A647B9A271E3F28E545CF403B5E04F8BC6D5241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533379   (704854) от 24.02.2022
 
 VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -538,209 +741,6 @@ VA - Ultimate 70s (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2451C441D1F707A532ACE6D54F0DB1D4A33529A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288360   (695812) от 11.03.2019
-
-Vesta - Lohtulauseita (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Tuottelias 	2:00
-2 	Sun Katu 	3:27
-3 	Fakin Rockstarr 	3:13
-4 	Ota Varovasti 	3:27(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93681D7859DAA4E756964A82E7EB9B62B04407EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288442   (695670) от 11.03.2019
-
-VA - With a little help from my friends - Top-Oldies Cover Versions Vol. 1 (1994) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Tremeloes - Yellow River (2:48)
-02. Long John Baldry - River depp mountain high (3:40)
-03. Petula Clark - I will follow him (2:35)(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD521C8F94B644D7D73EC5984668A48D610BF5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288486   (695669) от 11.03.2019
-
-VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695669.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1.	Here Come My Baby–The Tremeloes
-2.	Love Me Tonight–Joe Dolan
-3.	Remember Then–Sha-na-na(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D99FA8C4470AF8EC06F5811C1E8E8156B84829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027838   (694695) от 20.06.2016
-
-Оксана Білозір - Україночка (1993) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Україночка  (04:41)
-02.  Батьківська пісня (ремікс)  (03:33)
-03.  Я не вірю тобі  (03:10)
-04.  Кленова балада  (04:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3224EB68BB5FBF18CD728194E6D91D324BCB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403261   (694154) от 18.08.2020
-
-VA - Energy Booster Music Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kathleen Young - Idgaf (03:39)
-02. Nicholas Bailey - Shape of You (03:52)
-03. Donald Perry - Finesse (03:38)
-04. Harold Rice - Paradise (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4F00209456D525AAA56E978DB6F6E420DA5BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288617   (693926) от 12.03.2019
-
-Dido - Greatest Hits (2013) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here With Me (Chillin' With The Family Mix) (5:17)
-02. Thankyou (Deep Dish Radio Edit) (4:11)
-03. Hunter (MJ Cole Remix) (6:08)
-04. White Flag (Timbaland Remix) (3:30)(   Читать дальше...   )Жанр: Electronic, Pop, House, Downtempo |Продолжительность: 02:22:06 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3254D6BD914B0308402554CB0C422ABBA368F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133761   (693247) от 13.05.2017
-
-White Sea - Tropical Odds (2017) [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodline
-02. Arcadia
-03. Yesterday
-04. Stay Young, Get Stoned(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, SynthpopПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
 ```
 
 https://mybot314.ru/tekegram_catalog/

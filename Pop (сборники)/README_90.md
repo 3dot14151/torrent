@@ -1,90 +1,3 @@
-###  Публикация: 1251865   (413499) от 03.10.2018
-
-VA - New Music Releases Week 34 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413499.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Radiant Children - Tryin'
-002. Ozuna - Ibiza (Feat. Romeo Santos)
-003. Conor Matthews - Inside Out
-004. R3hab, Sofia Carson - Rumors (With Sofia Carson)(   Читать дальше...   )Жанр: DanceПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412751   (413469) от 01.10.2020
-
-VA - Radio DFM Top D-Chart Сентябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
-02. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
-03. RAYE - Natalie Don't (Denis Bravo Remix) (3:25)
-04. Макс Барских & Джаро - Lonely (DJ Noiz Remix) (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC4B2ECB71E00AC95C8A69CCB17B7C7C7B50080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251876   (413368) от 03.10.2018
-
-VA - New Music Releases Week 35 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Troye Sivan - This This
-002. West Coast Massive, Brayton Bowman - High & Low
-003. The Faim - A Million Stars
-004. Tash Sultana - Cigarettes(   Читать дальше...   )Жанр: DanceПродолжительность: 08:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252063   (413355) от 03.10.2018
 
 VA - Dance Compilation 3 (2018) [MP3|320 Kbps] <Dance>
@@ -757,6 +670,93 @@ VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9841F7CD86729F5760EC7C033E4C529DDEF05AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067247   (408474) от 28.10.2016
+
+VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giorgio Moroder - Deja Vu
+002. Cade - Care
+003. Сандра Круглова - Мгновение
+004. Ariana Grande - Moonlight(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067079   (408397) от 28.10.2016
+
+VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yana Beliz - Влюблена
+002. Geo Da Silva - I Love U Baby
+003. Слава - 2 Л 2 Ю
+004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067275   (408393) от 28.10.2016
+
+VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alex Mica - Afrodita 3:39
+002.Andre Tay - Детство 4:05
+003.Arti - Параллели 3:39
+004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

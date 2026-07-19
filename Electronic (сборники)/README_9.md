@@ -1,3 +1,235 @@
+###  Публикация: 1461690   (1021526) от 11.04.2021
+
+VA - Record Super Chart 10.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+02. Eneli, Monoir - 3 to 1 (3:39)
+03. Tiesto - The Business (2:44)
+04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75A845FF9004A7109E9FB05D822A5A223E04039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462256   (1021334) от 13.04.2021
+
+VA - Beatport Psy Trance: Sound Pack #273 (2021) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из тех моментов, когда время замедляет свой ход и весь мир замирает, утопая в безмятежности и отрешенности. Разум кристально чист, мысли или отсутствуют или возникая проплывают мимо и исчезают. Окружающий мир переплетается с внутренним, образуя целостную и завершенную картину мироздания. Такие ощущения возникают слушая музыку психоделического транса.001. Cymatic Effects - The Molecule Spirit
+002. Asgard - Feeling Dark
+003. Men In Space - Nuclear Kitten
+004. Fele - Bound(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFCD2DCA69DE931E8C57932DEAD4270B33B2C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462226   (1021333) от 13.04.2021
+
+VA - Future Techno April Set (2021) [MP3|320 Kbps] <Future Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронные техно пульсации в ритме космических колебаний! Музыка, в которой чувствуется настроение и состояние души композитора воодушевлённого беспредельными просторами космического пространства!001. Akiko Iwahara - Someone's Shadow
+002. Heinick And Traumata - Dreamland
+003. Canon Fix - Flash
+004. Goldwave - Philosophers Balloon(   Читать дальше...   )Жанр: Future Techno, Electronic, Tech HouseПродолжительность: 11:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFC57CA1E4330E5583902FC4D7619B1BC8089E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462262   (1021326) от 13.04.2021
+
+VA - Beatport Electro Techno: Sound Pack #274 (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для любителей Техно Электроники , а так же музыкальных гурманов новая подборка фантастических треков последнего месяца. Модное звучание и необходимый минимум инструментов – этого достаточно, чтобы народ на танцполе не сбился с ритма и продолжал активно двигаться в такт приятной и лёгкой музыке!001. !Nertia - Iku
+002. Aura Minimum - Deep Construct
+003. Marie Vaunt - Hex
+004. Jala - Not Surrender(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 10:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C97C16A984A7D1F8DCFE9BFAC5ECFBC6A5ED5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462229   (1021316) от 13.04.2021
+
+VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для поклонников танцевального направления музыки есть отличный сборник, который подарит вам много ярких эмоций во время прослушивания. Такую музыку не стыдно взять на вечеринку или поставить в каком-нибудь ночной клубе, если вы ди-джей. А выбрать есть из чего, поскольку все мотивы очень разнообразные, да и продолжительность звучания почти девять часов.001. Stbn - Long Gone
+002. Sashman & Withard - Open Your Heart
+003. Natema - Grados
+004. Borja Md - Poky Sonic(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8616916ECD17E52501DC733749C1A86C6DDA71C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462087   (1021309) от 13.04.2021
+
+VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond, Zoe Johnston, ALPHA 9 - Good For Me (ALPHA 9 Remix) (5:04)
+002. Alesso, Armin van Buuren - Leave A Little Love (Club Mix) (2:53)
+003. Jeremy Vancaulart, Danyka Nadeau, Millennial - Hurt (Millennial Remix) (3:42)
+004. ReOrder, Neil Hunter, Zach Alwin - You Should Know (3:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30320A819604D60D8D6812C337FEC0F3E2E101E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462442   (1021224) от 14.04.2021
+
+VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Theory - This Whole Nothing (4:02)
+02. Modeling - Nothing Unexpected (5:54)
+03. Space March - It's Not Over Yet (4:53)
+04. Primo - Do It Again (3:17)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 05:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC92FC50AD7E47E98F3AD711A9D8D73A02A3AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462291   (1021190) от 14.04.2021
+
+VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Leon, In2Deep - Sculpture (9:43)
+002. Apir - Emphatic (9:07)
+003. Pryda - Power Drive (8:53)
+004. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix) (8:35)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76354828AB89AC5183169D0AC9C3FDAD9DFACB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462525   (1021041) от 15.04.2021
 
 VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
@@ -513,238 +745,6 @@ VA - E-Dance: Clubbing Electro House (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D84D69E1B59471446D6C6AA0B678E8289B46C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466869   (1018105) от 02.05.2021
-
-VA - EDC Radio: Beat Dance Set (2021) [MP3|320 Kbps] <EDM, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот микс изначально нацелен на клубный драйв, нежели на прослушивание в наушниках дома за чашкой кофе. Однозначно, придется по вкусу любителям заводных ритмов и тем, кто до без ума от воскресных тусовок.001. Relanium - Home Alone
-002. Munez - Tonight
-003. Stompy & Eazyvibe - I Just Wanna Party
-004. Laconic - Laconic & Deanna(   Читать дальше...   )Жанр: EDM, Dance, House, ElectroПродолжительность: 08:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337E473D7DBB835689DF3170B9A47075A7892D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466866   (1018101) от 02.05.2021
-
-VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкий, незаезженный саунд, стильная атмосфера, оригинальное и запоминающееся звучание, красивый вокал почти в каждом треке – всё вместе звучит очень круто и небанально – как минимум в рамках нашего портала. Настроение во время прослушивания этого микса поднимается на максимум! А это значит, что автор подборки постарался на славу!001. Andrew Spencer - It's A Rainy Day 2021
-002. Carlosh Garzat - Obrigado
-003. Lonnel & Brsg - Alone
-004. Cirrel Sneer - Blue Monday(   Читать дальше...   )Жанр: Pop Dance, ElectropopПродолжительность: 07:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A7B107459FC59C4A74F609F424AF2C59313FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466863   (1018090) от 02.05.2021
-
-VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно мелодичная музыка в сочетании с элементами красивого вокала заставит погрузиться Вас в состояние эйфории, отбросив все условности окружающей реальности. Новые треки апрельского выпуска сборника "Deep House: Luxe Mood Electro Sound" уже ждут Вас и готовы пополнить Вашу музыкальную коллекцию!001. Metro DJ - New Age Funk
-002. Laurence Guy - Love Theme
-003. Dwayne Pinnock - Obsession
-004. Thulane Da Producer - Deep Incarnate(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C90129892EFD740306F2B2898C6E94F74D2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466941   (1018078) от 02.05.2021
-
-VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eneli, Monoir - 3 to 1 (3:39)
-02. Tiesto - The Business (2:44)
-03. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)
-04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3785AA5CFAAF6961B8250D0A0A59B971BDA0C3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467744   (1017584) от 05.05.2021
-
-VA - Beatport Drum And Bass: Sound Pack #279 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однозначная громкая сенсация на просторах электронной музыки! Композиции 279-го подборки от Beatport понравятся и почитателям наполненных экзотикой басов и радикальных ритмов. Хиты линейки "Bаss Linе" всецело вашему вниманию.001. Greekboy - Astronomic Illusion
-002. Ak-Industry - Crash Report
-003. Asc - After Dark
-004. Echo 1 - Voyager(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 09:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B91B68FE1B3870C536CE8C12BB59892BF788978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468947   (1016788) от 10.05.2021
-
-VA - Peace In The Static (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник предназначен для того, чтобы Вы могли погрузиться в свои мысли, ощутить красоту мелодий, обрести душевное равновесие или скоротать вечер в размышлении о вечном и прекрасном. Эти звуки помогут успокоиться, снять стресс да и просто насладиться гармонией звука001. Blufeld - Night Mode
-002. Marco Monteverde - Dark Amenities
-003. Morgan King - I'm Free
-004. Miav - Hearts(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 07:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2988FE2544016CCEB513319BC583E1BBE42AFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468950   (1016781) от 10.05.2021
-
-VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичность, индивидуальный формат в аранжировке, классические струнные, душевный и виртуозный вокал, кристально возвышенное, отшлифованное до идеала, звучание – всё это охарактеризовывает композиции апрельского 280-го микса Deep House музыки от известного лейбла.001. Librium Project - Ghetto Blessing
-002. Benjamin Bryan - Zonero
-003. Martinoresi - Put Me Out
-004. Controlwerk & Matter - Onyx(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999EF9FE9FFF955BE13AC41118C9DED6E87C70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468895   (1016768) от 10.05.2021
-
-VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Flashbacks (2:57)
-02. Tiesto - The Business (2:44)
-03. Eneli, Monoir - 3 to 1 (3:39)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
 ```
 
 https://mybot314.ru/tekegram_catalog/

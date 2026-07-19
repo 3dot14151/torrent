@@ -1,3 +1,235 @@
+###  Публикация: 989075   (917337) от 22.02.2016
+
+VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Afrojack & R3hab - Prutataaa (Darth & Vader Remix) (6:27)
+2. Albin Myers - Hells Bells (Original Mix) (4:50)
+3. David Guetta & Afrojack - Lunar (Original Mix) (5:16)
+4. Divkid - Tailwhip (Becca Remix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 02:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35E95898DF183BD033E3556B69BCBB19737FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989318   (917331) от 22.02.2016
+
+VA - House Nation Volume 4 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Van Doorn, Dimitri Vegas, Like Mike - Project T (Martin Garrix Remix) (05:13)
+02. Slice N Dice & Stan Gravs - Osiris (06:08)
+03. Zac Waters - No Quarter (04:02)
+04. Fatboy Slim & Riva Starr feat. Beardyman - Eat Sleep Rave Repeat (North Base Bootleg) (05:03)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF70E9D96783A3085ACCC2882D9537D2A0F34444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988977   (917136) от 22.02.2016
+
+VA - Workout Chillout (2016) [MP3|320 kbps] <Lounge, Chill House, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project feat. Solanos - Festa Do Sol (Funk edit)
+02. Enrico Donner feat. Theresa Thomason - Something New
+03. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix)
+04. Lazypojke - Why Always Me?(   Читать дальше...   )Жанр: Lounge, Chill House, SoulfulПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64552316FA4696C9B008CB873E47100E763839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490551   (917130) от 21.08.2021
+
+VA - The Lunar Disco (2021) [MP3|320 Kbps] <Disco Remix, Dance, Funky House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Paul Getto - It's You
+002. C Da Afro - You Can Stay The Night
+003. Alex Deeper - Make Me
+004. Norenoise & Deepower - Get Down(   Читать дальше...   )Жанр: Disco Remix, Dance, Funky House, Nu DiscoПродолжительность: 11:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90EE1D629F892E9F0708C0DF6377EC383B3159C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989288   (917101) от 22.02.2016
+
+VA - Romantic Lounge Fine Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Side Chain Reactions
+02. Don Gorda Project - Stay On Course
+03. Oliver Backstrom - One Last Goodbye feat. Boring Sax
+04. Dr. Diver - Landing(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BE0B3E837F41C46E7A21F8D44B8ADEA66ED6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988745   (917027) от 22.02.2016
+
+VA - Electro Life Best 100 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, Electro Progressive, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
+02. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
+03. Andrew D - Sweet Thing
+04. Andrew Spencer - What A Feeling (Cassey Doreen Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, Electro Progressive, Progressive HouseПродолжительность: 07:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FF4D86E6EBAD899C1E705D34FD918C2BFCC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097063   (915874) от 26.01.2017
+
+VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, SynthPop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alphawave - Underwater World
+002. Camouflage - Shine
+003. Cosmologia - Eternal Seeker
+004. DMC - Noisy Pillars(   Читать дальше...   )Жанр: SpaceSynth, SynthPop, ElectronicПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989586   (915833) от 23.02.2016
+
+VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Audio Jacker - By My Side (Anthem Mix) [07:05]
+2. Soul Power - No Diggity (Soul Power Classic Club Mix) [05:17]
+3. Martin Thomas - Love Has A Way (Original Mix) [07:00]
+4. Audio Jacker - Rotate (Original Mix) [05:39](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989819   (915827) от 23.02.2016
 
 VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
@@ -513,238 +745,6 @@ VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110C763CDFB0139FC3C5262B72CED6DC89609320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990378   (912336) от 25.02.2016
-
-VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxea - The Secret [09:13]
-02. The Tonal - Planet Is Alive [04:04]
-03. Q Logic - Thoughts [07:04]
-04. Heavenly Light - Guardian Angel [05:27](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1CB5188E591949D06841B822405EB79CA6ED3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990390   (912325) от 25.02.2016
-
-VA - Avantgarde Chillout Vol 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slomo - Love on Twenty Three - Slow Mix [04:15]
-02. Bobsmithband - Lounge Up [05:10]
-03. Woltrax - Inside the Storm [01:33]
-04. The Soul Elephant - Fragile [04:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFC0CD4A1AEFB0D1990763DE32F5AF83F318610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990235   (912153) от 25.02.2016
-
-VA - Best Dance Tracks N3 (2016) [MP3|192-320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Dyson — Alcatrax Vol. 1 (Miles Dyson Breakfest Edit)
- 002. Aaren San — Friction (Davis Kay Remix)
- 003. Bad Tempo — Partycool Accelerator (Original Mix)
- 004. PrototypeRaptor — ECSD (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3E1D7CBA9ECC0E5C7DC07183F88EBBA669CD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758812   (910942) от 20.02.2014
-
-VA - Lounge At The Seashore 5 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. For Found Future - Hypnotic Dreams
-002. Spacediver - Rainbow Colours
-003. Lana Del Rey - Summertime Sadness
-004. Laid Back - Rocketship To Mars(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB940620AD924644087ACECCF15A48BAEAC61F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097932   (910796) от 29.01.2017
-
-VA - Club Dance Ambience Vol.100 (2017) [MP3|320 Kbps] <Dance, Club, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 9lives & Matt Hart feat. Philip Matta - Just Let Go (Original mix) 5:19
-002. Alex Scandi - Get Down (Original Mix) 4:07
-003. Alisha Pillay vs Kolya Funk & Eddie G - Mayday (Vincent & Diaz Mash-Up) 4:12
-004. Alok  Fractal System feat. Bea Jourdan vs. Kolya Funk & Eddie G - Don't Ya (Joy Vega Mash Up) 5:16(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C10ABEF73D33469D2DDB3A48A52A07F1FFA7585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098234   (910610) от 29.01.2017
-
-VA - International Sports Collective 4 (2017) [MP3|320 Kbps] <Eurodance, Vocal, House, Club, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surisan & Mirsad - I'm On Fire (Radio Edit) 03:17
-02. Derek Faze - Escape (Radio Edit) (Feat. Avari) 03:29
-03. Dj Rosso - System Overload (Radio Edit) 03:37
-04. Cliff Wedge - Touch Me (Radio Edit) 03:23(   Читать дальше...   )Жанр: Eurodance, Vocal, House, Club, DiscoПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7B9F02FEBE36F5221F360FE02E0597DAD6C2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098390   (910503) от 29.01.2017
-
-VA - Best Chillout Vol.25 (2017) [MP3|96-320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Absoluteterror - Toyota (Original mix) 2:22
-002. Adventure Club - Wonder (ANDRU Remix) 4:05
-003. agrx & Kringe - Let The Music (feat. Kringe) (Original Mix) 2:45
-004. Alivvve - Dreams (Original Mix) 2:24(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9103AF4B2FABB36CBECEB364E05C23027F975D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098220   (910279) от 29.01.2017
-
-VA - The January Club and Dance Music (2017) [MP3|320 Kbps] <House, Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910279.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 20 Fingers vs. Vincent & Diaz - SHORT Dick Man (Markiza Mash-Up)
-002. Abraham Ruiz - 212 vs. Boogie Vice - What A Day (DЭ GAME SOUND REMIX 2017)
-003. Alexander Holsten - Rock is Alive (Mikhail Rado Sax Extended Radio Version 2017)
-004. Alisha Pillay vs. Kolya Funk & Eddie G - Mayday (VINCENT & DIAZ MASH-UP 2O17)(   Читать дальше...   )Жанр: House, Electro House, Dance, ClubПродолжительность: 06:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCAC4DBB9401D6D59050850AF666A71AD98D95A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1325940   (408408) от 17.09.2019
-
-3D сцены - Blender Cloud - Art Gallery - Gleb Alexandrov [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408408.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D сцены Глеба Александрова с сайта Blender Cloud:
-- Locomotives
-- Light Trails
-- Attic(   Читать дальше...   )Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822C7F63864F6EC477B13D0A41A63865E5AA023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574049   (407221) от 03.09.2022
 
 3D модели - 3DSky PRO models - 2022 #2 [Corona|V-Ray|*.max, FBX, OBJ]
@@ -702,6 +673,33 @@ Seat Leon II, Mazda CX-7, Chevrolet Avalanche , Chevrolet Express
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257379   (344738) от 26.10.2018
+
+3D модели - 3ddd - PRO 3D-models Pack 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 37 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3F78BAEBB712208F0DB496BA9FA55F649B3E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

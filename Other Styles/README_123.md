@@ -1,3 +1,177 @@
+###  Публикация: 570387   (389891) от 05.11.2012
+
+Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389891.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angel of Death (1:47)
+2. The First Cut Is The Deepest (3:15)
+3. The Quaker (4:01)
+4. Berlioz: Strophes 'Premiers Transports Que Nui N'oblie'Жанр: OSTПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4993B2A16F238A339E2DA37C3669AC94A7B766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173549   (389699) от 12.10.2017
+
+Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au dela du Soleil
+02. Rencontre magique
+03. Les voix invisibles
+04. Instant present(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73064B8345DBED034353B5D4D724EE3D08EA339B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573797   (387755) от 04.09.2022
+
+Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumi Janona
+02. I Fly In The Heart-Sky (feat. Charubala, Chintamani & Nastya K.)
+03. He Loves His Dreams
+04. Kalpana Nahe Mor (feat. Charubala)(   Читать дальше...   )Жанр: New Age, Piano, SpiritualПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D0D3A33A86C655EDA6AD71A2A7F7582E9AC901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413960   (387707) от 07.10.2020
+
+Charles Segal - When You're in Trouble (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Our Togetherness 05:51
+2. Reminding Me of You 07:10
+3. Just a Matter of Time 02:57
+4. LA Nights 02:54(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2196518CB538FFB84B276817B7832DF765CCC7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414215   (387414) от 07.10.2020
+
+Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healing Beats (3:27)
+02. Fertility Energy (3:41)
+03. Night Tantra (3:09)
+04. Just Believe (4:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D89497F20BE515860D6B65EDACA27E3E7EA9B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413979   (387405) от 07.10.2020
+
+Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotic Aspects of Yoga (5:04)
+02. Manifestation of Love (4:01)
+03. Night Full of Emotions (4:58)
+04. Moments Together (4:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567E7FA070D23AC43FDCDB628B853330746CE235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414104   (387288) от 07.10.2020
 
 Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -575,180 +749,6 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253547   (381762) от 10.10.2018
-
-Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Mani Padme Hum (09:58)
-02. Endless (08:59)
-03. Peace of God (11:55)
-04. El Mie (08:10)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253560   (381760) от 10.10.2018
-
-Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Dawning (08:22)
-02.Darkness of Space (06:38)
-03.Lift Thine Eyes (09:14)
-04.Sunborne (14:58)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253563   (381687) от 10.10.2018
-
-Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of This World (06:57)
-02. Sunborne (04:21)
-03. The Flying Bach (06:09)
-04. Radiance (04:53)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4B05C7B2008C2A160E76BB1740CC300B5DF386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253706   (381605) от 10.10.2018
-
-Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction Commentary
-02. Fly
-03. Gentle Wind
-04. Hikari No Nakade(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67394FE2439EAC76E47F8CC38C21FBA99E126F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253341   (381504) от 10.10.2018
-
-VA - Александр Зацепин: Песни из к-ф 31 июня (1996) [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Татьяна Анциферова - Мир Без Любимого
-02. Татьяна Анциферова - Он пришел
-03. Михаил Файбушевич - Лунный день
-04. Татьяна Анциферова - Ищу тебя(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AFC9085C91DFC6A759C88BE42DB5854D052813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175303   (381082) от 17.10.2017
-
-Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayatri Mantra
-02. Obstacle Removing Mantra
-03. Moola Mantra (feat. Ashana)
-04. Advaita Vedanta Mantra of Non-Duality(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DDEF204DF14D193DCE80A841DA75707C814591
 ```
 
 https://mybot314.ru/tekegram_catalog/

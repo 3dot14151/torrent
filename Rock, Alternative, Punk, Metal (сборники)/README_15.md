@@ -1,3 +1,90 @@
+###  Публикация: 1120760   (800386) от 02.04.2017
+
+VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zero Down - No Limit to the Evil (03:39)
+002. Annihilator - Syn. Kill 1 (04:27)
+003. Anthem - Go Insane (04:43)
+004. Anthem - You (03:55)(   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5C9F2A11EEC9D1D558B83BFF2929077FB30C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384783   (800123) от 23.05.2020
+
+VA - Women of Rock (2020) [MP3|320 Kbps] <Alternative, Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800123.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blondie - Atomic (3:50)
+2. Gossip - Heavy Cross (4:02)
+3. No Doubt - Just A Girl (3:28)
+4. Hole - Celebrity Skin (2:42)(   Читать дальше...   )Жанр: Alternative, Rock, PopПродолжительность: 02:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E843441D17522B812CF2A38F725CAC52B01D249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273593   (799407) от 03.01.2019
+
+Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1 - Barrow Wake:
+01.The Enchanted Realm (5:53)
+02.Woman to Hare (Daemon Romantica Mix) (5:20)
+03.Lost to the Sea (5:34)(   Читать дальше...   )Жанр: Pagan, RockПродолжительность: 03:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273877   (798664) от 04.01.2019
 
 Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 Kbps] <Folk Rock, Classic Rock>
@@ -658,93 +745,6 @@ VA - Melodic Soft Rock (2019) [MP3|320 Kbps] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0492BFC43356EB2D81506B0C3506D3E6F3D0A2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510451   (790813) от 17.11.2021
-
-VA - The Purgatory (Vol.03) (2021) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Primal Age - Adolescent Humanity
-002. Galneryus - Flames Of Rage
-003. Anchors & Hearts - What If God Was One Of Them!
-004. Blood Sermon - Funeral Clown(   Читать дальше...   )Жанр: Hardcore, Metal, Hard RockПродолжительность: 08:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1752D4C60CD27CD813A6AEB34FF8045931D5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388076   (790091) от 04.06.2020
-
-VA - Happy Race: Indie Pop Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790091.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spirit Desire - We Are Everything
-002. Huey Blue - Sugar Mama
-003. Brenn - Ingensteds
-004. Tumppi Varonen - Ihan Sama(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3370D5F52C24912BD121747A7A8020F9CC84A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275653   (789801) от 12.01.2019
-
-VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789801.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wheatus - Teenage Dirtbag
-002. Lynch Mob - Main Offender
-003. Baddiel, Skinner - Three Lions '98
-004. Cherri Rokkett - Do You Want Me(   Читать дальше...   )Жанр: RockПродолжительность: 08:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E4BAE5CC9EF3D36149DE48D5A081964F9E876
 ```
 
 https://mybot314.ru/tekegram_catalog/

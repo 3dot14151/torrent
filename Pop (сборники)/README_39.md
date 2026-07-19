@@ -1,3 +1,32 @@
+###  Публикация: 1216201   (752938) от 29.03.2018
+
+VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marshmello & Anne-Marie - Friends 3:23
+02. Olexesh - Magisch (Feat. Edin) 4:08
+03. Rudimental - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
+04. Drake - God's Plan 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDD0689BA6D7B86AFEF5494AEED146AD9ECE2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017090   (752343) от 22.05.2016
 
 Авраам Руссо - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
@@ -716,35 +745,6 @@ VA - Улетай. Русский сборник попмузыки (2016) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E104BB67CEC3DC47D68336EB0EC034B830D709E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282570   (744923) от 12.02.2019
-
-VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744923.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zivert - Life 3:08
-002. Звонкий - Голоса 3:26
-003. Don Diablo feat. Emeli Sande & Gucci Mane - Survive 3:10
-004. Arnon feat. Killua - Te Molla 3:16(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B335BEB33A60935DFAF9F1F8BE026FBF13B3962
 ```
 
 https://mybot314.ru/tekegram_catalog/

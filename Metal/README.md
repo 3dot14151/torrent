@@ -1,5 +1,121 @@
 https://t.me/izofen
-###  Публикация: 1877486   (1074472) от 
+###  Публикация: 1881030   (1076607) от 
+
+GraveReign - Icon Of The Accursed (2026) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Genghis Khan
+02 - The Holodomor
+03 - Unit 731
+04 - Jack the Ripper(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E153B522C60A60E6492860B3A50A396763F1DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880691   (1076405) от 08.07.2026
+
+Kerry King - From Hell I Rise (2026) Extended Deluxe Edition [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diablo (1:55)
+ 02. Where I Reign (3:51)
+ 03. Residue (4:39)
+ 04. Idle Hands (3:45)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E830D0F99FD10193B7CF212368B228E18E70B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879813   (1075596) от 03.07.2026
+
+Ruin And Reverie - The Seed Of Chaos (2026) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект под руководством гитариста Пери Роча из Сиэтла, при активном участии известного вокалиста Рэя Алдера. Концептуальный альбом в стиле прогрессив-метала о бегстве человечества с умирающей Земли и отчаянных поисках нового дома.01. Pt. I: Signals (2:40)
+02. Pt. II: Project 2552 (3:12)
+03. Pt. III: Rise (5:35)
+04. Pt. IV: Into The Nothing (9:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAA23BC14B032A9558B622AE5884874C0CB9744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877988   (1074937) от 
+
+VA - Swedish Death Metal (2009) 3 CD [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evocation - Through The Darkened Peril (Demo Track) (3:31)
+02. Seance - Reincarnage (Demo Track) (3:34)
+03. Toxaemia - Beyond The Realm (Vinyl EP Track) (3:28)
+04. Furbowl - Shark Heaven (Demo Track) (4:11)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9CDCDD0BDAB39F094C2864C195C5FE81B76892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877486   (1074472) от 24.06.2026
 
 Vayper - Песни на стихи Branikald (Часть 02) (2026) AI-generated content [MP3|~190 Kbps (V2)] <Pagan Folk Metal>
 
@@ -225,35 +341,6 @@ Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EADEA7CABE424035724BFC20DB53E8C4BDFCB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858901   (1060665) от 13.03.2026
-
-Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1060665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Revolution (Intro)
-2. Liebe Glaube Monster
-3. Wunderschön
-4. Monster(   Читать дальше...   )Жанр: Industrial Gothic Metal, DarkwaveПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,93 +747,6 @@ Beyond The Black - Break The Silence (ltd. Digipak + Bonustracks) (2026) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425BC6FB37914833E9D7CBBFB0F7D6BBC9F2D779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847816   (1052494) от 14.01.2026
-
-Drowned in Silver - Mothers (2025) [MP3|320 Kbps] <Black Doom Gothic Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Living Gardens
-2. Waves of Sorrow
-3. Mothers
-4. Disillusion(   Читать дальше...   )Жанр: Black Doom Gothic Metal, GrindcoreПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04207E22C53CE423007CE5BFA8BB065CA9FB152C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847842   (1052487) от 14.01.2026
-
-Kiljin - Far Too Gone (2026) [MP3|320 Kbps] <heavy metal old-school>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052487.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Life [00:06:08]
-2. Disjointed [00:03:02]
-3. Erased [00:05:33]
-4. What Are You Looking For [00:03:19](   Читать дальше...   )Жанр: heavy metal old-schoolПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FE881C27707DADE45BFE12C1C6EC69412FDDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847978   (1052395) от 15.01.2026
-
-Soen - Reliance (2026) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primal(4:34)
-02. Mercenary(4:10)
-03. Discordia(3:55)
-04. Axis(4:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC081E3CBA267C3A2064BBC67A7CE7008742615
 ```
 
 https://mybot314.ru/tekegram_catalog/

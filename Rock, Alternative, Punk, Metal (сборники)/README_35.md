@@ -1,3 +1,90 @@
+###  Публикация: 495525   (360286) от 30.10.2015
+
+VA - Русский рок - Новая генерация (2012) [MP3|256-320 кб/с]<Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5diez - Моя Весна
+ 02. 7000$ - Я вернусь
+ 03. Atakama - Холодное Сердце (feat. Кэш (Слот) и К.Немоляев)
+ 04. Bog-morok - г.м.о.(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial MetalПродолжительность: 04:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C5E41840D99092F8B4D4B33EB8EFBC4987BCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545045   (360285) от 30.10.2015
+
+VA - Рок в Авто (vol. 4) (2012) [MP3|214-320 кб/с]<Heavy Metal, Glam Metal, Thrash Metal, Alternative Metal, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audioslave - Be yourself
+02. Helloween - Fast As A Shark (Accept Cover)
+03. Three Days Grace - I Hate Everything About You
+04. Guano Apes - Storm(   Читать дальше...   )Жанр: Heavy Metal, Glam Metal, Thrash Metal, Alternative Metal, Power MetalПродолжительность: 05:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3777D4189E42E345E8906898A4CD2FC695CDE653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611250   (360166) от 30.10.2015
+
+VA - Русский рок - Rapcore (2013) [MP3|320 кб/с]<Rapcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. =RTJ=- - Навсегда
+ 02. On My Way - Война
+ 03. CellarDoor - Тот самый трек (feat. Три Пули)
+ 04. FAЙL - Этой осенью(   Читать дальше...   )Жанр: RapcoreПродолжительность: 02:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97EC96E56C4DBE9B305AF3E3A2BA305F572818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548095   (360161) от 30.10.2015
 
 VA - Рок в Авто (Rapcore) (2012) [MP3|320 кб/с]<Rapcore, Nu Metal, Alternative Metal>
@@ -659,93 +746,6 @@ VA - The Best Of  The Alternative (2020) [MP3|320 Kbps] <Indie Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179823   (344234) от 02.11.2017
-
-VA - Russian Metal Ballads (2017) [MP3|320 Kbps] <Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Харизма - Ты ветер, ты пепел
-02. Багира - Момент
-03. Легион - Когда проснётся бог
-04. 5 Стихий - Отпусти(   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 08:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD9EF83209FAADED3522C9E326A0BA05182D7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330238   (340843) от 10.10.2019
-
-The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sgt. Pepper's Lonely Hearts Club Band (Take 9) (02:15)
-02-With A Little Help From My Friends (02:45)
-03-Lucy In The Sky With Diamonds (03:05)
-04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419401   (339840) от 28.10.2020
-
-Robert Plant - Funny In My Mind (2CD Compilation) (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom Fries
-02. Morning Dew
-03. One More Cup Of Coffee
-04. Pledge Pin(   Читать дальше...   )Жанр: RockПродолжительность: 02:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
 ```
 
 https://mybot314.ru/tekegram_catalog/

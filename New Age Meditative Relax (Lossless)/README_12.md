@@ -1,3 +1,29 @@
+###  Публикация: 667829   (725526) от 14.06.2013
+
+Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [APE|Lossless]<New Age, Progressive Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Progressive Rock, Ambient, Art RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128976   (724218) от 27.04.2017
 
 Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
@@ -715,35 +741,6 @@ Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402115   (703678) от 13.08.2020
-
-VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finest Pasas - Mystic Clouds (06:34)
-02. Spirit - Om Sat Guru (06:41)
-03. Power Shui - Harmonious Journey (03:47)
-04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
 ```
 
 https://mybot314.ru/tekegram_catalog/

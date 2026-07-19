@@ -1,90 +1,3 @@
-###  Публикация: 1081789   (279200) от 12.12.2016
-
-VA - Танцевальная пурга от хит fm. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Kat Deluna - Waves 3:49
-002.The Weeknd - Secrets 4:26
-003.Mainstream One - Пьяная 2:53
-004.The Chainsmokers Feat. Xylo - Setting Fires 4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B778C86DF17FEE11EFF3180CF1769B56E8E805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081785   (279195) от 12.12.2016
-
-VA - Русская зима. С Новым годом (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Новый Год По-Новому
-002. Сати Казанова - Happiness Hey (Radio Edit)
-003. Егор Крид - Мало Так Мало
-004. Слава Благов - Она Как Солнце(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CBF8A4B8098726100A2330E1BE37AF4EB0DA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081800   (279110) от 12.12.2016
-
-VA - Автодискотека. Зимний драйв. Зарубежный сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Yade Lauren - Love & War 3:00
-002.Mans Zelmerlow - Whistleblower 2:59
-003.Danny Avila Feat. Haliene - High 3:10
-004.Olly Murs - Private 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894E3694913079FB78DF22DE0E2B852B58E1DFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082117   (279109) от 12.12.2016
 
 VA - Deutsche dance Hits №9 (2016) [MP3|256 Kbps] <Pop, Dance>
@@ -709,6 +622,93 @@ VA - OLD Dance Hits 100% (2010) [MP3|320 kbps]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064D84664F3A0E7D150A731BBFCDD2A9C65D96AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082573   (275920) от 14.12.2016
+
+VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Katrin Mokko - В Моем Кино 3:47
+002.Red Hot Chili Peppers - The Getaway 4:11
+003.Holy Molly & Holygunner & Anton Liss - For Ma Ma Bitch 4:16
+004.The Hardkiss - Helpless 3:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082596   (275780) от 14.12.2016
+
+VA - Хит-парады Топы Чарты FM-станций  Ноябрь (2016) [MP3|128-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275780.jpg" />
+</div>
+
+
+###  Подробнее
+
+DFM
+01.Alan Walker - Sing Me to Sleep
+02.Calvin Harris - My Way (Audiorockers & Matt Raiden Remix)
+03.Cedric Gervais And Willy Monfret - Make Me Feel (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 15:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD81C6407EF5C7052501066778B3EB4FADCF9506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083248   (274978) от 15.12.2016
+
+VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274978.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Fickle Friends - Brooklyn 3:11
+002.Пропеллер Брокен - Фанданго 4:22
+003.Turbotronic - Booty Shake 4:37
+004.Dj Jedy Feat. Олеся Май - Natural Blues 4:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F452A288B8E4B00A2EA917F0420F35DBD1BF2BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

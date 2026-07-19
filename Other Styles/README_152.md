@@ -1,3 +1,177 @@
+###  Публикация: 1362591   (242474) от 24.02.2020
+
+Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242474.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:07| 01. Bad News
+|02:02| 02. Revelation
+|01:03| 03. SOS
+|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362592   (242458) от 24.02.2020
+
+Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242458.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:07| 01. Bad News
+|02:02| 02. Revelation
+|01:03| 03. SOS
+|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C375E76EEEA42984F6E8FA890591070FA2B07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624083   (242316) от 05.04.2023
+
+Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Country, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Country Music [03:07]
+02. Country Chillout [04:33]
+03. Mellow Country [03:59]
+04. Heart of Country [03:54](   Читать дальше...   )Жанр: Country, InstrumentalПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A755E11C4DE7D56C531FB1EC0B20E4F7D2A574D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624346   (242233) от 05.04.2023
+
+Инна Желанная (Inna Zhelannaya, Альянс, Farlanders, Сергей Старостин, Mari Boine, Сергей Калачев, Malerия, Вилы) - 17 Альбомов (1991-2022) 19CD [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рябина ( свадебный обряд, Белгородская область )
+02. Недоля ( свадебный обряд, Псковская область )
+03. Свет моя улица ( хороводная, Смоленская область )
+04. Лужок ( хороводная, Пермская область )(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB15E28C07E3147104C2683DD1BDFC7F670E4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457767   (242214) от 28.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242214.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:52] 01. Themyscira
+[05:18] 02. Games
+[07:05] 03. 1984
+[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABA5CAC3F9E4E1627223D4756A759C4CCF8745B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457768   (242186) от 28.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242186.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:52] 01. Themyscira
+[05:18] 02. Games
+[07:05] 03. 1984
+[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D641B65ED503D43F073D2773567ED30E66B54FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635133   (242049) от 24.05.2023
 
 Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country>
@@ -570,178 +744,6 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574437   (236915) от 06.09.2022
-
-VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souk Criminals - Moroccan Heaven (Arabesque Rework) (4:17)
-02. Bedouin Spirit - Infidel (Jah Debda Sunset Mix) (3:10)
-03. T.I.A.C. - Camel Train (Marrakesh Mix) (4:44)
-04. DJ Ahmed - Nomad's Chant (4:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573649   (236886) от 06.09.2022
-
-VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey - Separate Ways (Worlds Apart) (Bryce Miller / Alloy Tracks Remix)
-02. The Beach Boys - California Dreamin'
-03. Talking Heads - Psycho Killer
-04. Kate Bush - Running Up That Hill (A Deal With God)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE89058D9288429DB8A83DB41B15001F98AAA8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641485   (235970) от 25.06.2023
-
-Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creative Insight
-02. Inner GeniusЖанр: Ambient, Relax, HealingПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624F922AD06292364CF05F7A264C6B85DBD6F0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457985   (235780) от 28.03.2021
-
-Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Day (3:36)
-02. Song For You (5:12)
-03. Scorpion (5:17)
-04. Chromatic Dreams (4:42)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182F6BCE005573BA0EFBDCB62355F7532AACB697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641765   (235120) от 25.06.2023
-
-Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional Mexican>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROSA PASTEL [00:03:24]
-02. LUNA [00:02:43]
-03. 77 [00:03:35]
-04. RUBICON [00:03:58](   Читать дальше...   )Жанр: Regional MexicanПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8AAC90B402128D0441ED6E3FB3DBDB613724A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538502   (234871) от 27.03.2022
-
-Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/24|WEB-DL|tracks] <Celtic Punk, Folk Punk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Up That Dial (3:43)
-02. L-EE-B-O-Y (3:24)
-03. Middle Finger (2:36)
-04. Queen Of Suffolk County (3:52)(   Читать дальше...   )Жанр: Celtic Punk, Folk PunkПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC93A596AF8747042F33EABBE4E69CBD97230BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

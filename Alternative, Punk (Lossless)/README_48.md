@@ -1,3 +1,119 @@
+###  Публикация: 962738   (292634) от 05.12.2015
+
+Coldplay - A Head Full of Dreams (2015) [FLAC|tracks + .cue] <Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Head Full Of Dreams
+02. Bird
+03. Hymn For The Weekend
+04. Everglow(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627675F0FD341F2D780C73D6B15A97C0CDF89D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334834   (291669) от 31.10.2019
+
+White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BS (Live) (03:07)
+02. SHORT SHAKE (Live) (00:08)
+03. MOVES (Live) (03:08)
+04. DORGS (Live) (03:04)(   Читать дальше...   )Жанр: Indie Rock, Garage RockПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A9E7BBF6BEA0DF32A601B7CC9E393BCA6C1BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624238   (290990) от 06.12.2015
+
+Серцевий Напад - 2 альбома (2009-2010) [FLAC|Lossless|image+ .cue] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 | Пробач | 03:09
+02 | Оптимістична | 02:27
+03 | Москва | 03:05
+04 | Черепашки Нінзя | 02:25(   Читать дальше...   )Жанр: Pop Punk |Продолжительность: 01:09:47 |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080128   (290160) от 06.12.2016
+
+The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big Sled (4:23)
+ 02. Don't Shoot Me Santa (4:05)
+ 03. Joseph, Better You Than Me (4:52)
+ 04. ¡Happy Birthday Guadalupe! (4:34)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF3A2F2345FBEBA294B55F5C7C0251AC9F35F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263278   (286464) от 20.11.2018
 
 Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
@@ -629,122 +745,6 @@ Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799CD7E11C8637F5AFD6E74B872518701B3AC04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189221   (271270) от 05.12.2017
-
-Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorious (02:50)
-02. Ready for War (Pray for Peace) (03:32)
-03. Trapped 04:01)
-04. Tell Me 03:30)(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224374EE33E4D8C61A0A005BE965D8E7760792E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338117   (270632) от 14.11.2019
-
-blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Time (02:26)
-02. Happy Days (02:59)
-03. Heaven (03:17)
-04. Darkside (03:00)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037AD55342F3719A3F9E9977090877CBC0496C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534805   (270183) от 06.12.2017
-
-Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, Brit-pop, Neo-Glam>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя все участники группы Spacehog родом первоначально из Лидса, Англия, группа, сформирована в Нью-Йорке в 1994, когда Antony Langdon встретил Cragg случайно в кафе. Вскоре брат Langdon, Royston, и гитарист Richard Steel присоединился к группе, Spacehog родился. Их звук так сильно отличался от нео-гранж движения начала 90-х годов, что в течение короткого времени (   Читать дальше...   )Список альбомов:
-1995 - Resident Alien (EKCD 6243)
-1998 - The Chinese Album (Sire 9 46851-2)
-2001 - The Hogyssey (Artemis 751068-2)Жанр: Indie, Brit-pop, Neo-GlamПродолжительность: 03:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189826   (269593) от 07.12.2017
-
-Joywave - Content (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Content (04:28)
-02. Shutdown (03:42)
-03. It's a Trip! (03:03)
-04. Rumors (03:47)(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD6EADC60B39106CF54179F77E21BFECFFD2535
 ```
 
 https://mybot314.ru/tekegram_catalog/

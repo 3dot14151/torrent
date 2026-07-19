@@ -1,3 +1,32 @@
+###  Публикация: 1012388   (778377) от 02.05.2016
+
+VA - May Discotheque - Holiday Hit Parade N1 (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dekku - Rescue Me (Feat. Juliana Chahayed)
+02. Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit)
+03. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
+04. Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza)(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C671616A971E96F20DD466B4AE9F1ECE13C8FDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012751   (778344) от 02.05.2016
 
 VA - Горячая весенняя дискотека (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Философия Весны от Авторадио (2018) [MP3|256-320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4175E48F47F8AB3E89DB8F11184B407B2AD80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212433   (776009) от 11.03.2018
-
-VA - Зарубежные Хиты (Март) (2018) [MP3|320 Kbps] <Dance, Pop, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 30 Seconds To Mars - Dangerous Night
-002. 247 - Tu Guerrero
-003. Adam Cola - Be Free
-004. Adelen - Go Home(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F25B29898A5CEBDCE75EB21A40F1B0A4AB8EE89
 ```
 
 https://mybot314.ru/tekegram_catalog/

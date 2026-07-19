@@ -1,119 +1,3 @@
-###  Публикация: 1121758   (799685) от 03.04.2017
-
-Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Titoros [03:04]
- 02.They Can't Take That Away from Me [03:01]
- 03.Round About Midnight [04:36]
- 04.Perdido [02:54](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9572D3492DD13F623449ED68336C96F26563C6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121761   (799684) от 03.04.2017
-
-Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Steppin' Out with My Baby [02:26]
- 02.Let's Call the Whole Thing Off [04:41]
- 03.They Can't Take That Away from Me [02:34]
- 04.Cheek to Cheek [05:44](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Mainstream JazzПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD25651B64B2C5AEB1E69B42FF867AF81377E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385335   (799611) от 24.05.2020
-
-Oscar Peterson & Clark Terry 1975 (1994) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Slow Boat To China [4:25]
-02. But Beautiful [4:44]
-03. Shaw 'Nuff [4:29]
-04. Satin Doll [7:13](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0BC54AA37FE9BE9720F99319CC76776132FD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506675   (799458) от 01.11.2021
-
-Vincent Herring, Bobby Watson, Gary Bartz - Bird at 100 (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klactoveedsedstene [5:45]
-02. Bird-ish [6:39]
-03. Lover Man [9:34]
-04. The Hymn [9:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF0D78A36339CF11635E4CDF6BB05A88085C737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273729   (799450) от 03.01.2019
 
 Mal Waldron & Steve Lacy - The Super Quartet Live at Sweet Basil (1987) Bellaphon [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -745,6 +629,122 @@ The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B3450DA001543E0049DB85CBDC7E28435CA559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011068   (797698) от 26.04.2016
+
+Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Time for Love [05:24]
+ 02.Didn't We [03:08]
+ 03.Soulsides [04:29]
+ 04.So Are You [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860907C744C24AF7677771E71DC96BBC5DAEFF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011024   (797697) от 26.04.2016
+
+Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cheryl [10:35]
+ 02.If I Said The Sky Was Fallin' [13:31]
+ 03.Georgia On My Mind [07:00]
+ 04.This Guy's In Love With You [08:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5898056570347AC89C4E3048E549F8C76780036B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011063   (797696) от 26.04.2016
+
+Art Farmer - Modern Art (1958) Remaster, 2001, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mox Nix [04:40]
+ 02.Fair Weather [05:43]
+ 03.Darn That Dream [03:58]
+ 04.The Touch of Your Lips [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3DE3FB533D85FD07F4E5944EEDA2C7C07B498A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010985   (797670) от 26.04.2016
+
+Blue Mitchell - The Thing To Do (1964) Remaster, 1995, EMI[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fungii Mama [07:50]
+ 02.Mona's Mood [05:20]
+ 03.The Thing To Do [07:08]
+ 04.Step Lightly [10:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F55EA225E5B29792F80D65B814BE0B565E1AAE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

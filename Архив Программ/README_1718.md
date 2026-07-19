@@ -1,3 +1,32 @@
+###  Публикация: 1576134   (208242) от 12.09.2022
+
+Windows 11 (v21h2) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_version_21h2_updated
+_aug_2022_x64_dvd_24767bda.iso.
+Использован установщик от Windows 10 21H2 (SecureBoot и TPM 2.0 не требуется).
+Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1838DEDB3C4B2D47ABB57EB3223C8593FF0B8C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609761   (208232) от 04.02.2023
 
 FastStone Capture 9.9 Final + Portable [Multi/Ru]
@@ -651,32 +680,6 @@ HitPaw Watermark Remover предоставит возможность вам у
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E175321CAA69DEE7D542E0D63A9088F29648008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610172   (208085) от 06.02.2023
-
-Ultra Adware Killer 10.7.0.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultra Adware Killer - простая, но эффективная Windows утилита для удаления рекламного ПО в веб-браузерах Internet Explorer, Firefox и Chrome. Обнаруживает и удаляет нежелательные тулбары, плагины и расширения, ПНП, перехватчики поиска и домашней страницыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD26F7CDB301F22CB1BA37FCF4177FD1DD760D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

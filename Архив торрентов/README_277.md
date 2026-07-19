@@ -1,3 +1,29 @@
+###  Публикация: 588380   (998458) от 09.01.2013
+
+Записки юного врача / A Young Doctor's Notebook (2012) HDTVRip (Сезон 1, cерии 1-4 из 4) [Ozz]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация цикла рассказов Михаила Булгакова "Записки юного врача".Жанр: Драма, КомедияРежиссер: Алекс ХардкэслАктеры: Джон Хэмм, Дэниэл Рэдклифф, Адам Годли, Крис Найт, Рианна Хосмер, Сьюзи Кэйн, Ребекка ГетингсПеревод: Двуголосый закадровый, профессиональный (Ozz)Язык субтитров: русскиеПродолжительность: 4 x ~00:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600810   (998455) от 09.01.2013
 
 iFunBox v2.1.2228.731 [Multi/Rus]
@@ -679,41 +705,6 @@ Sexy Girls Wallpapers (09.01.13) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18B8F6A969D040C07351C0447C45C1B3EC4C4CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600679   (998392) от 10.01.2013
-
-Fiona Apple - The Idler Wheel is Wiser ... (2011) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Adult Alternative Pop/Rock>
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Single Night (3:31)
-02. Daredevil (3:27)
-03. Valentine (3:31)
-04. Jonathan (5:02)
-05. Left Alone (4:45)
-06. Werewolf (3:11)
-07. Periphery (4:56)
-08. Regret (5:15)
-09. Anything We Want (4:38)
-10. Hot Knife (4:02)Жанр: Adult Alternative Pop/RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447BAD711869E15F09E201509CCE44699F02594
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,124 +1,3 @@
-###  Публикация: 494547   (250764) от 10.05.2012
-
-Alex Hutton Trio - Legentis (2012) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.J.
-02. The Legentis Script
-03. Clouds
-04. Then There Were Four
-05. Hymn II (We The People)
-06. Farewell 296
-07. Wonder Why
-08. Crying Wolf
-09. A Norsk Tale (piano solo)2012Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619107   (249821) от 14.03.2023
-
-Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia on My Mind [3:04]
-02. Rockin' Chair [3:09]
-03. Carolina Shout [2:22]
-04. Honeysuckle Rose [3:26](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76C58AC0E9CF12E4F67F0CD5CCCFE6C682A50A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619206   (249767) от 15.03.2023
-
-Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraceable You [4:40]
-02. Nobody But You [3:56]
-03. Love Is Here to Stay [4:14]
-04. Do It Again [4:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EE96B5DEAF311E488EECF16B29CE000294D6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564700   (249632) от 20.07.2022
-
-Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coronado [19:49]
-02. You Go to My Head [17:15]
-03. Caravan [15:12]
-04. Autumn in New York [21:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23AB0E6A57B5FC13BDE16286DFA052060F17301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493988   (249133) от 09.05.2012
 
 Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
@@ -811,6 +690,122 @@ Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Conte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CADED245117BE576B519D02970ADD7FCB4D7DBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448712   (245719) от 18.02.2021
+
+The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue] <Funk, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reach Out (4:06)
+02. New York (5:16)
+03. Hollywood (3:44)
+04. Diggin' Deep (3:25)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAC79600AE7BF4E7321DB3F72BB354026BDBAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058507   (245707) от 01.10.2016
+
+David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesterday [04:05]
+ 02.And I Love Her [05:47]
+ 03.The Thirteenth Floor [05:57]
+ 04.Ain't That Good News [03:47](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5B3DFFEA6AF288B1B7D7BBD90AD77A65CD5F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608406   (245677) от 30.01.2023
+
+The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Along with Jared Gold on organ and McClenty Hunter on drums, Stryker offers eight new compositions and the beautiful standard “I Should Care.” From the burning title track “Prime” to songs penned for his first boss Jack McDuff (“Captain Jack” and “Dude’s Lounge”) as well as “Mac” for his drummer and the original trio versions of “Hope” and “As We Were” from Stryker’s (   Читать дальше...   )01. Prime (Stryker) - 6:25
+02. Lockdown (Stryker) - 6:37
+03. Captain Jack (Stryker) - 8:14
+04. Hope (Stryker) - 5:20(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BFCB1C49A084CE76E119CCFE6BB4249C221135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058371   (245636) от 01.10.2016
+
+John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Lossless|image + .cue] <Third Stream, Classical, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Queen's Pawn Opening - Aria On Harpsichord [02:15]
+ 02.Aria On Piano  [02:44]
+ 03.King's Gambit - Variation 1 On Harpsichord [01:10]
+ 04.Variation 1 On Piano  [01:10](   Читать дальше...   )Жанр: Third Stream, Classical, CoolПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68945E549E0D160CF128E9FA5946372BE5975143
 ```
 
 https://mybot314.ru/tekegram_catalog/

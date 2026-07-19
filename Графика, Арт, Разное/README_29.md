@@ -1,29 +1,3 @@
-###  Публикация: 993433   (895540) от 05.03.2016
-
-Обои - Amazing Nature Wallpapers. Release 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительная природа для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1987FCCC0045106EE4B5E9A60C8ADB69DE84E010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993434   (895526) от 05.03.2016
 
 Обои - Superb Wallpapers. Release 2 [JPG]
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D65039720661999BEC64A9AC35E538381E306477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995166   (886449) от 10.03.2016
+
+Картинки - Милые щеночки. 4535x2550 - 5184x2916 - 15 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Щенячья фотосессия, новейший материал.Формат: JPGРазрешение файлов: 4535x2550 - 5184x2916
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3E5CB9B8E8032474B53E3A294C6D1C8CBCC5A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,185 @@
+###  Публикация: 1169724   (401420) от 29.09.2017
+
+Рома Жуков - Пыль Мечты (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пыль мечты (07:22) -Жанр: Pop, DiscoПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169430   (401416) от 29.09.2017
+
+ВИА Пламя - 200 лет (1982) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вячеслав Малежик - Двести лет
+02. ПЛАМЯ - Гороскоп
+03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713828   (401294) от 21.10.2013
+
+Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0 96/24 |Blu-Ray]<Grunge, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smells Like Teen Spirit
+02. In Bloom
+03. Come as You Are
+04. Breed(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717382   (392005) от 31.10.2013
+
+Аленький цветочек - Пьеса по сказке С. Аксакова (1991) [FLAC 1.0 24/48|traks(Vinil-Rip)]<Children's, Story>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть 1  (27:10)
+Часть 2  (26:20)
+
+Действующие лица и исполнители:
+Купец - С.Бобров
+Алёнушка - К. Осколкова
+Сёстры - Т. Тихомирова, М. Фонина
+Антон - Ю. Фомичев
+Няня - Е. Руднева
+Баба-Яга - Н. Новлянский(   Читать дальше...   )Жанр: Children's, StoryПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717240   (391665) от 31.10.2013
+
+Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
+A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
+A3.  Верю Я (Verju Ja)  :: 03:03
+A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569449   (388996) от 06.11.2012
+
+Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello 3:21
+02. Roll With It 3:59
+03. Wonderwall 4:18
+04. Don’t Look Back In Anger 4:47
+05. Hey Now! 5:41
+06. Swamp Song #1 0:44
+07. Some Might Say 5:28
+08. Cast No Shadow 4:51
+09. She’s Electric 3:39
+10. Morning Glory 5:03(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718427   (387809) от 04.11.2013
 
 Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
@@ -611,178 +793,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573034   (375650) от 12.11.2012
-
-Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, Andras Schiff it is digitized from vinyl (1977/1978, Hungaroton /[FLAC|Lossless]<Chamber>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 2
-05 - II.Adagio, attacca
-06 - III.Allegro
-Concerto in C minor BWV1062
-07 - I.Жанр: ChamberПродолжительность: 00:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575340   (375376) от 10.09.2022
-
-Dan Spătaru/Дан Спатару – Песни Из Кинофильма «Песни Моря» (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пой, гитара
-(Т. Попa - Р. Рождественский)
-02. Ты не понимаешь
-(Т. Попa - Р. Рождественский)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948997   (374956) от 24.10.2015
-
-This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Electronic; Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kangaroo (3:30)Жанр: Electronic; RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949866   (374861) от 24.10.2015
-
-The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374861.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Break On Through (To The Other Side) (2:28)
-A2. Soul Kitchen (3:32)
-A3. The Crystal Ship (2:33)
-A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Производство: Elektra Records / Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176340   (371810) от 21.10.2017
-
-Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371810.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Radiate (4:44)
-A2. Imagine E.S.P. (5:05)
-A3. Ziga Ziga 999 (4:03)
-A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производство: Rockland Records - RKL 20279Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719412   (371657) от 11.11.2013
-
-Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "Here Comes The Night" - 3rd Force 06:22
-2. "Bandalero" - Neal Schon 04:53
-3. "Cielo Sin Nubes" - Lara & Reyes 03:55
-4. "Blue Universe" - Craig Chaquico 05:15(   Читать дальше...   )Жанр: new ageПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
 ```
 
 https://mybot314.ru/tekegram_catalog/

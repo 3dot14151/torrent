@@ -1,3 +1,322 @@
+###  Публикация: 1693478   (121895) от 20.01.2024
+
+Elton John - Ballads (1994) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sacrifice
+02.  Nikita
+03.  Easier To Walk Away
+04.  Blue Eyes(   Читать дальше...   )Жанр: Rock, Pop, Soft RockПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131294E350AF7215C0BABD15AD7F2C86B2DA8154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690347   (121888) от 20.01.2024
+
+A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (4:02)
+02. The Swing Of Things (4:14)
+03. I’ve Been Losing You (4:23)
+04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693207   (121877) от 20.01.2024
+
+Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile (4:16)
+02. Miracle (3:44)
+03. Sandman (3:54)
+04. Blind (4:23)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693249   (121870) от 20.01.2024
+
+Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
+02. Good-Bye Bad Times (3:44)
+03. Brand New Love (Take A Chance) (4:06)
+04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693245   (121865) от 20.01.2024
+
+Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joyride (4:24)
+02. Hotblooded (3:18)
+03. Fading Like a Flower (Every Time You Leave) (3:53)
+04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D566A8E77B65D5AD86DC0B7FD09E9DFB9F0E27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450188   (121810) от 21.01.2024
+
+D. White - 4 Albums, 67 Singles (2016-2023) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121810.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - One Wish
+2020 - How Are You?
+2022 - The Butterfly Effect
+2022 - Towards the SunЖанр: Disco, Pop, DanceПродолжительность: 14:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADABF5CEC67D47641BD677F938294F9C3E44FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693686   (121774) от 21.01.2024
+
+SHAMAN - Сделано в России (2023) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121774.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Моя Россия
+02. Дай жару
+03. Да(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797839CEDE978082DCF2FA8ABF2DC78FD3055EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693597   (121736) от 21.01.2024
+
+Александр Меньшиков - Гой, ты Русь моя родная (1997) [FLAC|Lossless|tracks + .cue] <Retro, Pop, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гой, ты Русь моя родная
+02. Как родная меня мать провожала
+03. Ах, горька мне чужбинушка
+04. При лужку, да при луне(   Читать дальше...   )Жанр: Retro, Pop, FolkПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13265DDC1D80BA358FEF54AC2A2D19BED2E0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693692   (121698) от 21.01.2024
+
+Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Como El Aire [00:03:40]
+02. Nos Lo Hemos Dicho Todo [00:04:13]
+03. Solo Cuidate Y Adios [00:04:17]
+04. Con Los Cinco Sentidos [00:03:21](   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68DC6E452BBA56D0E0D083DC547D49C505FFC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693620   (121697) от 21.01.2024
+
+Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside Inn (4:30)
+02. I've Got The Feeling (4:30)
+03. Wichita Falls (3:50)
+04. Dreamland Cafe (3:38)(   Читать дальше...   )Жанр: Disco, Funk / SoulПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FADEA13898B0B0DF5347417262DAD1058549F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693724   (121439) от 22.01.2024
+
+Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frustration (Live, Hippodrome, London, 9 November 1986) [00:03:40]
+02. Beat That! (Live, Hippodrome, London, 9 November 1986) [00:03:04]
+03. Concrete Mixer (Live, Hippodrome, London, 9 November 1986) [00:02:53]
+04. Get Out Of My Life Woman (Live, Hippodrome, London, 9 November 1986) [00:03:31](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CEC56465AA0E5AEA6733F7CAE4FF024486261F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694332   (121143) от 24.01.2024
 
 Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic, Pop, Pop Rock, Synth-pop>
@@ -423,325 +742,6 @@ Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:454483BB9BA337BF4BC97B1D4D2C0912FC760604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696675   (119499) от 03.02.2024
-
-DJ SMASH - MIU MЯU (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. УКРОТИТЕЛЬ
-2. КОШЕК
-3. ВАЛИ
-4. БЕГИ(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3081F8C54D079A8889DBA40CC6D32BF6874F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696751   (119373) от 04.02.2024
-
-VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Britney Spears - ...Baby One More Time
-02.  Justin Timberlake Feat. Timbaland - SexyBack
-03.  Shakira Feat. Wyclef Jean - Hips Don't Lie
-04.  Ricky Martin - Livin' La Vida Loca(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A9E51B16829FF303719F4D17AAD27AAE157BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696986   (119162) от 05.02.2024
-
-DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secrets Of Love
-02.  Freedom
-03.  Everybody
-04.  What A Feeling(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB1B084088B1F12471F3A48560718D0D9B2B2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697135   (119152) от 05.02.2024
-
-VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Лемешев - Одинокая Гармонь (3:00)
-02. Екатерина Семенкина - Огней Так Много Золотых (2:45)
-03. Georg Ots - Сормовская Лирическая (3:22)
-04. Татьяна Петрова - То Не Ветер (4:08)(   Читать дальше...   )Жанр: RetroПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697109   (119149) от 05.02.2024
-
-Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Here (3:37)
-02. Love (Send Him Back To Me) (4:37)
-03. Storm In Our Hearts (5:06)
-04. World In Perfect Harmony (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9094394FCCFA8F06F53FD89391458112B7D3E9F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697127   (119147) от 05.02.2024
-
-Александр Серов - Новое И Лучшее (1999) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ностальгия По Тебе (3:24)
-02. Я То Плачу, То Смеюсь (4:39)
-03. Проклятая (3:53)
-04. Я В Тебя Влюблён (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F122177C3C2A9F1ECB6E408B1A0FE7231157D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697102   (119120) от 05.02.2024
-
-Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Mister Heartache (4:37)
-02. You Came (4:34)
-03. Four Letter Word (4:04)
-04. Love In The Natural Way (4:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697058   (119110) от 05.02.2024
-
-Децл, МЭD DОГ, Ronny, Антон Токарев, Dino Mc47, Izachonok, Fargo, Maugli, ALEX VUCKII, Istokiya - У всех свои слёзы (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слёзы (4:09)
-02. Слёзы (3:17)
-03. Слёзы (2:49)
-04. Слёзы (2:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1695DCCDE05DC901991FA6E521F1F6819CD53E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697105   (119097) от 05.02.2024
-
-Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Qui Pense A l'Amour
-02.  Les Murs
-03.  Pourquoi Pas l'Exotisme
-04.  Je M' Arreterai Pas de T'Aimer(   Читать дальше...   )Жанр: Pop, Chanson, BalladПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F90C5427020CC902B70DC08CECA83868BC50B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697201   (119073) от 05.02.2024
-
-Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marea (3:32)
-02. Lou (4:50)
-03. Siamo Robots (2:51)
-04. Vivo (5:01)(   Читать дальше...   )Жанр: Pop, Pop Rock, Prog Rock, Funk SoulПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697396   (118992) от 06.02.2024
-
-VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Mraz - I’m Yours (4:02)
-002. Bruno Mars - Just the Way You Are (3:40)
-003. Big Mountain - Baby, I Love Your Way (4:09)
-004. Christina Perri - A Thousand Years (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

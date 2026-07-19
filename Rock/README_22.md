@@ -1,32 +1,3 @@
-###  Публикация: 1387656   (791268) от 02.06.2020
-
-VA - Rockin' the 70's (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791268.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Doobie Brothers - China Grove
-2. The Cars - My Best Friend's Girl
-3. The Stranglers - Something Better Change
-4. Bad Company - Can't Get Enough(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8482B2681BEB6BD1DA7A2D048AB55026E8A1BF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387618   (791263) от 02.06.2020
 
 VA - Rockin' the 80's (2020) [MP3|320 Kbps] <Rock>
@@ -745,6 +716,35 @@ Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124615   (785808) от 11.04.2017
+
+Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Rock & Roll, Rockabilly, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Steps to Heaven
+02. If You Know What I Mean
+03. Sing on Louise
+04. Big Big Star(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, GlamПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7F9CE6A7A08216E8F9412FB823D42025874E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

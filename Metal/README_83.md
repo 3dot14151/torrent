@@ -1,3 +1,90 @@
+###  Публикация: 1078789   (298148) от 02.12.2016
+
+Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of Tomorrow
+02. Burn It All
+03. A New Dawn
+04. Rise Again(   Читать дальше...   )Жанр: Gothic, Melodic Death MetalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423816   (298072) от 14.11.2020
+
+Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Doom Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultraviolet (06:52)
+ 02. The Oldest House (06:08)
+ 03. Ghost Bird (08:44)
+ 04. Another World (05:47)(   Читать дальше...   )Жанр: Progressive Metal, Doom Metal, Female VocalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006A7DE2BCB01FFBC52487F0C9DD7C795A18F2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079053   (298053) от 02.12.2016
+
+Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karelia
+02. The Gathering
+03. Exile of the Sons of Uisliu
+04. Into Hiding(   Читать дальше...   )Жанр: Progressive, Doom, Folk, Melodic MetalПродолжительность: 02:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF057E84821597F21CCFFD49B25313EEB4D59D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185047   (297154) от 19.11.2017
 
 Unheilig - Rares Gold (2017) 2CD [MP3|320 Kbps] <Gothic Metal, Industrial Gothic Rock>
@@ -652,93 +739,6 @@ Vorna - Ei Valo Minua Seuraa (2015) [MP3|320 кб/с]<Pagan Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040F9FBACB2CDB73B5552F4D1953BA7FDF1A552F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964135   (283793) от 10.12.2015
-
-Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Sunrise In Eden
-2001 - Arcana
-2003 - Aphelion(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 12:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B6AEB3F09A013D2CB58C85798D6545D15C447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264258   (282663) от 22.11.2018
-
-Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die by the Sword
-02. Restless and Wild
-03. Koolaid
-04. Pandemic(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E07F833FD7F811520C5683602E140E4D36935B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264358   (281155) от 23.11.2018
-
-In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Empty Streets
-2. Substance Vortex
-3. Respect My Solitude
-4. Cloud Seeder(   Читать дальше...   )Жанр: Doom Metal, Atmospheric Black MetalПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

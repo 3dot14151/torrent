@@ -1,56 +1,3 @@
-###  Публикация: 1017572   (760968) от 17.05.2016
-
-Картинки - Подборка "Мой самый лучший друг". Часть 3 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка "Мой самый лучший друг" 60шт  на ваш стол, приятного просмотра!)Формат: JPGРазрешение файлов: 1600x900 - 5996x3280
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20401285E82F453B6CE9A68CBDF47AC24FDED1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280460   (760305) от 03.02.2019
-
-Иконки - InstantShift - FoodShift Icon Set: 100 Free Food & Drink Icons [AI, EPS, PNG, SVG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные иконки на тему еды и напитков для коммерции и личного пользования.
-Автор: iShift StaffФормат: AI, EPS, PNG, SVGРазрешение файлов: 64 x 64 - 256 x 256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A87C0BBBD931C4EA665F68BAE1F9D90DDAB6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280454   (760194) от 03.02.2019
 
 Иконки - InstantShift - Interfaz Icon Set: 400 Free Social & Interface Icons [PNG, AI, SVG, EPS]
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1749AFEDBE90FB4B16670A2924A81579DBE03711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281564   (751734) от 08.02.2019
+
+Обои - Desktop Wallpapers Full HD. Part (378) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD788F0D9FFD2B7913008271C863D661B41FB02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281560   (751728) от 08.02.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (215) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE8E5128149E18F4521541410F05FCF2D4BB855
 ```
 
 https://mybot314.ru/tekegram_catalog/

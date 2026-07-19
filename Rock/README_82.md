@@ -1,3 +1,32 @@
+###  Публикация: 1584461   (224705) от 19.10.2022
+
+Berlin - Best Of Berlin 1979-1988 (1988) [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blowin' Sky High
+02. No More Words
+03. Like Flames
+04. Take My Breath Away(   Читать дальше...   )Жанр: Rock, Pop Rock, Post-PunkПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5306DCA6995C0D6CE678CE557C93F9030030A637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584733   (224485) от 19.10.2022
 
 Bee Gees - This Is Where I Came In (2001) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
@@ -716,35 +745,6 @@ Half Gramme of Soma - 3 Albums (2013-2022) [MP3|320 Kbps] <Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBCE6F108B6FE3F5076820D06C6065D36D1C079D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585692   (220803) от 23.10.2022
-
-Tau & The Drones of  Praise - 3 Albums (2019-2022) [MP3|320 Kbps] <Psychedelic, Folk, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Is Right To Give Drones & Praise [00:05:48]
-02. The Sixth Sun [00:04:26]
-03. Thunder Thunder Hummingbird [00:04:09]
-04. Na Heiliminti [00:04:00](   Читать дальше...   )Жанр: Psychedelic, Folk, Art RockПродолжительность: 3 CD, 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF573D61AABD323B89E68AACA9ED81E7B27FD62
 ```
 
 https://mybot314.ru/tekegram_catalog/

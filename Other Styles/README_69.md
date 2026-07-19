@@ -1,3 +1,183 @@
+###  Публикация: 1133416   (695124) от 12.05.2017
+
+Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age, World, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Candle Light
+02. The Healing Bath
+03. Lavender Kiss
+04. The Native American Flute as Therapy(   Читать дальше...   )Жанр: New Age, World, Native AmericanПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027831   (694837) от 20.06.2016
+
+Majestica - In the Midst of Stars (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of Stars
+02. Carousel
+03. In Bloom
+04. Close of Day(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BBE21187DE3EBBC17A780C85C08A1E693DF6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027842   (694834) от 20.06.2016
+
+Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .cue] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps in the Snow [00:08:13]
+02. Melodies from the Night Fisherman [00:02:45]
+03. Jade River Sampan [00:04:03]
+04. Peach Garden [00:05:53](   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027697   (694833) от 20.06.2016
+
+Jupiter Panic - Moments of Nostalgia (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise [00:03:37]
+02. Time Surfer [00:05:58]
+03. Departure [00:04:06]
+04. Synthetique [00:04:52](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE36BF23D25CA1C616871CB91489668B8E29FBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211771   (694820) от 20.06.2010
+
+Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694820.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:40) 01. Trois Gymnopedies
+(7:00) 02. Mondscheinsonate
+(5:00) 03. Konzert fur Flote
+(7:27) 04. Konzert fur Violine
+(5:05) 05. Italienisches Konzert
+(4:25) 06. Largo
+(2:29) 07. Klavierkonzert
+(4:09) 08. Konzert fur Flautino
+(2:32) 09. Siciliano
+(2:29) 10. Trinklied(   Читать дальше...   )Жанр: New ageПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027666   (694708) от 20.06.2016
+
+Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday Slow Rotations [00:04:10]
+02. Monday Midwinter [00:04:19]
+03. Tuesday The Compass [00:06:46]
+04. Wednesday In Stillness [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027834   (694697) от 20.06.2016
 
 Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
@@ -568,177 +748,6 @@ Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2236BFD6CA295AAD6FEF6BDEAA44C3B09497A3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133473   (691074) от 14.05.2017
-
-Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aligning Hearts [03:23]
-02. Suns And Stars [02:52]
-03. Fjord Keeper [03:09]
-04. The Space Between Us [02:40](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00.51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B691AC56405779263EBBEFE1397E07978639C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133868   (691073) от 14.05.2017
-
-Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There Is Darkness (03:14)
-02. Arrival of the Blood Ravens (03:58)
-03. Tip of the Spear (01:20)
-04. Cyprus Ultima Third Movement (05:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9C34918842D297E8EA908409B64CEEF2AFF13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134081   (691069) от 14.05.2017
-
-Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Dancer
-02. Reach Out
-03. Orbital
-04. The Man with No Face(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134199   (690879) от 14.05.2017
-
-Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of the Siren [02:42]
-02. No Retreat, No Surrender [03.24]
-03. The Wandmaker [01:52]
-04. Peculiar Magic [02:39](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical CrossoverПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D932D64AAE948747AB8DC116195BCB1B04603A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028317   (690873) от 22.06.2016
-
-Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally Home [00:04:08]
-02. Enchantment [00:03:46]
-03. Spirited Smile [00:04:28]
-04. Foreboding Chimes [00:04:14](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFA5A0D1CA19955953C9AD59DF41788D5C5E04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 210689   (690827) от 22.06.2010
-
-VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge / Chill-Out / Relax / Smooth-JazzПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

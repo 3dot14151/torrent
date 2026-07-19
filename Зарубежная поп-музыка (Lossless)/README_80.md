@@ -1,3 +1,148 @@
+###  Публикация: 1654803   (205060) от 22.08.2023
+
+Toto Cutugno - Лучшие песни (2011) Серия Новая коллекция [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litaliano
+02. Solo Noi
+03. Davvero
+04. Innamorati(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BDC60E5F7BC5D3477E4214700D3B069A1B9359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247403   (204969) от 21.10.2022
+
+Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steam Roller Introduction
+02. Fire And Rain
+03. Tonight You've Got No Friend
+04. So Young And Wild(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD697BADCECE202F87FD0CD571F581B8BA8699F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654776   (204655) от 24.08.2023
+
+Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tired, Hot and Bothered [00:04:11]
+02. Suddenly I Have A Dreadful Urge To Be Happy [00:03:17]
+03. Things That Mark Twin Didn't Say [00:03:33]
+04. I Can't Help But Feel I'm Starting To Lose The War [00:03:59](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87B952E82CC23669A7158E5CD3AAAD1DF816CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655297   (204485) от 25.08.2023
+
+Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As There Is You
+02. Tonight
+03. Hammer
+04. Today I Fall In Love Again(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4D050E6FDE30DD6ECC6FAFD1605DBE62029CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656815   (202877) от 01.09.2023
+
+VA - Best Summer Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Travolta - Summer Nights (From “Grease”) (3:34)
+02. Klangkarussell - Sonnentanz (6:02)
+03. Paenda - Second Summer (2:46)
+04. Michel Teló - Ai Se Eu Te Pego (Ao Vivo) (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9259980BBD8BA86B57DAA754DFA1D1C66993B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613860   (202560) от 20.02.2023
 
 VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,151 +745,6 @@ Supermax - 3 Albums (1977 - 1986) Remastered, 2005, CD-Maximum [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D457C94472FEEE00EE2B5C7B64525E893B2DD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659041   (190436) от 10.09.2023
-
-Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road To Fame
-02. Funky Dreamer
-03. Sitting In My Sofa
-04. Wooden House In Sweden(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C750C2F2C6B123BF2B72BAD02D8569EA4C054CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659466   (189757) от 12.09.2023
-
-Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romy - Loveher (03:49)
-02. Romy - Weightless (04:29)
-03. Romy - The Sea (03:11)
-04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660290   (189743) от 12.09.2023
-
-VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - All By Myself
-02. Eros Ramazzotti - L'Aurora
-03. No Mercy - When I Die
-04. Jam & Spoon ( feat. Plavka ) - Kaleidoscope Skies(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658900   (189713) от 12.09.2023
-
-Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. all-american bitch [00:02:45]
-02. bad idea right? [00:03:04]
-03. vampire [00:03:39]
-04. lacy [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659467   (189340) от 13.09.2023
-
-The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Actor And The Cardboard Cowboy (1:10)
-2. Cycles Of The Seasons (2:54)
-3. Faraway Worlds (3:51)
-4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
 ```
 
 https://mybot314.ru/tekegram_catalog/

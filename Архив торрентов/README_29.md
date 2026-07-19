@@ -1,3 +1,32 @@
+###  Публикация: 1436888   (1042816) от 02.01.2021
+
+Kryder - Kryteria Radio 271 (Best Of 2020) 2020-12-30 [MP3|192 Kbps] <House, Tech House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - Kill Me Slow
+02. Kaskade & BROHUG - 1990
+03. Michael Calfan - Last Call (2013 Version)
+04. SWACQ - Horny Horns(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C8A7844D0267DE02503D22DACDE129127EFE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436891   (1042811) от 02.01.2021
 
 CamelPhat - Tomorrowland Friendship Mix (2020-12-10) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -647,34 +676,6 @@ DaVinci Resolve — единственное в мире решение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE2C5AC83376630EA8D1D9EB746770F58EA37BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430928   (1042547) от 03.01.2021
-
-Марина Кистяева | Поцелуй скорпиона (2019) [EPUB]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её всю жизнь преследует кошмар, где мужчина, сильный, властный, влюбленный в неё до одержимости, удерживает её насильно в замке в горах. И однажды она убегает, чтобы сорваться в пропасть и разбиться о камни, о грани которых плескается вода… Она неизменно просыпается в поту и уже не может заснуть до утра.
-
-Реальная жизнь складывается благополучно – интересная любимая (   Читать дальше...   )Жанр: современные любовные романыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089261ED4955CEA74EF47AF6473BDC1B2E5488D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

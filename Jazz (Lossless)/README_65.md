@@ -1,119 +1,3 @@
-###  Публикация: 1197655   (812029) от 09.01.2018
-
-The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Blue Gown [03:50]
-02. Sweetness [04:51]
-03. Bourbon Street Parade [05:26]
-04. Cornbread Peas & Black Molasses [03:49](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EDA350CEBDECF573633C08A8D8E7363E5C1FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118865   (811823) от 26.03.2017
-
-Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There It Is (4:17)
-02. All Too New (7:01)
-03. Lush Life (6:16)
-04. Like Someone In Love (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB2F1301C8D2394C1410EE3CD3AFFF3DC628B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118677   (811820) от 26.03.2017
-
-Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811820.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Cheek To Cheek [03:17]
-02.Let's Face The Music And Dance [02:29]
-03.Let's Calle The Whole Thing Off [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance Band, Easy ListeningПродолжительность: 03:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E43DC6831CFF5F0979C7C1BD2C7E94B4529E263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118712   (811814) от 26.03.2017
-
-Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC|Lossless|tracks + .cue] <Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Miss You (8:39)
-02. Ebony Woman (3:41)
-03. Yesterday I Had The Blues (7:34)
-04. If You Don't Know Me By Now (3:28)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF492ECFF10AF2203A507DB11233573330DFA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118652   (811812) от 26.03.2017
 
 The Oscar Peterson Trio - Walking The Line (1970) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -745,6 +629,122 @@ Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F5E6F7C2B974585993030EAF08CD1D63A44B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119220   (809131) от 27.03.2017
+
+Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life
+02. Dr. Wanna Do
+03. A Night Like This
+04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119235   (809127) от 27.03.2017
+
+Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahitian Skies
+02. The Ghost Of You
+03. Never Ever
+04. Exotic Flu(   Читать дальше...   )Жанр: Neo-swing, Vocal Jazz, Pop JazzПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778234   (808620) от 17.04.2014
+
+Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галактис/ [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't Got Nothin' But The Blues [04:36]
+02. Black Butterfly [03:01]
+03. Chelsea Bridge [03:25]
+04. What Am I Here For [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D65AFB14ACE3BDB5C87C560DE9D4EF3D44F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504930   (808434) от 25.10.2021
+
+Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goduka Mfundi (Going Home) [7:18]
+02. Heyt Mazurki [6:56]
+03. Poor Butterfly [8:32]
+04. In a Sentimental Mood [7:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

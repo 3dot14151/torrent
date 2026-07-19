@@ -1,3 +1,113 @@
+###  Публикация: 1253463   (379093) от 11.10.2018
+
+Сборник клипов - Best Hits 80 от ALEXnROCK часть 3 (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+112 Kim Wilde - Never Trust A Stranger
+113 Janet Jackson - Love Will Never Do (Without You)
+114 A-HA - You Are The One(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F833109B713519F3A81C466B505CA7045D576CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573842   (378112) от 11.11.2012
+
+Окарина / Ocarina (сборник) [H.264] Mp4 (2007)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные виды природы под музыку Ocarina...Жанр: Музыка, New Age, RelaxПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B449BCB8C0DF70371E14D2E995B65F448599BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340537   (377111) от 31.10.2011
+
+Akcent / Коллекция видео (2002-2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Akcent — румынская поп-группа.Продолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B20BC4D7220DDDE162E39963930E2DA3CE33E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949575   (377040) от 23.10.2015
+
+VA - Осенний марафон № 199 / Видеоклипы (Свежие Новинки с Мира Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (23.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ana Criado - Dancing Sea (Moonnight remix) (00:03:29)
+02. Anastacia - Take This Chance (Official Video) (00:04:10)
+03. Andreas - Время (ПРЕМЬЕРА!) (00:03:11)
+04. Aram MP3 ft. The Sunside Band - You're My Sunshine (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55427B2FB958C316B33A97868E2DF2ED90F7F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574079   (376421) от 12.11.2012
 
 Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
@@ -598,110 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577502   (358544) от 19.11.2012
-
-Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577507   (358366) от 19.11.2012
-
-Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254813806A3B1877851BD23F68D52FCCDBE3EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577689   (358356) от 19.11.2012
-
-Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'N'B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577878   (358348) от 19.11.2012
-
-Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1022798   (727856) от 03.06.2016
-
-Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Confessin' The Blues [04:46]
- 02.'Tain't Nobody's Bizness If I Do [07:03]
- 03.Hootie Blues [04:33]
- 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022786   (727855) от 03.06.2016
-
-Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Workout [10:01]
- 02.Uh Huh [10:44]
- 03.Smokin' [07:31]
- 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284708   (727846) от 22.02.2019
-
-Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Mornin' (3:13)
- 02. Santa Gotta Choo Choo (3:29)
- 03. Somebody Stole My Santa Claus Suit (4:44)
- 04. Carol of the Bells (3:08)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284705   (727837) от 22.02.2019
-
-Vangelis Katsoulis - Pictures From Inside (2011) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Universe Clockwork (8:29)
- 02. Snapshots of a Lost World (16:26)
- 03. Filinks (7:42)
- 04. I Died for Beauty (4:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38A62B3275F388C836310821D93D966C1BAF5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530821   (727823) от 12.02.2022
 
 Rick Braun - Rick Braun (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -745,6 +629,122 @@ Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA67951BFC56E2AA0F0C77ABF2A6D63B29C79AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023439   (724416) от 05.06.2016
+
+Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fool Never Learns
+02. Moon River
+03. Happy Heart
+04. Can't Get Used To Losing You(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AB5135CEEBC77A15B0251152BD296C40272832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023514   (724400) от 05.06.2016
+
+Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream A Little Dream (3:37)
+02. Caravane (4:26)
+03. Quizas, Quizas, Quizas (3:24)
+04. It's Crazy (4:04)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667951   (723558) от 15.06.2013
+
+Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Andy Summers & Robert Fripp - I Advance Masked (1982):
+Andy Summers & Robert Fripp - Bewitched (1984):
+Andy Summers - XYZ (1987):(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 12:16:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218195   (723404) от 09.04.2018
+
+Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <Organ Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Champ [13:03]
+02. When You're Smilin' [07:17]
+03. The Good Life [08:37]
+04. Back Home Again in Indiana [10:56](   Читать дальше...   )Жанр: Organ Jazz, Soul-JazzПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

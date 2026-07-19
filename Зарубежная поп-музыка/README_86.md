@@ -1,3 +1,32 @@
+###  Публикация: 1732211   (107483) от 24.06.2024
+
+VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterboy - Mister Feeling
+02. Andrew Brix With Siggy Davis - Good Vibes (You Send Me)
+03. No Mercy - Where Do You Go
+04. Ace Of Base - Never Gonna Say I'm Sorry(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD004F831D00904C00FC2B95F657765AA4A39CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732513   (107464) от 25.06.2024
 
 VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -716,32 +745,6 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739251   (106039) от 28.07.2024
-
-VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 Kbps] <Electronic, Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 04:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

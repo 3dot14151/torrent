@@ -1,3 +1,29 @@
+###  Публикация: 1759529   (37855) от 09.11.2024
+
+MediaHuman YouTube Downloader 3.9.9.96 (0711) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37855.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5DE208EF7C710AAEE0610E38AC57D04D085D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759665   (37835) от 09.11.2024
 
 StartAllBack 3.8.13 build 5197 [Multi/Ru]
@@ -647,32 +673,6 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E33942A6A13D9175AF65CF5B329CFC4149511E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760154   (37519) от 12.11.2024
-
-WonderFox HD Video Converter Factory Pro 27.8 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37519.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2184F2256487373A37BD4C7E98FAD60731352045
 ```
 
 https://mybot314.ru/tekegram_catalog/

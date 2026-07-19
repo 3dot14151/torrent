@@ -1,3 +1,59 @@
+###  Публикация: 1139587   (656759) от 05.06.2017
+
+Obey The Brave - Mad Season (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Thin Ice
+02. Drama
+03. On Our Own
+04. Mad Season(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88A5F025B50C32BBA5C64EE1E463AA693AE294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515930   (653918) от 28.06.2012
+
+ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Правда
+02. НаперекорЖанр: Alternative RapcoreПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0E8FEF877FE24BD3A751502054D4CD1EE756CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140839   (653845) от 08.06.2017
 
 Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
@@ -703,64 +759,6 @@ Scheuber - Shades (2019) [MP3|320 Kbps] <Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7481B762DC8BD6B782588134FCEAF6060945DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228387   (637382) от 31.05.2018
-
-Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanarchy (Blue Stahli Remix)
-02. Neurachem (Voicians Remix)
-03. Contagion (Sebastian Komor Remix)
-04. Hive Mind (The Anix Remix)(   Читать дальше...   )Жанр: Electronic, Industrial MetalПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6778AD1DA2E7AA00C402505B9862B83C6579CC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541391   (636957) от 07.04.2022
-
-Группа Саша и Сирожа - Куй (2022) [MP3|320 Kbps] <Comedy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кап-кап (2:23)
-02. Надоело (2:17)
-03. Рыбалка (2:00)
-04. Не успел (2:15)(   Читать дальше...   )Жанр: Comedy RockПродолжительность: 00:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119DAFE6982F4B6A901A7ACA8B4A5F6515AFE89E
 ```
 
 https://mybot314.ru/tekegram_catalog/

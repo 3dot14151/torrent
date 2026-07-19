@@ -1,3 +1,29 @@
+###  Публикация: 1433853   (153841) от 22.12.2020
+
+Movavi Picverse 1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Picverse предназначен как для начинающих, так и для опытных фотографов. Фоторедактор оснащен нейросетевыми функциями, которые помогут вам мгновенно получить профессиональный результат. Благодаря удобному, интуитивному интерфейсу на многих языках, включая русский, вы сможете сразу же начать работу в программе.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C561BA9F5A0B14BCA839C13A4471378A4B073A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347219   (153838) от 22.12.2019
 
 Athentech Perfectly Clear Complete 3.9.0.1711 Repack by elchupacabra [En]
@@ -648,35 +674,6 @@ Adobe Substance 3D Painter 9.1.0 build 2983 (x64) Portable by 7997 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD66D4602CF1B8DF5E529019A8E355D7D495514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676956   (153643) от 15.11.2023
-
-Windows 11 x64 Rus by OneSmiLe [22631.2715]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана из оригинального образа
-ru-ru_windows_11_business_editions_version_23h2_x64_dvd_bcc01258
-Удалены все модерн приложения.
-Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DB8DE4F42A3B8937BA2DC5788FA47E7FC529DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 974010   (978179) от 10.01.2016
+
+VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calabria – Ufo (Club Mix)
+02. Admiral Bob – Free Music And Free Beer (Serobeat Club Remix)
+03. Randy Norton Vs. Angelique – I’m Your Baby (Extended Commercial Mix)
+04. T & G Factory – Feel The Bounce(   Читать дальше...   )Жанр: Club, Future House, ElectroПродолжительность: 02:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B632BE297B60E9DE37A7F64CD403DC9AFB3BA8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614510   (976894) от 09.02.2013
+
+B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'momondiya
+02. Baphuma Ezulwini
+03. Somandla (Original Mix)
+04. Mshini Wam (Chris Sen Remix)
+05. Emaweni
+06. Ungi'shaya Ngaphakathi
+07. Uthando Lwakho
+08. Zinhle Intombi
+09. Idlozi
+10. Ziyawa (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B9A70730EEC0830BF7F27A28C2A44C31ADA7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974512   (975682) от 12.01.2016
 
 VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
@@ -533,41 +597,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 277498   (961419) от 02.01.2011
-
-VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
-002. Yolanda Be Cool & Dcup - We No Speak Americano
-003. Pendulum - The Island (Part II)
-004. Dan Balan - Justify Sex
-005. Stromae - Alors On Dance (DJ Pomeha Remix)
-006. David Guetta Feat. Kid Cudi - Memories
-007. Swedish House Mafia Ft. Pharrell - One (Your Name)
-008. Lady Gaga - Alejandro (Bimbo Jones Mix)
-009. Duck Sauce - Barbra Streisand
-010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360289   (960933) от 15.02.2020
 
 R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
@@ -735,35 +764,6 @@ VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F719D43302A6C43E76551AD5D7996F338A06835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088997   (953885) от 02.01.2017
-
-VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cevelon - Neurotic (Original Mix) 02:54
-2. Manu3l - Tantrum (Igness Edit) 03:31
-3. Jozef - Aim High (Original Mix) 06:00
-4. Stan Castillo - Everybody Bounce (Original Mix) 04:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1430928   (1042547) от 03.01.2021
+
+Марина Кистяева | Поцелуй скорпиона (2019) [EPUB]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её всю жизнь преследует кошмар, где мужчина, сильный, властный, влюбленный в неё до одержимости, удерживает её насильно в замке в горах. И однажды она убегает, чтобы сорваться в пропасть и разбиться о камни, о грани которых плескается вода… Она неизменно просыпается в поту и уже не может заснуть до утра.
+
+Реальная жизнь складывается благополучно – интересная любимая (   Читать дальше...   )Жанр: современные любовные романыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089261ED4955CEA74EF47AF6473BDC1B2E5488D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437214   (1042518) от 03.01.2021
 
 CoolUtils Total Audio Converter 5.3.0.242 RePack by elchupacabra [Multi/Ru]
@@ -652,35 +680,6 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C921CFE651B8F6240062F3FB22FC3F59BBB2297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437331   (1042280) от 04.01.2021
-
-Saint Abdullah - In God's Image 2CD, (2020) [FLAC|Lossless|tracks + .cue] <Sound Collage,  Post-Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory of a Nostalgic Feeling (05:27)
-02. Chief Clerk (12:35)
-03. Orbit of Zero (05:35)
-04. Potion for Sorrow (05:02)(   Читать дальше...   )Жанр: Sound Collage,  Post-IndustrialПродолжительность: 01:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED253E3D557AEAB29CFA06ED1C00ECD3BD6D91E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

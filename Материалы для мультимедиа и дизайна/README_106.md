@@ -1,243 +1,23 @@
-###  Публикация: 1389595   (784169) от 11.06.2020
+###  Публикация: 1275603   (789719) от 12.01.2019
 
-Фотографии - Creative Market - Photos Huge Bundle - 430710 [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_784169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот комплект включает 1219 изображений в высоком разрешении.Формат: JPG, PSDРазрешение файлов: 1152x1536-14209x3774
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B12089A6E071103E8742731DE1ED6EB1B275FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205000   (784082) от 08.02.2018
-
-Векторный клипарт - Seamless Floral Borders 53 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181C9063B59DBEB362F42FA32604EDE8E5AC5AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205002   (784074) от 08.02.2018
-
-Векторный клипарт - Baroque Floral Elements 5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Барочные цветочные элементы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A641390DA25CAE8DA13256D61D46B6844AC4A2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204993   (784068) от 08.02.2018
-
-Векторный клипарт - Creative Snowflakes Set [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Творческий Набор Снежинок
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17FA5A76FE61567CDD8FB2FA9B905B0787414DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205004   (784058) от 08.02.2018
-
-Векторный клипарт - Ornamental Floral Corners 22 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные цветочные уголки
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B13840A1D302E15AEE25C54A8D430F77A7D1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204991   (784054) от 08.02.2018
-
-Векторный клипарт - 3D Plants and Factories 6 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-3D заводы и фабрики
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3553BBA9F0DCFAF0502188D85127525481182476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204998   (784043) от 08.02.2018
-
-Векторный клипарт - Puzzle Infographics Backgrounds 23 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Головоломка Инфографика Фоны
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3104FE8FDCB28772B8D34DDEE9C46B5FF16503C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204996   (784039) от 08.02.2018
-
-Растровый клипарт - Creative Market - Watercolor rustic flowers clip art - 2174732 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный деревенский клипарт: 9 png элементов (прозрачный фон)Формат: PNGРазрешение файлов: 362x945-1181x1032
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4967D56D00CA9F21008E3D08DA9D61F3AC553F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204988   (783988) от 08.02.2018
-
-3D модели - Daz 3D - Fairy Outfit for Karyssa 8 and Genesis 8 Female(s) - 50191 [DUF]
+3D модели - Daz 3D - Eva 8 Pro Bundle - 55723 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наряд феи для Karyssa 8 и Genesis 8 для DAZ 3D из категории People.
+Комплект Eva 8 для DAZ 3D из категории People.
 Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93DAE5929F287ABB9FBCA2D6938732A00EFEF6D7
+magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389708   (783869) от 12.06.2020
+###  Публикация: 1275575   (789665) от 12.01.2019
 
-Фоны - Deeezy - Marble Paint Backgrounds - 18114 [JPG]
+Фоны и наложения - Creative Market - Magic Book Light Photo Overlays - 3069587 [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные фоны в растре. Материал раздается с официальной документацией.Разработчик: Pete CruzineФормат: JPGРазрешение файлов: 5184 x 3456
+Magic Book это небольшой пакет волшебных оверлеев, с помощью которых вы получите множество фантастических идей о том, как превратить ваши обычные изображения в настоящее чудо!Формат: PNGРазрешение файлов: 4000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D1FCFEC9A3F5CFD008645D46133E9947C0DDF6
+magnet:?xt=urn:btih:9CEB982A6665B8C917AB6481DDF30ECFCB1FB8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,26 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205409   (783765) от 09.02.2018
+###  Публикация: 1275484   (789660) от 12.01.2019
 
-3D модели - Daz 3D - Kenji 7 Pro Bundle - 31673 [DUF]
+NNM-Club Sound Cleaner Collection from andgelo12
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональный пакет Kenji 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle и не только к проектам After Effects от нашего одноклубника andgelo12, неформального участника движения Sound cleaner, а также поддерживающего форум своими изыскательскими работами по поиску оригинальных и альтернативных музыкальных треков.Формат: MP3
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D36957F3FE4E86049437A35B78DFBA43E3E26BA
+magnet:?xt=urn:btih:0FC6550A10BBB958A091B6394778B31A5C0424C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,26 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205347   (783709) от 09.02.2018
+###  Публикация: 1275862   (789380) от 13.01.2019
 
-3D модели - Daz 3D - Karyssa 8 Pro Bundle - 49305 + Genesis 8 Starter Essentials - 42071 [DUF]
+Шрифты - Creative Market - Asbak Typeface - 959549 [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Karyssa 8 Pro и Genesis 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Asbak Typeface - это тип дисплея, вдохновленный фэнтезийными и винтажными постерами фильмов / обложками альбомов. Этот шрифт также подходит для логотипов, рукописных цитат, упаковки продукта, дизайна блогов, современного рекламного дизайна, названия книги и многое другое.Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD9BD539FE5EE26E8A3166F83C8BFABE75DF32AD
+magnet:?xt=urn:btih:F69A85A1850D4243FC0B29E0AA6CE24C7CD5518C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390124   (783592) от 13.06.2020
+###  Публикация: 1275861   (789337) от 13.01.2019
 
-Сборник - Creative Market - Cartoon Characters & Items Bundle - 1875315 [PNG, JPG, EPS, AI, PSD, CSH]
+Шрифты - Creative Market - Another Wild Modern Brush Script - 1149335 [OTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Сборники
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Большая коллекция мультипликационных персонажей, иконок, талисманов, 3D-рендеров, PSD-файлов, символов, объектов и т. д. Включая различные предметы для праздников, таких как Хэллоуин, День Благодарения и Рождество. Все эти файлы сделаны в последние годы, некоторые старые, а некоторые новые.Формат: PNG, JPG, EPS, AI, PSD, CSHРазрешение файлов: 652x1741-1973x1704
+Another Wild - грубый шрифт каллиграфической кисти от Kestrel Montes. Современная прыгающая кисть с дополнительными штрихами делает этот буквенный шрифт идеальным выбором для тех, кто ищет более причудливый вид.Формат: OTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38D2D9DCA58BAAB4C8CB653C77341DB293E40E3F
+magnet:?xt=urn:btih:403360ACC4A3F1E4B52173E65DA592ACAD16231E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,26 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205493   (783478) от 10.02.2018
+###  Публикация: 1275863   (789335) от 13.01.2019
 
-3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+Шрифты - Creative Market - Beer Script Typeface - 278955 [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Elijah 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Стильный шрифт Beer подойдет для различного рода вывесок, пивных баров, логотипов и многое другое.
+О, пиво. Все его попробовали. Все любят его. Так почему бы не превратить его в шрифт? Все прописные, вся пунктуация, все числа - значит быть заголовком что бы выделяться!Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+magnet:?xt=urn:btih:65072B5BD996C7B4744006ED4A4503AE63AFC93F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,26 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205511   (783474) от 10.02.2018
+###  Публикация: 1275867   (789331) от 13.01.2019
 
-3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+Шрифты - GraphicRiver - CornerOne Typeface - 18071538 [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Простой, круглый шрифт, который идеально подходит для винтажной рекламы, абсолютно любых представлений, презентаций. Понятно, лаконично, лучше всего - CornerOne.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+magnet:?xt=urn:btih:D9DFD5E9DC71B2273DA9A24249DC11F30B8225EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,240 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205497   (783471) от 10.02.2018
+###  Публикация: 1275870   (789327) от 13.01.2019
 
-3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Damien для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205505   (783470) от 10.02.2018
-
-3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Lucian 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205516   (783465) от 10.02.2018
-
-3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783465.jpg" />
-</div>
-
-
-###  Подробнее
-
-James для Michael 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205445   (783461) от 10.02.2018
-
-3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Dante 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C288834A4FAA951750B928C9711381060BA8FEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205520   (783455) от 10.02.2018
-
-3D модели - Daz 3D - Ivan 7 Pro Bundle - 30853 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Ivan 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C946FED09B8AACB2E45409A3558FFEE5FE16138F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205501   (783445) от 10.02.2018
-
-3D модели - Daz 3D - Centaur 7 Male Pro Bundle - 37321 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Centaur 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0853C3E4548162F7FA1B73D11CB17AFD311ACBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205509   (783439) от 10.02.2018
-
-3D модели - Daz 3D - Ancient Egypt Bundle – Character, Outfit, Expansion and Poses - 39285 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Ancient Egypt для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEBB773A714417DA57F2865F355CADD3AB8E0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205592   (783431) от 10.02.2018
-
-3D модели - 3ddd - Сборка игрушечного транспорта [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник игрушечного транспорта входит Lego и радиоуправляемые модельФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205490   (783424) от 10.02.2018
-
-Экшены - GraphicRiver - Watercolor 2 Artist Photoshop Action - 21313459 [ATN, ABR, PAT]
+Стили - GraphicRiver - 16 Fire Forged Layer Styles Volume 8 - 16983424 [ASL, PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Watercolor 2 Artist - Профессиональное многофункциональное художественное действие превратит ваши фотографии в впечатляющие акварельные произведения искусств с множеством элементов и опций для настройки и улучшения. Высоко детализированный результат, много возможностей.Формат: ATN, ABR, PAT
+Этот пакет включает в себя 16 стильных реалистичных стилей с эффектом огненного кованого железа.Формат: ASL, PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B29A6825F1AA48FC9E1AC58515C9C248298E64BB
+magnet:?xt=urn:btih:BF55B299A7A2E9C03B90F633CEBA490041759881
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390286   (783313) от 14.06.2020
+###  Публикация: 1275860   (789326) от 13.01.2019
 
-Digital Juice - Juice Drops 33: ethnicECHOES [PSD]
+Шрифты - Creative Market - Anniversa - Wedding Font - 1143895 [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этническая коллекция EHOES - это профессиональный ресурс выразительных изображений мировой культуры, который позволяет показать пронзительные особенности народного искусства, и в то же время получить удовольствие от увиденного. Вы найдете здесь такие разнообразные жанры, как тибетский и греческий, инуитский и африканский, которые отражают подлинный дух их этносов. (   Читать дальше...   )Формат: PSDРазрешение файлов: 5175х3375, 300 dpi
+Anniversa - это свадебный шрифт с современным стилем каллиграфии, подходящий для дизайна, дизайна элементов, свадьбы, мероприятий, логотипа и т. д.Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78454CDEBFEA0A1CEA7AB3070B8069C1AF331B85
+magnet:?xt=urn:btih:020AEC7EB9AB37F88BA034ED30BA100281580E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,26 +234,455 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390143   (783288) от 14.06.2020
+###  Публикация: 1275871   (789264) от 13.01.2019
 
-Кисти - ArtStation - Ornament Trim Brush and 3D Models + 6 Video Tutorials-VOL 02 [Corona|V-Ray|*.max, OBJ, JPG, PNG, PSD, TIF, ZBP]
+Текстуры - GraphicRiver - Wooden Backgrounds - 8802226 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой пакет красивых деревянных фонов для Вашего творчества. Фоны имеют разную цветовую расцветку.Формат: JPEGРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC4C7DAAAFF4D335461BCC2693D70C7532D3287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275869   (789258) от 13.01.2019
+
+Кисти - GraphicRiver - Cloud Brushes - 16730842 [ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот продукт включает в себя 50 кистей орнаментов для Zbrush и 50 3d-моделей для использования с любым программным обеспечением 3d (3dmax, maya, blender, C4D, ...)
-Я сделал два примера предварительного просмотра для всех кистей и также показал Trim Point в предварительном просмотре.Формат: Corona|V-Ray|*.max, OBJ, JPG, PNG, PSD, TIF, ZBPРазрешение файлов: 4096x4096
+Этот стильный набор облачных кистей, который включает в себя 20 красивых разновидностей облаков для Вашего творчества.Формат: ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD997D0F19F4B5175B422938FC3F6B7C9E4A7BF3
+magnet:?xt=urn:btih:94637E5A78040276C65710FAB265813BF9533EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275859   (789254) от 13.01.2019
+
+Шрифты - Creative Market - Adefebia Wedding Script Font - 389122 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и элегантный свадебный шрифт, который имеет уникальный стиль и современную каллиграфию. Шрифт хорошо подойдет для дизайна, дизайна элементов, свадьбы, событий, футболок, логотипов и т. д.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B112C6F36F7D922B1B3DD5BAB26FAFDC7CA97EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275868   (789227) от 13.01.2019
+
+Шрифты - GraphicRiver - Pribor – Clean Lo-Fi Stencil Font With Cyrillic - 4174149 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый шрифт автора «Pribor», созданный под впечатлением от старых электроприборов и других устройств из СССР в 80-х годах. Pribor имеет минималистичный, простой и слегка использованный стиль ло-фи. Стиль ретро-механики, хорошая читабельность и превосходный внешний вид в разных размерах, который позволяет использовать его для логотипов, печати, веб-приложений, (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275976   (788905) от 14.01.2019
+
+3D модели - Daz 3D - Сборник 3D моделей #21 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 66шт, категории Clothing, People, Animation, Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5449419A0E7D2DB18A2577D09E407052DF4E95EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578107   (788870) от 14.01.2019
+
+Фоны - С Новым годом! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойные фоны можно настраивать применяя стили,градиенты, маски и все инструменты, и палитры в Photoshop изменяя слои, добавляя новые, в общем изменяйте на сколько хватит фантазии, если нет желания оставляйте как есть.Формат: PSDРазрешение файлов: 4700x3500 - 5000x6500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95AFE8F77B93E1D199AC6A4A6505DE86C72ED7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511642   (788789) от 21.11.2021
+
+Векторный клипарт - Merry christmas, cute tiger in santa hat holding 2022 sign [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+17 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0E43C2D7DDD456F136171D9EF019CBB3DEDCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511637   (788757) от 21.11.2021
+
+Векторный клипарт - Merry christmas and happy new year, cheerful santa claus and russian snegurochka [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E16F81BFF6DE430DC9948F3B78B15F696BE8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276203   (788537) от 15.01.2019
+
+Шрифты - Creative Market - Lukid Typeface - 344517 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный и элегантный рукописный шрифт для любого Вашего творчества.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276204   (788510) от 15.01.2019
+
+Шрифты - Creative Market - Mocka Typeface - 286997 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Mocka поставляется с 4 уникальными шрифтами. Этот рукописный шрифт имеет очень уникальный внешний вид. Если вам нужно создать что-то необычное, но игривое, Mocka - это тот шрифт, который вы искали.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276201   (788503) от 15.01.2019
+
+Шрифты - Creative Market - Southbank Display Font - 825943 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Southbank Display Font - это новейший шрифт от Vintage Type Co, который поставляется с четырьмя уникальными стилями, каждый из которых выделен курсивом и чернильной копией. Что бы вы ни проектировали, один из этих стилей наверняка подойдет вашим потребностям! Помимо 4-х стилей, с курсивом и шероховатой проблемной версией, Southbank Display Font поставляется с многоязычной (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276202   (788502) от 15.01.2019
+
+Шрифты - Creative Market - Turismo CF Modern Font - 597977 [TTF, OTF, WOFF, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный автоспортом середины столетия, технологиями и бизнесом, Turismo CF разработан для потрясающих логотипов и захватывающих заголовков. По примеру 1960-х и 1920-х годов, Turismo сочетает сильные прямоугольные формы с наклонными вытянутыми кривыми.Формат: TTF, OTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C3C00F23731A3AA8E622170095E2A72E6556B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511730   (788341) от 22.11.2021
+
+Векторный клипарт - Chinese new year 2022 year of the tiger in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511717   (788339) от 22.11.2021
+
+Векторный клипарт - Happy chinese new year 2022 vector design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511777   (788335) от 22.11.2021
+
+Векторный клипарт - Cute animals for the new year and christmas vector illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+9 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511728   (788334) от 22.11.2021
+
+Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+7 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511781   (788330) от 22.11.2021
+
+Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

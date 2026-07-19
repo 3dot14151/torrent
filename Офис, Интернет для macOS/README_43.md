@@ -1,30 +1,3 @@
-###  Публикация: 1656560   (203059) от 31.08.2023
-
-FontLab 8 v.8.2.1.8638 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203059.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.08.2023Разработчик: © 2023 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17E95904EA5ED5A44BE71AEE20A81204B98B303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656914   (202839) от 01.09.2023
 
 Focusplan Pro - Mind Map 1.6.17 [Multi]
@@ -682,6 +655,32 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F356DFD81F54EEA33BF989FDF2A6A3811E37B7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660947   (188803) от 14.09.2023
+
+GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент GitKraken для предприятий. GitKraken является лидером в области совместной работы с Git в корпоративном секторе.Тип издания: macOS SoftwareРелиз состоялся: 06.09.2023Разработчик: © 2002–2022 Axosoft, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C64B3DE4117AC5FD48C9C0462C13F7E0407458
 ```
 
 https://mybot314.ru/tekegram_catalog/

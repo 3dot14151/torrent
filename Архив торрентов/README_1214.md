@@ -1,138 +1,3 @@
-###  Публикация: 1209600   (779290) от 27.02.2018
-
-AwakeFM - Interceptor (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biokernel (05:28)
- 02. The Submariner (06:01)
- 03. Interceptor (05:46)Жанр: Drum & BassПродолжительность: 00:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6F5D3DDE05FC6559257B83FC9F6FD15964144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209595   (779284) от 27.02.2018
-
-Aperio - Nostalgia / Seasons Changing (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia (04:14)
- 02. Seasons Changing (feat. Mindfield) (04:55)Жанр: Deep Drum & BassПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B989EA951A81A649B256A2E1A110ACBAB6321F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209384   (779283) от 27.02.2018
-
-Тор Юдолл | Тысяча бумажных птиц (2018) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть – конец всему? Нет, неправда. Умирая, люди не исчезают из нашей жизни. Только перестают быть осязаемыми. Джона пытается оправиться после внезапной смерти жены Одри. Он проводит дни в ботаническом саду, погрузившись в болезненные воспоминания о ней. И вкус утраты становится еще горче, ведь память стирает все плохое. Но Джона не знал, что Одри хранила секреты, (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8688F34C2D53184A2D8A980F53650999C7BB6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209591   (779282) от 27.02.2018
-
-HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HumaNature & Skeletone & Silence Groove - Sparkling Orb (07:03)
- 02. Silence Groove - There's Delight (05:36)
- 03. HumaNature & Silence Groove - People Don't Care (05:39)Жанр: Drum & BassПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1964F883D7B866A33200280123E517640DED2FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209628   (779280) от 27.02.2018
-
-Vivaldi 1.14.1077.55 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA1077E0DB83C824D1C7565BD69FEFE5EFAB2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209514   (779279) от 27.02.2018
 
 VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -695,6 +560,146 @@ VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209582   (779142) от 28.02.2018
+
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209694   (779138) от 28.02.2018
+
+Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (03:52)
+02. On My Balcony (03:11)
+03. Spring To Kingdom Come (05:01)
+04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209656   (779137) от 28.02.2018
+
+Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opener (03:40)
+02. How to Socialise & Make Friends (03:14)
+03. The Face of God (03:50)
+04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209775   (779124) от 28.02.2018
+
+Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasheri (V2) (10:24)
+ 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209750   (779116) от 28.02.2018
+
+Movavi Video Editor 5.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: macOS SoftwareРелиз состоялся: 26.02.2018Разработчик: MovaviПоддерживаемая ОС: OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1DBCC75CAA26BF5C14C1DC1369F30567ECCBC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

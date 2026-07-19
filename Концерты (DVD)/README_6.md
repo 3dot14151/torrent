@@ -1,155 +1,3 @@
-###  Публикация: 518346   (643617) от 03.07.2012
-
-The Realm Of Napalm Records Vol. III (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Napalm Records представляет фанатам тяжелой музыки новый, третий DVD сборник лейбла. Треклист DVD включает в себя такие великие группы как Monster Magnet, Grave Digger, Alestorm и много других.1. ALESTORM - Shipwrecked
-2. ARKONA Liki - Bessmertnykh Bogov
-3. ARKONA - Stenka Na Stenku
-4. ARKONA - Yarilo
-5. ARTAS - Rassenhass
-6. DIABULUS IN MUSICA - Sceneries of Hope
-7. DRACONIAN - The Last Hour of Ancient Sunlight
-8. EDENBRIDGE - Higher
-9. FEJD - Gryning
-10. GRAVE DIGGER - Highland FarewellЖанр: MetalПеревод: ОтсутствуетФормат: DVD VideoПродолжительность: 03:52:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348128   (639619) от 08.06.2011
-
-Серия "Jazz Icons" / Duke Ellington (Дюк Эллингтон) - Live in '58 (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Tan Fantasy/Creole Love Call/The Mooch
-02. Harlem Air Shaft
-03. Sophisticated Lady
-04. My Funny Valentine(   Читать дальше...   )Жанр: Jazz, BigBandПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800246   (636310) от 01.07.2014
-
-Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636310.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Part
-* Orchestra — Carmen Overture
-* Mike — Concert For Violin & Oboe (Bach)
-* Tarja — Blute Nur (Bach)(   Читать дальше...   )Жанр: Neoclassical, ClassicalПродолжительность: 02:03:02+00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670ECCC46B3C42EDA5EF6313A60270D3940FB5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217781   (636226) от 12.07.2010
-
-Александр Серов - Моя Богиня, Мишель, Клипы ( 2001) 2 х DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэтр отечественной поп-сцены и один из лучших вокалистов страны Александр Серов редко балует своих поклонников новыми альбомами и сольными выступлениями. Тем ценнее становится этот уникальный диск, на котором представлены сольный и инструментальный концерты Александра Серова, с огромным успехом прошедшие в Москве в ГЦКЗ "Россия" в 2001 году, а также видеоклипы (   Читать дальше...   )1. Мадонна
-2. Буду ждать
-3. Ты меня любишь
-4. The key from my heart (дуэт с Ириной Отиевой)(   Читать дальше...   )Жанр: Mузыкальное видео,концерт,инструментальный концерт,клипы,поп,блюзПеревод: ОригинальныйПродолжительность: 01:45:23 + 01:46:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034255   (630053) от 15.07.2016
-
-Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая королева метала Доро Пеш отпраздновала 30-летие сценической деятельности в рамках мирового тура 2013/2014 года, в ходе которого состоялось три специальных юбилейных концерта, первый из которых прошел на крупнейшем металлическом фестивале Wacken Open Air перед аудиторией в 85.000 человек.
-После этого певица провела еще два аншлаговых шоу в родном городе Дюссельдорфе,где (   Читать дальше...   )Disc 1:
-30 Years Anniversary Show - Wacken Open Air '2013
-
-01.Wacken Anthem (We Are The Metalheads)(   Читать дальше...   )Производство: Nuclear Blast RecordsЖанр: Heavy MetalРежиссер: Ronald MatthesАктеры: Doro & VAПеревод: ОтсутствуетПродолжительность: 03:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA5BD837DCEAAF5F3803EF7D4AD8EDA2193E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035229   (628512) от 16.07.2016
 
 Shakespear's Sister - Best Of (2004) DVD5
@@ -732,6 +580,148 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361397   (568821) от 14.07.2011
+
+The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 113837   (566445) от 05.06.2022
+
+Wizards And Demons - Официальная история Uriah Heep / Uriah Heep - Wizards And Demons - The Official History (2005) DVD5 [4 DVD Box Set]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Released in November 2005
+UK: CRP 1968 (4-dvd box + book)
+THE OFFICIAL HISTORY OF URIAH HEEP
+LARGE FORMAT FOUR DVD & BOOK SET(   Читать дальше...   )Жанр: МузыкаРежиссер: Dave Ling, Jeff PerkinsПродолжительность: 05:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043DC56276C3CA8FB7C0C764294F578FD363FBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234848   (565558) от 08.07.2018
+
+Norah Jones - Live At Ronnie Scott's 2017 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Норы Джонс,состоявшегося 26.09.2017г в зале Ronnie Scott's Jazz Club (Лондон).Intro
+01.Sleeping Wild
+02.Don't Be Denied
+03.After the Fall(   Читать дальше...   )Производство: Eagle VisionЖанр: Jazz, Vocal JazzРежиссер: Nick WickhamАктеры: Norah Jones, Chris Thomas, Brian BladeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE604C92A5D89B86F67464378D7EB2E94DE6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235042   (563941) от 09.07.2018
+
+Paul Rodgers - Free Spirit '2017 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Пола Роджерса с группой товарищей,состоявшегося 28.05.2017г в зале Royal Albert Hall (Лондон).Шоу завершало британский тур Free Spirit Пола Роджерса,посвященный 50-летию создания группы Free.1. Little bit Of Love
+2. Ride On A Pony
+3. Woman
+4. Be My Friend(   Читать дальше...   )Производство: Quarto Valley RecordsЖанр: Blues Rock, Classic RockРежиссер: Paul M.GreenАктеры: Paul Rodgers & bandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93676EF484D2764CFB9EE0A86F57A70500019097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133613   (559341) от 09.06.2022
+
+Александр Градский - ЖИВьЁМ в России-2 (1999) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный концерт выдающегося русского певца Александра Градского. В трех отделениях.01. Как молоды мы были… (А. Пахмутова - В. Добронравов)
+02. Ария Хозе (Ж. Бизе, "Кармен")
+03. Ария Каварадосси (Д. Пуччини, "Тоска")
+04. Романс Неморино (Г. Доницетти, "Любовный напиток")(   Читать дальше...   )Режиссер: Продюсер А.ГрадскийВ ролях: Александр Градский - гитара, вокал Симфонический оркестр (дирижер - Владимир Симкин) Оркестр русских народных инструментов (дирижер - Николай Калинин) Государственная хоровая капелла им. Юрлова (трек №14) Детский хор "Мандрагора" г. Клин (треки № 13 и 14) Вокальный ансамбль "Казаки Дона" (трек № 14) Александра Пахмутова - фортепиано (трек №1)Продолжительность: 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2096161EE771EBF065453D6DB7594B050AFA75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

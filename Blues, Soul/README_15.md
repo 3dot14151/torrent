@@ -1,3 +1,61 @@
+###  Публикация: 906769   (643714) от 09.06.2015
+
+Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]<Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (4:17)
+02. Hold On A Little Bit Longer (4:32)
+03. Special Lady (3:30)
+04. Love You In Every Way (2:53)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038AA4FC339139A5702D414F39FA15AB69AA34B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905958   (643711) от 09.06.2015
+
+Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/с]<Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booguiebuck (2:06)
+02. Mannish Boy (Feat. Mud Morganfield, Daniel De Vita & Juan Codazzi) (3:41)
+03. Little Blue Girl (Feat. Catuto García & Rafo Grin) (4:02)
+04. You're The One (Feat. Eddie Taylor Jr) (3:09)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA4557A2B8FD2CFD53DF99AA3B0D3927A87D6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906477   (643586) от 09.06.2015
 
 Left Lane Cruiser - Dirty Spliff Blues (2015) [MP3|320 кб/с]<Blues Rock, Punk Blues>
@@ -696,64 +754,6 @@ VA - Essential Blues Anthology (2008) 2CD [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB9058043F93B870E5DFE25856E8B212D9CEA234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143555   (635395) от 18.06.2017
-
-Get The Cat - Four (2016) [MP3|320 Kbps] <Blues, RnB, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Pocket Full of Change  (04:25) 
-02. I've Seen It All on TV  (03:43) 
-03. Nothing to Worry  (03:47) 
-04. Blinded by Love  (04:59) (   Читать дальше...   )Жанр: Blues, RnB, AmericanaПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D14F71F51DAEC04142F92FE410B706D99DC430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143414   (635256) от 18.06.2017
-
-Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Too Late  (03:42) 
-02. Running Away  (04:12) 
-03. Men on a Mission  (04:26) 
-04. Nothing Wrong  (08:33) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

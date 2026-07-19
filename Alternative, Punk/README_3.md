@@ -1,3 +1,61 @@
+###  Публикация: 979984   (957429) от 28.01.2016
+
+The Casualties - Stay Out Of Order (2000 [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Way Out
+02 - Proud To Be Punk
+03 - Street Punk
+04 - Fight For Your Life(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF74348FD3C06BE643402798BA4568F2152E0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979969   (957426) от 28.01.2016
+
+The Casualties - On The Front Line (2004) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Casualties Army
+02 - On The Front Line
+03 - Leaders Of Today
+04 - Criminal Class(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B18A9EDB5C456119BFCE5664487612C41B89614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979956   (957424) от 28.01.2016
 
 The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
@@ -683,64 +741,6 @@ Lacey Sturm (ex Flyleaf) - Life Screams (2016) [MP3|320 кб/с] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCB8DBCDF61F1C4C22F6DB5856C4B0AA2B2918C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093788   (932430) от 16.01.2017
-
-Saviour - Let Me Leave (2017) [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore, Male & Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. April
-02. All I Am Is You
-03. The Quiet Calm
-04. Pressure And Composure(   Читать дальше...   )Жанр: Melodic Hardcore, Post-Hardcore, Male & Female VocalsПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E3116E7628CBB55FE9DD4A65EE2D51AF8D3318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093790   (932375) от 16.01.2017
-
-Code Orange - Forever (2017) [MP3|320 Kbps] <Hardcore Punk, Chaotic Hardcore, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forever
-2. Kill The Creator
-3. Real
-4. Bleeding In The Blur(   Читать дальше...   )Жанр: Hardcore Punk, Chaotic Hardcore, SludgeПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8ABA0D965F59B8C8F80499BF5921F18E5F52E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

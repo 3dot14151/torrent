@@ -1,3 +1,32 @@
+###  Публикация: 1296390   (611851) от 17.04.2019
+
+VA - Ballermann Schlagersommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611851.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Frenzy Blitz - Wir sind wir (Mallorcastyle)
+02. Tobee - Cordula Grün
+03. Honk! - Joana(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4168B7CE63FA53D31E5FD16401348BDC92695C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296410   (611850) от 17.04.2019
 
 VA - Die neue Schlagerparade (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
@@ -718,35 +747,6 @@ Bananarama - In Stereo (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5D83D24F1B78F3055479694B906B8AA53287E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297582   (603596) от 23.04.2019
-
-Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Vocal >
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tonight We Rise
-02.Feels Like Love
-03.Red Angel
-04.Everest(   Читать дальше...   )Жанр: Pop Rock, Dream Pop, VocalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

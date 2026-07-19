@@ -1,3 +1,90 @@
+###  Публикация: 1757411   (39074) от 27.10.2024
+
+VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Monte Musa (Original Mix) (7:14)
+02. Fernando - Corazon Seco feat. Ludelf (Original Mix) (5:26)
+03. Gabriel Slick - My World (Original Mix) (4:31)
+04. VieL - Espoir (Original Mix) (7:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9704A2B57EE3804AA651E37FF216D5FFD5F1CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760754   (37081) от 16.11.2024
+
+Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsession
+ 02. Ecology
+ 03. Santa Fe
+ 04. Feelin's(   Читать дальше...   )Жанр: Romantic Melody, EasyПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E73EC4C8CF851DD8A2BACEA62E67D42EC100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761229   (36787) от 19.11.2024
+
+Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [FLAC|Lossless|tracks] <Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Увертюра (3:46)
+02-Живущие лишь небесным (4:24)
+03-Что стряслось (4:13)
+04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75B3E59EBF1B6D987521ECA7BD3AD5D61FCA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761367   (36759) от 19.11.2024
 
 VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>

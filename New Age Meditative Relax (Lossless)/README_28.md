@@ -1,3 +1,32 @@
+###  Публикация: 1344453   (170423) от 10.12.2019
+
+Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystics Monks (4:24)
+02. Morphos (5:30)
+03. Lux Aeterna (4:47)
+04. Portal of Peace (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, RelaxПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596324   (168244) от 12.12.2022
 
 Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + .cue] <Relax, Healing>
@@ -716,35 +745,6 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436138   (138721) от 30.12.2020
-
-Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest (Symphonic Version)
-02. Cafe Europa (Symphonic Version)
-03. Night Bird (Symphonic Version)
-04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

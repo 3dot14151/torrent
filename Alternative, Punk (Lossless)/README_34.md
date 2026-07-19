@@ -1,3 +1,119 @@
+###  Публикация: 1241913   (517189) от 20.08.2018
+
+Bill Orcutt - "Solo CD" (Untitled) (1996) [FLAC|Lossless|tracks + .cue] <Noise Rock, Free Improvisation>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Collective Action
+2. Live 71
+3. Communique
+4. Damage Alert(   Читать дальше...   )Жанр: Noise Rock, Free ImprovisationПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E52FEF92B94797EF26BE0705FACE7D72E4ABBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560994   (516912) от 03.07.2022
+
+Dreaming Awake - The Cold Approach (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516912.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chain Gang
+2. Australians Can Tell The Future (Pt. I)
+3. Sea Salt & Vinegar (feat. Andy Cizek)
+4. It's Winter, Paul! Get Inside.(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B23EBEF7A331CA980A4DF80D56477D4A05D6C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561273   (515721) от 04.07.2022
+
+Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - For the Workforce, Drowning (00:03:48)
+02 - Between Rupture and Rapture (00:04:10)
+03 - Division St. (00:04:48)
+04 - Signals over the Air (00:04:49)(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D5B315060B265AF04C9E80B3BF84A2D15EC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561173   (515588) от 04.07.2022
+
+Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlophone [FLAC|Lossless|tracks] <Art Pop, Trip-Hop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-Hash (Instrumental) [00:03:32]
+02. 5/4 (Instrumental) [00:02:35]
+03. Tomorrow Comes Today (Instrumental) [00:03:07]
+04. New Genious (Brother)Жанр: Art Pop, Trip-Hop, ElectronicПродолжительность: 2CD, 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F18A6C3A0DCDC4EB27B8934A28076A9BF011509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413369   (514510) от 05.07.2022
 
 Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
@@ -625,123 +741,6 @@ Amongst Liars - Amongst Liars (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E183DFAB59DBAC405120CF3E1AC81312E9A1A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563136   (505385) от 13.07.2022
-
-Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amateur (cover of «Rock Me Amadeus» by Falco)
-02. Dise?o Rolas (cover of «Designer Music» by Lipps Inc)
-03. Marciano (Martian) (cover of «I Turned into a Martian» by The Misfits)
-04. The Revolution Will Not Be Televised (La Revo) (cover of the original by Gil Scott-Heron)(   Читать дальше...   )Жанр: Alternative Rock, Rapcore
-Страна исполнителя: Mexico (Mexico City)Продолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F9E580E3314C979D511093E881E75BB8F91FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563611   (503821) от 15.07.2022
-
-Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Burial of the Dead [00:03:18]
-02 End of the World_ A Game of Chess  [00:03:56]
-03 The Fire Sermon [00:03:25]
-04 I Am Error [00:03:52](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891A0D39F0790C2B9A289CDD221465A4D76FA23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563801   (502760) от 16.07.2022
-
-True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Not Alone
-2. Your Confession (feat. Kellin Quinn)
-3. Save Me
-4. Out Loud (feat. Aaron Gillespie)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962605202B7BBB10D073EFE809D21ACCEA47550D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563797   (502756) от 16.07.2022
-
-Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waiting on You
-2. Gardens of Misery
-3. Dreams
-4. Dying For(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AAADD045B3A8E171F3AFEB372BE2E59C22E114
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 601548   (998030) от 11.01.2013
+
+Ассасины / Tong que tai (2012) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лин Цзю (Лиу Ифей) и Му Шун (Тамаки Хироши) были еще детьми, когда их пленили какие-то люди, со временем превратившие их в профессиональных убийц. Спустя годы их выпускают в большой мир с единственной целью – убить самого могущественного человека в Китае, Цао Цао (Чоу Юн-Фат). Лин Цзю становится его наложницей, а Му Шун, превращенный в евнуха, оказывается при дворе номинального императора (Алек Су), который на деле ничего не решает. Но даже находясь рядом с ним, убить Цао Цао не так-то просто.Жанр: Драма, ИсторическийРежиссер: Чжао ЛиншанАктеры: Чоу Юн-Фат, Яу Самчи, Алек Су, Яо Лу, Лиу ИфейПеревод: Любительский (одноголосый)Продолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC718FC348076A073318D8A74169828163ED73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600886   (998016) от 11.01.2013
 
 Chaos Field [GameCube] [NTSC] [ENG] (2005)
@@ -677,41 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFEF288A7B0C7A31545A1FD3F7DE67AD21E2CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601982   (997895) от 12.01.2013
-
-VA - Trance Road Uplift (2013) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kimura Feat. Dee Dee - The Chosen (Cold Rush Remix)
-02. Johan Ekman - Duende (Araya Remix)
-03. Magdelayna - La Graciosa (Adam Lester Chilled Remake)
-04. Ruback - Great Feelings (Original Mix)
-05. Dmitry Ference - Initium Novum (Nianaro Remix)
-06. Mosahar - Passion
-07. Daniel Kandi - Fade (2012 Edit)
-08. Villanaranjos - Marina Alta (Original Mix)
-09. Iversoon & Alex Daf - El Exceso De Amor (Original Mix)
-10. Nomad Vs. Wragg - Roar (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FD740B2443D1DDC535FB7A7A06A0E6DD06940A
 ```
 
 https://mybot314.ru/tekegram_catalog/

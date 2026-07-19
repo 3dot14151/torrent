@@ -1,32 +1,3 @@
-###  Публикация: 1350670   (1003000) от 07.01.2020
-
-Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Field recordings>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santrauka I [08:00]
-02. Santrauka II [04:17]
-03. Santrauka III [03:46]
-04. Santrauka IV [04:00]Жанр: Ambient, Experimental, Field recordingsПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035992   (1002955) от 07.08.2021
 
 Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space, Psybient, Experimental>
@@ -734,6 +705,35 @@ Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA79D4AE734B792D4558CECF92333F108B42CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758102   (916191) от 17.02.2014
+
+Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are A Dead Television (4:19)
+ 02. Fragments A (Steady) (2:42)
+ 03. Fragments B (Adrift) (5:05)
+ 04. Sails (3:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
 ```
 
 https://mybot314.ru/tekegram_catalog/

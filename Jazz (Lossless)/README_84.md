@@ -1,119 +1,3 @@
-###  Публикация: 1278052   (774409) от 23.01.2019
-
-Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big V [5:15]
-02. Lester Bowie's Gumbo Stew [10:37]
-03. One for Luba [10:30]
-04. Meeting Time [6:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015703   (774362) от 11.05.2016
-
-Booker Ervin, Pony Poindexter, Larry Young - Gumbo! (1963) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Front O'Town [05:09]
- 02.Happy Strut [02:58]
- 03.Creole Girl (aka Melphamiene) [04:08]
- 04.4-11-44 [03:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5BD275F82B688A6E3742B37D6DA1F97C029676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278001   (774303) от 23.01.2019
-
-Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Runs The Voodoo Down [10:27]
-02. Sanctuary [3:59]
-03. It’s About That Time/The Theme [9:45]
-04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213040   (774296) от 14.03.2018
-
-VA - Jazz Covers of Pop Songs Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody to Love - Meg Birch 3:40
-02. I’m Not in Love - Olivia Keast 2:51
-03. Lovely Day - Nora & Will 3:44
-04. Sweet Dreams (Are Made of This) - Talisha Karrer 2:36(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F37F54B957FD2AB2D98B5F9699B0EB7DFF2FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125024   (773609) от 13.04.2017
 
 Eric Alexander & Vincent Herring - The Battle: Live At Smoke (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -744,6 +628,122 @@ Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A3112F065FE397ABA3F54E37782F341599F2EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016163   (771734) от 13.05.2016
+
+John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Love Me Or Leave Me [08:24]
+ 02.I Can't Get Started [03:36]
+ 03.Easy Living [04:20]
+ 04.2 Degrees East - 3 Degrees West [06:13](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Third StreamПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1252EBA28A6184A421EC7D08613315BF916165F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016268   (771728) от 13.05.2016
+
+Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Starts Are In Your Eyes [06:29]
+ 02.Lover Man [06:12]
+ 03.Brandnew World / Breaking A New Day [09:24]
+ 04.Margy Pargy [05:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62D9430C9FB370990136805967AC0C6B6B60B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391793   (771640) от 22.06.2020
+
+The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Did I Fall In Love [4:33]
+02. Little Tin Box [4:14]
+03. Home Again [3:03]
+04. Till Tomorrow [2:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016223   (771592) от 13.05.2016
+
+Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaco Smiled
+02. One Night In Mumbai
+03. Unbreakable Heart
+04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

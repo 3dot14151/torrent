@@ -1,123 +1,3 @@
-###  Публикация: 566870   (394862) от 31.10.2012
-
-Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:51 - CD1
-01:06:19 - CD2
-00:33:44 - CD3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569419   (391505) от 03.11.2012
-
-Фёдор Шаляпин - Избранное (2012) [FLAC|Lossless]<классика, вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стенька Разин
-02. Дубинушка
-03. Ночной смотр
-04. Два гренадера
-05. Вдоль по Питерской
-06. Очи черные
-07. Элегия
-08. Персидская элегия
-09. Сомнение
-10. Ноченька(   Читать дальше...   )Жанр: классика, вокалПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156BAC94992BE3956FC39BD12D0B4811AA69982C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570498   (389249) от 06.11.2012
-
-Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 3CD (1999) [FLAC|Lossless]<Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, OperaПродолжительность: 01:10:31 - CD1
-01:02:04 - CD2
-00:46:21 - CD3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E508A632FE223FF188922F8E5569B01FDA7E1465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950900   (367764) от 27.10.2015
-
-Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorchester - The Opera Gala. Live from Baden-Baden (2007) [FLAC|Lossless]<Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Lo Delibes / Lakm: Act I. "Viens, Mallika - Dme pais le jasmin"		06:43
-02.	Gaetano Donizetti / L'Elisir d'Amore: Act II, Scene VII. "Una furtiva lagrima"		05:08
-03.	Georges Bizet / Les Pcheurs de Perles: Act I. "Au fond du temple saint"		06:19
-04.	Vincenzo Bellini / Norma: Act I, Scene I. "Casta Diva - Ah, bello a me ritorna" (   Читать дальше...   )Жанр: ОпераПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16879755F0EC0BFD2CCC5DF3D46D1EA64392B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950260   (362490) от 29.10.2015
 
 Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
@@ -755,6 +635,119 @@ Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186554   (285853) от 25.11.2017
+
+Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dichterliebe Op. 48
+1. Im wunderschönen Monat Mai
+2. Aus meinen Tränen sprießen
+3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081132   (282675) от 10.12.2016
+
+Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2000) 2004, JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. O Vierge Sainte, rejouis-toi, Luc 1, 28 & 42 (1:41)
+2. Les Mages. rois de Perse (2:20)
+3. Dieu est avec nous (4:18)
+4. Benis le Seigneur. ô Mon âme. Psaume 102. 1-22 (5:24)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336157   (282192) от 05.11.2019
+
+Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|image + .cue] <Classical oratorio,  pastoral ode>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical oratorio,  pastoral odeПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FB87B0EC55144273A22DC0100DBDAFC43DD14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187739   (276947) от 30.11.2017
+
+Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996) [FLAC|Lossless|tracks] <Vocal, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Walked Today Where Jesus Walked
+02. Panis Angelicus
+03. O Joyful Children
+04. The Christmas Song(   Читать дальше...   )Жанр: Vocal, ClassicalПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15060C72299E48E36D145E8B5B915BD6713D93A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

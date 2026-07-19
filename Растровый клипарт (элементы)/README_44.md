@@ -1,29 +1,3 @@
-###  Публикация: 1794997   (19446) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Zodiac Cliparts [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт на тему знаков зодиака.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C65808F608D7914A769499E84EF3866C9D6408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795823   (19141) от 06.05.2025
 
 Растровый клипарт - Graphic Studio - Creative Fabrica - Adorable Baby Animal Patterns [PNG]

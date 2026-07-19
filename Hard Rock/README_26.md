@@ -1,3 +1,61 @@
+###  Публикация: 1421677   (317412) от 05.11.2020
+
+Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Set You Free (2020 Remix) (04:08)
+ 02. The Deeper The Love (2020 Remix) (04:02)
+ 03. All I Want, All I Need (2020 Remix) (05:42)
+ 04. Too Many Tears (2020 Remix) (06:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4788B012ED44636393B9EB3F06904998C77BB626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076312   (314041) от 25.11.2016
+
+Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Take Care Of You (03:13)
+02. Leave Me Alone (03:52)
+03. Down On Your Knees (03:26)
+04. Follow Me (04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B4E0248FA58F07078FF12C1454AD66C0D56BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332006   (314037) от 20.10.2019
 
 JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -698,64 +756,6 @@ Silked & Stained - Goes Up to Eleven (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA8059ACC1FD6A5024D3E2EC4EC6408BF6A6F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080779   (288479) от 07.12.2016
-
-Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Yeah
-02. Day And Night
-03. New Orleans Rain
-04. Inside Of Me(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5DF27F51DAD4710E0DECBE39074F327DB3395E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335251   (287707) от 02.11.2019
-
-Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287707.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Fallen Angels [3:39]
- 2 - Hail the End of Days [4:14]
- 3 - Tying You Down [4:41]
- 4 - Save Me from Myself [4:38](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D1A498001F0F98F941CDF19F392F862882568D
 ```
 
 https://mybot314.ru/tekegram_catalog/

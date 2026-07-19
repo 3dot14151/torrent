@@ -1,3 +1,63 @@
+###  Публикация: 576751   (360808) от 18.11.2012
+
+Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic Rock & Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireball (3:24)
+02. Dan (2:31)
+03. Black Knight (3:30)
+04. Palamatoon (3:27)
+05. Strange Kind of Woman (3:33)
+06. Hush (4:11)
+07. House Of The Rising Sun (3:11)
+08. Speed King (5:24)
+09. Corina (4:27)Жанр: Classic Rock & Hard RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA53C37C62A31518AAE57D31F715379BFE7E8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577081   (359936) от 18.11.2012
+
+VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock & Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock & Hard RockПродолжительность: 05:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96B7296C9D6502DEB6A128C324087F841DDE9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329129   (356508) от 03.10.2019
 
 Eclipse - Paradigm (2019) [MP3|320 Kbps] <Hard Rock>
@@ -697,70 +757,6 @@ Sexy - Shout For Sexy! (2015) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0032A15793E3176C268F01BFFD5FE602B4F2A590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581571   (337824) от 27.11.2012
-
-Rainbow - Long Live Rock 'n' Roll [Deluxe Remastered Edition] (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lady of the Lake (Rough Mix) (Bonus Track) (3:52)
- 2. Sensitive to Light (Rough Mix) (Bonus Track) (3:04)
- 3. L.A. Connection (Rough Mix) (Bonus Track) (5:35)
- 4. Kill the King (Rough Mix) (Bonus Track) (4:29)
- 5. The Shed (Subtle) (Rough Mix) (Bonus Track) (3:38)
- 6. Long Live Rock 'n' Roll (Rough Mix) (Bonus Track) (4:20)
- 7. Rainbow Eyes (Rough Mix) (Bonus Track) (6:56)
-Shepperton Studios Rehersals
- 8. Long Live Rock 'n' Roll (Take 1) (Rehearsal 1977) (Bonus Track) (6:59)
- 9. Kill the King (Rehearsal 1977) (Bonus Track) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D71D272A924E0A43F643CD29E4C19C2C4E1985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955142   (337195) от 09.11.2015
-
-Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamrock Fever
-02. We'll Burn The Sky
-03. I've Got To Be Free
-04. The Riot Of Your Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4021B39450B90EE442C15AB46461E3FDB690020F
 ```
 
 https://mybot314.ru/tekegram_catalog/

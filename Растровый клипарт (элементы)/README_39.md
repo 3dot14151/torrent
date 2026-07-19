@@ -1,29 +1,3 @@
-###  Публикация: 1795146   (67182) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Line Art Seashell Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с морскими раковинами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A8AE6DA942CF43F3008895D50BC0AE0DF362E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795005   (67181) от 03.05.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Safari Adventure Animals Clipart [PNG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A74E1E74BCA887E04BFD582CE8D85EF78522AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794986   (67138) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Cute Mermaid Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на тему русалок и моря.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F275A5A42D6A2F12F405CF5FA05BF5AB0FA4FF96
 ```
 
 https://mybot314.ru/tekegram_catalog/

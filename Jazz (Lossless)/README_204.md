@@ -1,119 +1,3 @@
-###  Публикация: 1069457   (374162) от 04.11.2016
-
-Count Basie & His Orchestra - 1 O'Clock Jump (1958) 1992, LaserLight[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues [03:49]
- 02.Indian Summer [03:15]
- 03.Who, Me? [04:27]
- 04.Jumpin' At The Woodside [04:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E7F2E4DE98AD714042EBB901452C2D36481CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069458   (374152) от 04.11.2016
-
-Michel Camilo & Tomatito - Spain Forever (2016) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Agua e Vinho [05:58]
- 02.Our Spanish Love Song [04:38]
- 03.Oblivion [06:13]
- 04.Gnoissienne No.1 [06:00](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F375E6DA2C5DC25A45EAA7A648AD7B60921B55C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069197   (373986) от 04.11.2016
-
-Dave Brubeck - Truth Is Fallen (1971) 1998, Atlantic[FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prelude/Merciful Men Are Taken Away [11:09]
- 02.Truth Is Fallen [07:57]
- 03.Oh, That My Head Were Waters/Speak Out (duet)/I Called and No One Answered [06:08]
- 04.Yea Truth Faileth [02:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705A09FED63242B66EA66DEBDE21F8FCD6EE81D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069469   (373862) от 04.11.2016
-
-Rebekka Bakken - Most Personal (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373862.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.A Whole Lot Of Angels [03:34]
-02.No Easy Way [04:46]
-03.Cover Me With Snow [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A505E8972704B58525F49D0776C7C9A0973B42D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069322   (373775) от 04.11.2016
 
 Optimystica Orchestra - Солёный Как Солнце (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Easy Listening, Smooth Jazz>
@@ -744,6 +628,122 @@ Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950512   (370499) от 26.10.2015
+
+Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Nine Cloud Dream [05:19]
+ 02.Paradox [07:29]
+ 03.Moving Portrait [10:05]
+ 04.First Frost [06:31](   Читать дальше...   )Жанр: Modern Creative, Avant-Garde JazzПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950121   (370498) от 26.10.2015
+
+Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Enough
+02. Coming Soon
+03. V.P.
+04. Turkish Coffee(   Читать дальше...   )Жанр: Neo-Bop, Post-BopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950112   (370497) от 26.10.2015
+
+Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Beats (2:52)
+02. Voices of War (4:04)
+03. Arak (2:13)
+04. Yemen (3:55)(   Читать дальше...   )Жанр: Post-Bop, Etho-JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950126   (370496) от 26.10.2015
+
+One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Outs To Go
+02. We'll Be Together Again
+03. Till There Was You
+04. In Between The Heartaches(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
 ```
 
 https://mybot314.ru/tekegram_catalog/

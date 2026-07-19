@@ -1,3 +1,116 @@
+###  Публикация: 927654   (523972) от 14.08.2015
+
+VA - Летний марафон № 182 / (Задорный Country Хит) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (13.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Amy Wilcox - Summer in Slow Motion (Official Video) (00:03:29)
+2. BlackByrd - Better In The Morning (Official Video) (00:03:23)
+3. Enrico Nigiotti - Libera Nel Mondo (Official Video) (00:04:37)
+4. Heather Ballentine - Kiss Me (Official Video) (00:03:19)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ED72BF7C8115614AA1B0755D09FD008A0DD855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241278   (520958) от 16.08.2018
+
+Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
+01 Ozzy Osbourne - Crazy Train
+02 Motley Crue - Smokin' In The Boys Room
+03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534408   (520341) от 13.08.2012
+
+Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DDBA8BEC8C9E36634F4B7FC1F38417AC0E0356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928502   (519492) от 19.08.2015
+
+VA - Летний марафон № 183 / (Зарубежная Дискотека) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (15.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alli Simpson ft. Jack & Jack - Roll Em Up (Official Video) (00:02:56)
+2. Ardit Cuni - Let's Go (Official Video) (00:03:52)
+3. Christopher - Tulips (Official Video) (00:03:35)
+4. EDX - Breathin (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, ReggaetonПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847FC997A84CDABD74E3667D5FA089BC0FF48BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930296   (516146) от 22.08.2015
 
 VA - Летний марафон № 184 / (Марафон Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
@@ -613,116 +726,6 @@ DVJ Bazuka представляет новый стиль нью-электро,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934954   (500193) от 07.09.2015
-
-Осенний марафон № 187 / Сборник видеоклипов (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаем прерванную линию клипов. Раз уж наступила осень - пусть будет осенний сборник из зажигительных рок'н'рольных хитов.1. Against The Current - Talk (Official Video) (00:03:14)
-2. Animal ДжаZ - Дальше (Official Video) (00:04:50)
-3. Bill Ryder-Jones - Two To Birkenhead (Official Video) (00:04:23)
-4. Bring Me The Horizon - Throne (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Indie, Rock, Punk, AlternativeПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A24B680FCE62837142A3887003DE8AF9D4EA8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541603   (499513) от 02.09.2012
-
-Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D859BDAC18A73B9D349E7A5BFA14801DCFBCEFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541602   (499122) от 02.09.2012
-
-IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7436B610D80EA4F52A9F74A64ECAD2EA561E55AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936464   (495788) от 11.09.2015
-
-VA - Осенний марафон № 188 / Видеоклипы (Зарубежный Парад Новинок ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (11.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alex Adair - Heaven (Official Video) (00:03:07)
-2. Andreea Banica - Supererou (Official Video) (Famous Production) (00:03:50)
-3. Bobina ft. Natalie Gioia - Addicted (Official Video) (00:02:53)
-4. Bryan Adams - Brand New Day (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:27:40 + 00:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD1A3F8790C51EA58A15B0FCF6BE00EEBD27D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

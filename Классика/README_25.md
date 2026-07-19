@@ -1,122 +1,3 @@
-###  Публикация: 524302   (612930) от 18.07.2012
-
-Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1: Morning
-1 The Cathedral At Dawn [11:31]
-2 Durham Awakes [08:25]
-
-Part 2: Afternoon
-3 The Road From Lindisfarne [07:18]
-4 From Prebends Bridge [08:27]
-
-Part 3: Evening
-5 Rags & Galas [08:25](   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220894   (612757) от 25.07.2010
-
-Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037734   (611905) от 25.07.2016
-
-Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classical, Acoustic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunes    07:48
-02. Opening The Gates    04:43
-03. The Sorrow Bird    04:09
-04. Like A Bell To A Southerly Wind    04:26(   Читать дальше...   )Жанр: Folk, Modern Classical, AcousticПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985789   (608662) от 16.06.2018
-
-Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Щелкунчик: Действие II, Картина III. Дворец сластей Конфитюренбург (3:56)
-02. Щелкунчик: Действие II, Картина III. Прибытие Мари и Щелкунчика (4:15)
-03. Щелкунчик: Действие II, Картина III. Дивертисмент (а) Шоколад: испанский танец (1:07)
-04. Щелкунчик: Действие II, Картина III. Дивертисмент (б) Кофе: арабский танец (3:04)(   Читать дальше...   )Жанр: BalletПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038253   (608372) от 27.07.2016
 
 Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Vocal>
@@ -746,6 +627,122 @@ Kriemhild Jahn - Mozart-Premiere (2006) [FLAC|Lossless|image + .cue] <Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B275C84F9EC15AB042216AED02CF9F52E583778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913711   (601146) от 30.06.2015
+
+Beethoven - Symphonies Nos.3, 7 & 8 (Paul van Kempen & Berliner Philharmoniker) (1993) 2CDs [FLAC|Lossless]<Classical, Romantic Period, Overture, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beethoven Sym No.7 in A major
+01. Poco sostenuto - Vivace (12:32)
+02. Allegretto (08:28)
+03. Presto - Assai meno presto (09:08)(   Читать дальше...   )Жанр: Classical, Romantic Period, Overture, SymphonyПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299447   (599605) от 01.05.2019
+
+Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599605.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lamentació 2a. de la Feria V
+
+Missa defunctorum, for double chorus, 2 flutes, 2 violins & continuo:
+2. Introitus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131053C36028793974736D98F4C810C4149F46AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038813   (599294) от 30.07.2016
+
+Johannes Brahms - Symphonies Nos. 1,2,3,4. Tragic Overture, Op. 81, Academic Festival Overture, Op. 80 (2014) [FLAC|Lossless|image + .cue] <Classical, orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.3 In F Major, Op.90
+1.I. Allegro Con Brio (13:38)
+2.II. Andante (8:58)
+3.III. Poco Allegretto (6:58)(   Читать дальше...   )Жанр: Classical, orchestralПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526126   (599136) от 23.07.2012
+
+Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 583, 522, 581: I Solisti Veneti conductor Claudio Scimone (1970-1976)/1996, Erato Disques/[FLAC|Lossless]<Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for 2 Mandolins, Strings & Continuo G-Dur RV 532
+1. Allegro 4:27
+2. Andante 2:50
+3. Allegro 4:06Жанр: BaroqueПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E816B7486487B45BAE981E287B93072EF3FA155
 ```
 
 https://mybot314.ru/tekegram_catalog/

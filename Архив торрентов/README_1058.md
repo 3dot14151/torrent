@@ -1,143 +1,3 @@
-###  Публикация: 1010045   (806209) от 23.04.2016
-
-VA - Trance 2016 Vol.2 (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Kandi - Number One (Radio Edit) 04:32
-02. Shanahan - Stars & Moon (LTN Radio Edit) (feat. Haliene) 03:21
-03. Amir Hussain - Ethica (Radio Mix) 03:39
-04. Alex van ReeVe - Firestorm (Radio Edit) 04:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40CF134E4A81EC3B78F316D406D1AB9A0F877BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009932   (806207) от 23.04.2016
-
-VA - Uplifting Trance Essentials  Vol. 9 (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - The Other Side (Original Mix) 08:04
-02. U-Mount - Good Night (Original Mix) 08:30
-03. Al Sebastian - Lost Horizon (Original Mix) 07:28
-04. Visionary - Helga (Dub Mix) 08:38(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DEA51DBA524BAEEFC09E5CCA66E2F9A6A53B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009944   (806206) от 23.04.2016
-
-VA - Balearic Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Nebula (Intro Mix) (feat. Jan Johnston) 06:47
-02. Simon O'Shine - You May Love (Original Mix) (feat. Eskova) 05:54
-03. NoMosk - Lost Soul (Illitheas Remix) (feat. Christina Novelli) 06:59
-04. Three Faces - Lost In Time (Original Mix) 08:14(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB6EE67FDCB63981D07154062EDD67B04D8EA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009885   (806205) от 23.04.2016
-
-Футбол. Чемпионат Англии 2015-2016. 27 и 30 туры. Обзор перенесённых матчей. (22.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор перенесённых матчей 27 и 30 тура, которые состоялись 19, 20 и 21 апреля 2016 года.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609BE3063FB347106FE14676DC61F1735A3CD08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009981   (806204) от 23.04.2016
-
-Permute 2.1.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 апреля 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35709EC81BA3A1D92C20229D357181F45C857920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008560   (806203) от 23.04.2016
 
 Riot - Inishmore (1997) Japan [APE|Lossless|image + .cue] <Heavy Metal>
@@ -697,6 +557,148 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11F2EE327317384A5AB39CCBC75EBA77D2B5C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119929   (806085) от 29.03.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 14-й тур. Боливия – Аргентина (28.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806085.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2017, вторник. 23:00 МСК
+Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 14-й тур
+Боливия – Аргентина
+Стадион: Эрнандо Силес (Ла-Пас, Боливия), вместимость: 42000(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56F5FA6DC758AB54BBB4A5F42FB143799B390FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119760   (806084) от 29.03.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 5-й тур. Обзор матчей 3-го дня (26.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806084.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2017, воскресенье
+Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. 5-й тур
+День № 3:
+Азербайджан – Германия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCAB73A0BBDAE6FC543EF1FB4876343838FD2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118300   (806083) от 29.03.2017
+
+Ori Uplift - Uplifting Only Episode 215 (2017) [MP3|192 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. (0:00:33): NoMosk & Ansia Orchestra - Adventure (UDM Remix) (Suanda True)
+2. (0:04:49): illitheas - Purple Skies (Abora)
+3. (0:09:17): BREAKDOWN OF THE WEEK: Farhad Mahdavi & Manuel Le Saux - Path Of Memories (Extended Mix) (Abora)
+4. (0:14:27): Talla 2XLC - Alternate Dreams (Universal Nation)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8351022779D27B3B0C21DC4487CCB1657A9FA7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120037   (806078) от 29.03.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф 12. 1-й матч. Кнак (Бельгия) — Зенит (Россия) (14.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806078.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф 12. 1-й матч
+Кнак (Руселаре, Бельгия) — Зенит (Казань, Россия)
+Стадион:	Schiervelde Roeselare (Руселаре, Бельгия), зрителей: 2000(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E08BDD7A053E12C1F04B3B2AC3AF76F3ACB4632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383948   (806034) от 18.05.2020
+
+Text Editor Pro 9.2.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F557F6CB5F080B03D7046EDEACE5C069B8848E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

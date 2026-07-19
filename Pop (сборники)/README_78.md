@@ -1,96 +1,3 @@
-###  Публикация: 927129   (521699) от 17.08.2015
-
-Берёзовый Сок - Магнитоальбом (1990) [MP3|224 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро 1
-02 - Скрипка
-03 - Интро 2
-04 - Музыканты(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066061D07B5DEA569B0B424B8B0591A77A78C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372314   (521645) от 07.08.2011
-
-VA - XXXL Музык@Ru 11 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_521645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Даша Суворова - Тебе Любовь Моя
-002 Shahzoda feat. Akcent - All Alone
-003 Вика Дайнеко - Сотри его из Memory
-004 American Gang - I Luv New York (Radio Edit US)
-005 Maxima - Алло
-006 Katy B - Easy Please Me
-007 DJ M.E.G. feat. Карина Кокс - Там Где Ты
-008 John OCallaghan & Betsie Larkin - Save This Moment
-009 Артур Пирожков - Плачь, детка
-010 Thomas Anders & Uwe Fahrenkrog-Petersen - Summer Of Love(   Читать дальше...   )2011Жанр: PopПродолжительность: 06.22.18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1E768F752F4364716784739A3D651993A01831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314112   (521212) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardkiss - PiBiP (4:15)
-02. Mozgi - Digitalization (2:41)
-03. MARUV - Focus On Me (2:56)
-04. Tvorchi - Trip (Orchestral Version) (2:49)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8020E859B884474785C71AB48E942783313B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314117   (521208) от 12.07.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
@@ -777,6 +684,105 @@ VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816628E56F234CEE4F494B4D0799C630DCBB1DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931237   (512809) от 25.08.2015
+
+VA - Горячий музон. Тусим все вместе (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джиган & Юлия Савичева - Любить Больше Нечем
+02. Таша Фролова - Давай Взлетим Так Высоко
+03. Виктория Ланевская - Обнимай
+04. Charli Xcx - Breaking Up(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA4D8758F17E627B8FAC595DEF2DD02F1C2D248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375813   (512305) от 15.08.2011
+
+VA - Дискотека То, что надо ! (2011) [MP3|256 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлия Савичева - Сердцебиение
+02. Зара - Амели
+03. Enrique Iglesias with Usher feat. Lil Wayne - Dirty Dancer
+04. Dns Project Feat. Johanna - Mindful
+05. Джиган (Geegun) и Юлия Савичева - Отпусти (Yan Belli Mix)
+06. Maxima - За Сонцем
+07. Dan Balan - Freedom
+08. Ева - Не Жена
+09. Инфинити - Не Молчи
+10. Kola Project - Пусть Каждый Услышит (Extended Mix)(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 06:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B3CDD5E1F1C0AD9DC61AF0A49929138C74739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375756   (512300) от 15.08.2011
+
+VA - XXXL Полный нокаут! 5 50/50 (2011) [MP3|256-320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DBN pres. Tom Shark feat. Shena - Le Freak (Original Mix)
+002 Dj Amor & Dj Vitalio & Катя Ирис - Summer Miracle (Saint Killer Remix)
+003 TyDi - Sex, Lies & Still Obvious
+004 DJ Slon & Katya - Я Не Дам (DJ Dima Love Remix)
+005 Alcazar feat. Dream Beats - Feel 4 You (Afm Remix Short)
+006 Оксана Почепа и 140 Ударов В Минуту - Гол! Это Наш Футбол (Raduga Remix)
+007 Arsenie - Bang Bang (Dj Miv Electro Full Remix)
+008 Вельвет - Нанолюбовь (LaTrack Poppi Radio Mix 2011)
+009 Infernal - From Paris To Berlin (Vova Baggage & Kirillich Remix Radio)
+011 Сплин - Гандбол (Dj Timur Kastrov Radio Remix)(   Читать дальше...   )2011Жанр: ClubПродолжительность: 07:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3A209E014372282D808A21998A11693A26C236
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1325731   (410333) от 16.09.2019
-
-Lina Nyberg - Open (1998) Prophone [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Disaster [3:57]
-02. At Last [3:36]
-03. Photograph [4:46]
-04. Reveal Me [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307DFA1D89A28B635B30237479621293B066006D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325734   (410332) от 16.09.2019
-
-Cal Tjader - Plays the Contemporary Music of Mexico and Brazil (1962) 2008, Verve [FLAC|Lossless|image + .cue] <Cool, Latin Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vai Querer [3:04]
-02. Que Tristeza [2:50]
-03. Meditacao [3:33]
-04. Sone [3:09](   Читать дальше...   )Жанр: Cool, Latin Jazz, Mainstream JazzПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5495034A670DBE439E6B0BFFE400A0CCA877E399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066665   (410269) от 27.10.2016
-
-Ahmad Jamal - Freeflight (1971) 1993, GRP[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [00:54]
- 02.Effendi [11:28]
- 03.Dolphin Dance [04:52]
- 04.Manhattan Reflections [10:01](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CABE2EFD24DAF554799AF8C00B90B631D3ABD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066670   (410268) от 27.10.2016
-
-Joe Lovano Quartet - Classic! Live At Newport (2005) 2016, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Big Ben [07:12]
- 02.Bird's Eye View [11:07]
- 03.Don't Ever Leave Me [10:24]
- 04.I'm All For You [09:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B30B793F617632FBE26CA3532EE0F5331D691F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066898   (410182) от 27.10.2016
 
 Great Jazz Trio - Standard Collection Volume 2 (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Mike LeDonne & The Groover Quartet - That Feelin' (2016) Savant Records[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AA534AA46F8E55FE7319C6F42AF3DF8DA61A266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067278   (408468) от 28.10.2016
+
+Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Was (with Peggy Lee) [02:48]
+ 02.That Lucky Old Sun [03:03]
+ 03.Night Train To Memphis [01:58]
+ 04.In The Cool Cool Cool Of The Evening [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7559C3911464D306147B272F33FA714590539A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413495   (408434) от 04.10.2020
+
+Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 1997, Tradition [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lovin' Man [2:48]
+02. Sugarfoot Stomp (Dippermouth Blues) [2:59]
+03. Southern Stomps [2:39]
+04. Big Butter and Egg Man from the West [3:11](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCB80A3B99B56430F289D87D776541D32373175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948938   (408398) от 22.10.2015
+
+Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Does Anybody Really Know What Time It Is [05:13]
+ 02.Maybe Tomorrow [04:56]
+ 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
+ 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067223   (408394) от 28.10.2016
+
+Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Somewhere Along The Way [02:53]
+ 02.Walkin' My Baby Back Home [02:39]
+ 03.Faith Can Move Mountains [03:13]
+ 04.Funny [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
 ```
 
 https://mybot314.ru/tekegram_catalog/

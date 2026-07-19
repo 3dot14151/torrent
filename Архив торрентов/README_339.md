@@ -1,3 +1,32 @@
+###  Публикация: 606043   (989389) от 30.01.2013
+
+Mat Zo - 2 EP's (2011-2012) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bipolar (7:07)
+02. It's Yours (7:15)
+03. Ring On It (6:49)
+04. Yoyo Ma (6:36)Жанр: Trance, Progressive TranceПродолжительность: 00:27:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611045   (989385) от 30.01.2013
 
 VSO Blu-ray Converter Ultimate 2.1.1.32 Final [Multi\Rus]
@@ -667,33 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AED2CD03B537B9E408A88144ED0ABD1AEF4F8DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354296   (989111) от 21.01.2020
-
-Scrutiny 9 v9.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67FC63EE2E64F8CDEE14C73439C79166EDF9A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

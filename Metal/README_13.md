@@ -1,3 +1,90 @@
+###  Публикация: 978238   (963234) от 23.01.2016
+
+Megadeth - Dystopia (2016) Best Buy Edition [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Threat Is Real (04:22)
+02. Dystopia (04:59)
+03. Fatal Illusion (04:15)
+04. Death from Within (04:47)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777D2A6F9C2178BD944C1577A3B9A5CD653391D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359867   (962924) от 13.02.2020
+
+Ozzy Osbourne - Ordinary Man (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight To Hell
+02. All My Life
+03. Goodbye
+04. Ordinary Man (Feat. Elton John)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96475B9168ABA9EDBC11B4FEEA67B9B5D9F42AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803770   (962923) от 13.02.2020
+
+Suicide Silence - 6 Albums, 2 EP, 1 Live (2005-2020) [MP3|320 кб/с] <Deathcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962923.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Suicide Silence (EP)
+2007 - The Cleansing (European Edition)
+2009 - No Time To Bleed (Maximum Bloodshed Edition)
+2010 - Wake Up (EP)(   Читать дальше...   )Жанр: Deathcore, Nu-MetalПродолжительность: 06:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C13B1C5E6671CC7D20A489C654CF64850D37B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978867   (962407) от 24.01.2016
 
 Antti Martikainen - Set Sail For The Golden Age (2016) [MP3|320 кб/с] <Epic Metal, Neo-Classical, Folk>
@@ -658,93 +745,6 @@ A.E.R.I.S.T. - Redeemer/Destroyer, Pt. 1: The Strength of Many (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA5C39CF51BE32A84EA31533FC1D278806CAA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982825   (946792) от 04.02.2016
-
-Drowning Pool - Hellelujah (2016) [MP3|320 кб/с] <Alt.Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push (3:14)
-02. By The Blood  (3:28)
-03. Drop (3:42)
-04. Hell To Pay (4:02)(   Читать дальше...   )Жанр: Alt.Metal, Hard RockПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856E7C92DA837CF8D3302DF7C8457BF75F797162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362892   (946630) от 25.02.2020
-
-The Word Alive - Monomania (2020) [MP3|320 kbps] <Post-Hardcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monomania (03:58)
-02. No Way Out (03:35)
-03. Searching For Glory (03:36)
-04. Another Year In The Shadows (03:33)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12C74923C0BE82F1DFCDFFC7FA4F8421D9844A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982821   (945582) от 05.02.2016
-
-Textures - Phenotype (2016) [MP3|320 кб/с] <Progressive Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceans Collide (06:04)
-02. New Horizons (04:52)
-03. Shaping a Single Grain of Sand (04:21)
-04. Illuminate the Trail (07:16)(   Читать дальше...   )Жанр: Progressive Math MetalПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6971BE23A10CB129FD5B0510BEA7A12E10FE32
 ```
 
 https://mybot314.ru/tekegram_catalog/

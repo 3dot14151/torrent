@@ -1,3 +1,32 @@
+###  Публикация: 1122444   (798833) от 05.04.2017
+
+VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maan - Perfect World
+002. Medina - We Survive
+003. Pierce Fulton - Make Me Blue
+004. Tomx - In The End(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FED42445C1080010EE53F50F336ACDDF929E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507380   (798436) от 04.11.2021
 
 VA - Hymn For The Weekend (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Billboard Hot 100 Singles Chart 07.05.2016 (2016) [MP3|128-320 кб/с] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441E299180101AE4A70CD18587D79104811C54C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012319   (793450) от 01.05.2016
-
-VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Подъём - Девчонка На Свадьбе (03:29)
-02 Бархат - Сердцеедки (03:11)
-03 Кристина Орса - Я Буду Рядом (03:45)
-04 Влад Соколовский - До Небес (02:27)(   Читать дальше...   )Жанр: ПопПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
 ```
 
 https://mybot314.ru/tekegram_catalog/

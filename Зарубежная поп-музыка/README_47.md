@@ -1,3 +1,32 @@
+###  Публикация: 932484   (509275) от 29.08.2015
+
+Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blast It!
+02. Dance or Die
+03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
+04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932389   (509003) от 29.08.2015
 
 Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
@@ -731,35 +760,6 @@ Vanessa Mai - Regenbogen (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CF08D98DECF4F080E8C81EF6AFA7278F6FA48ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404432   (493208) от 25.08.2020
-
-VA - 90's Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shania Twain - You're Still The One (3:32)
-02. Spice Girls - 2 Become 1 (4:01)
-03. Ronan Keating - When You Say Nothing At All (4:18)
-04. Bryan Adams - (Everything I Do) I Do It For You (6:33)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4849F3EF6EB03B096806F9350A41B85107B7D68C
 ```
 
 https://mybot314.ru/tekegram_catalog/

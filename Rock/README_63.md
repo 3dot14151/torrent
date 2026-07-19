@@ -1,32 +1,3 @@
-###  Публикация: 1415959   (371590) от 14.10.2020
-
-Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Love (06:06)
- 02. Strange (00:11)
- 03. Stranger (05:39)
- 04. Strangest (00:42)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069583   (371311) от 05.11.2016
 
 Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedelic Atmospheric Rock>
@@ -757,6 +728,35 @@ Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663F8D9A4DF33D0E5325F6D2223C1F3C9DE3E168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070420   (366417) от 07.11.2016
+
+Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Next Door To Alice (3:28)
+02. Lay Back In The Arms Of Someone (4:06)
+03. I'll Meet You At Midnight (3:16)
+04. She Rides Wild Horses (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13E98AC168B3C5B6BC73034F143DF96FE6BDD74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1780265   (27290) от 17.02.2025
+
+Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portal
+02. Following the Voice
+03. Echo of Time
+04. Till the Last Breath (Ragnarök)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289031   (24764) от 14.03.2025
+
+Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998) [APE|Lossless]<Score, Jazz, Dixieland>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeszcze Raz Vabank
+02. Jeszcze Raz Vabank (wersja instrumentalna)
+03. Ragtime Vabank
+04. Samotnosc Kwinty(   Читать дальше...   )Жанр: Score, Jazz, DixielandПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0D7C547F762F334A8264CF5B4192AB87ABE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641578   (23574) от 25.03.2025
+
+Школа Духовной Музыки Горы Ливан - Божественная Византийская Литургия Антиохийской Святой Церкви (2002) [MP3|320 кб/с]<Церковная музыка>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23574.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Great Litany[07:47]
+2. The First Antiphon[01:18]
+3. The Little Litany[01:39]
+4. The Second Antiphon[02:58](   Читать дальше...   )Жанр: Церковная музыкаПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789648   (21667) от 12.04.2025
+
+ДиДюЛя - Seasons (2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <New Age, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апрель [00:02:08]
+01. Seasons [00:03:47]
+03. Мирская свеча [00:03:17]
+04. Картинки детства [00:04:06](   Читать дальше...   )Жанр: New Age, FlamencoПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792883   (20701) от 21.04.2025
+
+VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Patrol - Talking in Your Sleep [03:41]
+02. Graham Blvd - Talk to Me [04:02]
+03. Starlite Saxophones - 99 Luftballons [03:50]
+04. Saxophone Dreamsound - Right Here Waiting [04:22](   Читать дальше...   )Жанр: Jazz, Instrumental, SaxophoneПродолжительность: 01:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4941AC4CB3E95EE0E6E69E8CAD56950F582AC75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793962   (20065) от 27.04.2025
+
+ДиДюЛя - Seasons (2025) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апрель
+02. Seasons
+03. Мирская свеча
+04. Картинки детства(   Читать дальше...   )Жанр: Instrumental, Flamenco, WorldПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D020DD544D90406303B75CA5A0A373CFDD1CC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798064   (17665) от 20.05.2025
 
 Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
@@ -578,180 +752,6 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B2309D6A749D959C6F4B9F3B1B19192D544D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509958   (5471) от 29.08.2025
-
-OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Neo-Classical, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening with Mauriat (4:18)
-02. Royal Safari (4:43)
-03. Sheldo (3:23)
-04. The Cossack Song... Forever... (2:38)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, New Age |Продолжительность: 05:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816328   (4405) от 04.09.2025
-
-VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Project Blue Sun, Tibetania - Ad Astra Per Aspera (Original Mix) (5:10)
-03. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)
-04. Tibetania, Summer Department - Sub Rosa (Original Mix) (5:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818121   (2599) от 15.09.2025
-
-Надежда Бабкина, Русская Песня - Модно-народно (2025) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ты воспой [00:03:30]
-02 - Чеботуха [00:03:58]
-03 - Через садик [00:03:52]
-04 - Во саду ли [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817763   (2595) от 15.09.2025
-
-Анна Пингина - Радость моя (2025) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Песня [00:03:17]
-02 - Высоко [00:04:41]
-03 - Мальчоночка [00:04:08]
-04 - Кукушка [00:03:41](   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818374   (2480) от 16.09.2025
-
-Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мировая сенсация виолончелист HAUSER выпускает свой новый альбом CINEMA - глубокую дань уважения самым незабываемым мелодиям из кинофильмов. С его несомненным артистизмом и страстью HAUSER вдыхает новую жизнь в самую культовую музыку кинематографа. Коллекция треков, записанная с престижным London Symphony Orchestra под управлением Robert Ziegler'а, охватывает десятилетия (   Читать дальше...   )01. Writing's On The Wall (from "Spectre") (4:31)
-02. Concerto pour la fin d'un amour (5:05)
-03. A Time for Us (Love Theme from "Romeo and Juliet") (3:41)
-04. Mission: Impossible (2:39)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, Easy ListeningПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818731   (2131) от 18.09.2025
-
-Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <Native American, World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice of the Midnight Howl [03:12]
-02. Path of the White Fang [03:25]
-03. Moonlit Ancestral Rite [04:16]
-04. Guardian of the Frozen Peaks [03:30](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
 ```
 
 https://mybot314.ru/tekegram_catalog/

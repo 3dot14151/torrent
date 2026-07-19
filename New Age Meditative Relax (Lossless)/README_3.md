@@ -1,3 +1,32 @@
+###  Публикация: 1093767   (932365) от 16.01.2017
+
+Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridrik Karlsson - Island er land pitt [00:05:38]
+02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
+03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
+04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093851   (932102) от 16.01.2017
 
 Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235773   (908437) от 20.03.2020
-
-VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omar Akram - Surrender     (06:43)
-02. Isaac Shepard - Before Dawn   (03:58)
-03. Robin Spielberg - Circle of Life   (04:10)
-04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

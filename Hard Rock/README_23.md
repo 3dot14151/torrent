@@ -1,3 +1,61 @@
+###  Публикация: 1415028   (381177) от 10.10.2020
+
+Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aces & Eights (04:52)
+ 02. Up All Night (06:35)
+ 03. Tell Me Woman (03:16)
+ 04. My Best Friend's Girl (07:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EF62C0D99F778FADB8DA11961755F57701BF13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641867   (379577) от 22.10.2015
+
+Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mable  02:34
+02. Wasn't Very Long  04:24
+03. Gabriel  02:20
+04. Cheated  03:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1D0C27D41642720BD233EBA88AE5B756F48AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253870   (379183) от 11.10.2018
 
 Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
@@ -690,66 +748,6 @@ White Widdow - 5 Альбомов (2010-2018) [MP3|320 кб/с]<Melodic Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E6F47150EE0450137FD53033575058B8C83255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576751   (360808) от 18.11.2012
-
-Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic Rock & Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireball (3:24)
-02. Dan (2:31)
-03. Black Knight (3:30)
-04. Palamatoon (3:27)
-05. Strange Kind of Woman (3:33)
-06. Hush (4:11)
-07. House Of The Rising Sun (3:11)
-08. Speed King (5:24)
-09. Corina (4:27)Жанр: Classic Rock & Hard RockПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA53C37C62A31518AAE57D31F715379BFE7E8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577081   (359936) от 18.11.2012
-
-VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock & Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock & Hard RockПродолжительность: 05:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96B7296C9D6502DEB6A128C324087F841DDE9DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1117633   (817047) от 23.03.2017
+
+Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817047.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nights in Black Satin (30:01)
+2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117638   (815347) от 24.03.2017
 
 Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
@@ -710,35 +737,6 @@ Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122959   (793425) от 06.04.2017
-
-Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hommage To Buddha Dhamma Sangha
-02. Perfecting the Ten Paramitas
-03. Calling The Lama
-04. Long Mantra Of Avalokiteshvara(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D302C3E60E80DED6BA4F24F88A2EDD80976C219
 ```
 
 https://mybot314.ru/tekegram_catalog/

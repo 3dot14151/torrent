@@ -1,3 +1,30 @@
+###  Публикация: 1354296   (989111) от 21.01.2020
+
+Scrutiny 9 v9.4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67FC63EE2E64F8CDEE14C73439C79166EDF9A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354252   (989108) от 21.01.2020
 
 Mono No Aware - Kataku (2005) Hands [FLAC|Lossless|tracks + .cue] <Rhythmic Noise, Industrial, Techno>
@@ -662,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690CD1460B23D78E73270CB15427CA1365FD3320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354192   (988987) от 21.01.2020
-
-Advanced Installer 16.7 RePack by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5434D0ACED23E034D8B9EA92B4AA44BE00BAB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

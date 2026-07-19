@@ -1,119 +1,3 @@
-###  Публикация: 1653450   (205452) от 16.08.2023
-
-Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky [9:01]
-02. Pint Size [12:24]
-03. Stella By Starlight [8:58]
-04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653543   (205436) от 16.08.2023
-
-Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Professor Longhair Boogie (Live At Casino Montreux 1986) (3:36)
-02. You Ain't Such A Much (Live At Casino Montreux 1986) (4:53)
-03. Sick And Tired (Live At Casino Montreux 1986) (3:31)
-04. Stack-a-Lee (Live At Casino Montreux 1986) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, BluesПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653664   (205384) от 17.08.2023
-
-Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Ray [3:49]
-02. Ill Wind (You're Blowin' Me No Good) [6:08]
-03. Watch What Happens [5:11]
-04. No Moon At All [4:15](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10803585708C876615938A8783DA97595BD7D80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654111   (205279) от 19.08.2023
-
-Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creme De Funk [5:14]
-02. Lazy Like [5:58]
-03. Nothing But Soul [6:50]
-04. A Night At St. Nicks [6:52](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE82B4F17A9696C802F695EFF59E73DD0A65B077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654505   (205137) от 21.08.2023
 
 Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
@@ -745,6 +629,121 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B0D58413E18020FD3E1EC500B7A65A46ED1B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657507   (192460) от 04.09.2023
+
+Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Parker's Last Supper [7:14]
+02. Hymn from the Inferno [12:03]
+03. What It Is [17:59]Жанр: Hard Bop, Post-BopПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3441770B435BFBEDE69E8EF0960CD9AA96DC4191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657616   (192456) от 04.09.2023
+
+Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighea [5:15]
+02. Never Before Never Again [4:12]
+03. Filigrane [5:20]
+04. What Is This Thing Called Love [5:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587734   (192398) от 01.11.2022
+
+Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192398.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Just You, Just Me [1:27]
+02. Don't Take Your Love from Me [3:03]
+03. I Guess I'll Have to Change My Plan [2:41](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 04:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90ADE174527A83E66EBA88422A8D639D8576ED88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587920   (192122) от 02.11.2022
+
+Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192122.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oh, What a Beautiful Mornin' [6:18]
+02. The Surrey With The Fringe On Top [2:52]
+03. Kansas City [2:58](   Читать дальше...   )Жанр: Easy Listening, Big Band, SwingПродолжительность: 04:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214BED981C3B7C5623024A6C571C7B1F0EF8D23D
 ```
 
 https://mybot314.ru/tekegram_catalog/

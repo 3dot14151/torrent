@@ -1,3 +1,29 @@
+###  Публикация: 543081   (495468) от 05.09.2012
+
+The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495468.jpg" />
+</div>
+
+
+###  Подробнее
+
+The AIX All Star Band: Pachelbel Canon Acoustica, выпущенный наЖанр: Baroque, Free jazz, Jam sessionПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936693   (494179) от 12.09.2015
 
 The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p]
@@ -710,32 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB5B8132028A2F80BEC6A9E69264A9589D4BCAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545892   (478211) от 13.09.2012
-
-Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linkin Park отыграли еще один свой концерт в рамках концертного тура "Honda Civic Tour" по Северной Америке — концерт в "Home Depot Center" в г. Карсон (округ Лос-Анджелес, штат Калифорния) 8 сентября (у нас с вами это было раннее утро сегодняшнего дня, 9.09). Этот концерт стал осебенным потому, что он полностью транслировался по американскому телеканалу AXS TV......Жанр: Alternative RockФормат: MKVПродолжительность: 01:32:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 453014   (76762) от 17.02.2012
+
+Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт  Марвина Ли Эдейла (англ. Marvin Lee Aday) , более известного под сценическим псевдонимом Мит Лоуф (англ. Meat Loaf), ,снятый в 2007 году в Ontario (Canada).
+Meat Loaf - американский рок-певец, кино- и театральный актёр. Получил широкую известность после выхода успешных альбомов Bat out of Hell и нескольких песен к кинофильмам, а так же весьма зрелищным клипамЖанр: RockПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450586   (76266) от 15.02.2012
 
 Paul Rodgers  - Live in Glasgow (2006) BDRip
@@ -705,35 +732,6 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353DC684206E2F57977147C6FF96B7F641AC7A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789770   (67931) от 12.04.2025
-
-Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
-02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
-03. Tritonal - Sky nights (David Forbes rmx)
-04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
 ```
 
 https://mybot314.ru/tekegram_catalog/

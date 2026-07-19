@@ -1,55 +1,25 @@
-###  Публикация: 1152990   (203599) от 24.01.2023
+###  Публикация: 1549737   (193512) от 01.09.2023
 
-The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Venus
-A2 Shocking You
-A3 Send Me A Postcard
-A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567596   (203562) от 25.01.2023
-
-Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks + .cue] <Alternative rock, progressive metal>
+Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Muse — британская рок-группа, образованная в 1994 году в городе Тинмут (графство Девон).
-Группа состоит из трёх участников: Мэттью Беллами (вокал, гитара, клавиши), Криса Уолстенхолма (бас-гитара, бэк-вокал, вокал) и Доминика Ховарда (ударные).1999 - Showbiz
-2001 - Origin Of Symmetry
-2003 - Absolution
-2006 - Black Holes And Revelations(   Читать дальше...   )Жанр: Alternative rock, progressive metalПродолжительность: 10:00:18
+Dee Snider — американский рок-музыкант. Наибольшую известность получил как вокалист и фронтмен глэм-метал группы «Twisted Sister». Также известен как радиоведущий, актёр, сценарист, композитор, писатель.2000 - Never Let The Bastards Wear You Down
+2012 - Dee Does Broadway
+2016 - We Are The Ones
+2018 - For The Love Of MetalЖанр: Heavy Metal/Hard RockПродолжительность: 09:18:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
+magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656257   (203527) от 29.08.2023
+###  Публикация: 1828332   (193427) от 24.10.2025
 
-Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Legion of the Damned — голландская трэш-метал/дэт-метал группа. Была основана в 1992 году как Occult, в 2005 году сменила название на Legion of the Damned.2005 - Malevolent Rapture - In Memory Of
-2007 - Sons Of The Jackal
-2008 - Feel The Blade
-2008 - Cult Of The DeadЖанр: Death/Thrash MetalПродолжительность: 09:12:53
+Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
+1994 - Vittrad
+1996 - Guds speleman
+1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
+magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656345   (203370) от 30.08.2023
+###  Публикация: 1586896   (193257) от 29.10.2022
 
-Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Heavy Waters
-A2 House Of The End Of The Road
-A3 Get That Beat
-A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
+01. «Здравствуй, Песня» - Птица Счастья
+02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
+03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
+04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
+magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,27 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656497   (203349) от 30.08.2023
+###  Публикация: 1587012   (193218) от 29.10.2022
 
-Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Classical/Orchestral/Symphonic Metal>
+Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Haggard — немецкий музыкальный проект, исполняющий симфонический метал. Основан в 1989 году гитаристом, вокалистом и композитором Азизом Нассери, который является автором всей музыки и текстов Haggard. Группа фактически представляет собой оркестр, состоящий из множества музыкантов, играющих на разных инструментах, характерных как для рока, так и для классической (   Читать дальше...   )2000 - Awaking the Centuries
-2004 - Eppur Si Muove
-2008 - Tales of IthiriaЖанр: Classical/Orchestral/Symphonic MetalПродолжительность: 02:28:21
+Tiamat — шведская группа. Существует с 1989 года, её основатель, вокалист, ритм-гитарист и автор песен Юхан Эдлунд остаётся её единственным постоянным участником. На ранних альбомах Tiamat исполняли дум/дэт-метал с гроулингом, но начиная с альбома Wildhoney 1994 года группа постепенно перешла к прославившему её более мелодичному жанру готик-метал с влиянием психоделического (   Читать дальше...   )1990 - Sumerian Cry
+1991 - The Astral Sleep
+1992 - Clouds
+1994 - WildhoneyЖанр: Death/Doom Metal; Gothic MetalПродолжительность: 11:01:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
+magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656552   (203173) от 31.08.2023
+###  Публикация: 1586584   (193169) от 29.10.2022
 
-Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Ричарда (1977) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
+Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip)]<Art Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Как Только Ты Ушла • The Minute You're Gone
-A2 Честное Слово • On My Word
-A3 Когда Тебя Нет Со Мной • The Time In Between
-A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:04
+01. Eldorado Overture (2:13)
+ 02. Can’t Get It Out of My Head (4:21)
+ 03. Boy Blue (5:19)
+ 04. Laredo Tornado (5:29)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:39:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
+magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656575   (203055) от 31.08.2023
+###  Публикация: 1657185   (193142) от 02.09.2023
 
-Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
+Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Sturmvogel
-A2 Perlenfischer
-A3 Sterne Verspaten Sich Nie
-B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:20:03
+A1 Battlefield
+A2 South Cross Union
+A3 Prayers Of Steel
+A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:42:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
+magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,31 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510172   (202566) от 19.02.2023
+###  Публикация: 1657087   (193139) от 02.09.2023
 
-Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Folk Rock, Blues Rock>
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side One:
-01. Lay, Lady, Lay
-02. Baby, Let Me Follow You Down
-03. If Not For You(   Читать дальше...   )Side One:
-01. Romance In Durango (Live)
-02. Señor (Tales Of Yankee Power)
-03. Gotta Serve Somebody(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues RockПродолжительность: 03:28:31
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,90 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614917   (202370) от 23.02.2023
+###  Публикация: 1313506   (193138) от 29.10.2022
 
-Демонстрационный диск DTS 5.1 CD-Audio #13 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202370.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вот и тринадцатый...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Avicii - Wake Me Up 04:32
-02. Depeche Mode - Leave In Silence 04:47
-03. Genesis - No Son Of Mine 06:37
-04. Britney Spears - Till The World Ends 03:57(   Читать дальше...   )Продолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977F3BA82A08F8B6E33D38DAE216E03AAB36A4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613599   (202261) от 25.02.2023
-
-Демонстрационный диск DTS 5.1 CD-Audio #12 (2023) [DTS 5.1 CD-DA| 44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и двенадцатый диск поспел...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Agnes - Release Me
-02. Lichtmond - Catching Rainbows
-03. Fun - Some Nights
-04. Katy Perry - Wide Awake(   Читать дальше...   )Продолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 25.10.2025
-
-Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
+Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-The Gate (2:05)
-02-Push The Limits (6:35)
-03-Gravity Of Love (4:02)
-04-Smell Of Desire (4:49)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age, DowntempoПродолжительность: 02:54:56
+Side A:
+A1 Whole Lotta Shakin' Goin' On
+A2 Great Balls Of Fire
+A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
+magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617270   (201677) от 07.03.2023
+###  Публикация: 1657298   (193101) от 02.09.2023
 
-Оркестр Поля Мориа - Бабье Лето (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening>
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Бразильский Карнавал · Brasilia Carnaval
-A2 Бабье Лето · L'ete Indien «Africa»
-A3 Мелиза · Melisa
-A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:35:56
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,88 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617851   (201632) от 08.03.2023
+###  Публикация: 1657365   (192771) от 03.09.2023
 
-The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Electronic, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May Be A Price To Pay
-02. Games People Play
-03. Time
-04. I Don't Wanna Go Home(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4595EF428B892223CE732B06255B6FA38F2F7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617718   (201610) от 08.03.2023
-
-Johann Sebastian Bach, Akiko Suwanai - The Sonatas And Partitas For Violin Solo (2022) Japanese Edition, 2 x SACD [DSD64(DST64) 2.0, 5.0|2822,4/1|SACD-R] <Classical, baroque>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1:
-Sonata No.1 In G Minor, BWV 1001
-1-1 I. Adagio
-1-2 II. Fuga. Allegro(   Читать дальше...   )Жанр: Classical, baroqueПродолжительность: 02:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3945962A1B79D961702C882FE79566827987774E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599189   (201512) от 09.03.2023
-
-In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
+Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-In Flames — шведская музыкальная группа, играющая в жанре мелодичный дэт-метал.
-Группа была основана в 1990 году ударником и гитаристом Йеспером Стрёмбладом как сайд-проект его основной группы Ceremonial Oath.
-В 1993 году Стрёмблад покинул группу и сосредоточился на In Flames. К нему присоединились гитарист Гленн Люнгстрём и басист Йохан Ларссен, сформировав первый (   Читать дальше...   )1994 - Lunar Strain + Subterranean (EP)
-1996 - The Jester Race
-1997 - Whoracle
-1999 - ColonyЖанр: Melodic Death Metal, Melodic Groove Metal/MetalcoreПродолжительность: 13:14:24
+A1 With A Song In My Heart
+A2 MacNamara's Band
+A3 Keep Right On To The End Of The Road
+A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
+magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172695   (201399) от 11.03.2023
+###  Публикация: 1657320   (192745) от 03.09.2023
 
-VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Chanson>
+Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Таня Тишинская - Золотая ручка
-02. Иван Кучин - Жиганская душа
-03. Слава Исетский мл. - От бухты Цемесской... (Сон жигана)
-04. Михаил Круг - Ярославская(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:53
+01 - Cleansed By Fire (10:37)
+02 - Scapegoat (07:11)
+03 - The Devil's Bride (06:08)
+04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
+magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,54 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622796   (200557) от 30.03.2023
+###  Публикация: 1657591   (192447) от 04.09.2023
 
-Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Special Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Run
-Lead Vocals - Don Henley / Organ - Don Felder
-Slide Guitar - Joe Walsh / Written-By - Don Henley, Glenn Frey
-02. I Can't Tell You Why(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8C9E13A0AE6F446FA87FD7EEE5C5C065CE956B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623371   (200488) от 02.04.2023
-
-Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: SoundtrackПродолжительность: 00:37:08
+A1 I Will Follow
+A2 Tell Me A Story
+A3 Talking 'Bout A Feeling
+A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
+magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,28 +346,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624200   (200378) от 04.04.2023
+###  Публикация: 1657623   (192302) от 05.09.2023
 
-Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
+Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemist [00:08:38]
+02. Awaken [00:04:34]
+03. Vows of Lies [00:04:03]
+04. Through the Mirror [00:04:33](   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657722   (192270) от 05.09.2023
+
+Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 I Wanna Hear Your Heartbeat (Sunday Girl) 3:50
-A2 Mon Amie 4:35
-A3 One Night In Heaven 4:45
-A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:44:43
+A1 Валотт • Valotte
+A2 С Тобой Все В Порядке • O.K. For You
+A3 По Телефону • On The Phone
+A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
+magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624989   (200228) от 08.04.2023
+###  Публикация: 1587769   (192096) от 02.11.2022
 
-Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaughan • P. Lee and Many More (2022) Unofficial Release [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Pop, Soul, Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1		In The Heat Of The Night	5:20
-A2		On The Tray (Seven Years)	3:45
-A3		Little Girl	3:11
-A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
+01. Carmen McRae - Blue Moon
+Blue Moon
+1956 - Polygram - Rodgers/Hart
+02. Rosemary Clooney - You Started Something(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 01:29:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
+magnet:?xt=urn:btih:53055E9F1D693BEBDE63303FB266FADFAEB68DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,57 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626106   (199996) от 13.04.2023
+###  Публикация: 1151821   (191974) от 02.11.2022
 
-Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199996.jpg" />
-</div>
-
-
-###  Подробнее
-
-～ Concerto No.1 in E major, Op.8, RV269 ～ Spring ～
-01. “Alleglo”
-02. 2nd Movemnet “Largo e Pianissimo”
-03. 3rd Movement “Alleglo Pastorale”(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05296AF3E2EE1AFC45FA2F288B800C9735475D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626371   (199887) от 14.04.2023
-
-Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient, Experimental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Blackout
-A2. Can't Live Without You
-A3. No One Like You
-A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:52
+A1 Catscan
+A2 I'm Gonna Be Strong
+A3 Love You To
+A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
+magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557543   (199804) от 14.04.2023
+###  Публикация: 1657941   (191913) от 06.09.2023
 
-Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash/Groove Metal>
+Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Overkill — американская трэш-метал-группа, основанная в 1980 году в Нью-Джерси. Состав группы претерпел неоднократные изменения, и единственными неизменными участниками Overkill с момента основания являются вокалист Бобби «Blitz» Эллсворт и басист Д. Д. Верни. У группы есть талисман по имени Чали, который нарисован на большинстве обложек их альбомов — череп с костлявыми (   Читать дальше...   )1993 - I Hear Black
-1994 - W.F.O.
-1996 - The Killing Kind
-1997 - From The Underground And Below(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 18:09:46
+Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
+1995 - LP2
+1998 - How It Feels To Be Something On
+2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
+magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626997   (199696) от 16.04.2023
+###  Публикация: 1658413   (191324) от 08.09.2023
 
-Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Hard Rock, Prog Rock>
+Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal, Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bird Of Prey
-02. Time To Live
-03. Look At Yourself
-04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:34:15
+01. Deadwood (4:25)
+02. A Sign of Things to Come (4:35)
+03. Pariahs (3:47)
+04. Poison for the Lost (4:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash Metal, Progressive MetalПродолжительность: 00:43:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
+magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,57 +520,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627881   (199581) от 20.04.2023
+###  Публикация: 1658450   (191320) от 08.09.2023
 
-Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Innuendo
-A2 I'm Going Slightly Mad
-A3 Headlong
-A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628375   (199452) от 23.04.2023
-
-Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Говорите тише (Н. Рота)
-02 Пассажир под дождем (Ф. Лэй)
-03 Мужчина и женщина (Ф. Лэй)
-04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
+A1 Suzy Was Her Name
+A2 The More I Gave You
+A3 You Are Love K
+A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
+magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658519   (191318) от 08.09.2023
+
+Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes And Zeros [00:04:18]
+02. Killers [00:04:16]
+03. Battlelines [00:04:20]
+04. Love To Hate You [00:04:32](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3BC4B6498F8A257742894B2B624E47743A252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658445   (191300) от 08.09.2023
+
+The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Roses from the South (Gilbert and Sullivan)
+A2 Blue Danube Band (Johann Straus)
+A3 Ave Maria Band (Gounod)
+A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658504   (191294) от 08.09.2023
+
+Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
+A2 Siboney/Maria-La-O
+A3 Ay Mama Ines (Mama Ines)/Carioca
+A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658510   (191222) от 08.09.2023
+
+The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|tracks] <Big Beat, IDM, Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Live Again [00:05:09]
+03. No Reason [00:04:52]
+04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, IDM, ElectropopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CDD7FB0336E06AC4EB91D18142BE4C84EC1015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012354   (191028) от 06.11.2022
+
+Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Nights
+02. Got To Get You Into My Life
+03. Rain
+04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658410   (190972) от 09.09.2023
+
+OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wem die Stunde schlägt [00:05:04]
+02. Richter und Henker [00:04:37]
+03. Soll das Liebe sein? [00:04:11]
+04. Nur ein Mensch [00:04:14](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658727   (190968) от 09.09.2023
+
+Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Remember
+A2 Drivin' Drivin'
+A3 U Can't Stand It
+A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

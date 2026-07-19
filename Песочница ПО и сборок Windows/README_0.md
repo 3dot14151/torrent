@@ -1,3 +1,32 @@
+###  Публикация: 1829975   (202444) от 26.10.2025
+
+Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов от MSDN.
+ru_windows_7_home_basic_with_sp1_x86_dvd_620780.iso
+ru_windows_7_home_premium_with_sp1_x64_dvd_621577.iso
+ru_windows_7_professional_with_sp1_x64_dvd_621772.iso(   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A896C1986D67CE147E7E4C85C6163B47DD505EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830054   (202385) от 26.10.2025
 
 Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
@@ -73,35 +102,6 @@ BananaUpdateBlocker - программный продукт от BananaBrain, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5A24428F813EBA369A64C1CAFD0BEED790E682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827088   (186110) от 21.10.2025
-
-Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru.iso
-windows11_business_editions_version_24h2_updated_sep_2025_64_dvd_e1e7fc35.iso
-windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1301807   (584294) от 12.05.2019
-
-Felicia Atkinson - Hand In Hand (2017) Shelter Press [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Spoken Word>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Following You (03:46)
- 02. Valis (06:42)
- 03. Curious In Epidavros (03:07)
- 04. Adaptation Assez Facile (03:49)(   Читать дальше...   )Жанр: Ambient, Experimental, Spoken WordПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCF112F22A4E3E80553CBDE2D72BE10F716C5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302187   (582259) от 14.05.2019
 
 Chronos - Friendology Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
@@ -741,6 +712,35 @@ Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8266F1A353985BAA171AA17BD5CD158FBBA8EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238271   (547117) от 29.07.2018
+
+Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowy Night Tale (05:34)
+ 02. Fog (04:25)
+ 03. It's Magical (04:24)
+ 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

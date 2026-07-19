@@ -1,3 +1,119 @@
+###  Публикация: 1574738   (381659) от 07.09.2022
+
+Mirror To The Moon - Fluorescent Glow (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Boxes (00:04:20)
+02 - Wit's End (00:04:29)
+03 - Son of Ammitai (00:04:07)
+04 - Astray (00:05:13)(   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CF9C36BFBB22CED24D8C44D7678D0CDF688F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574731   (381648) от 07.09.2022
+
+Flight Paths - American Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paper Tiger
+2. Breaking Free
+3. Shadow of Ourselves
+4. Back to Life(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915838519C418D660079B4ACADCFF6827B801804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414746   (381591) от 10.10.2020
+
+Motionless In White - Creatures (2010) Deluxe Edition, Remaster, 2020, Fearless Records [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immaculate Misconception [00:03:54]
+02. We Only Come Out At Night [00:03:23]
+03. London In Terror [00:03:41]
+04. Abigail [00:02:52](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Industrial MetalПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F32B2C489D3D899997F213A79CF2DE3D5EC4BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175021   (381257) от 17.10.2017
+
+Plunk Tone - Комплекс Мессии (2009) [FLAC|Lossless|tracks + .cue] <Alternative, Metalcore, Chaotic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (03:44)
+02. Комплекс Мессии (04:05)
+03. Утка Ищет Вулкан (07:38)
+04. Реалити=Шоу (03:47)(   Читать дальше...   )Жанр: Alternative, Metalcore, ChaoticПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8AEAD410D9DD6992EFCA063CB565C5BE4D63F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326987   (381084) от 22.09.2019
 
 Metronomy - Metronomy Forever (2019) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic, Synth-pop>
@@ -632,122 +748,6 @@ Chastity Belt - Chastity Belt (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F3C81F6B4A5313DEE1CE6D88DB6D668F0E846F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327360   (376613) от 24.09.2019
-
-The New Pornographers - In the Morse Code of Brake Lights (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Need a New Backseat Driver (04:14)
-02. The Surprise Knock (03:11)
-03. Falling down the Stairs of Your Smile (03:44)
-04. Colossus of Rhodes (04:03)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECB87A335107EA087B3CC880B9E29B0B865B14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575502   (375402) от 10.09.2022
-
-Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (3:02)
-02. Reckoning (3:58)
-03. Valhalla (3:22)
-04. Freight Train (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01AC7CDCAF23C827C21E20B350AC38C4F681537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327395   (374621) от 25.09.2019
-
-Moon Loves Honey - Bubbleburst (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Only In My Dreams (04:23)
-02. Every Night And Day (05:13)
-03. Oceanbird (04:07)
-04. Aflutter (01:58)(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7420398F3B36DA0FBC2A55DD03C89B35207134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415619   (374193) от 13.10.2020
-
-XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun Times with a Chainsaw [00:03:06]
-02. The Blood on the Wall [00:04:12]
-03. Sin / Feast of Souls [00:03:19]
-04.Жанр: Nu-MetalПродолжительность: 3 CD, 02:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749892471601361FE536B1465AA67D1285482F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

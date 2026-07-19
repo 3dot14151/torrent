@@ -1,3 +1,148 @@
+###  Публикация: 1622627   (1030051) от 29.03.2023
+
+Senshi - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Reggae Metal, Rap Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall [00:01:47]
+02. Rise Again (feat. Yuzu Natsumi) [00:03:26]
+03. Evil In Dem Eyes (feat. Bushi) [00:03:06]
+04. Chaos In My Soul (feat. Big Chocolate) [00:03:33](   Читать дальше...   )Жанр: Rapcore, Reggae Metal, Rap RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C89312356C1A0A340CB1037FDDCB6D0A4E6E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450486   (1029066) от 26.02.2021
+
+The Scarlet Letter - Friss Oder Stirb (1990) [FLAC|Lossless|image + .cue] <Gothic Rock,  New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friss Oder Stirb. (02:46)
+02. Tanz Der Vampire. (03:14)
+03. In Memoriam. (04:32)
+04. Nachtfrost. (03:28)(   Читать дальше...   )Жанр: Gothic Rock,  New WaveПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE43CB78185ED5B06956FD7FB379CB7213C6537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450310   (1029036) от 26.02.2021
+
+Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Dream Of Armageddon? [00:01:38]
+02. Black Lungs [00:03:51]
+03. Giving Blood [00:03:32]
+04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DBB809115B942647F1B02AB2D8C680C1ECF8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450332   (1029024) от 26.02.2021
+
+Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hand of God [00:05:16]
+02. Old Time [00:05:16]
+03. Carnage [00:04:47]
+04. White Elephant [00:06:08](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98443B75E60FA8CA7AF1D6BD0F3E899154FB7EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452522   (1027779) от 06.03.2021
+
+Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves (5:30)
+02. In The Den (6:45)
+03. Desert Rambler (9:01)
+04. Step Into You (4:04)(   Читать дальше...   )Производство: Earth Analog Records – EAR-005Жанр: Space Rock, Post Rock, Shoegaze, Post MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453195   (1027241) от 09.03.2021
 
 Black Country, New Road - For The First Time (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post Rock, Experimental Rock, Post Punk>
@@ -599,148 +744,6 @@ Guano Apes - Walking On A Thin Line (2003) [FLAC|Lossless|tracks + .cue] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809E48ADB86A1270CF048172A9F42EF3FDF96A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462464   (1021034) от 15.04.2021
-
-Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (2:30)
-02. Hanoi (2:08)
-03. Maria (3:11)
-04. Diokhan (2:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B81493C35360189B4C692F1F8696EBEE544E780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462910   (1020802) от 16.04.2021
-
-The Offspring - Let The Bad Times Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Is Not Utopia
-2. Let The Bad Times Roll
-3. Behind Your Walls
-4. Army Of One(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFC8661034B0209324975BFF363E89AE1B57707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463052   (1020643) от 17.04.2021
-
-The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness [03:12]
-02. Bullet [04:09]
-03. Chill [04:13]
-04. F-F-F-Falling [03:52](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B850AAD2C77EFB15B8B0A2CD4B5A1DE35549AD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463046   (1020460) от 18.04.2021
-
-Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artifact/The Turn (2:27)
-02. Broken Pieces Shine (3:50)
-03. The Game Is Over (4:22)
-04. Yeah Right (3:29)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464329   (1019798) от 22.04.2021
-
-Guano Apes - Planet Of The Apes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 02:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D485419D5D189BB140978B3A96DD4D6B6B9083C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

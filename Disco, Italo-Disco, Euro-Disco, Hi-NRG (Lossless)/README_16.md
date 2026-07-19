@@ -1,3 +1,107 @@
+###  Публикация: 542020   (499169) от 02.09.2012
+
+Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Rain (5:55)
+02. Primitive Man (5:25)
+03. A Smile At Dawn (4:38)
+04. Two Cups Of Coffee (3:56)
+05. Voyage Of No Return (5:51)
+06. Coconut Rain (4:30)
+07. Fortune Teller (5:30)
+08. Contigo (4:29)
+09. Spring Rain (Radio Edit) (3:01)Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542305   (499115) от 02.09.2012
+
+VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glitter Band - Makes You Blind (Re-edit) [06:00]
+02. The Players Association - Turn The Music Up! [06:54]
+03. Bombers - (Everybody) Get Dancin' [09:29]
+04. Grey & Hanks - Dancin' [07:07]
+05. Change - It Burns Me Up [05:07]
+06. Glen Adams Affair - Just A Groove [06:20]
+07. Cerrone - Look For Love [10:17]
+08. Companion - Livin' Up To Love [09:11]
+09. Don Ray - Got To Have Loving [08:20]
+10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542313   (499108) от 02.09.2012
+
+VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaz Nevada - I.C. Love Affair [06:30]
+02. Advance - Take Me To The Top [06:18]
+03. Change - Change Of Heart [07:06]
+04. Kano - I'm Ready [07:15]
+05. Laura Branigan - Self Control [05:01]
+06. Eighth Wonder - I'm Not Scared (Disco Mix) [08:00]
+07. Propaganda - P Machinery (Polish) [09:24]
+08. Mike Maureen - Dancing In The Dark [05:36]
+09. Fun Fun - Happy Station ( Scratch Mix) [05:57]
+10. Time Bandits - Live It Up (Album Version) [07:26](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542075   (499053) от 02.09.2012
 
 VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
@@ -689,93 +793,6 @@ Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C29C21A15BAE1B549EDFD75B358102EC1623387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248224   (473718) от 15.09.2012
-
-Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Someone Is Waiting For You
-04. Buggy Boy(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:14:06 + 01:10:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406579   (472768) от 04.09.2020
-
-Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
-02. Linda Jo Rizzo - Paradise Island Amor (03:08)
-03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
-04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurodanceПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245734   (469886) от 07.09.2018
-
-VA - Hustle! Reggae Disco: Kingston-London-New York (2002) 2017, Reissue [FLAC|Lossless|tracks + .cue] <Reggae, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Sisters - Ring My Bell (07:58)
-02. Derrick Laro and Trinity - Don’t Stop Til You Get Enough (07:29)
-03. Chariot Riders - Do It Nice & Easy (04:03)
-04. Black Harmony - Don’t Let It Go to Your Head (07:19)(   Читать дальше...   )Жанр: Reggae, DiscoПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0300FF9D2BBF42B1D62B8D494CBF199C7FB5A68
 ```
 
 https://mybot314.ru/tekegram_catalog/

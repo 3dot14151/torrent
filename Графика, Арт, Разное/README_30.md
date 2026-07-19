@@ -1,29 +1,3 @@
-###  Публикация: 995166   (886449) от 10.03.2016
-
-Картинки - Милые щеночки. 4535x2550 - 5184x2916 - 15 шт [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Щенячья фотосессия, новейший материал.Формат: JPGРазрешение файлов: 4535x2550 - 5184x2916
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3E5CB9B8E8032474B53E3A294C6D1C8CBCC5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640395   (886363) от 07.04.2013
 
 Wallpapers - Mixed HD Wallpapers Pack
@@ -673,6 +647,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B465F86435BC19476B0BA2F8E84A3DC9C95FBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996369   (880640) от 13.03.2016
+
+Обои - LIFEstyle News MiXture Images. Wallpapers Part 930-932 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски из серии 930-932.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFF742944A52744CACAE8B1FAAF243D5EF0EF56
 ```
 
 https://mybot314.ru/tekegram_catalog/

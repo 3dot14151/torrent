@@ -1,3 +1,55 @@
+###  Публикация: 1801263   (15165) от 09.06.2025
+
+Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ивaтaни Haoфyми вмecтe c тpeмя дpyгими людьми пpизвaн в пapaллeльный миp, чтoбы cтaть eгo Гepoeм. Пoлyчив в pyки лeгeндapный щит, oн oтпpaвляeтcя в пyтeшecтвиe, нo нe имeя ни oпытa, ни xapизмы, ocтaётcя лишь c oднoй пpeкpacнoй cпyтницeй, кoтopaя пpeдaёт eгo нa тpeтий дeнь. B peзyльтaтe Ивaтaни oкaзывaeтcя oгpaблeнным и oбвинённым в изнacилoвaнии, cильныe миpa ceгo (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Хага ХитосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37981ABB2248A8ECA323E8F429996738DD53E535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801218   (15164) от 09.06.2025
+
+Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store | Консьерж универмага Арктика [2023, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акино - новый консьерж в универмаге "Арктика", где все покупатели - животные. В этот необычный универмаг, где продавцы - люди, а покупатели - животные, и даже вымершие звери приходят, чтобы проконсультироваться о предметах, которые они ищут, или о проблемах, которые у них возникли. Акино тактично и с улыбкой решает проблемы покупателей, а её отзывчивость (   Читать дальше...   )Производство: Production I.G / プロダクション・アイジーЖанр: фэнтези, комедияРежиссер: Итадзу ЁсимиПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB065E5D480D01FD36883723D4BF75BC747014A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801274   (15161) от 09.06.2025
 
 Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evil Lieutenant Used to Be Archenemies | Волшебница и злой офицер [2024, TV, 12 эп.] BDRip 1080p raw

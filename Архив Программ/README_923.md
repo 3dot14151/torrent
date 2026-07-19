@@ -1,3 +1,29 @@
+###  Публикация: 1552477   (586685) от 21.05.2022
+
+Ant Download Manager Pro 2.7.1 Build 81264 RePack (& Portable) by xetrin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ant Download Manager - отличный менеджер загрузки самых разнообразных файлов из интернета, который значительно упростит скачивание изображений, видео, музыки, программ, документов и др. данных с любого ресурса. Это приложение хорошо интегрируется со всеми популярными браузерами: Google Chrome и клоны на основе его движка (Яндекс.Браузер, Opera, Slimjet и др.), Mozilla (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EB077A01CE864609584C111F32462C847F11DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918490   (586671) от 15.07.2015
 
 AIMP 3.60 Build 1497 Final + Portable [Multi/Ru]
@@ -645,32 +671,6 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC464F54EA8444D246A3F21A29BC25F2E33BACAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357926   (586137) от 02.07.2011
-
-Avast! Free Antivirus v6.0.1198 Beta [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

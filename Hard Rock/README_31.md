@@ -1,3 +1,322 @@
+###  Публикация: 1428680   (179282) от 03.12.2020
+
+Sainted Sinners - Unlocked & Reloaded (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same Ol' Song (04:52)
+ 02. Standing on Top (04:47)
+ 03. Early Light of Day (04:27)
+ 04. 40 Years (03:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2333DE231BB596B711CABDD026EB0426F6EF3CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428738   (178399) от 04.12.2020
+
+MNP - Feel the Pain (2020) [MP3|320 Kbps] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letting Go (04:54)
+ 02. Pretending (03:50)
+ 03. Never Surrender (04:52)
+ 04. Addicted (04:04)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E265BA1A70D1F7650FAC5C064E1DFA36A3E25EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428821   (178356) от 04.12.2020
+
+Unruly Child - Our Glass House (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison Ivy (05:59)
+ 02. Say What You Want (04:50)
+ 03. Glass House (06:00)
+ 04. Everyone Loves You When You're Dead (04:48)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6430F6098653F89CCAEA36F7DCA358D0CFC949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593731   (178119) от 01.12.2022
+
+Hashishian - Hashishian (2022) [MP3|320 Kbps] <Psych, Doom, Stoner, Desert>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Onward
+02 Let Us Reason
+03 Mountain of Smoke
+04 Shai Hulud(   Читать дальше...   )Жанр: Psych, Doom, Stoner, DesertПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14522CEB6C3AB61CAD70A08C1BF6D3CDF2ED831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594128   (178023) от 01.12.2022
+
+Black Rain - Untamed (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untamed
+02. Kiss The Sky
+03. Dawn Of Hell
+04. All The Darkness(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5581013CBCA808237D10AEBAF3347F91E03C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594315   (178010) от 01.12.2022
+
+Ancient Machine - Distance Between Us (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Run (04:00)
+02. Mask Of Fate (04:00)
+03. Separate Ways (04:45)
+04. Distance Between Us (04:20)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9DA9ADD4A5E0CC1DFF1E291CD0478D9318C1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667190   (177481) от 07.10.2023
+
+Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Romeo Delight [00:04:13]
+02 - Unchained [00:03:33]
+03 - The Full Bug [00:03:44]
+04 - Runnin' With The Devil [00:03:15](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB36C4A8223BBFFF7116AF9A84F599E08FBC6B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667187   (177402) от 07.10.2023
+
+Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Over The Rainbow Intro [00:01:23]
+02 - Kill The King [00:05:08]
+03 - Mistreated [00:13:00]
+04 - 16th Century Greensleeves [00:09:05](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF68D6C52EC844AA5AA014F7A151850BE133508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595530   (175105) от 06.12.2022
+
+The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 - Mustard
+2011 - The Swedish Teaser
+2013 - Bolshevik Firecrackers(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 4 CD, 02:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD3D6CE2509EF2194F8DD6F83F203ABB8507810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596704   (169219) от 11.12.2022
+
+Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Amanesh
+2020 - Paradigm Shift
+2020 - Ψ(   Читать дальше...   )Жанр: Psych, Doom, StonerПродолжительность: 5 CD, 04:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C11E3CE3719D1A0C4B5F1DCD7216F160A46B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672531   (169218) от 28.10.2023
+
+Thunder - The Thrill of It All (1996) Expanded, 2019, Sanctuary Records [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pilot Of My Dreams [00:04:31]
+02 - Living For Today [00:04:04]
+03 - Love Worth Dying For [00:04:03]
+04 - Don't Wait Up [00:04:03](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAE8F7F6E12880592C642F8D4CB86CA4B5618A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597113   (167670) от 13.12.2022
 
 ZOAHR - Apraxia (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy>
@@ -426,343 +745,6 @@ Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347108   (154062) от 22.12.2019
-
-Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - Obsession(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4B7C8421DFE34110D54FE62F472F64097E0C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434178   (153522) от 23.12.2020
-
-Autumn's Child - Angel's Gate (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Angels Cry
-02. Aquarius Sky
-03. Don’t Say It’s Love
-04. A Tear From The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27308700829081DD1E6B85798CFF510EF715901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968630   (153405) от 24.12.2015
-
-Last Autumn’s Dream - Paintings (2015) Japanese Edition [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mistake To Make
-02. Bring Out The Heroes
-03. Out Of Love
-04. Too Late(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C99095FA5249BE12F2163E9E518E34BE3A75FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589013   (152986) от 14.12.2012
-
-D'Ercole - Dreams Of The Heart (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Only Child (5:06)
-02.  Givin' It All to You (4:55)
-03.  Dreams of the Heart (3:41)
-04.  I'll Be There for You (4:58)
-05.  She Ain't No Good (5:03)
-06.  You Keep Me Waiting (3:38)
-07.  Too Little Too Late (4:20)
-08.  Lies (4:07)
-09.  A Million Miles (4:26)
-10.  Hurt Me for the Last Time (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC75199032E280A042915D6A1A6EC84A00BDA2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347346   (152343) от 23.12.2019
-
-Black Rose - Fortune Favours The Brave (1993) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Broken Saviours
-1999 - Age Of Innocence
-2000 - Live2KЖанр: Hard RockПродолжительность: 04:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226ED12BD11F3BD426E33AC852930953A6207711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518999   (151030) от 22.12.2021
-
-Ulrich Ellison - Power Of Soul (2021) A Tribute to Jimi Hendrix [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spanish Castle Magic (03:07)
- 02. I Don't Live Today (04:03)
- 03. Power Of Soul (08:02)
- 04. Angel (07:17)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D788E014351380C30877102571309A761349DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589243   (149232) от 15.12.2012
-
-Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back From The Dead (4:17)
-02.  Own Worst Enemy (3:22)
-03.  Another Version Of The Truth (3:25)
-04.  The One That You Hated (3:06)
-05.  Good To Be Bad (3:19)
-06.  Just Don't Ask (4:50)
-07.  Blown Away (3:06)
-08.  Waterfall (3:55)
-09.  Habit (3:23)
-10.  Your Diamonds (4:08)(   Читать дальше...   )Жанр: Hard Rock / GlamПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4973FD644B4FB0CA6D81F4B1CC7820F48683A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677780   (149078) от 19.11.2023
-
-The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Wire [05:56]
-02. Shoot to Thrill [05:31]
-03. Givin' the Dog a Bone [03:59]
-04. Intro [00:43](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588890   (148866) от 15.12.2012
-
-Shakra - Power Ride (2001) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Ride (Intro)
-02. Why Don't You Call Me
-03. Watching You
-04. The Sun Will Shine
-05. Out In The Rain
-06. In Your Eyes
-07. Get It All Out
-08. A Dollar Too Much
-09. She's My Pride
-10. Tell Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8A110926EAE18F88C18722BAB1ACAB28CF15BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271773   (148711) от 24.12.2018
-
-Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye of the Hurricane
-02. Evil
-03. Pain
-04. Have to Let You Go(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947CD0D8AD044E2146BF8B82E4CB9359A5AA8FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969338   (146652) от 27.12.2015
-
-AC/DC - Bon Scott Hits (2015) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'n' Roll Damnation
-02. Touch Too Much
-03. Rock 'n' Roll Singer
-04. Jailbreak(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B666C7494CD4446714091CB3CCC0E97480BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

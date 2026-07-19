@@ -1,32 +1,3 @@
-###  Публикация: 1411699   (425572) от 26.09.2020
-
-Lingua Lustra - Concentric (2020) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. String Of Lights (07:29)
-02. Emergence (04:11)
-03. Can't Sleep (04:01)
-04. Concentric I (10:56)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090BC17894A5FB120BDC4A4BF69501F6C0B843BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411837   (425389) от 26.09.2020
 
 Jean-Michel Jarre - Oxygene (2014) Reissue, Remastered | Disques Dreyfus [FLAC|Lossless|tracks+.cue] <Ambient, Synthwave>
@@ -731,6 +702,32 @@ Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C49662489469785E590145AB61D76FB41AEDF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252945   (388031) от 07.10.2018
+
+A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Klangendum (46:21)Жанр: Ambient, Techno Ambient, TechnoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFED7EBADF082E63A0C23604FAA258F8F3DC2F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

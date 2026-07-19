@@ -1,3 +1,177 @@
+###  Публикация: 1597612   (164875) от 16.12.2022
+
+VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Church -- Record Year (2:59)
+02. Maddie & Tae -- Die From A Broken Heart (3:08)
+03. Shane Nicholson -- Little Mascara (3:40)
+04. Florida Georgia Line -- H.O.L.Y. (3:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762807CFB0F83C5A43C8E3ADF77C509D97154F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262009   (164710) от 17.12.2019
+
+Oliver Shanti and Friends - Discography (1987-2006) [FLAC|Lossless]<New Age / Ethnic / Meditative>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Joy
+02. To Her
+03. Naf Dhun
+04. Hazarat Inayat Love(   Читать дальше...   )Жанр: New Age / Ethnic / MeditativeПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB9BA4626D1E2AAEBBD75163C7B83D7E16ADB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673601   (164194) от 02.11.2023
+
+VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxophone Dreamsound - The Lady in Red [04:13]
+02. Saxophone Dreamsound - Unchained Melody [03:36]
+03. Saxophone Dreamsound - Killing Me Softly with His Song [04:50]
+04. Saxophone Dreamsound - She's the One [04:27](   Читать дальше...   )Жанр: Pop, Instrumental, SaxophoneПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A69DDDFB21A0F9319B252C1453734E2B4B04692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597539   (164103) от 17.12.2022
+
+VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
+02. Dyan Garris,Sherry Finzer - Forest Whispers (5:20)
+03. Dellasollounge - Fantasy (Original Mix) (5:23)
+04. Ann Grace - Intromotion (1:35)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597528   (164085) от 17.12.2022
+
+VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerforest - Bellefontaine (Original Mix) (5:33)
+02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
+03. Elmara - Northern Lights (Original Mix) (3:38)
+04. Eskadet - Te Revoir (Original Mix) (6:37)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597822   (164080) от 17.12.2022
+
+Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Day (3:41)
+ 02. Morelia's Waltz (3:36)
+ 03. Beethoven's Silence (2:39)
+ 04. Lonely Island (3:56)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549080   (163946) от 02.11.2023
 
 Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [FLAC|Lossless]<Folk / Rock>
@@ -571,183 +745,6 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193477   (157892) от 24.12.2017
-
-Maury Laws & Jules Bass - Сумасшедшая вечеринка чудовищ / Mad Monster Party (1967) 1998 [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maury Laws - The Baron
-02. Ethel Ennis - Mad Monster Party
-03. Maury Laws - Waltz for a Witch
-04. Maury Laws - Cocktails(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518159   (157689) от 18.12.2021
-
-Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient, Choir>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Little Welsh Home
-02. Kyrie Victoria
-03. Waiting for Life
-04. Pie Jesu (Ft. Narcis)(   Читать дальше...   )Жанр: New Age,  Ambient, ChoirПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588534   (157375) от 13.12.2012
-
-Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_157375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Raga Puriya Kalyan [11:48]
-2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
-Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
-3. I. Lalit (Presto) [16:36]
-4. II. Bairagi (Moderato) [08:11]
-5. III. Yaman Kalyan (Moderato) [14:32]
-6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433454   (156856) от 21.12.2020
-
-Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New Age, Easy Listening, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Giovanni Marradi (17.04.1952) родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток. После иммиграции в Америку он играл небольшие концерты в Калифорнии. Набравшись смелости, он приехал в Лас-Вегас и попросился выступить в Caesar's Palace (казино и отель). Удивительно, но ему пошли навстречу. А что более удивительно, на одном из выступлений (   Читать дальше...   )01. Never Again (5:03)
-02. Janet's Dream (4:33)
-03. Voices (3:18)
-04. Thoughts (3:40)(   Читать дальше...   )Жанр: New Age, Easy Listening, Instrumental, PianoПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433644   (156813) от 21.12.2020
-
-Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegy 1 (Angels) (02:27)
- 02. Elegy 2 (Forever) (05:01)
- 03. Elegy 3 (Farewell) (04:02)
- 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085799   (156695) от 22.12.2016
-
-Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chanson d'automne (poeme de Verlaine) [0:53]
-02. Une amitie [1:30]
-03. La promenade [1:23]
-04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
 ```
 
 https://mybot314.ru/tekegram_catalog/

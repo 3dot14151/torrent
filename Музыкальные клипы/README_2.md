@@ -1,3 +1,203 @@
+###  Публикация: 1475315   (1011947) от 09.06.2021
+
+The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы исполняют песню на концерте.
+Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.
+Предыдущий клип: https://nnmclub.to/forum/viewtopic.php?p=11164480#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB11F3F2AF4B5BC85559D684B183AE99C133E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475847   (1011274) от 13.06.2021
+
+Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Raprave, Electronicmusic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Big - Everybody (Little Big Are Back)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8616DE83D26378B4923774FBF5FBE9C99CCEC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485367   (1004926) от 29.07.2021
+
+Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ame-stram-gram
+02. Je te rends ton amour
+03. Souviens-toi du jour...
+04. Optimistique-moiЖанр: PopПродолжительность: 04:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C309EC08D6F4541AA9D431B946A8B718A8447C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486163   (1004797) от 30.07.2021
+
+Сборник клипов - Music 80s Video Collection от ALEXnROCK часть 5 (2021) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 5 - Intro
+01. Kim Wilde - Never Trust A Stranger
+02. Janet Jackson - Love Will Never Do (Without You)
+03. A-ha - You Are The One(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF369B93D27F288E823FC7B27EB0EEB180F97973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597472   (1000377) от 02.01.2013
+
+DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598303   (999825) от 04.01.2013
+
+Лучшие клипы 2012 / Slim Shady Place Video Yearmix 2012 [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год Sebastiaan Sopamena (aka DJ SSP) радует нас новой подборкой лучших клипов, перетекающих один в другой, выполненной для Slim Shady Place. Это своего рода сборник лучших музыкальных видеотворений 2012 года. Отличная возможность увидеть самые яркие клипы СО ВСЕГО МИРА за два последних года!
+Приятного просмотра Slim Shady Place Video Yearmix 2012!Жанр: Pop / House / Eurodance / Electronic / R&BПеревод: ОригинальныйПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C9878BEDA069995808C70D28D2B1D56F89023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598141   (999635) от 05.01.2013
+
+Светлана Разина - Презентация нового альбома (2008) CamRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наступает Ночь
+02. Нравится
+03. Звёзды / Я Не Хочу / Солнечное Лето (попурри)
+04. Музыка Нас Связала
+05. Демон
+06. Реинкарнация
+07. Короче (feat B. Лесовская)
+08. Плакать
+09. Света
+10. Налоговый Инспектор(   Читать дальше...   )Жанр: POPПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599449   (999323) от 06.01.2013
 
 BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
@@ -527,208 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605831   (995443) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era  - Come Into My World
-02. Messiah project -  Insomnia
-03. Enigma - Sadeness
-04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605938   (995439) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - He Is Your Brother
-02. Donna Summer - I feel love
-03. Arabesque - Friday Night
-04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605695   (995366) от 20.01.2013
-
-Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка - EurodanceПродолжительность: vol.1: 02:50:21,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606962   (994639) от 22.01.2013
-
-Лучшие клипы / The best videos of all time (Pop, Sexy) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angus and Julia Stone - Big Jet Plane
-02. Pussycat Dolls - Don't Cha
-03. Chica Bomb - Sexy
-04. Нюша - Воспоминание(   Читать дальше...   )Жанр: Музыка, Pop, Sexy, Dance, HouseПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607111   (994637) от 22.01.2013
-
-Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Richard - Lucille
-02. Bill Haley And His Comets - Vive La Rock 'N' Roll
-03. AC DC - That's the Way I Wanna Rock N' Roll
-04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
 ```
 
 https://mybot314.ru/tekegram_catalog/

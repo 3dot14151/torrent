@@ -1,3 +1,148 @@
+###  Публикация: 1177242   (365030) от 24.10.2017
+
+VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauv - I Like Me Better (3:19)
+02. Imagine Dragons - Whatever It Takes (3:19)
+03. Sunrise Avenue - I Help You Hate Me (3:11)
+04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416774   (364966) от 17.10.2020
+
+Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Ain't Where His Heart Is (Anymore) [4:12]
+ 02. Any Man Of Mine [4:07]
+ 03. Whose Bed Have Your Boots Been Under [4:24]
+ 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177278   (363142) от 25.10.2017
+
+Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doma (2:15)
+02. Exhumed (3:45)
+03. Soak (3:57)
+04. Ash To Bone (2:07)(   Читать дальше...   )Производство: Sacred Bones Records – SBR184CDЖанр: Indie Pop, Experimental, ElectronicПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26D659D42103ECCD0DA2260D53D73ACB3E93631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328066   (363112) от 30.09.2019
+
+Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Want To Know (Remixed by Benny Benassi)[3:46]
+ 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
+ 03 - Ti Penso E Cambia Il Mondo[4:22]
+ 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576890   (361783) от 16.09.2022
+
+Julian Lennon - Jude (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Me (03:03)
+02. Freedom (04:07)
+03. Every Little Moment (03:42)
+04. Not One Night (03:52)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A52D665880424FAB385C2D6B0F2B35921FE1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577030   (361459) от 16.09.2022
 
 Eros Ramazzotti - Battito Infinito (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,150 +745,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14074EAFC958B0B69C07E863A408D4D944C279E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953418   (349431) от 04.11.2015
-
-Tom Jones - Tom Jones And Friends (2005) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones & Tina Turner - Hot Legs
-02. Tom Jones & Donny Osmond - Girl From New York City
-03. Tom Jones & Dusty Springfield - Upside Down
-04. Tom Jones & Rita Coolidge - Something 'Bout You Baby I Like(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403D2C73599F573A7C990DE34F5DBCD720714642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953390   (349429) от 04.11.2015
-
-Gerard Joling - Eye To Eye (1992) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Promises Of Love
-02.Can't Take My Eyes Off You
-03.Waiting For The Rain
-04.Love In The Wildest Places(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A0CF2A657A485E2D657DA51E9AD871BCC94BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329994   (347852) от 07.10.2019
-
-Луна - Транс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Золотые Лепестки (4:31)
- 02. Лунные Гипнозы (3:35)
- 03. Подружка (4:38)
- 04. Сиреневый Рай (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A489337AFE8D2827E7059D8C6D31CC31C1FF159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257253   (347617) от 25.10.2018
-
-Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Time
-02. Little White Secrets
-03. I Wasn't The OneЖанр: PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E823819A1740C8C99064B1CDABD646378CFB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073236   (347529) от 15.11.2016
-
-Pixie Geldof - I'm Yours (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ethereal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Thing
-02. I'm Yours
-03. So Strong
-04. Woman Go Wild(   Читать дальше...   )Жанр: Alternative Pop, EtherealПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
 ```
 
 https://mybot314.ru/tekegram_catalog/

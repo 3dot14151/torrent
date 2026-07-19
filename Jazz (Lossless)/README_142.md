@@ -1,119 +1,3 @@
-###  Публикация: 1552937   (584824) от 23.05.2022
-
-Chico Hamilton - The Complete Pacific Jazz Recordings Of The Chico Hamilton Quintet (1954 - 1959) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584824.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Drums West [4:20]
-02. A Nice Day [2:55]
-03. My Funny Valentine [4:21](   Читать дальше...   )Жанр: West Coast Jazz, Hard BopПродолжительность: 06:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF55CCBEC33DE305169B57A3EE2B432F3B0F1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552948   (584821) от 23.05.2022
-
-Sarah Vaughan - Ballads (1960 - 1963) 2002, Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All or Nothing at All [3:14]
-02. Midnight Sun [5:36]
-03. Dreamy [2:58]
-04. You Go to My Head [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF3E510950035B2FE2E93E68CDF708B84221820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552978   (584692) от 23.05.2022
-
-Dixie Kings Of Hungary - Still Alive (2018) [FLAC|Lossless|tracks + .cue] <Dixieland, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz me blues (Tom Delaney)
-02. Big butter and egg man (Percy Venable)
-03. Dippermouth blues (K. Oliver / L. Armstrong)
-04. We'll meet again (R. Parker / H. Charles)(   Читать дальше...   )Жанр: Dixieland, Big BandПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A560C89D24C7505C97FB2FB9C3376B4FD48E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810180   (584548) от 04.08.2014
-
-Count Basie and his orchestra - Fancy Pants (2000) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put It Right Here [05:14]
-02. By My Side [05:18]
-03. Blue Chip [04:04]
-04. Fancy Pants [04:27](   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD8454BD43C0E4D773C3CB0E70A16A49B302F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809895   (584483) от 04.08.2014
 
 Bobby Caldwell - Timeline (1998) [FLAC|Lossless|WEB-DL]<Smooth Jazz, R&B, Vocal>
@@ -751,6 +635,122 @@ Tiny Grimes & J.C. Higginbotham - Callin' The Blues (1958) 1994, Original Jazz C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A37F46802C9EF07973AD17EDFEC8B6D55910B1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041484   (582472) от 09.08.2016
+
+Paul Brown & Friends - White Sand (2007) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Sand (Feat. Jessy J) (4:24)
+02. The Rhythm Method (4:04)
+03. Makes Me Feel So Good (Feat. Al Jarreau) (4:09)
+04. Ol' Skoolin' (Feat. Boney James) (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27AB9D325D28B85CC7E20A00FC4D52428DF10A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302189   (582316) от 14.05.2019
+
+Aldo Romano - Il Piacere (1978) 2001, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pioggia Sul'Pineto [3:43]
+02. Il Piacere [3:31]
+03. Francavilla [4:53]
+04. Il Camino [2:53](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67779F494FB13842206C9993A029C9CAE8A60D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919900   (581994) от 20.07.2015
+
+Zoot Sims Plays Johnny Mandel - Quietly There (1984) [FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinnamon and Cloves [05:49]
+02. A Time for Love [07:55]
+03. Zoot [06:51]
+04. Quietly There [06:14](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE38662BF92DFE3AB9C9F30CB0A54E0F18CB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553517   (581879) от 26.05.2022
+
+The Steve Lacy Sextet - Live At Sweet Basil (1992) Novus [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prospectus [11:08]
+02. The Bath [12:38]
+03. Morning Joy [16:31]
+04. The Wane [15:11](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25615114DE52AEA62D52193A0B541FF7DDA212A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1349946   (1003797) от 04.01.2020
+
+VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sassari - Put A Record On (Extended Mix) 5:19
+02. Sneaky Sound System - We Belong (Extended Mix) 5:11
+03. Roger That (Uk) - How Does It Feel (Endor Remix - Extended Mix) 5:46
+04. Robbie Doherty - Pour The Milk (Matt Sassari Remix - Extended Mix) 5:42(   Читать дальше...   )Жанр: Minimal, Tech House, FunkyПродолжительность: 05:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597321   (999165) от 07.01.2013
+
+VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excelsior Groove - Honey - Excellence in Rhythms Mix
+02. Stardeep - Slow Food - House Sonique Deep Mix
+03. FG 2 - New York Sensations
+04. Deep Lovers - Mouse Music - Manhattan Deep Mix
+05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
+06. Modell & Mercier - Prisoner - Love On Love Mix
+07. 2W - Light
+08. Alexander Prince - The Prince of the River - Ultradeep Mix
+09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
+10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600883   (998133) от 11.01.2013
 
 VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
@@ -771,70 +835,6 @@ VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974010   (978179) от 10.01.2016
-
-VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calabria – Ufo (Club Mix)
-02. Admiral Bob – Free Music And Free Beer (Serobeat Club Remix)
-03. Randy Norton Vs. Angelique – I’m Your Baby (Extended Commercial Mix)
-04. T & G Factory – Feel The Bounce(   Читать дальше...   )Жанр: Club, Future House, ElectroПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B632BE297B60E9DE37A7F64CD403DC9AFB3BA8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614510   (976894) от 09.02.2013
-
-B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S'momondiya
-02. Baphuma Ezulwini
-03. Somandla (Original Mix)
-04. Mshini Wam (Chris Sen Remix)
-05. Emaweni
-06. Ungi'shaya Ngaphakathi
-07. Uthando Lwakho
-08. Zinhle Intombi
-09. Idlozi
-10. Ziyawa (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B9A70730EEC0830BF7F27A28C2A44C31ADA7E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

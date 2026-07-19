@@ -1,3 +1,90 @@
+###  Публикация: 1330469   (275899) от 09.11.2019
+
+The Beatles - Magical Mystery Tour De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Magical Mystery Tour (02:48)
+02-The Fool On The Hill (04:25)
+03-Flying (02:16)
+04-Blue Jay Way (03:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC850AD0966FD009F255DA44E45E784A932CFE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083125   (275699) от 14.12.2016
+
+VA - Rock Collection 1997 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+
+01. Foo Fighters - Doll
+02. Fates Warning - A Pleasant Shade of Gray: Part I(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CFB19A398D5FE953423A4C9F62BCBE11FB7151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083105   (275597) от 14.12.2016
+
+VA - Rock Collection 1996 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+
+01. Ayreon - Actual Fantasy
+02. Opeth - Advent(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083441   (274732) от 15.12.2016
 
 VA - Ramification Rock Gallery (2CD) (2016) [MP3|128-320 Kbps] <Rock, Alternative, Hard Rock>
@@ -656,105 +743,6 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498851   (256199) от 20.05.2012
-
-Алиса - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эй ты там на том берегу
-02. Моё Поколение
-03. Энергия
-04. Армия жизни
-05. Танец на палубе тонущего корабля
-06. Стерх
-07. Лодка
-08. Шабаш
-09. Бес Паники
-10. Белая невеста(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627827   (254917) от 22.04.2023
-
-VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Horses - Alone
-02. Jamie N Commons - Not Gonna Break Me Valor
-03. L.A. Guns - I  Love to Change the World
-04. Stephane Huguenin - Stay By My Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498140   (253838) от 17.05.2012
-
-Моральный кодекс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Реки и горы
-02. Первый Снег
-03. Meine Liebe
-04. На Рассвете
-05. Я Выбираю тебя
-06. Давай Сбежим
-07. Кошки
-08. Клавдия
-09. Дети лета
-10. Шукаю Тебе(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81120722E3BCF2467899EA64158C2B1E2FA2EFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

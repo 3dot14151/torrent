@@ -1,119 +1,3 @@
-###  Публикация: 1145668   (619998) от 26.06.2017
-
-Michal Urbaniak - Manhattan Man (1992) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Manhattan Man
-2 Street Talk
-3 Paris Groove
-4 Don't Wait(   Читать дальше...   )Жанр: FusionПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1FDA555EE901A95ED294124E1D30AC8FC8A4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145732   (619994) от 26.06.2017
-
-Keith Jarrett - Standards, Vol. 1 (1983) Remaster, 1985, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meaning Of The Blues (9:23)
-02. All The Things You Are (7:44)
-03. It Never Entered My Mind (6:42)
-04. The Masquerade Is Over (5:57)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B8F041DEA7DE6AB55C72A7B51431AEF7710F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145736   (619993) от 26.06.2017
-
-Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Tender (7:15)
-02. Moon And Sand (8:54)
-03. In Love In Vain (7:06)
-04. Never Let Me Go (7:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108E3C543FB4EB7B1A9E791FF871F388789D39C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910758   (619975) от 21.06.2015
-
-Tommy Flanagan - Let's: play the Music of Thad Jones (1993) /2005, Enja/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's [05:35]
-02. Mean What You Say [05:41]
-03. To You [03:37]
-04. Bird Song [05:31](   Читать дальше...   )Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2ABFC108C450BA58FA8DB122669615473F5C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145727   (619678) от 26.06.2017
 
 Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -750,6 +634,122 @@ Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01142BD4BAB39067A5763C3853D917AC4C455717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911675   (616442) от 23.06.2015
+
+Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skies Of America [02:50]
+02. Native Americans [01:11]
+03. The Good Life [01:34]
+04. Birthdays And Funerals [03:14](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60D479841ACF9AE4B558733919811D615D14288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146086   (616351) от 28.06.2017
+
+Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Do It
+02. My Heart Belongs To Daddy
+03. C'est Si Bon (It's So Good)
+04. A Woman Wouldn't Be A Woman(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 02:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FA1BBF24C91A991D950D886A69EFD3644D7585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037061   (615743) от 23.07.2016
+
+Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smiles for Serious People (7:36)
+02. Cyclone (2:12)
+03. Child's Mood (7:51)
+04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037045   (615742) от 23.07.2016
+
+Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The More I See You (4:53)
+02. Like A Lover (6:42)
+03. Oh Gee (4:13)
+04. Dem Bones (6:55)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4590F1E3B3C0071BF6D3B7BFF0BC3CB38B40CA01
 ```
 
 https://mybot314.ru/tekegram_catalog/

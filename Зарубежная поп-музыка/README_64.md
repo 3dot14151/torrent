@@ -1,3 +1,32 @@
+###  Публикация: 1080943   (285709) от 08.12.2016
+
+Jain - Zanaka (2016) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come (02:42)
+02. Heads Up (03:31)
+03. Mr. Johnson (03:02)
+04. Lil Mama (02:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13782840306B801B05BCA22E8C096515CDF80AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963900   (285465) от 09.12.2015
 
 Melanie Martinez - Cry Baby (2015) Deluxe Edition [OGG|473-549 кб/с]<Alternative Indie Pop, Electropop, Dark Wave>
@@ -720,35 +749,6 @@ LP - Lost On You (2016) [MP3|320 Kbps] <Alternative Rock, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF3AE94D68D5A0877E43066B4464FFABBC3BB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265058   (276580) от 26.11.2018
-
-VA - Bravo Hits Jesień (2018) 2CD [MP3|320 Kbps] <Pop  Latin, Reggaeton>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276580.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Maroon 5 - Girls Like You
-02. Ariana Grande - God is a woman
-03. Luis Fonsi - Calypso(   Читать дальше...   )Жанр: Pop  Latin, ReggaetonПродолжительность: 02:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E42321BF648EC7BB2847B3B6785E436BB255315
 ```
 
 https://mybot314.ru/tekegram_catalog/

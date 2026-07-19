@@ -1,3 +1,61 @@
+###  Публикация: 911023   (620677) от 21.06.2015
+
+Twist Of Fate - Of Love And Lunacy (2015) [MP3|320 кб/с]<Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay the Same Intro
+02. Stay the Same
+03. The Road so Far
+04. Encased in Ice(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2C8341CFE9024FDB4380D584F2EB95EDFD8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911016   (620675) от 21.06.2015
+
+Mount - Mount (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pop Stars
+02. Not That Into This
+03. I Stutter Too!
+04. Dig'n Holes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23A71508FF94CA3B390F75C70B618DAABADEE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911017   (620670) от 21.06.2015
 
 Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
@@ -684,64 +742,6 @@ CD1 - The Many Faces Of The Alice Cooper Group:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1936B926E5AA6BD6287528677F30FDBF8092C3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913785   (601288) от 30.06.2015
-
-Niva - Relievin' Rain (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relievin' Rain
-02. Save My Soul
-03. Lying To Get Your Trust
-04. Freakshow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCDD4B09874750EE02E32149367590AF2D9E729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914025   (600421) от 01.07.2015
-
-Lionsheart - Lionsheart (1992) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Had Enough
-02. World Of Pain
-03. Ready Or Not
-04. So Cold(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FB988855A70723FEB98D184F3FAB8E4D1200A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

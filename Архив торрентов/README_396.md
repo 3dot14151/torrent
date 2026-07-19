@@ -1,3 +1,29 @@
+###  Публикация: 1356986   (976565) от 01.02.2020
+
+IObit Driver Booster Pro 7.2.0.601 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90213D496939F3ED66FC715EAEA482491B360F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356896   (976562) от 01.02.2020
 
 Folx Pro 5.15 (13938) [Multi/Ru]
@@ -671,41 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:624FB1ADC10D316B1C7A3CBF0AAF678B96E1515A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616170   (976308) от 09.02.2013
-
-Mylene Farmer - Monkey Me (2012) [PCM 4.0 48/24 |DVD-Audio (WEB-DL)]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (3:52)
-02. A` l'ombre (4:51)
-03. Monkey Me (4:14)
-04. Tu ne le dis pas (4:22)
-05. Love Dance (4:06)
-06. Quand (4:06)
-07. J'ai essaye' de vivre… (4:40)
-08. Ici-bas (4:32)
-09. A-t-on jamais (4:07)
-10. Nuit d'hiver (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276C1E7F96430A9268CA6B1AF389828FADA0980D
 ```
 
 https://mybot314.ru/tekegram_catalog/

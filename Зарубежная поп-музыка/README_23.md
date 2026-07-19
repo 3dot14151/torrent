@@ -1,3 +1,32 @@
+###  Публикация: 1213862   (767344) от 18.03.2018
+
+VA - 90S Baby - Ministry Of Sound (2018) Ministry Of Sound [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc: 1
+1. Bug a Boo (H-Town Screwed Mix) - Destiny's Child
+2. Always on Time - Ja Rule feat. Ashanti
+3. If You Had My Love - Jennifer Lopez(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD47DE74E78CC129BA347D823138879F0077FA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213880   (767339) от 18.03.2018
 
 Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -712,35 +741,6 @@ Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB422895AB1F5AB56C453BB9CF83931AD8418A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215205   (759833) от 25.03.2018
-
-VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
-02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
-03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
-04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

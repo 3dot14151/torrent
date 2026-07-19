@@ -1,3 +1,29 @@
+###  Публикация: 1498968   (852628) от 29.09.2021
+
+Stellarium 0.21.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellarium – бесплатный эмулятор звездного неба. Масштабный проект планетария с открытым кодом, распространяемое совершенно бесплатно, может отображать объемное 3D небо в режиме реального времени. Использование данного продукта будет интересно не только астрологам и астрономам, но простому человеку в познавательных целях. Невероятное огромное количество новой информации (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BCA788A7E3C328B372B4108B88BF8C495821DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306639   (852554) от 09.03.2011
 
 CyberLink PowerDVD Ultra v10.0.2701 Ru/En PORTABLE
@@ -642,32 +668,6 @@ Ashampoo Photo Recovery 1.0.4 RePack by вовава [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11294C827872735E760557C64C30F8B27C4A324B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110656   (851906) от 03.03.2017
-
-Mp3tag 2.81 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах. Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F9FEBE7ECA4E1E548DA14808D9CD34FE3A500C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1087661   (145263) от 28.12.2016
-
-Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145263.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Worktime:
-01.There's No Business Like Show Business [06:21]
-02.Paradox [05:01]
-03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272381   (144838) от 27.12.2018
-
-Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144838.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Romeo's Gone Now [6:30]
-02. Over the Rainbow [11:09]
-03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272384   (144790) от 27.12.2018
-
-Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144790.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ultra [4:38]
-02. Blues from 'An American in Paris' [4:10]
-03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435471   (144737) от 28.12.2020
-
-Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E lucevan le stelle [3:52]
-02. Tosca: Extraits du 1er Acte [5:14]
-03. Tosca: Extraits du 3eme Acte [5:40]
-04. Tosca: Improvisation sur le 3eme Acte [4:48](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00288127ECC5564D8F3D4B0C02F1F7CAB95A11D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435487   (144728) от 28.12.2020
 
 Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -743,6 +627,122 @@ CD1 - Mister Blues Genius:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F277B4E765143D761066C27B920591EA2427EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520444   (142205) от 28.12.2021
+
+Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Wonderful World [3:11]
+02. 720 In The Books [2:48]
+03. Busy As A Bee [2:51]
+04. So Far, So Good [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435695   (142189) от 29.12.2020
+
+James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142189.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Last Train from Overbrook [3:07]
+02. Don't Worry About Me [2:34]
+03. Why Don't You [2:26](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9903BE6F697E36E7522B30BA547CEEE5D98FEAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520438   (142113) от 28.12.2021
+
+The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Like You [5:49]
+02. Cry Me a River [5:48]
+03. Teach Me Tonight [4:52]
+04. Take the 'A' Train [6:21](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348897   (142080) от 29.12.2019
+
+Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Minor Blues [4:39]
+02. Five, Four and Three [3:34]
+03. Komonia [4:46]
+04. Midnight Mood [3:51](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9638CAC76B60465DD4D7DBC55ADD51B475125B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

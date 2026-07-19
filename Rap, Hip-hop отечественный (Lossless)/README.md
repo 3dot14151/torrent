@@ -1,33 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1866974   (1066380) от 22.04.2026
-
-Баста/Гуф - Баста/Гуф 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066380.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Из песни слов не выкинешь
-2. XV Лет спустя
-3. Дедули
-4. Улицам нужен твой огонь(   Читать дальше...   )Жанр: Rap, Hip-Hop, PopПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A771F8FAA4063A04237073047B30883636B604F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856465   (1058794) от 28.02.2026
 
 Тони Раут & Гарри Топор - Ульта (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
@@ -739,6 +710,35 @@ Jah Khalib - 911 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249E8098B7969E876F664550E55888374E4A619C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505490   (804246) от 27.10.2021
+
+Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804246.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. «99 Problems» Big Baby Tape 2:39
+2. «So Icy Nihao» Waves B 2:33
+3. «Big Tymers» Flory 3:11
+4. «Dirrt» Big Baby Tape 2:41(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A977BC92CCD467B5543F12BF7ECE3E5F9F31DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

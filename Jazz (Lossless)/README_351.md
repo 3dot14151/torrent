@@ -1,119 +1,3 @@
-###  Публикация: 1781084   (70316) от 21.02.2025
-
-Don Pullen & The African-Brazilian Connection - Ode To Life (1993) Blue Note [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, World Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Third House on the Right [5:03]
-02. Paraty [9:03]
-03. El Matador [6:06]
-04. Ah George, We Hardly Knew Ya [13:06](   Читать дальше...   )Жанр: Afro-Cuban Jazz, World Fusion, Piano JazzПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290B519DC2D256CB0C108471A31BA679B95C02BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781261   (70240) от 22.02.2025
-
-Kenny Garrett Quintet - Introducing Kenny Garrett (1985) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Openers [6:28]
-02. Have You Met Miss Jones [9:19]
-03. A Silent Prayer [8:03]
-04. Blues in the Afternoon [4:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38473284040F7F029467CB4C09459ED42EEB051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781254   (70239) от 22.02.2025
-
-Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Fry [6:16]
-02. Smoke This [6:08]
-03. Pennies from Heaven [5:17]
-04. Pots and Pans [3:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 02:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B8A194426C1D1384BB61323090A5F55081F7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781257   (70238) от 22.02.2025
-
-Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Snow [4:23]
-02. Angels Have You Heard on High (feat. Carlos Chong) [4:48]
-03. Mary Did You Know (feat. Yaritza Lopez, Irma Treminio) [5:43]
-04. Peace on Earth (feat. Derick Hughes, Carl Wheeler) [7:02](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D7E0B023B4FD8B632322CA682E475A2666DF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781265   (70237) от 22.02.2025
 
 Les Paul And His Trio - The Guitar Artistry Of Les Paul (1968) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
@@ -745,6 +629,122 @@ Les McCann & The Mitchell-Ruff Trio - 20 Special Fingers (1961, 1968) 2CD, 1999,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B20C01EC098FC911C1940FDE7808932F64E23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782962   (69858) от 03.03.2025
+
+Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Joey [0:45]
+02. Cherokee [9:17]
+03. Ceora [13:51]
+04. I'm in the Mood for Love [6:36](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782964   (69856) от 03.03.2025
+
+Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estate [13:41]
+02. On a Clear Day [9:04]
+03. Fly Me to the Moon [11:10]
+04. Voyage [9:47](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A68152C5F5D964226C70871A3E730A2677F9FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782963   (69854) от 03.03.2025
+
+Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for J. [4:20]
+02. Close to You [4:32]
+03. Carbon Copy [6:01]
+04. All of Me [7:04](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9495D5A90863A3C72FE52521AE574D54CBC20FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783171   (69850) от 04.03.2025
+
+John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Popo [3:05]
+02. Didi [2:30]
+03. Four Mothers [2:52]
+04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
 ```
 
 https://mybot314.ru/tekegram_catalog/

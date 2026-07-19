@@ -1,90 +1,3 @@
-###  Публикация: 1569691   (447086) от 15.08.2022
-
-Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night for Day
-02. Fight the Feeling
-03. Breathless
-04. Can't Resist(   Читать дальше...   )Жанр: Pop, Pop - RockПродолжительность: 03:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525F35D94DAEE7BC4BE58D22B9323835B0C5E42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943550   (447021) от 04.10.2015
-
-Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acapulco
-02. Alla Faccia Di Belzebu
-03. Amare, Ricominciare, No No No
-04. Amarti Un Po'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21057101095AB5B1C5CD12B8F05AE284F646C30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943801   (446912) от 04.10.2015
-
-VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 15) (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Night Train( Dj Nikolay-D Remix ) (08:23)
-02. Saphir & Dj Nikolay-D - Shot In The Night(Dj Nikolay-D Remix Long Version) (07:40)
-03. Italove & Dj Nikolay-D - Strangers In The Night(Dj Nikolay-D Remix ) (06:38)
-04. Ken Laszlo & Dj Nikolay-D - Mary Ann(Dj Nikolay-D Remix ) (05:52)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D82302A1E8AB2D313E7F91743D73B9F3A81B4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061855   (446595) от 11.10.2016
 
 VA - Осенний Muz драйв (2016) [MP3|256 Kbps] <Pop>
@@ -745,6 +658,105 @@ VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F5B6BEFA850BCCBE9AE16F7B72793E13F9A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248989   (437507) от 22.09.2018
+
+VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437507.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
+002. Dynoro & Gigi D'Agostino - In My Mind
+003. Loredana & Mozzik - BONNIE & CLYDE
+004. Bonez MC & RAF Camora - 500 PS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553281   (436970) от 01.10.2012
+
+VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5 - One More Night
+02. Taylor Swift - We Are Never Ever Getting Back Together
+03. Fun. - Some Nights
+04. Flo Rida - Whistle
+05. P!nk - Blow Me (One Last Kiss)
+06. Justin Bieber - As Long As You Love Me feat Big Sean
+07. Ellie Goulding - Lights
+08. Alex Clare - Too Close
+09. Owl City & Carly Rae Jepsen - Good Time
+10. Neon Trees - Everybody Talks(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554446   (436822) от 01.10.2012
+
+VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. СтаЯ - Душа
+002. Алина Артц - Со мной по-другому нельзя
+003. Инфинити - А он такой
+004. Макс Лоренс - За твои глаза
+005. Она - Самая счастливая
+006. Николай Басков - Странник
+007. Ирина Кулькова - Храните любовь
+008. Филипп Киркоров - Я отпускаю тебя
+009. Lalo Project - Город Goodbye
+010. Оксана Казакова - Гипнотизирую(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

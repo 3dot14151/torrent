@@ -1,119 +1,3 @@
-###  Публикация: 1151552   (573073) от 19.07.2017
-
-Taylor Eigsti - Let It Come To You (2008) Concord [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You [04:27]
-02. Timeline [08:29]
-03. Not Ready Yet [05:00]
-04. Caravan [09:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50EBA10C019F3D9F1795C0DD104C6AFFFFC5980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151662   (573066) от 19.07.2017
-
-Attila Zoller - Gypsy Cry (1969) 2001, Collectables Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Wild Wes [02:43]
-02. Another Kind Of Love [04:09]
-03. Horns [04:01]
-04. Meet In Berlin [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EDB7D6271989A0886B0C161F5130B3DDD5C79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151539   (573057) от 19.07.2017
-
-Cal Tjader - Agua Dulce (1971) 2011, BGP Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Dulce (Cool-Ade) [04:08]
-02. Curacao [05:38]
-03. Somewhere in the Night [04:26]
-04. Gimme Shelter [02:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13412DF23DBBB098BA1387027B184A96894E625D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151661   (573049) от 19.07.2017
-
-Horace Tapscott - The Dark Tree (1989) 2CD, 2009, hatOLOGY [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573049.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Dark Tree [20:57]
-02. Sketches of Drunken Mary [11:33]
-03. Lino's Pad [16:46](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BA03BD87590E77A6ABF98482680A61B79151E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151545   (573031) от 19.07.2017
 
 Rikiya Nakamura Life Is Now Trio - Frame by Frame (2016) Anido Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -760,6 +644,128 @@ Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop,
 08. I'll keep loving you
 09. Not yet
 10. Blues for LizzieЖанр: Post-Bop, BebopПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303878   (569496) от 23.05.2019
+
+Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crave [3:05]
+02. The Naked Dance [2:51]
+03. Mister Joe [2:49]
+04. King Porter Stomp [2:50](   Читать дальше...   )Жанр: New Orleans Jazz, StrideПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBE475AD2286568BEDF8CF7F46A0DAA79E4820B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527714   (569493) от 30.07.2012
+
+Boris Frumkin & Sergei Zhilin - Solo In Four Hands (2003) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa (George and Ira Gershvin)
+02. Young & Foolish (Albert Hague)
+03. Wave (Antonio Carlos Jobim)
+04. Groove Merchant (Jerome Richardson)Жанр: Smooth JazzПродолжительность: 00:17:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303976   (569429) от 23.05.2019
+
+Jeremy Pelt - Jeremy Pelt The Artist (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rodin Suite Part One: L'Appel Aux Armes (6:54)
+ 02. The Rodin Suite Part Two: Dignity and Despair (Burghers of Calais) (1:59)
+ 03. The Rodin Suite Part Three: I Sol Tace (Gates of Hell) (5:59)
+ 04. The Rodin Suite Part Four: Camille Claudel (L'Eternel Printemps) (2:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBF69F4B97ABE9BC22F8D6ACCAA9A9D5AF8202C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527744   (569370) от 30.07.2012
+
+Brad Rambur - Can't Put It Down (2010) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm
+02. Chasing The Sun
+03. Pinnacle
+04. Aruba
+05. Sidesteppin'
+06. Danielle
+07. Into The Blue
+08. This Masquerade
+09. Shufflicious
+10. Chitlins Con CarneЖанр: Smooth JazzПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash

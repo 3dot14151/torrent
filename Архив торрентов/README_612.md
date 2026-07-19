@@ -1,29 +1,3 @@
-###  Публикация: 1366819   (920585) от 13.03.2020
-
-eM Client Pro 7.2.38711.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920585.jpg" />
-</div>
-
-
-###  Подробнее
-
-eM Client - отличный почтовый клиент с возможностями использования календаря, задачника и чат-месседжера. Программа содержит все основные опции для качественного и удобного использования своего почтового ящика - прием, чтение, ответ, перенаправление писем и др. Профессиональная версия позволяет организовать работу с поддержкой неограниченного количества почтовых (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865A3E6266FD57567CC56C65F099E833E2211233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366896   (920579) от 13.03.2020
 
 XYplorer 20.80.0400 RePack (& Portable) by elchupacabra [Ru/En]
@@ -692,6 +666,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC24A2C0584A925164C6AA91CDA22B4E7EBD536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288754   (920461) от 30.01.2011
+
+Lian Ross - The Best Of And More (2005) [MP3|320 kbps]<Disco>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Say You'll Never (5:48)
+2. Fantasy (5:33)
+3. Scratch My Name (5:18)
+4. It's Up To You (5:38)
+5. Neverending Love (Song) (5:48)
+6. Oh Won't You Tell Me (4:51)
+7. Do You Wanna Funk (6:52)
+8. Feel So Good (4:28)
+9. Say Say Say (5:38)
+10. Neverending Love (Rap) (5:36)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF9A5FC35DD861C4B9F83D7D07070CFF1FC672F
 ```
 
 https://mybot314.ru/tekegram_catalog/

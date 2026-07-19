@@ -1,78 +1,25 @@
-###  Публикация: 1341448   (262312) от 28.11.2019
+###  Публикация: 1193214   (262162) от 20.12.2017
 
-MediaHuman YouTube Downloader 3.9.9.28 (2711) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262312.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801D9B7F998733F3F5A5E52FB76D2F6F4DE1130D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341538   (262300) от 28.11.2019
-
-Athentech Perfectly Clear WorkBench 3.9.0.1702 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDD7D2C243EDDB59525566A6457FC4BC2320226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341412   (262295) от 28.11.2019
-
-Folx Pro 5.13 (build 13908) [Multi/Ru]
+CleanMyMac 3.9.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FOLX 5 - Менеджер загрузок для Мас
+CleanMyMac 3 - Программа для очистки Mac
+CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии. CleanMyMac имеет красивый интерфейс, который не оставит равнодушным никого. Все выполнено в стандартном виде Mac OS: красиво, удобно и доступно.
 
-Folx- бесплатный менеджер загрузок с удобным интерфейсом в стиле macOS. Менеджер загрузок предлагает удобную систему управления загрузок, гибкие настройки и т.д
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский и др.
+CleanMyMac позволяет избавиться от разнообразного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 декабря 2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB58974ECF280BF785662673403A36048718BC7C
+magnet:?xt=urn:btih:7338DBBD16C08F71964617645B0CA2B8DF02B88D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,106 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341529   (262294) от 28.11.2019
+###  Публикация: 1193309   (262151) от 21.12.2017
 
-Бабье царство (2012) WEB-DLRip [H.264/720p-LQ] (серии 1-4 из 4)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оксана — успешная молодая женщина, директор одного из крупнейших рекламных агентств Москвы. Работа — главное в жизни Оксаны. Она намерена побороться за тендер на рекламную кампанию престижного английского бренда и в результате продолжить работу в Лондоне...Производство: Россия / Про100 ПродакшнЖанр: мелодрамаРежиссер: Кира АнгелинаАктеры: Ольга Ломоносова, Олег Масленников-Войтов, Александр Арсентьев, Полина Пахомова, Евгения Трофимова, Елена Мольченко, Эра Зиганшина, Валерий Дегтярь, Даниил Эйдлин, Иван ЖвакинПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07661CCEC3747154C4A334787C2D69C90955E9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341424   (262287) от 28.11.2019
-
-Мамаша / Мамочка / Mom (2018) WEB-DL [H.264/1080p-LQ] (сезон 6, серии 1-22 из 22) TVShows
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно ступившая на путь трезвости мать-одиночка Кристи пытается наладить свою жизнь в Долине Напа. Кроме собственных проблем, Кристи приходится справляться с чудачествами матери, Бонни, которая тоже состоит в клубе АА.Производство: США / Warner Bros. Television, Chuck Lorre ProductionsЖанр: комедия, драма, мелодрамаРежиссер: Джеймс Уиддоуз, Тед Уасс, Джефф ГринштейнАктеры: Анна Фэрис, Эллисон Дженни, Мими Кеннеди, Бет Холл, Джейми Прессли, Уильям Фихтнер, Мэтт Джонс, Блейк Гаррет, Сэди Кальвано, Спенсер ДэниелсПеревод: Многоголосый закадровый, любительский  (TVShows)Субтитры: английскиеПродолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860D8C9C5E531CA590BAB6B908ACDC45CBA470AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341405   (262281) от 28.11.2019
-
-Acon Digital - Verberate 2 2.1.1 VST, VST3, AAX (x86/x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда дело доходит до реверберации, все зависит от качества звука. Verberate - это плагин с алгоритмической реверберацией, имитирующий реальное акустическое окружение с исключительной реалистичностью. Первая версия Verberate уже подняла планку. В версии 2 представлен алгоритм Vivid Hall, который добавляет временную дисперсию, чтобы избежать жесткости, которая мешает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5DAE6AC575D0416F9A11850282CDE16110DCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193328   (262275) от 20.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Валь Гардена-Грёден (Италия). Мужчины. Скоростной спуск (16.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Четверки (10.12.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 декабря 2017 года, суббота. 14:15 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Валь Гардена-Грёден (Италия).
-Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:06:52
+10 декабря 2017 года, воскресенье. 13:30 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Четверки
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE96A70501A36BD2E33E7A8E4C3E84476E48F15D
+magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193316   (262274) от 20.12.2017
+###  Публикация: 1193332   (262150) от 21.12.2017
 
-Горные лыжи. Кубок мира 2017–2018. Валь дe Изер(Франция). Женщины. Супергигантский слалом (16.12.2017) HDTVRip [H.264/720p-LQ]
+Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 декабря 2017 года, суббота. 12:30 МСК
+17 декабря 2017 года, воскресенье. 11:30 МСК
 Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Валь дe Изер(Франция).
-Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:08
+Альта-Бадия (Италия).
+Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
+magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193388   (262273) от 20.12.2017
+###  Публикация: 1193308   (262149) от 21.12.2017
 
-Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks] <IDM, Bass, Electro>
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moesha Moved To Margate (05:30)
- 02. Manhattan To Moscow (05:35)
- 03. Covehithe (04:15)
- 04. Offbeat World (04:54)(   Читать дальше...   )Жанр: IDM, Bass, ElectroПродолжительность: 00:55:19
+09 декабря 2017 года, суббота. 17:00 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Двойки. 2-я попытка
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
+magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193089   (262266) от 20.12.2017
+###  Публикация: 1193586   (262143) от 21.12.2017
 
-Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Ambient, Jungle, Downtempo>
+VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Innocence (09:46)
- 02. Aurelia (Ziyal Golden Arc Mix) (06:44)
- 03. Return To Essence (06:33)
- 04. Mindtravel (05:47)(   Читать дальше...   )Тип издания: WEBЖанр: Drum & Bass/Ambient/JungleПродолжительность: 01:19:42
+01. Paul Oakenfold – Deep Space (Original Mix)
+02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
+03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
+04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
+magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +143,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193186   (262265) от 20.12.2017
+###  Публикация: 1193430   (262140) от 21.12.2017
 
-Downie 3.1.2 [Multi/Ru]
+afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apart (05:10)
+02. Due (06:07)
+03. Naked Icon (06:55)
+04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193428   (262139) от 21.12.2017
+
+Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anticline (10:01)
+ 02. Iso (05:58)
+ 03. Lead (05:54)
+ 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193297   (262133) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
+02.  Pupo  -  Vita Da Artista  3:19
+03.  Toto Cutugno  -  Solo Noi  4:07
+04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193338   (262132) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Dallara  -  Come Prima  2:05
+02.  Schola Cantorum  -  Il Calendario  2:31
+03.  Pupo  -  La Vita E Molto Di Piu  3:15
+04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193324   (262128) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Al Bano & Romina Power  -  Libertа  4:21
+02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
+03.  Bobby Solo  -  Zingara  2:43
+04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193457   (262126) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raffaella Carra'  -  A Far L'Amore Comincia Tu  2:42
+02.  Carmelo Pagano  -  L'Amore Se Ne Va  2:52
+03.  Umberto Tozzi  -  Notte Chiara  4:15
+04.  Gianni Morandi  -  Se Non Avessi Piu Di Te  2:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193478   (262124) от 21.12.2017
+
+File Cabinet Pro 5.4.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – легкая загрузка видео с тысячи разных сайтов.
-Downie поддерживает более 1,100 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
 
-Поддержка 4K видео YouTube - в отличие от многих других загрузчиков YouTube, Downie поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Французский и др.
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
+magnet:?xt=urn:btih:6901A6C3E185194E4A3DF5A87BE6D0783A608D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193230   (262264) от 20.12.2017
+###  Публикация: 1193253   (262123) от 21.12.2017
 
-VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+VA - Capriccio All’italiana: Italian Hit Parade Vol.21 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Eros Ramazzotti  -  Cosa Della Vita  4:50
-02.  Patrizio Buanne  -  Only You (Solo Tu)  2:41
-03.  Marcella Bella  -  Montagne Verdi  3:02
-04.  Carmelo Zappulla  -  E... Se Ne Ghiuta  4:34(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:10
+01.  Al Bano & Romina Power  -  Che Angelo Sei (Amore Mio)  3:39
+02.  Tiziano Ferro  -  La Differenza Tra Me E Te  3:52
+03.  Sandro Giacobbe  -  Tu Non Cambiare Mai  4:06
+04.  Umberto Tozzi  -  Stella Stai  4:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
+magnet:?xt=urn:btih:0E7A2C296B152F779135767AC4A6CAAAEE94AEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193242   (262263) от 20.12.2017
+###  Публикация: 1193361   (262121) от 21.12.2017
 
-VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+VA - Capriccio All’italiana: Italian Hit Parade Vol.25 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Marcella  -  Quando Verrai  4:37
-02.  Ricchi E Poveri  -  What Now My Love  4:12
-03.  Ornella Vanoni & Gino Paoli  -  Fingere Di Te  3:26
-04.  Umberto Tozzi  -  Claridad  4:22(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:28
+01.  Eros Ramazzotti  -  Piu Che Puoi (Duet With Sher)  4:14
+02.  Mal  -  Pensiero D'amore  3:17
+03.  Matia Bazar  -  Ma Se Credi A Me  4:49
+04.  El Pasador  -  Bamba-Dabam  3:05(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
+magnet:?xt=urn:btih:36271F99C6EC11AB552BC61756704119666F33EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,54 +404,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193252   (262262) от 20.12.2017
+###  Публикация: 1193431   (262119) от 21.12.2017
 
-Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262262.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 5000 Вердену
-2. Коловорот
-3. Янтарний Сокіл Волі
-4. Хрест Іспокон(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193239   (262261) от 20.12.2017
-
-Translatium - translator 7.8.1 [En]
+PDF Squeezer 3.8.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Translatium - одно из самых мощных приложений перевода для macOS, с поддержкой боле чем 150 направлений перевода, проговаривания текста и несколько уникальных функций, таких, как - оптическое распознавание текста (используйте камеру) и рукописное распознавание текста.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
+Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.9.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
+magnet:?xt=urn:btih:FC32E339B119A66B1A1160728485F0DEAF1395EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193231   (262259) от 20.12.2017
+###  Публикация: 1193475   (262116) от 21.12.2017
 
-Audirvana Plus 3.2 [En]
+Fenetre 0.5.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 декабря 2017Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
+magnet:?xt=urn:btih:14545CD2F9F4681A3D8B1A702695C83653A8BCF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +460,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193224   (262253) от 20.12.2017
+###  Публикация: 1193416   (262113) от 21.12.2017
 
-VA - Future Noir - A Collection - Beats For A New Dark Age (1998) Credo [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM, Drum n Bass, Big Beat>
+Soft4Boost Document Converter 5.1.7.697 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Les Jumeaux - Cobalt (05:44)
- 02. Fini Tribe - Squelch (Black Metal Dub III) (09:23)
- 03. White Trash - We Got The Fragile Image (08:00)
- 04. Black Lung - Sinister Control Minority (05:30)(   Читать дальше...   )Тип издания: CD •Жанр: Breakbeat, IDM, Drum n Bass, Big Beat •Продолжительность: 01:15:10
+Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9819B5CAC66D2F2BBE4D52BFD268AF5D1E1588D4
+magnet:?xt=urn:btih:3B339030000F8B40684E3DF6E575B3494FA1F0E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +486,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193248   (262251) от 20.12.2017
+###  Публикация: 1193405   (262109) от 21.12.2017
 
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.12.19) WEB-DLRip (сезон 3, выпуск 25)
+Однажды в России (2017.12.20) WEB-DLRip (сезон 6, выпуск 17)
 
 >>Архив торрентов
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:43:10
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Телекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91DC22224F19AE91336E9059527EE6861C9F0049
+magnet:?xt=urn:btih:D8211EFE5E39C56910E5C3643BC3D9180673294C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +512,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193340   (262239) от 20.12.2017
+###  Публикация: 1193467   (262106) от 21.12.2017
 
-MacFamilyTree 8.2.7 [Multi/Ru]
+Viscosity 1.7.6 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MacFamilyTree - выращиваем семейное древо без труда
-В наши дни генеалогией зачастую занимаются либо профессионалы, либо достаточно увлеченные этой наукой люди... Хотя... - Давайте задумаемся. Возможно, каждому из нас в какой-либо момент жизни становилось интересно, откуда произошел его род, кто были его предки, как жили его прадеды и прабабушки...
+Viscosity является OpenVPN клиентом для Mac, с простым и понятным интерфейсом пользователя для создания, редактирования и управления VPN соединениями. Приложение обеспечивает полную поддержку решения OpenVPN для macOS и не требует никакого дополнительного программного обеспечения.
 
-MacFamilyTree (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+Viscosity может подключаться к любому серверу OpenVPN серверу и позволяет полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D2C00FF2188BD3070274AA26E097E15784BFFE
+magnet:?xt=urn:btih:DB184F72DE5FF34356A38E58D18E2347893F851B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,80 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193351   (262237) от 20.12.2017
+###  Публикация: 1193498   (262091) от 21.12.2017
 
-Однажды в России (2017.12.20) SATRip (сезон 6, выпуск 17)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:45:51Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8014C037B60051F383BDC25AE86B1F554ED4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193249   (262236) от 20.12.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.12.19) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 25)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262236.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79410FEF8282C06FC4283782C95DB9C50C16FC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193365   (262235) от 20.12.2017
-
-VA - Nuages Records - Midnight Music 3 (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, ChillHop, Jazzy Hop>
+VA - Capriccio All’italiana: Italian Hit Parade Vol.27 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. J Create - Soundolosophy (2:27)
-02. ChasBeats - Buildings at Night (3:14)
-03. 3. Erik Jackson - And if the World Ends (2:53)
-04. 4. Funkonami - Midnight Runner (3:04)(   Читать дальше...   )Производство: Nuages RecordsЖанр: Hip-Hop, ChillHop, Jazzy Hop, Downtempo, Lo-Fi, Trip HopПродолжительность: 00:53:18
+01.  Nada  -  Brividi D'amore  3:42
+02.  Carmelo Zappulla  -  Dimme Comm' aggia Fa  5:18
+03.  Laura Pausini  -  Non c'e  4:36
+04.  Tanita Tikaram  -  And I Think Of You (E Penso A Te)  4:19(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D37945374E821ACCE8A622C46B6BE29DB37743CA
+magnet:?xt=urn:btih:2329567134D55B27C84305DF4026747F35522454
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,26 +569,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193229   (262226) от 20.12.2017
+###  Публикация: 1193525   (262087) от 21.12.2017
 
-Maxthon Browser 5.1.4.3000 + Portable [Multi/Ru]
+Ashampoo Photo Commander 16.0.1 RePack by вовава [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ashampoo Photo Commander 16 - это всестороннее решение для просмотра, редактирования и организации Ваших фотографий, да ещё и с геотегами! Привнесите порядок в Вашу библиотеку фотографий, пакетно оптимизируйте несколько файлов за раз или создавайте Ваши собственные календари, поздравительные открытки и слайд-шоу с лёгкостью. Тщательно контролируйте и управляйте Вашим (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96701C9BB7FF83C22A1A9BC603421272CBF3E3F3
+magnet:?xt=urn:btih:4C721B209C2A2C6D5A21D42AD6E46DD0E5CF2A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +595,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193251   (262225) от 20.12.2017
+###  Публикация: 1193574   (262081) от 21.12.2017
 
-UC Browser 7.0.125.1802 [Multi/Ru]
+Avast Clear 17.9.3761.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UC Browser для Windows - современный веб-браузер, который поддерживает новейшие веб-технологии и стандарты, обладает удобным интерфейсом, и предоставляет всё, что нужно для комфортного и безопасного веб-серфинга. UC Browser полностью поддерживает расширения и плагины от Google Сhrome, которые можно установить из магазина дополнений, кроме этого имеет и собственный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78B0343030E4572BCC8943B2AAF797F231406DA1
+magnet:?xt=urn:btih:EFF930D8C82400119740D7C8FAB96B92C9213D47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +621,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193223   (262221) от 20.12.2017
+###  Публикация: 1193460   (262080) от 21.12.2017
 
-Athentech Perfectly Clear + WorkBench 3.5.5.1137 [En]
+Ashampoo Burning Studio 19.0.1.4 Portable by PortableAppZ [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+Попробуйте классическую программу в новом исполнении! Ashampoo Burning Studio не только выглядит роскошно, она ещё и содержит тщательно улучшенный набор функций. Новая защита от царапин создаёт диски, которые пригодны для чтения даже когда их поверхность поцарапана! Новая функция истории восстанавливает последние 20 проектов по требованию, включая все Ваши изменения. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:934EAF1333CC4A3E2BE5B2674FD913B165653591
+magnet:?xt=urn:btih:94F3848CB5D89AE76E9FB3954BB774DBCE6BFBC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +647,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193217   (262218) от 20.12.2017
+###  Публикация: 1193446   (262076) от 21.12.2017
 
-qBittorrent 4.0.3 Portable by PortableApps [Multi/Ru]
+Mate – Dictionary, Translator (мгновенный переводчик) 4.0.4 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-qBittorrent — мощный, многофункциональный, графический Bittorrent клиент. Несмотря на кажущуюся простоту в qBittorrent реализованы практически все возможности протокола bittorrent: DHT, Peer Exchange, Full encryption, Magnet URI и т.д. qBittorrent имеет расширенный контроль над трекерами, пирами и торрентами, выставление приоритетов и очереди торрентов в зависимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Прекращайте изучать языки и заниматься переводом старыми неэффективными способами. Загружайте переводчик Mate Translate для Mac уже сегодня! Mate Translate – это исчерпывающие словари 103 языков мира, разговорники, синхронизация переводов и фраз между всеми вашими устройствами и прямой доступ через вашу панель меню Mac.
+
+Mate Translate обладает невероятно полной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: Twopeople Software LLCПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC1FCDDBFF61EE11BF54DF5C64FFDC5A832F7E9C
+magnet:?xt=urn:btih:AE98B33C73271F330A665EB17B8A58A4A2482DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193408   (262068) от 21.12.2017
+
+Luminar 2018 v1.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C0420E3645E2DFD79CE5CF27BF918C4AE581A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193517   (262066) от 21.12.2017
+
+Драка в блоке 99 / Brawl in Cell Block 99  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боксер и наркодилер Брэдли Томас пытался завязать с преступным прошлым, но оно затащило его обратно. Он с подельниками попался с поличным и отправился в тюрьму на 7 лет. И всё это так не вовремя, жена беременна долгожданной дочкой, а тут ещё на свиданку заявляется непонятный тип и, шантажируя нерожденным ребенком, велит Брэдли убить заключённого в блоке 99 (   Читать дальше...   )Производство: США / Assemble Media, Caliber Media Company, Cinestate, IMG Films, Nasser Group, Realmbuilders Productions, XYZ FilmsЖанр: драма, криминалРежиссер: С. Крэйг ЗалерАктеры: Винс Вон, Дженнифер Карпентер, Марк Блукас, Роб Морган, Дон Джонсон, Том Гайри, Удо Кир, Фред Меламед, Дэн Амбойер, Гено Седжерс, Пуджа Кумар, Кларк ДжонсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 02:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FF0163B171ADBB22C2414B809664F390610C8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

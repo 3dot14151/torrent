@@ -1,3 +1,208 @@
+###  Публикация: 1355787   (976574) от 01.02.2020
+
+Вадим Самойлов - 15 Music Videos (2012-2019) WEB-DL [H.264/480p/720p/1080p-LQ] <Alternative Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Звездочёт [656 x 480].mkv
+2012 - Никогда [854 x 468].mp4
+2012 - Чёрная луна [656 x 480].mkv
+2015 - Алхимик [1280 x 720].mp4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38DFC791554417963EFDA76708AB0B5CF98A82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974574   (975575) от 12.01.2016
+
+VA - Зимний марафон № 218: Зимняя волна новинок (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (11.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amna ft. Robert Toma - In oglinda (Marc Rayen and Electric Pulse Remix) (Official Video) (00:03:31)
+02. Bahh Tee - Взрослеем (С днём рождения) (Премьера!) (00:03:53)
+03. Cardiknox - On My Way (Official Video) (00:04:09)
+04. Cee Jay ft Laurish - Ar Dae Wonder (Official Video) (00:04:19)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D452665C4A2943974F06C4120C9A47CD6D2570E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356783   (975530) от 02.02.2020
+
+U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/480p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый DVD группы U-ka saegusa IN db, содержит коллекцию клипов и запись двух живых выступлений.
+
+Источник: лицензионный DVD5VIDEO CLIPПроизводство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8828D1AAC427B78C977F18CEB6CB8E4CB1D7E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354843   (975453) от 02.02.2020
+
+Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <Death Metal, Black Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 Behemoth - Lucifer (Uncensored) (1280 x 720).mp4
+2019 Behemoth - Bartzabel (1920 x 1080).mkv
+2019 Behemoth - Sabbath Mater (2560 x 1440).mkv
+2019 Behemoth - Wolves Ov Siberia (Radio 1 Session) (1920 x 1080).mkv(   Читать дальше...   )Жанр: MetalПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CF6D6ADC1892DC95DE91088E1FFCA820422CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616196   (974857) от 10.02.2013
+
+Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие баллады великого виртуоза....01. Always Gonna Love You
+02. Still Got the Blues
+03. Empty Rooms
+04. Parisienne Walkways (live 1992)
+05. Separate Ways
+06. Story of the Blues
+07. Midnight Blues (live 1990)
+08. Jumpin' at Shadows (live 1992)
+09. The Loner
+10. Still Got the Blues (live 1990)Жанр: Музыка, Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A903AE67B9924C1D96F4876DB5ADF688D47004E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357258   (974326) от 03.02.2020
+
+Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зверские инстинкты (2014) ''Маньяк''
+Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
+Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
+Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617540   (972478) от 12.02.2013
+
+Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C9BA189BF073A4952274300922C591A9FC1A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617600   (972461) от 12.02.2013
 
 Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
@@ -503,197 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F715757D101865CB0A7AF25DD7505E15283C042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618158   (967560) от 16.02.2013
-
-Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Metal RockПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76282BF0C803CF0D985B464D3B1994DABB43AF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618159   (967348) от 16.02.2013
-
-Сборник видеоклипов 2012 года / Music Video (2012) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов зарубежных исполнителей 2012 года в высоком качестве.Жанр: Музыка, клипы, PopПродолжительность: ~04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CAA25BF191B56C9CB58BB686762AC0B52E89AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619645   (966183) от 17.02.2013
-
-Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rihanna, Chris Brown, Katy Perry, Mariah Carey, Flo Rida, Justin Bieber, Nicki Minaj, The wanted, Pitbull and More...Жанр: PopПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6034C727A27FD352AD21E514A25319D98A5AF782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977534   (965412) от 21.01.2016
-
-VA - Зимний марафон № 220: Зимний Снегопад Хитов (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (20.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alai Oli ― Тлен (Премьера!) (00:03:36)
-02. Alberto Ciccarini - Clorophilla (Official Video) (00:03:46)
-03. Alexander Project - Весь мир с тобой (Премьера!) (00:04:37)
-04. All Давай - Ай как больно (Премьера!) (00:04:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Шансон, IndieПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359222   (964934) от 11.02.2020
-
-Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
-02_Боронина - Малолетка
-03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
-04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619111   (964048) от 19.02.2013
-
-BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359616   (964011) от 12.02.2020
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
-01. Def Leppard — Let’s Get Rocked
-02. Offspring — Gotta Get Away
-03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

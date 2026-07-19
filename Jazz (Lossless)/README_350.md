@@ -1,119 +1,3 @@
-###  Публикация: 1780523   (70460) от 18.02.2025
-
-Tape Five - Best of ... Swing Edition (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tape Five feat. Henrik Wager - Bad Boy Good Man (Aerophon Mix) (4:15)
-02.  Geraldines Routine (3:09)
-03.  Crazy Little Thing Called Swing (2:50)
-04.  Dixie Biscuit (Tonight Josephine Mix) (3:46)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2564EE76CDECC7E5C60023EFF11F1790BC8CC665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780546   (70456) от 18.02.2025
-
-VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chillaxonic - Nowhere to Somewhere (5:02)
-02.  eJazz Artistry - Come Share My Love (4:31)
-03.  Chillaxonic - Oasis (4:58)
-04.  Love Suggestions - Treasure (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2C988251502788FD45404F1790C4B253947CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780534   (70454) от 18.02.2025
-
-VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boney James - Stop, Look, Listen (To Your Heart) (4:56)
-02.  Kenny G - Ritmo y Romance (7:11)
-03.  Peter White - Always, Forever (Album Version) (5:08)
-04.  Gerald Albright - Because Of You (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780526   (70439) от 18.02.2025
-
-VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
-02.  Lo Greco Bros - Crooked Hip (5:33)
-03.  Avex - Ain't Talking Sugo (2:29)
-04.  Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1EE2EFC25781B6010F8AC8C950FE79C321749C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780518   (70433) от 18.02.2025
 
 Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -744,6 +628,122 @@ Abdullah Ibrahim - Fats Duke & The Monk (1973) 1994, Sackville [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757DD41ABEB052388DE7E327974CEE9A05F43B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781084   (70316) от 21.02.2025
+
+Don Pullen & The African-Brazilian Connection - Ode To Life (1993) Blue Note [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, World Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Third House on the Right [5:03]
+02. Paraty [9:03]
+03. El Matador [6:06]
+04. Ah George, We Hardly Knew Ya [13:06](   Читать дальше...   )Жанр: Afro-Cuban Jazz, World Fusion, Piano JazzПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290B519DC2D256CB0C108471A31BA679B95C02BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781261   (70240) от 22.02.2025
+
+Kenny Garrett Quintet - Introducing Kenny Garrett (1985) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Openers [6:28]
+02. Have You Met Miss Jones [9:19]
+03. A Silent Prayer [8:03]
+04. Blues in the Afternoon [4:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38473284040F7F029467CB4C09459ED42EEB051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781254   (70239) от 22.02.2025
+
+Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Fry [6:16]
+02. Smoke This [6:08]
+03. Pennies from Heaven [5:17]
+04. Pots and Pans [3:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 02:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B8A194426C1D1384BB61323090A5F55081F7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781257   (70238) от 22.02.2025
+
+Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow [4:23]
+02. Angels Have You Heard on High (feat. Carlos Chong) [4:48]
+03. Mary Did You Know (feat. Yaritza Lopez, Irma Treminio) [5:43]
+04. Peace on Earth (feat. Derick Hughes, Carl Wheeler) [7:02](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D7E0B023B4FD8B632322CA682E475A2666DF31
 ```
 
 https://mybot314.ru/tekegram_catalog/

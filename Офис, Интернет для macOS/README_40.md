@@ -1,29 +1,3 @@
-###  Публикация: 1628272   (236774) от 22.04.2023
-
-Cisdem PDF Compressor 4.0.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDFCompressor является программным обеспечением для сжатия PDF файлов. Программа позволяет уменьшить размер всех ваших PDF файлов до 90%, сохраняя при этом их исходное качество неизменным. С Cisdem PDFCompressor, вы можете сэкономить место на Вашем компьютере, а также обмениваться PDF-файлами с друзьями/коллегами значительно быстрее.Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00CC9C7D0BB4FCD0D7392C76AD8807E3821ACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608898   (236701) от 01.02.2023
 
 OpenIn 4 Advanced Link Handler 4.0.7 [En]
@@ -681,6 +655,32 @@ Facebook, IM, Pinterest, Twitter, Instagram, Tumblr, Reddit и YouTube, Vimeo и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C8BFD913A9B56F19BE7F678A837E2C551BE92DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649003   (230741) от 25.07.2023
+
+Task Office 8.15 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2015 – 2023 by DK ConsultingПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137F0C6A6FFFE776278AFBF1A629D65D4FAA7EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1792692   (67647) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Wonderland Seamless Patterns [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры на летнюю тему. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CC10A21627805EAD4F78F3869A64D5A5CAF76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792687   (67632) от 20.04.2025
 
 Растровый клипарт - STCrafts - Creative Fabrica - Groovy Lilly Pulitzer Hippie Mug Wrap Sublimation Design [PNG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE2979471FFED5A7970B57061BA4EA3F8DF0D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793474   (67523) от 24.04.2025
+
+Растровый клипарт - Creative Fabrica - Designworld - Summer Path Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с летними тропинками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBB55C1BB4B89BDB9716DCECBC9CC5B7F6CDAF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

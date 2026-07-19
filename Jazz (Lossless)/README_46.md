@@ -1,32 +1,3 @@
-###  Публикация: 995470   (884786) от 11.03.2016
-
-Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alone Together [03:19]
- 02.Blues in C Minor [06:08]
- 03.River Dry [13:06]
- 04.Round Midnight [09:15](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582DA309CF7652CB18096DB9571525507CFDCEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995488   (884760) от 11.03.2016
 
 Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
@@ -745,6 +716,35 @@ Martial Solal - Trio (1953-1955) 2016, Sony Music [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4E8B6CCCEDC765121158A980EAA216A0AD57A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104210   (880351) от 15.02.2017
+
+Jack Teagarden - At The Roundtable (1959) Remaster, 2016, Warner [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.South Rampart Street Parade [06:05]
+ 02.St. James Infirmary [06:45]
+ 03.Big Noise From Winetka [03:30]
+ 04.When [03:21](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9507FE2F2F0B7D1FBBE33534F99CEE6879B7AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

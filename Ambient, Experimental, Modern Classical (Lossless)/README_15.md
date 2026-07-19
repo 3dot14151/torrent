@@ -1,29 +1,3 @@
-###  Публикация: 1252945   (388031) от 07.10.2018
-
-A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Klangendum (46:21)Жанр: Ambient, Techno Ambient, TechnoПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFED7EBADF082E63A0C23604FAA258F8F3DC2F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414216   (387878) от 07.10.2020
 
 Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
@@ -738,6 +712,35 @@ Above & Beyond - Flow State (2019) [FLAC|Lossless|tracks + .cue] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809ACB37C9146DB47B7E4FFF21A3A32214BD44F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302520   (361208) от 01.10.2019
+
+Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Celephaïs (06:55)
+2. Hypnos (08:46)
+3. Polaris (09:09)
+4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
 ```
 
 https://mybot314.ru/tekegram_catalog/

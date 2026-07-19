@@ -1,3 +1,90 @@
+###  Публикация: 1682982   (129875) от 09.12.2023
+
+AlimkhanOV A. - Way to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way To You
+02. Heart To Heart
+03. Lady Delight
+04. My Wonder Island(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683336   (128705) от 10.12.2023
+
+Kelvin Momo - Kurhula (2023) [FLAC|Lossless|WEB-DL|tracks] <Afrobeats, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kurhula [00:04:35]
+02. Uthando [00:07:24]
+03. Wa Nsiya [00:08:12]
+04. Uku Khanya [00:06:31](   Читать дальше...   )Жанр: Afrobeats, DanceПродолжительность: 03:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52ED0E38B7AE88431AEC3E4645B19BBEA0AF3961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683943   (128146) от 13.12.2023
+
+Eddy Huntington - Bang Bang Baby (1989) Reissue, 2023, ZYX Music (2) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Señorita 3:49
+02. Physical Attraction 4:21
+03. God Is Love 4:25
+04. Meet My Friend 3:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70598A9CA9794C50BF9205AE51756231E8424F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823665   (125921) от 12.10.2025
 
 Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -653,93 +740,6 @@ VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:099CDE9098220209EA474F754B6A50ECB2DAE60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724076   (109345) от 18.05.2024
-
-Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačinas [FLAC|Lossless|WEB-DL|tracks] <Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Diena Einam (5:44)
-02. Ilgas Laukimas (4:48)
-03. Prie Atminimu Upes (7:49)
-04. Klausyk, Mieloji (8:52)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B970186E10B847F8466A7088BFA046D319B5EB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724067   (109327) от 18.05.2024
-
-Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Night (5:13)
-02. Remember (3:07)
-03. In My Heart (3:27)
-04. Run Away (3:26)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855FF132179DE4E521435D46BD14D335EF25403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724585   (109234) от 20.05.2024
-
-VA - Fulltime Production Disco Classic, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B. and Band - Whistle Fantasy (Extended) (5:45)
-02. Selection - I'm So Glad (4:19)
-03. Rainbow Team - Let Your Body (4:00)
-04. Jimmy Ross - Chocolate Ice (5:52)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCFECCE7BF69225A481D2470382113920902E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

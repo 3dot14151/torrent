@@ -1,3 +1,191 @@
+###  Публикация: 1367076   (918770) от 14.03.2020
+
+Квартирник НТВ у Маргулиса. Николай Носков (13.03.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришел заслуженный артист России Николай Носков. В музыкальную индустрию он попал благодаря группе «Ровесники», но настоящую славу и популярность ему принесла группа «Парк Горького». Дебютный альбом Gorky Park стал популярным не только в Союзе, но и за ее пределами: пластинка заняла 81-е место в списке 200 самых популярных альбомов журнала (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D2E39E482065269858D780F4D838C15AFA8E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988094   (918683) от 21.02.2016
+
+Доницетти - Дон Паскуале   Метрополитен опера 2010г / Gaetano Donizetti - Don Pasquale (2010) BDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный актёрский состав с фантастическими голосами, чудесная музыка и отличная операторская работа делают просмотр этой прекрасной оперы настоящим удовольствием! Обворожительная Анна Нетребко (Норина), потрясающий Джон Дель Карло (Дон Паскуале), темпераментный Мариуш Квечене (доктор Малатеста) не оставят Вас равнодушными к этой опере!Производство: СШАЖанр: Опера буфф (Opera buffa)Режиссер: Отто Шенк (Otto Schenk)Актеры: Дон Паскуале - Джон Дель Карло (Don Pasquale - John Del Carlo), Доктор Малатеста - Мариуш Квечень (Dr. Malatesta - Mariusz Kwiecien), Эрнесто - Мэтью Полензани (Ernesto - Matthew Polenzani), Норина - Анна Нетребко (Norina - Anna Netrebko), Нотариус - Бернард Фитч (Un notaro - Bernard Fitch), Дирижёр: Джеймс Левайн (Conductor - James Levine), Хор и оркестр Нью-Йоркского (   Читать дальше...   )Перевод: Не требуетсяЯзык субтитров: РусскийПродолжительность: 01:29:27+00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C403C0F087475432FB7DD1068BD937268DFEBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366729   (918498) от 14.03.2020
+
+Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux [H.265/2160p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918498.jpg" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.01. Coming from the Vortex
+02. Interstellaires
+03. Sans logique
+04. Rolling Stone(   Читать дальше...   )Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91949C8086C46EA765467305B5A603655B7167CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632368   (917991) от 21.03.2013
+
+VA - Ultra Music Festival 2012 (Miami, USA) (2012) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917991.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 23 по 25 марта 2012 года город Майами был захвачен толпой фанатов, жаждущих звука и света от ведущих диджеев и артистов планеты. Ultra Music Festival – самый крупный фестиваль США, получивший награду в номинации «Лучший интернациональный танцевальный фест»01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
+02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
+03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
+04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Trance & HouseПродолжительность: ~04:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8B56C20E7B976C50E1295D35ADC76CB147E2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632981   (917960) от 21.03.2013
+
+Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633196   (917829) от 21.03.2013
+
+Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C56DFD4BB0E7EA2FCA635E041F1C50FF78AE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757407   (917648) от 16.02.2014
+
+Big Love Show. Грандиозный концерт ко Дню всех Влюбленных (2014.02.15) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия самого романтичного концерта года – «Big Love Show 2014» в СК «Олимпийский». Это шоу всегда считалось одним из самых ярких событий в музыкальной жизни страны. На сцене — только настоящие звезды, а на танцполе – влюбленные пары и одинокие сердца, у которых есть прекрасная возможность найти свою половинку! В концерте примут участие Дима Билан, Сергей Лазарев, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D759713D7A1E3201F62D7694158E69AD7BBEE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367146   (917326) от 15.03.2020
 
 Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
@@ -518,206 +706,6 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757926   (911782) от 19.02.2014
-
-The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_911782.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
-02. Brian May, Roger Taylor, John Deacon — Introduction
-03. Metallica — Enter Sandman
-04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096679   (911761) от 28.01.2017
-
-Машина Времени - Концерт в Киеве 2012 (2014) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица людей. (   Читать дальше...   )Производство: CD LAND/Sintez RecordsЖанр: МузыкаРежиссер: Герман СадченковПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59C4EDA4CC40472CCE5121E44DCD63B323F7216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990445   (911715) от 25.02.2016
-
-Shania Twain - UP! Close & Personal (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	I'm Gonna Getcha Good!
-2	Ain't No Particular Way
-3	From This Moment On
-4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BB855D5E16B4EE367A2BBE179DA9126A5DA44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989610   (911625) от 25.02.2016
-
-Shania Twain - LIVE (1999) Come On Over, DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Man! I Feel Like A Woman!
-2	Honey, I'm Home
-3	You Win My Love
-4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243AEB90D0BA91E864008650CA168BF66B44524E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990195   (911616) от 25.02.2016
-
-Shania Twain - The Platinum Collection (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	What Made You Say That
-2	Dance With The One That Brought You
-3	You Lay A Whole Lot Of Love On Me
-4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country, Pop, Rock.Продолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BE4BF66D410451215F2953D81F5B40ADDBB042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990261   (911603) от 25.02.2016
-
-Shania Twain - UP! Live In Chicago (2003) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Man! I Feel Like A Woman!
-2	Up!
-3	Honey, I'm Home
-4	She's Not Just A Pretty Face(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD9E0BD15DF352A8F8292F4A18C65A591EED51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989811   (911599) от 25.02.2016
-
-Shania Twain - The Specials (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Man! I Feel Like A Woman!
-2	Honey, I'm Home
-3	All I Have To Give (Featuring Backstreet Boys)
-4	You're Still The One/Something About The Way You Look Tonight (	Featuring Elton John)(   Читать дальше...   )Жанр: Country, Rock, PopПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8C4E8FB9856D9738CB2161DAB73A3B206038FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

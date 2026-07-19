@@ -1,3 +1,90 @@
+###  Публикация: 1394111   (765472) от 03.07.2020
+
+Poltergeist - Feather of Truth (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time at Hand (04:47)
+ 02. Saturday Night s Alright for Rockin (05:11)
+ 03. Feather of Truth (05:13)
+ 04. The Attention Trap (03:41)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC07AECAA4D3BE449849CF0C7C9E47ADBE9F63AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215010   (765076) от 02.01.2022
+
+Raven Black - Discography 13 Releases (2016-2021) [MP3|320 Kbps] <Alternative Metal, Nu Metal, Theatrical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765076.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Seven Sins
+2018 - 13
+2020 - The Key
+Singles:(   Читать дальше...   )Жанр: Alternative Metal, Nu Metal, Theatrical MetalПродолжительность: 01:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1F7224355592D464DDEBEE43644A1203BE9137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394254   (764696) от 04.07.2020
+
+Lost Conduit - Astral (2020) [MP3|320 Kbps] <Metalcore, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral (04:11)
+ 02. Eternity (feat. Ben Duerr) (04:07)
+ 03. Ember (04:04)
+ 04. Aversion (feat. Luke Griffin, Greg Gilbert & Lucca Schmerler) (03:51)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE3F9E5B8B6D73E76B1940FAEC206BE66FB5211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126716   (764617) от 19.04.2017
 
 Evocatus - Mortem in Deos (2017) [MP3|320 Kbps] <MDM, Thrash Metal>
@@ -658,93 +745,6 @@ The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215619   (758105) от 26.03.2018
-
-Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracksleep
-02. Reset
-03. Deep Frost
-04. Aberration of Nature(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215612   (758097) от 26.03.2018
-
-Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Hedges
-02. Lucifer's Factory
-03. Cushy Glen
-04. Last Night In Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740596189381EB946AF8865F513DA284AA142CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018062   (757745) от 19.05.2016
-
-Godslave - Welcome To The Green Zone (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Zone
-02. Bloodbound Pack
-03. So Let It Burn
-04. Because We Can(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9834CC3DA5DE3015BBDD333C89C9233A95495D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

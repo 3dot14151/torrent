@@ -1,3 +1,32 @@
+###  Публикация: 971958   (984770) от 04.01.2016
+
+VA - Enhanced Best Of 2015 (Mixed By Will Holland) (2015) [MP3|320 кб/с] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Hayes ft Kyler England - Golden (Radio Mix) [03:33]
+02. Tritonal ft Skyler Stonestreet - Electric Glow (Arston Radio Mix) [03:36]
+03. Speed Limits & Jaco ft Joni Fatora - Palm Of Your Hand (Aerosoul Remix) [05:30]
+04. Tritonal - GAMMA GAMMA (Radio Mix) [04:12](   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 04:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35C7A1281086218A3D10428143E76BAB85725AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355266   (984756) от 25.01.2020
 
 ForkLift 3.3.8 (199) [Multi/Ru]
@@ -668,34 +697,6 @@ VA - Space Holidays vol.7 (2015) [MP3|320 кб/с] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC161182CEB0B226E1B69597630A5FBD5068D21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972059   (984471) от 04.01.2016
-
-Downie 2.2.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 января 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B90500E85DDC2BC3C5EC9A07C5F30C4F20E4690
 ```
 
 https://mybot314.ru/tekegram_catalog/

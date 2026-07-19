@@ -1,293 +1,3 @@
-###  Публикация: 1582522   (206311) от 09.10.2022
-
-VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruck P – Green Valley Trail (2:43)
-02. Teddy Roxpin – Highland Park After Dark (1:47)
-03. Blue Wednesday, juniorodeo – Find Yourself (2:12)
-04. dryhope – Zero Point (1:56)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B220AF51334182939218F59E92606858316693E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617208   (201673) от 07.03.2023
-
-Элджей - SAYONARA Боль (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окошки
-02. Punks Not Dead
-03. Алка-зельтцер
-04. Sayonara bоль(   Читать дальше...   )Жанр: Рэп, Rap, Hip-HopПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F52403E3801EBB3447A7BCAC8872951A0F8528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620923   (200981) от 22.03.2023
-
-Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me More (03:23)
-02. No God (03:17)
-03. Hurting Interlude (00:18)
-04. Lose You (03:10)(   Читать дальше...   )Жанр: Contemporary R&B, VocalПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 83256   (200328) от 03.04.2023
-
-Т9 - Вдох - Выдох (2008) [MP3|320 kbps]<Hip-Hop|R`N`B>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO
-02. Ода Нашей Любви (Вдох-Выдох)
-03. Кто-то развел мосты
-04. Nockio(   Читать дальше...   )Жанр: Hip-Hop|R`N`BПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4ABBE43016F205B6035C87EE0225E622858F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639127   (197259) от 11.06.2023
-
-VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birocratic, Saib, ØDYSSEE – Bonaventura (2:25)
-02. cocabona, Emperose – Lost Woods (3:14)
-03. Mo Anando – In Sequence (2:39)
-04. Misha, Jussi Halme – Soul Lounge (3:29)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7BFD808F60F8BAE8B0637A31BEDDF160EFC49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658760   (190509) от 10.09.2023
-
-Аким Апачев - Гори ясно (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гори ясно [00:02:15]
-02. Армата 2.0 [00:02:23]
-03. Финист [00:03:16]
-04. Хмеймим 2.0 [00:02:26](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24ECC7FB011114836B6F66BC0D91AC9E7777EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658774   (189751) от 12.09.2023
-
-Кисло-Сладкий & Bonah - UWU (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - INTRO [00:01:04]
-02 - OK! [00:03:15]
-03 - NO HOOK [00:02:59]
-04 - AM JALAMA [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0484EB86EF2AECAA1AEC8E0D0E47544DD30AA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660451   (189712) от 12.09.2023
-
-VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vhsceral – River's Bass (2:12)
-02. J.Folk – Grey (2:14)
-03. Ian Ewing – 4urluv (2:32)
-04. Kreatev – Red M3 (2:02)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE3580F42454BB26FB2751EE0E1E10D21ECEFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589861   (189644) от 11.11.2022
-
-VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ольга Бодрова/Пётр Балабанов - Поколение Брат
-2. ZOLOTO - Крылья
-3. ЛАУД - Чёрные птицы
-4. FEDUK - Гибралтар (Prod. by Sasha Xuman)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB7739D54328EDCD23F07B83CA7186DA999E496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286061   (185809) от 20.10.2025
-
-VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Abstract Hop, Trip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JIM - La Douche (Intro) (2:16)
-02. Tor - Heikki (5:21)
-03. Poldoore - Solstice (4:29)
-04. Travelling Day - Smoking Dog (2:31)(   Читать дальше...   )Производство: DLoaw & CoЖанр: Instrumental Hip-Hop, Abstract Hop, Breakbeat, Downtempo, Trip Hop, BeatsПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3B75D66F66FB0E226D85BE74557508D6C2C9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426953   (185099) от 26.11.2020
 
 25/17 - Байки из склепа. Часть 3 (2020) EP [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -745,6 +455,296 @@ Every Ray Charles album post-1960 is represented here, along with singles not av
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893BADE8258144D89AAB6A7EB2EFD3D3E7781985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429902   (174984) от 08.12.2020
+
+VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hip-Hop, Trip Hop, Fusion Jazz>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. invention_ – Snowstalgia (3:05)
+02. Shopan – There and Back (3:12)
+03. Ruck P, Shuko – 5 am (2:12)
+04. Swørn – Going Back (2:01)(   Читать дальше...   )Производство: Chillhop MusicЖанр: ChillHop, Hip-Hop, Trip Hop, Fusion JazzПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD960D802A743B352844523CEB0548A3E30820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595738   (174842) от 06.12.2022
+
+Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174842.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saloon
+2. Ночь
+3. Временно
+4. Не теряя(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D98FC2C479DCA8930E0A7AC13FF9E0AE281EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595731   (174380) от 07.12.2022
+
+Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атлант
+02. Utopia
+03. Мало Нам
+04. Психопатия(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F0FC2152FE5DF059524B995725197FC9815C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596136   (173830) от 08.12.2022
+
+Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intrx.0000
+02. My Suicide
+03. The Walking Dead
+04. Lxuder(   Читать дальше...   )Жанр: Trap, Hardcore Hip-HopПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668433   (173162) от 14.10.2023
+
+25/17 - Радость встреч и расставаний (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радость [00:03:34]
+02. Хлопок [00:03:54]
+03. Околокосмоса [00:04:27]
+04. Позвони [00:05:15](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95DDD6CB4B5365FBB5ADC2AC410268DD68A0B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669960   (172479) от 18.10.2023
+
+Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Couldn’t Be Done (feat. Kelly Price) (2:31)
+02. Blackest in the Room (2:47)
+03. Pain & Strife (feat. Offset) (2:37)
+04. Zipper Bagz (2:14)(   Читать дальше...   )Производство: Warner RecordsЖанр: Rap, Hip-HopПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C56B8C5A92D75086E74F601C887201921DCD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344379   (170273) от 10.12.2019
+
+Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мои дети не будут скучать
+02. Пусть они умрут (feat. Noize MC)
+03. Все хорошо (feat. Inice)
+04. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BB9510B1199BFBC441FFD4D994813E02D41145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344388   (170261) от 10.12.2019
+
+Каста - Об изъяне понятно (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прошел через (4:21)
+ 02. Привет, придурок (3:50)
+ 03. Молодой с молодой (3:46)
+ 04. Колокола над кальянной (3:41)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2539087E1880EBF5B14EB4AE1B1DCA874B819BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344664   (169593) от 11.12.2019
+
+Заточка - Как в американском фильме (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белый (4:10)
+ 02. Автозак (3:16)
+ 03. Сам девчонка (3:15)
+ 04. Петь блюз (3:16)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47F02A9AC32982B1A16BAA9C1BBBF8B9AB5F961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430687   (169544) от 11.12.2020
+
+Каста - Чернила осьминога (2020) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169544.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:33] 1. Каста - Пароль от почты
+[4:28] 2. Каста - Не то
+[4:42] 3. Каста feat. Рем Дигга - Годы неправды
+[3:35] 4. Каста - Нипонимони(   Читать дальше...   )Жанр: RapПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613AF003B451EA2316CC26BB3E4DCC96F892CCFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

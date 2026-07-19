@@ -1,32 +1,3 @@
-###  Публикация: 1587720   (192333) от 01.11.2022
-
-VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigi D'Agostino - L'amour Toujour (Original Mix)
-02. Robin S. - Show Me Love (StoneBridge Radio Edit)
-03. Fragma - Toca Me (Radio Cut)
-04. Mauro Picotto - Iguana (On Air Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:56:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587716   (192326) от 01.11.2022
 
 VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
@@ -743,6 +714,35 @@ DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB1B084088B1F12471F3A48560718D0D9B2B2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698423   (118475) от 09.02.2024
+
+VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118475.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anton Lacosta/Novoland Music - Synergy
+2. SATOMIC/Melis Treat - SKIN
+3. Hrederik - Somebody That You Loved
+4. JeeGas - All Night(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CDC0460AE94E5BEA13E0C6541C50B511B9A63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

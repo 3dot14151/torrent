@@ -1,90 +1,3 @@
-###  Публикация: 1432748   (162900) от 18.12.2020
-
-VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1er Discopera - Fickle Love (1978) (4:14)
-02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
-03. Alain Chamfort - Manureva (1979) (6:44)
-04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517497   (162285) от 16.12.2021
-
-VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка не стоит на месте и в канун уходящего года артисты успевают не только подготовится к праздникам, но и выпустить свои новинки. Предлагаем вам сборник из 170 свежих треков популярно-танцевального формата, здесь Вы найдете все самое новое и интересное - возвращение уже почти забытых исполнителей, интересные дуэты, хиты новых исполнителей и много хорошей качественной (   Читать дальше...   )001. Mo' Jive - Dixieland
-002. Five Steps Beyond - That Kind Of Day
-003. X-Perience - Never Look Back
-004. Joan Armatrading - Already There(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2836153C4FB14640F38969E3B559C4C0F4190DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824607   (162281) от 18.10.2025
-
-Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Day
- 02 - Stay Forever
- 03 - Je Danse
- 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517739   (162127) от 16.12.2021
 
 VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
@@ -745,6 +658,93 @@ VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABDD39C1953C1EB8DFFF8FC56265F8791A93449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518434   (155696) от 19.12.2021
+
+VA - German Top 100 Single Charts 17.12.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. GAYLE - abcdefu
+04. Sido - Mit Dir(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D8B6C0431F55850682DBAF2C7243882177FFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346921   (155682) от 21.12.2019
+
+VA - German Top 100 Single Charts 20.12.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Nimo & Hava - KEIN SCHLAF
+04. Samra - COLT(   Читать дальше...   )Жанр: PopПродолжительность: 05:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE03D431C175484F7AB82B927D4677ADAF39ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194499   (155559) от 25.12.2017
+
+Юля Шатунова - Первый снег (2015) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду на свет 4:02
+02. Королева льда 6:05
+03. А дождь стучится 5:26
+04. Белый снег 3:56(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62522BA68851323EA88E87073D908A883594AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

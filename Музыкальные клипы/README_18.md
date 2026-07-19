@@ -1,3 +1,114 @@
+###  Публикация: 1034797   (629931) от 15.07.2016
+
+Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
+Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
+Alan Walker - Sing Me To Sleep
+Sigala ft. Imani & DJ Fresh - Say You Do
+Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293943   (629620) от 07.04.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
+01. Guns N' Roses - You Could Be Mine
+02. Kingdom Come - Should I
+03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682031   (628610) от 24.07.2013
+
+Chicane - Saltwater (2000) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682059   (628542) от 24.07.2013
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682051   (628538) от 24.07.2013
 
 David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
@@ -586,118 +697,6 @@ Steps - Say You'll be mine(   Читать дальше...   )Жанр: Pop, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8B5C970CDE2A47DB4E454D2387D559A347A022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686687   (601321) от 06.08.2013
-
-DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548339   (600129) от 02.05.2022
-
-Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «ДНК» была написана больше года назад. Предложил Володе дуэт и очень благодарен другу, что он откликнулся. Выход в свет «ДНК» намечался на начало марта. Известные события внесли коррективы в наши планы. Изначально песня написана о любви. О том как взрослые люди осознанно переживают настоящую привязанность, настоящую человеческую близость, которая выше страсти. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FBD31BFADF13EF35B169F50C2CC29E9CDA3C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913609   (599965) от 01.07.2015
-
-VA - Летний марафон № 175 / Видеоклипы (Turbo Дискотека) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (29.06.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.1. 5Angels - Long Lost Weekend (Official Video) (00:03:19)
-2. Andeeno Damassy ft. Jimmy Dub - Ese Amor (Official Video) (00:03:42)
-3. Auryn - I'll Reach You (Official Video) (00:04:25)
-4. Claydee & Ermal Mamaqi - Senorita (Official Video) (00:04:14)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Reggaeton, RockПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038600   (597094) от 31.07.2016
-
-Сборник клипов - Philizz "I covered the 80s" (season 1, episode 1-5) (2016) WEB-DLRip [H.264/720-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "I covered the 80s" - фирменный видеомикс от голландского ви-джея Philizz, составленный из небольших фрагментов клипов.
-Ваши любимые композиции 80-х годов - в современной обработке.
-- Разбивка по трекам отсутствует.Episode 1:
-Modern Talking - You're My Heart, You're My Soul '98
-Rickrollerz - Never Gonna Give You Up
-Alyssa Reid ft. Jump Smokers - Alone Again(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: от 00:26:12 до 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AD374E008576E08C2BFE220E1458938578EACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1268345   (228227) от 10.12.2018
-
-Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [6:31]
-02. You'd Be So Nice to Come Home To [4:03]
-03. Meditation (Meditacao) [9:12]
-04. The Boy from Ipanema [5:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268350   (228218) от 10.12.2018
-
-Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Baby [4:22]
-02. Sweet Cakes [3:41]
-03. You've Changed [3:20]
-04. Baby Let Me Hold Your Hand [3:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424528   (228206) от 17.11.2020
-
-Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [4:39]
-02. Copout Extension [8:22]
-03. Duel Fuel - Part I [2:45]
-04. Duel Fuel - Part II [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268343   (228132) от 10.12.2018
-
-Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex [3:55]
-02. Beautiful Woman [4:37]
-03. The Jam with Albert [9:21]
-04. Elementary Guitar Solo No.5 [6:52](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424531   (228091) от 17.11.2020
 
 Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -751,6 +635,122 @@ Oscar Peterson Trio - Tristeza On Piano (1970) 2005, MPS Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01EA45D22E3CD95F78742BBF501C6EADDC33EBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342193   (226147) от 01.12.2019
+
+Lu Watters' Yerba Buena Jazz Band - Air Shots From The Dawn Club 1941 - 1942 (1997) Merry Makers Record Company [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South [2:45]
+02. London Blues [2:59]
+03. The Wise Old Owl [2:18]
+04. Yerba Buena Shout [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891F1DC2C02C46D63B635994411DE570FBB16318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424805   (226089) от 18.11.2020
+
+Nino Tempo - Purveyor of Balladry: The Best Of Nino Tempo On Atlantic (1990 - 1993) 2018, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darn That Dream (Live) [4:56]
+02. This Masquerade (Instrumental Version) [3:57]
+03. Anyone Who Had a Heart [3:09]
+04. Amazon River (feat. April Stevens) [4:10](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0F3BBEF50D098F24FA785D7AEBA9AC0AE47E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650214   (226058) от 02.08.2023
+
+George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Salah [5:27]
+02. Up Tohickon Creek [6:14]
+03. Graduation Day [4:56]
+04. Indian Summer [7:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23AD0B05047FE95D0803684D6762FC616B7D72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342187   (226029) от 01.12.2019
+
+Earl Hines - Four Classic Albums Plus 1954 - 1961 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226029.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monday Date [2:12]
+02. Bill Bailey, Won't You Please Come Home [3:25]
+03. Do You Know What It Means To Miss New Orleans [2:01](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935E55BEE6BFE2DEDAB378B8407F87C01F4ADEF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

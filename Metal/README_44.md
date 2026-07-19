@@ -1,3 +1,90 @@
+###  Публикация: 1224529   (666009) от 10.05.2018
+
+Lords of Black - Icons of the New Days (2018) 2CD, Japan, Limited Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Gone Mad
+I - History Of Gods
+II - The Slaughter Of Innocence
+III - World Gone Mad(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503A924413E3970EB10A9E3E32E98938B586933D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137850   (664263) от 29.05.2017
+
+Apocalypse Orchestra - The End Is Nigh (2017) [MP3|320 Kbps] <Doom Metal, Folk Metal, Medieval>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Garden Of Earthly Delights
+2. Pyre
+3. Flagellants' Song
+4. Exhale(   Читать дальше...   )Жанр: Doom Metal, Folk Metal, MedievalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E6B1BA597030CB1B83A6ACF389DA88A3BFB47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137880   (664200) от 29.05.2017
+
+Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Evil
+02. Antidote
+03. Sin City
+04. Creature of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4ADECA0062B7495A8CDFB0C84DBE46C801DB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138180   (664148) от 29.05.2017
 
 Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-Metal, Post-Rock>
@@ -670,93 +757,6 @@ Signum Regis - Through The Storm (2015) EP [MP3|320 кб/с]<Power Metal, Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3084AE48BCAC0E6215E49E91F3CA6E6CC46DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903472   (657993) от 31.05.2015
-
-Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Salvation
-2. Speed Of Time
-3. 30 Years
-4. Never Look Back(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E08EABACFD1C4C651B1A1561126098649959EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139778   (657931) от 04.06.2017
-
-Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of The Ring
-02. We The People
-03. The Killer's Inside
-04. Bleeding Hands(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7661DDE57E28F35338107816E38E7FC2C6882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139553   (657912) от 04.06.2017
-
-ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana 07:28
-02. Holy Diver (DIO Cover) 04:39
-03. Domineer 04:12
-04. Lost In A Dream 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352827FEC1CD91E1B02B77DA8CA68FA019FC288E
 ```
 
 https://mybot314.ru/tekegram_catalog/

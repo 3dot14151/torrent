@@ -1,3 +1,32 @@
+###  Публикация: 1228861   (631651) от 03.06.2018
+
+VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiromitsu Agatsuma - Paper In The Air (Kami no Mai)
+02. Jia Peng Fang - A Water Lily
+03. Greg Maroney - Breathe
+04. Yanni - In The Morning Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 07:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE26608D86D0AA9607616E92BE061064D17A597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294199   (629455) от 07.04.2019
 
 VA - SEXofon (Relaxing and romantic saxophone music) (2019) [MP3|320 Kbps] <Dream SAX, Romantic Relax, Instrumental>
@@ -721,35 +750,6 @@ VA - Dreams of a shaman 3 (2015) [MP3|320 кб/с]<Native American, World, Ethni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEA5E3D7B5EBEE8894C572769E4F5E0C90FFCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041076   (584472) от 07.08.2016
-
-VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <Downtempo, Chillout, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michi Koerner – Falling Sunbeams
- 02. Prior Matt – Airglow
- 03. Bob Holroyd – Engines of Creation
- 04. Dylan Colby – Save the Planet(   Читать дальше...   )Жанр: Downtempo, Chillout, New AgeПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048216654A391FCB1E0A6997B8751F91C5274D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

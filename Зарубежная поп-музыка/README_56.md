@@ -1,3 +1,32 @@
+###  Публикация: 1254359   (375122) от 13.10.2018
+
+Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puttin' On The Ritz (4:43)
+02. La Vie En Rose (4:52)
+03. Cheek To Cheek (4:51)
+04. After Eight (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175958   (374345) от 20.10.2017
 
 Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
@@ -746,35 +775,6 @@ Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256085   (359036) от 20.10.2018
-
-VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigi D'Agostino & Dynoro - In My Mind
-02. El Profesor - Bella ciao (HUGEL Remix)
-03. Maroon 5 - Girls Like You
-04. Felix Jaehn - Jennie(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
 ```
 
 https://mybot314.ru/tekegram_catalog/

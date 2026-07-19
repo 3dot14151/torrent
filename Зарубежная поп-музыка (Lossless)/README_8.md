@@ -1,3 +1,203 @@
+###  Публикация: 1453167   (1027180) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dress [00:05:33]
+02. Chemtrails Over The Country Club [00:04:31]
+03. Tulsa Jesus Freak [00:03:35]
+04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453350   (1027071) от 10.03.2021
+
+Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руководитель оркестра, композитор и аранжировщик легкой оркестровой музыки. Сын отца-итальянца и матери-француженки получил при рождении имя Claude Vasori. В семь лет он впервые сел за рояль, а в тринадцать уже посещал Парижскую консераторию. В двадцать лет профессионально гастролировал, аккомпанируя (   Читать дальше...   )CD - 1 - Rainbow (1984):
+01. Laura (4:02)
+02. The Green Leaves Of Summer (3:42)
+03. Temptation (3:08)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453391   (1027062) от 10.03.2021
+
+Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Una Vez 2:36
+02. Buscando Amor 3:08
+03. Baila Conmigo (With Rauw Alejandro) 3:06
+04. Damelo To' (Feat. Myke Towers) 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF94161186DB48C7DF9E8A8ED4B8E19A1D7003BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454294   (1026428) от 14.03.2021
+
+VA - Spring Acoustic Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Survivin’ (Acoustic) (02:41)
+02. Shannon & Keast - Eastside (Acoustic) (03:06)
+03. Django Wallace - My Future (Acoustic) (03:22)
+04. John Burnsby - Easy (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D603BFE8E3612577820106BC4971AE16DD92ED78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454818   (1026123) от 16.03.2021
+
+VA - Pop Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5, SZA - What Lovers Do (3:19)
+02. Justin Bieber, Ludacris - Baby (3:33)
+03. Shawn Mendes - Mercy (3:28)
+04. Selena Gomez, Marshmello - Wolves (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280961116177338F3E03786A983CAD1AB87C5B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182195   (1026046) от 16.03.2021
+
+Natasha St-Pier - Дискография (11 альбомов) (1996-2018) [FLAC|Lossless]<Pop, French Pop, Pop-Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, French Pop, Pop-Rock, DanceПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E25E9252040B55395937B145F8581E0C7B79B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454848   (1025987) от 17.03.2021
+
+Roosevelt - Polydans (2021) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Way Out (04:35)
+02. Strangers (03:41)
+03. Feels Right (04:35)
+04. Closer To My Heart (04:44)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED89B0D759C0C2715244FBAF5129BE4F10E5F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455123   (1025814) от 18.03.2021
 
 Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -542,209 +742,6 @@ Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462933   (1020807) от 16.04.2021
-
-Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What It Feels Like for a Girl (Radio Edit)
-02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
-03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
-04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464010   (1019980) от 21.04.2021
-
-Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11 Past The Hour (3:59)
-02. Breathe (3:39)
-03. feat. Ronnie Wood, Gina Martin & Dr. SholaMos-Shogbamimu - Made To Love (3:25)
-04. Different Kinds Of Love (3:01)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463469   (1019967) от 21.04.2021
-
-Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad, AOR>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019967.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I'm Just a Woman (5:08)
-2. We Danced on the Ceiling (4:56)
-3. Wild Love (4:36)
-4. The Closer You Get (3:49)(   Читать дальше...   )Жанр: Pop, Pop-Rock, Ballad, AORПродолжительность: 0:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464271   (1019946) от 21.04.2021
-
-VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cashburys - Yesterday Once More (3:52)
-02. The Cashburys - I Won't Last a Day Without You (3:54)
-03. The Magic Time Travelers - Love Letters in the Sand (2:18)
-04. Groovy-G - Rock Wit'cha (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B2BFF3622CBB64217AF54073013579BDA7ADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465099   (1019344) от 25.04.2021
-
-Lory Bonnie Bianco - My Star 2.0 (2019) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You So (4:54)
-02. The Heart Is A Lonely Hunter (3:38)
-03. Holding Back (3:37)
-04. My First Love (4:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F1EC8BE6E0402EECF6DE740428B6ACAF1DA0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465202   (1019245) от 25.04.2021
-
-Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won’t Crumble With You If You Fall
-02. The Windmills Of Your Mind
-03. Pop Star
-04. No Hole In My Head(   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A9D121180D3F9B027934E4BDF3A17A47517606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466244   (1018604) от 29.04.2021
-
-Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreign Affair (4:06)
-02. To France (4:48)
-03. Family Man (3:46)
-04. Everytime We Touch (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

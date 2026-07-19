@@ -1,3 +1,29 @@
+###  Публикация: 1110656   (851906) от 03.03.2017
+
+Mp3tag 2.81 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах. Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F9FEBE7ECA4E1E548DA14808D9CD34FE3A500C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110618   (851903) от 03.03.2017
 
 Panda Protection 18.00.00 DC 26.02.2017 [Multi/Ru]
@@ -647,32 +673,6 @@ Cent Browser является усовершенствованной верси�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA63078338BCA958CE7327C52A902037A1202D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377622   (851633) от 22.04.2020
-
-Revo Uninstaller Pro 4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD5505354F49FA961153ADD102AB34F14CF34FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

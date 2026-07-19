@@ -1,29 +1,3 @@
-###  Публикация: 1310569   (480480) от 31.08.2020
-
-ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.17/dlc) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480480.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATOM RPG это пост-апокалиптическая инди-игра вдохновлённая классическими CRPG: Fallout, Wasteland, System Shock, Deus Ex, Baldur's Gate. В 1986 году, СССР и Западный Блок были практически уничтожены, в ходе обмена ядерными ударами.Тип издания: RepackРазработчик: AtomTeamЖанр: RPG, Action, IndieЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4E55914F02C6172555B4F9E5D0E62B3E47D27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566643   (479965) от 30.07.2022
 
 Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) License GOG
@@ -669,6 +643,32 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB66E517C96ECFF86FEA55E91FA631DB0D15AE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322662   (445897) от 30.08.2019
+
+The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы зло таилось во мраке. И теперь оно решило выйти на свет. Кто же сразится с ним, если не вы? Эпическое приключение на 50+ часов, 350 озвученных персонажей, Режим Ностальгии для фанатов жанра и более 100 фоновых музыкальных произведений! The Director’s Cut позволяет глубокую настройку персонажей, содержит новые предметы и врагов, переработанный интерфейс (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7902CCBB277D13AD0AD066EA96317BD1A4F64F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1379951   (836393) от 01.05.2020
+
+Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weightlifters (05:40)
+02. Can't Cool Me Down (05:09)
+03. Deadlines (Hostile) (04:21)
+04. Hollywood (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB814A0DB7679961B864487E02DDD8BB4EE8765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113697   (835169) от 13.03.2017
+
+Temples - Volcano (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Psychedelic Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Certainty
+02. All Join In
+03. I Wanna Be Your Mirror
+04. Oh! The Saviour(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Psychedelic Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3959512127B3AC86897DD1313DFE3339763C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380583   (833177) от 03.05.2020
+
+VA - NOW Alternative Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.E.M. - The One I Love (3:16)
+02. The Killers - All These Things That I've Done (5:02)
+03. The Wallflowers - One Headlight (5:12)
+04. Massive Attack - Protection (4:54)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081200767872C5CEFE27339496FB811D03BACFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879974   (831860) от 21.03.2015
+
+Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Diamond Days (3:20)
+2. The Ship (5:28)
+3. The Forest (4:45)
+4. Harbour Lights (3:32)(   Читать дальше...   )Жанр: Pop-Rock, IndieПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F389886B06E9F3BE39598910FC616699510F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501810   (830013) от 13.10.2021
 
 Eyes of Eli - Eyes of Eli (2012) [FLAC|Lossless|WEB-DL|tracks] <Metal, Metalcore, Hardcore-Punk, Nu-Metal>
@@ -629,123 +745,6 @@ Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C065517DE0C483498829982BFB11A6026E14E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351099   (816616) от 29.03.2015
-
-The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Classic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816616.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Greenhornes - американская группа, играющая в стиле гаражный рок, из Цинциннати, Огайо. Ясно и просто, в стиле The Rolling Stones.Список альбомов:
-1999 - Gun For You
-2001 - The Greenhornes
-2002 - Dual Mono
-2010 - Four Stars(   Читать дальше...   )Жанр: Classic Rock, Garage RockПродолжительность: 04:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504068   (816132) от 21.10.2021
-
-flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instrumental, Indie Rock, Ambient Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaching out (2:49 AM) (8:51)
-02. Barbara (3:33 AM) (9:17)
-03. A haven and a jail (4:00 AM) (6:39)
-04. Dawn at the gates (5:25 AM) (6:37)(   Читать дальше...   )Жанр: Post Rock, Instrumental, Indie Rock, Ambient RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC9399F5612792A87A85F509B25E85FAACCB860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197635   (813924) от 08.01.2018
-
-Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angry Heart
-02. Sleeping Lions
-03. Suffer
-04. Nothing to Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Hard RockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E6979DCBA17B6A7C7BD8470124990949D3820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383307   (813751) от 14.05.2020
-
-Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Life (03:53)
-02. Describe (04:44)
-03. Without You (02:35)
-04. Jason (03:05)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226B4916AD29F0D27CC7D20E895D7AE5D0457BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1354758   (987016) от 23.01.2020
+
+Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Cold (Aurora Version)
+2. Failure (Aurora Version)
+3. Far Away
+4. Angels Fall (Aurora Version)(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C003730DE485422A45E843F8FBB8B7E4C6EC23C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612688   (986099) от 02.02.2013
+
+Local Natives - Hummingbird (Deluxe Edition) (2013) [MP3|320 кб/с]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You & I [04:22]
+2. Heavy Feet [04:07]
+3. Ceilings [02:56]
+4. Black Spot [04:41]
+5. Breakers [04:09]
+6. Three Months [04:30]
+7. Black Balloons [03:08]
+8. Wooly Mammoth [03:27]
+9. Mt. Washington [03:19]
+10. Colombia [04:50](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5BF24540748D91F3D87770EF5A3B1E1167D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613323   (984433) от 03.02.2013
 
 Message Through Motion - Earthshaker (2013) [MP3|320 кб/с]<Alt.Rock / Post-Hardcore>
@@ -724,64 +788,6 @@ The Casualties - Underground Army (1998) [MP3|320 кб/с] <Rock, Punk, Punk Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C88CC24D007EA4B5A58B2C0F42617D2677626CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979984   (957429) от 28.01.2016
-
-The Casualties - Stay Out Of Order (2000 [MP3|320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Way Out
-02 - Proud To Be Punk
-03 - Street Punk
-04 - Fight For Your Life(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF74348FD3C06BE643402798BA4568F2152E0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979969   (957426) от 28.01.2016
-
-The Casualties - On The Front Line (2004) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Casualties Army
-02 - On The Front Line
-03 - Leaders Of Today
-04 - Criminal Class(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B18A9EDB5C456119BFCE5664487612C41B89614
 ```
 
 https://mybot314.ru/tekegram_catalog/

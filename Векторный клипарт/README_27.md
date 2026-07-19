@@ -1,115 +1,3 @@
-###  Публикация: 1235244   (561926) от 10.07.2018
-
-Векторный клипарт - Premium packaging vector design [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Премиум этикетки для упаковок
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5CB7FF69432680DC770E1FB4414311B17A8E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235371   (560446) от 11.07.2018
-
-Векторный клипарт - Realistic Chocolate Splashes [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Реалистичные шоколадные брызги
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE755BB4F18D6FADEA81A89A7E44EDE769F7665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235374   (560441) от 11.07.2018
-
-Векторный клипарт - Realistic Fruits 10 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Реалистичные фрукты
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46568FEC5B3321664B69A56B516024DD2A8F0D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235383   (560375) от 11.07.2018
-
-Векторный клипарт - Fresh juices fruits and berries in vector [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Свежие соки фрукты и ягоды
-26 AI, EPS + previewФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9B0FE8E70DA489E2AC4D364F9B7C91057E8F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235370   (560367) от 11.07.2018
 
 Векторный клипарт - Floral Borders Elements Set 60 [AI]
@@ -719,6 +607,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6B292124D7FBF7D021ED6AB97440BE6BF08889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305390   (556410) от 31.05.2019
+
+Векторный клипарт - Vector Animal Collection #76 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5336A1DCD384D271135F58E3DE79BA6241411B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305624   (556361) от 31.05.2019
+
+Векторный клипарт - Сборник вектора Russia-day [AI, CDR, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+День России.
+14 AI, CDR, EPS + PreviewФормат: AI, CDR, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0153AFFC87E2AC1B31886CA5CDDDADD7B04337D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235993   (556285) от 15.07.2018
+
+Векторный клипарт - Country Houses Set 5 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Загородные дома
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C567039CFE8782D11E0828782DB97F8D322D6ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235991   (556275) от 15.07.2018
+
+Векторный клипарт - Seamless Floral Borders 66 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Бесшовные цветочные границы
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393E1579811CED99A174D46BAB88ECAFADEF1AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

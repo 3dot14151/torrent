@@ -1,58 +1,3 @@
-###  Публикация: 1103387   (885671) от 12.02.2017
-
-Microsoft Windows and Office ISO Download Tool 4.16 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FDFF05D7E3100E01B1379DDF0EFBD7E39EF8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103588   (885666) от 12.02.2017
-
-Mirror for Samsung TV 1.3.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Samsung
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 февраля 2017Разработчик: AirBeamTV BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF73144B72498B60E4499C2071943D035D51A3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103410   (885661) от 12.02.2017
 
 Mirror for Philips TV 1.3.8 [En]
@@ -683,6 +628,61 @@ Argent Client - p2p-клиент, сочетающий в себе функци�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7389292FD44E6C1E72C2A7A3E61300E3C85679DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372245   (885451) от 03.04.2020
+
+VA - Private Room - The Lounge Session, Vol. 16 (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E. - There Was A Moment (3:12)
+02. Guenter Haas - Alone but Never Lonely (6:03)
+03. Charly'n Black - Today (3:10)
+04. Greg Walker - The Other Side of Here (4:19)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B2562A5A2BD4C144810809A12DF76A81010EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103777   (885442) от 12.02.2017
+
+Uninstall Tool 3.5.2 Build 5557 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE05C3C31B843A05AFB3140A08A5C3FC8CF0235
 ```
 
 https://mybot314.ru/tekegram_catalog/

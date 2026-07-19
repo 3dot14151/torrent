@@ -1,3 +1,90 @@
+###  Публикация: 1379506   (839073) от 29.04.2020
+
+Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Crying for the Moon
+02. Passion Departed
+03. Over You
+04. What Love Can Be(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5355AAC6AF7F77F30988EE244ED69CBE215C3CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379552   (838985) от 29.04.2020
+
+Uriah Heep - Best of the Best (1970-2011) (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 03:04:48
+02-01. The Hanging Tree (1977) (03:41)
+02-02. Been Away Too Long (1977) (05:03)
+02-03. Wise Man (1977) (04:42)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D9FB1CDF4FCF48F4C2B79D50A8853F7E441470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379748   (837389) от 30.04.2020
+
+The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirius (Chicago Bulls Theme Song)
+02. Eye In The Sky
+03. Games People Play
+04. Don't Answer Me(   Читать дальше...   )Жанр: Progressive rock, Art rock, Progressive PopПродолжительность: 03:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379860   (836238) от 01.05.2020
 
 VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
@@ -658,94 +745,6 @@ VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17888F309EB282C1C183EB9AF8696CEDA1803823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005954   (830483) от 10.04.2016
-
-VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slade - Did Ya Mama Ever Tell Ya
-02. Status Quo - Hard Time
-03. Paul Stanley - Take Me Away (Together As One)
-04. Slade - Look What You Dun(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9E880A934EF5A7AD1D5C26FC8FC99F1CDE8EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855575   (830348) от 10.04.2016
-
-VA - Hair Force One (2014-2015) [MP3|320 кб/с]<Hard'n'Heavy, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Private Life - Fallin' Apart [00:03:37]
-02. Electric Angels - Head Above Water [00:04:16]
-03. Joshua - Back To The Rock [00:03:34]
-04. Talisman - I'll Be Waiting [00:02:59](   Читать дальше...   )Жанр: Hard'n'Heavy, Glam RockПродолжительность: 10:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52485C9ED9ACB236C5E4A040361A111C81CD1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599891   (829127) от 22.03.2015
-
-VA - Heavy Instrumentals 01-45 (2012-2015) [MP3|177-320 кб/с]<Instrumental Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segor - Kingdom Of Heaven [00:05:50]
-02. Racer X - Catapult To Extinction [00:04:54]
-03. Mendel - Shores [00:06:46]
-04. Marcus Jidell - Rei Zan [00:03:18]
-05. Sanity Decay - Dis [00:01:54](   Читать дальше...   )Жанр: Instrumental MetalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DEF86D99EEB050EA493461BFCEAA4439BB8DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

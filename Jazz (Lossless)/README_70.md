@@ -1,119 +1,3 @@
-###  Публикация: 1011068   (797698) от 26.04.2016
-
-Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Time for Love [05:24]
- 02.Didn't We [03:08]
- 03.Soulsides [04:29]
- 04.So Are You [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860907C744C24AF7677771E71DC96BBC5DAEFF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011024   (797697) от 26.04.2016
-
-Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cheryl [10:35]
- 02.If I Said The Sky Was Fallin' [13:31]
- 03.Georgia On My Mind [07:00]
- 04.This Guy's In Love With You [08:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5898056570347AC89C4E3048E549F8C76780036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011063   (797696) от 26.04.2016
-
-Art Farmer - Modern Art (1958) Remaster, 2001, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mox Nix [04:40]
- 02.Fair Weather [05:43]
- 03.Darn That Dream [03:58]
- 04.The Touch of Your Lips [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3DE3FB533D85FD07F4E5944EEDA2C7C07B498A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010985   (797670) от 26.04.2016
-
-Blue Mitchell - The Thing To Do (1964) Remaster, 1995, EMI[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fungii Mama [07:50]
- 02.Mona's Mood [05:20]
- 03.The Thing To Do [07:08]
- 04.Step Lightly [10:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F55EA225E5B29792F80D65B814BE0B565E1AAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011016   (797669) от 26.04.2016
 
 Shirley Scott - & The Soul Saxes (1969) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -745,6 +629,122 @@ Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879F3202C4C88864D8BD8234B81732DDA09FC9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508964   (796270) от 10.11.2021
+
+Bill Evans - Behind the Dikes: The 1969 Netherlands Recordings 2CD (2021) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Post Bop, Modal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One for Helen (4:41)
+02. Quiet Now (5:36)
+03. Someday My Prince Will Come (6:04)
+04. Announcement by Aad Bos (0:47)(   Читать дальше...   )Жанр: Cool Jazz, Post Bop, ModalПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9B1B6DB1A24B3E511E4B3E261B66B75AAC88EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385974   (796065) от 27.05.2020
+
+Don Friedman Trio - Waltz For Debby (2003) 441 Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 35 W. 4th St. [4:17]
+02. I Concentrate on You [6:41]
+03. Waltz for Debby [4:34]
+04. Bud Powell [8:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48C3B3266CB815F90105DD6D224915D71FC2CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011917   (795687) от 29.04.2016
+
+George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Great Escape, or Run John Henry Run [04:43]
+ 02.Seriously Speaking [08:03]
+ 03.Soft Seas [07:21]
+ 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011967   (795685) от 29.04.2016
+
+Javier Colina & Antonio Serrano - Colina Serrano Project (2009) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El blues de la alegria [04:59]
+ 02.El comandante [08:41]
+ 03.Estudio [11:58]
+ 04.Zyryab [07:51](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C7017E177C3495CEB2D4AD31404E1DD6734A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

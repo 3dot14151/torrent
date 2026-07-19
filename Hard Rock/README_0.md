@@ -1,3 +1,61 @@
+###  Публикация: 1612711   (1040166) от 16.02.2023
+
+Worldwide Panic - Worldwide Panic (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Tried
+02. Less Than Nothing
+03. Everybody Wants To Rule the World
+04. Falling Apart(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, IndustrialПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302C5E1373FC670D75ECE2E3C6840BB2036DAFE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439343   (1040113) от 12.01.2021
+
+Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Horse (03:18)
+ 02. AKIRA (04:45)
+ 03. This Evil (04:28)
+ 04. Fallen Star (04:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D0B6F0DE9CE7F04409F0C230E23F185EDA97E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439769   (1039572) от 14.01.2021
 
 Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F64BFE75299BDA6464F633B5969338CB0AE6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452172   (1027937) от 05.03.2021
-
-Black Sabbath - Mob Rules  - 1981 (2021 Deluxe Edition, Remaster 2CD) (2021) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.I.B. (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (6:03)
-02. Children of the Sea (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (7:14)
-03. Voodoo (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (5:53)
-04. Black Sabbath (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (7:30)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65E35FB6A890D09B95AD793C49CD37C81CE02A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452170   (1027930) от 05.03.2021
-
-Bonfire - Roots (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Starin' Eyes (Almost Unplugged) [5:22]
- 2. American Nights (Almost Unplugged) [3:51]
- 3. Let Me Be Your Water (Almost Unplugged) [4:55]
- 4. The Price of Loving You (Almost Unplugged) [3:10](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD623E8784695AA907DA6F1B7EC2CEA93178AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

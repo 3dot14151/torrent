@@ -1,3 +1,32 @@
+###  Публикация: 1627144   (239898) от 18.04.2023
+
+VA - Retro Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Derulo - Want to Want Me
+02. Cher - Strong Enough
+03. Blur - Parklife (2012 Remaster)
+04. Ava Max - Kings & Queens(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 05:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C4D1ABDAB2DE10A9E2AC7A8D7B1DE9C5553DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626920   (239798) от 17.04.2023
 
 VA - 90s Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -715,35 +744,6 @@ Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8EDA9A05AA7B26D7046A7FCB0A02C1834F07B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458201   (235697) от 28.03.2021
-
-Meri D. - Follow Me (1985) CD [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me (4:03)
-02. We Stand Alone (3:34)
-03. Tried To Be A Man (4:26)
-04. Haunt You (4:20)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DAFB9AF5194C5EDDA02F9BEA88CD13AD9BCCCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

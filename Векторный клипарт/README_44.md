@@ -1,115 +1,3 @@
-###  Публикация: 1193644   (261951) от 22.12.2017
-
-Векторный клипарт - Seamless Floral Borders 51 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7B191C060FDE6C0F161BB1D42E1F424A0C3AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193647   (261944) от 22.12.2017
-
-Векторный клипарт - Ornate Vintage Frames 53 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные винтажные рамы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD998D1BB14FF29B58587CEE9DCA3546D99F83F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193642   (261928) от 22.12.2017
-
-Векторный клипарт - Fotolia - Nature & Landscape Village [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Природа и ландшафтная деревня
-25 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF02AD407D68C3F77BBDFCF810AE9277A63482E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193634   (261913) от 22.12.2017
-
-Векторный клипарт - Fotolia - Merry Christmas Collection #6 [EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Рождеством Христовым
-25 EPS, SVG + PREVIEWФормат: EPS, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0B3FC79B4FEB2CDA60A8230258F85F08FF8C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193932   (261778) от 23.12.2017
 
 Векторный клипарт - Vector Roses Collection #20 [AI]
@@ -685,6 +573,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A375D989884E8A7E6BEAD8B3168F17B82AE96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515524   (168991) от 07.12.2021
+
+Векторный клипарт - Happy new year 2022, tiger zodiac sign chinese vector design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+15 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB9576C3C814AED5271BBF1ABA9416B05DF7226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345514   (166284) от 15.12.2019
+
+Creative Market - 100 Geometric Christmas Patterns - 2016745 [JPG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geometric Christmas Patterns. Идеально подходит в качестве подарочной бумаги, обоев, узоров, фонов веб-страниц, текстур поверхности, текстиля и многого другого.Формат: JPG, EPSРазрешение файлов: 3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD3D9362EF142E3AF01FA26F9F7133256743DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967762   (158351) от 21.12.2015
+
+Векторный клипарт - Vintage labels and badges - Retro Coffee [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные шаблоны для дизайна.
+Винтажные этикетки и значки.
+5 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BACF0B5EC3DCDED9B5EB8D0E3546B3F34EC398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967777   (158343) от 21.12.2015
+
+Векторный клипарт - Certificate Templates [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные шаблоны сертификатов.
+20 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777FE76D253B4E3D7AE409B9727DE759B01E13C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

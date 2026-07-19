@@ -1,3 +1,61 @@
+###  Публикация: 1325344   (414490) от 14.09.2019
+
+BlackRain - Dying Breed (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Dying Breed[3:51]
+ 2 - Hellfire[4:05]
+ 3 - Blast Me Up[3:40]
+ 4 - Nobody Can Change[4:20](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9BEAB6CC03312D8946340B2E9DD7BBF5964D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412902   (413731) от 01.10.2020
+
+Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HWY 666
+02. Black Eyes Blue
+03. Samantha's Gone
+04. Meine Lux(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4AC8D39BCDF3473BCFEEC185628C1B5D1F8EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412888   (413466) от 01.10.2020
 
 Bon Jovi - 2020 (2020) [MP3|320 Kbps] <Hard Rock>
@@ -705,64 +763,6 @@ Roxxie Dee - Leather Up (2016) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05BDC76560F3870FC4F01A870E445B1CAEB6CCD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415028   (381177) от 10.10.2020
-
-Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aces & Eights (04:52)
- 02. Up All Night (06:35)
- 03. Tell Me Woman (03:16)
- 04. My Best Friend's Girl (07:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EF62C0D99F778FADB8DA11961755F57701BF13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641867   (379577) от 22.10.2015
-
-Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mable  02:34
-02. Wasn't Very Long  04:24
-03. Gabriel  02:20
-04. Cheated  03:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1D0C27D41642720BD233EBA88AE5B756F48AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

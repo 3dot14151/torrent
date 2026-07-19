@@ -1,3 +1,90 @@
+###  Публикация: 1569090   (455802) от 11.08.2022
+
+Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 1994 [00:03:32]
+02 - Call for the Blood [00:03:14]
+03 - Spearmint Revolt [00:05:02]
+04 - Memorial Hoard [00:04:49](   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464449D4B14A1C7FBDFA0EE665F05769DD8B66C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942316   (455754) от 30.09.2015
+
+Queensryche - Condition Human (2015) [MP3|320 кб/с]<Heavy/ Power/ Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrow Of Time
+02. Guardian
+03. Hellfire
+04. Toxic Remedy(   Читать дальше...   )Жанр: Heavy/ Power/ Progressive MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B9E9400EF03C06C0FB8AC8F5CC14272A4FD923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060494   (455307) от 07.10.2016
+
+Parsifal - Heavy Duty (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storming The Reaper
+02. The Volunteer
+03. One Wish
+04. Loyalty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46123DB1C69B573CB9D934FE71928804D93CDC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060263   (455301) от 07.10.2016
 
 Space Chaser - Dead Sun Rising (2016) [MP3|320 Kbps] <Thrash Metal>
@@ -662,92 +749,6 @@ Deer Creek - Menticide (2022) [MP3|320 Kbps] <Sludge, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78300C3E19D93C3AC6289D4572421626E5F9662E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943631   (447215) от 04.10.2015
-
-Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (4:17)
-02. Miscreation (4:36)
-03. Turmoil I: Wolves (4:16)
-04. Turmoil II: The Weak Inherit The Earth (5:49)(   Читать дальше...   )Жанр: Progressive Metalcore, HardcoreПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061916   (446613) от 11.10.2016
-
-Toxic Ruin - Subterranean Terror (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Submerged In Chaos
-2. Immolation
-3. Seat Of Corruption
-4. Subterranean Terror(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81A897CCD051591CD253209F56998617CF5D5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052851   (446235) от 11.10.2016
-
-Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
-CD2 - Too Good To Steal From
-CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B708BCB55D107518A933D8EE695977464D6222A
 ```
 
 https://mybot314.ru/tekegram_catalog/

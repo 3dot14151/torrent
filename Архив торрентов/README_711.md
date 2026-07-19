@@ -1,29 +1,3 @@
-###  Публикация: 1370670   (895062) от 28.03.2020
-
-LibreOffice 6.4.2.2 Stable Portable by PortableApps [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895062.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20088EFC7D5F775BB4B1A40A5168BDF12CD34876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370672   (895055) от 28.03.2020
 
 CoolUtils Total Doc Converter 5.1.0.228 (Repack & Portable) by elchupacabra [Multi/Ru]
@@ -700,6 +674,35 @@ Atlas Corporation - Turbo Uplifting 002 (2017) [MP3|320 Kbps] <Uplifting Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB66558809AE22AE0050073EA2B650AC2BB33092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101762   (894837) от 07.02.2017
+
+Atlas Corporation - The Lord Of Psytrance (2016) [MP3|320 Kbps] <Psy-Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Source - A Great Dream (Radio Edit)
+02. Ultimate Xperience - LAZARUS (Sanctum) (Mix XIII)
+03. Kryptik - New Vision
+04. Open Source - A Thousand Joys (New Edit)(   Читать дальше...   )Жанр: Psy-Trance, TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AC48B1875B62BADDE876C11D22E861720D56F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

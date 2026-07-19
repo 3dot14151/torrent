@@ -1,119 +1,3 @@
-###  Публикация: 1082389   (243038) от 12.12.2016
-
-Oliver Nelson, King Curtis, Jimmy Forrest - Soul Battle (1960) 1992, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues At The Five Spot [05:44]
- 02.Blues For M.F. (Mort Fega) [09:40]
- 03.Anacruses [05:43]
- 04.Perdido [09:23](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E5DF3CD445FAC326A4F8AFE8E47AEC1844DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614690   (243009) от 23.02.2023
-
-Duke Ellington And His Orchestra - Ellington Indigos (1957) 1989, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitude [4:43]
-02. Where or When [4:02]
-03. Mood Indigo [3:07]
-04. Night and Day [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BB2EF9F40C6BA5A37E8C034DB8AFE59B646557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627450   (242995) от 19.04.2023
-
-GoGo Penguin - Everything Is Going to Be OK (2023) [FLAC|Lossless|WEB-DL|tracks] <jazz, fusion, contemporary jazz, future jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Stronger Than You Think [00:01:16]
-02. Glimmerings [00:04:01]
-03. Saturnine [00:04:53]
-04. Glow [00:02:40](   Читать дальше...   )Жанр: jazz, fusion, contemporary jazz, future jazzПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A7BC28EFB2121C9FDF7DDB3C4F18DFB79F3615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627432   (242948) от 19.04.2023
-
-James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le manoir de mes reves [11:29]
-02. Melodie au crepuscule [10:47]
-03. Anouman [10:06]
-04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358760   (242945) от 09.02.2020
 
 Ivan Paduart - Enivrance (2015) Mons Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Andrea Pozza Trio - Drop This Thing (2008) Dejavu [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671C5660BC06A5B529516C4DD795250D4E2F3BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100607   (242530) от 04.02.2017
+
+Herbie Mann - The Beat Goes On (1966, 1967) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Latin Jazz, World Fusion, Cuban jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.No Matter What Shape  [03:27]
+ 02.More Rice That Peas, Please [03:34]
+ 03.Hey Ho [02:49]
+ 04.The Honeydripper  [02:49](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban jazzПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100629   (242504) от 04.02.2017
+
+Eddie “Lockjaw” Davis - Goin' To The Meetin' (1960, 1962) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Wished On The Moon [05:03]
+ 02.From This Moment On [04:25]
+ 03.It's A Pity To Say Goodnight [05:45]
+ 04.Just Friends [06:18](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316C16146B3F09A937D7A5E1E7908304CD0C6F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616655   (242427) от 03.03.2023
+
+Joe Bonner Trio - Parade (1979) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change It [8:10]
+02. Au Privave [5:44]
+03. Sunny [6:08]
+04. Hurry Up and Wait [5:55](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CB03ADF89DBD71B2E0C6B0F56322106D098A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616657   (242411) от 03.03.2023
+
+Dinah Washington - The Jazz Biography (2005) United Audio [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Slick Chick [2:42]
+02. After I Say I'm Sorry [2:38]
+03. Am I Blue? [3:15]
+04. Baby Get Lost [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5143866154E7CA6F48E94D4B9368B89A6121BE33
 ```
 
 https://mybot314.ru/tekegram_catalog/

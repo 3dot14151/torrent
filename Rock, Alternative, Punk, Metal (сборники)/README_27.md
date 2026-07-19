@@ -1,3 +1,90 @@
+###  Публикация: 1553394   (582881) от 25.05.2022
+
+Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bad Touch (Single Version) (4:27)
+02. Along Comes Mary (The Bloodhound Gang Mix) (3:25)
+03. I Wish I Was Queer So I Could Get Chicks (Punk Version) (3:35)
+04. Fire Water Burn (Single Version) (4:56)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301966   (582216) от 14.05.2019
+
+VA - Words On A Dusty Shelf Vol.02 (2019) [MP3|320 Kbps] <Rock, Alternative, Indi Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Road To Jerusalem - Andromeda's Suffering
+002. Hodera - For The Best
+003. Sum 41 - Out For Blood
+004. Ivy Dye - Soften(   Читать дальше...   )Жанр: Rock, Alternative, Indi RockПродолжительность: 10:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4027B71F35D270F91BF1075F3D90D76ED3EAEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810197   (580503) от 08.08.2014
+
+VA - Alterportal HITS 14 Vol. 71 - July (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Stahli - Enemy
+02. Nomy - Chaos
+03. A Million Souls - Rise
+04. Eluveitie - The Call of The Mountains(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019768E56EF474846F78D92DEBF6C48884C2DCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302521   (580166) от 16.05.2019
 
 VA - Classic Rock Giganten (2019) [MP3|320 Kbps] <Classic Rock, Alternative>
@@ -658,93 +745,6 @@ VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305301   (557045) от 30.05.2019
-
-VA - Sermon On The Rocks (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557045.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fire Tiger - Love The Way
-002. Arkells - Hand Me Downs
-003. Ashland - No Trouble
-004. Dean Wareham - Mountains Of The Moon(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36947490BD39200287CD815B8AC0811C6A19BB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153777   (556940) от 28.07.2017
-
-VA - Elegant Rock And Roll (2017) [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chuck Berry - Johnny B. Goode  2:38
-02.  Jackie Brenston & His Delta Cats - Rocket 88  2:46
-03.  Bo Diddley - Who Do You Love  2:30
-04.  Sugar Boy & His Cane Cutters - Jock-A-Mo  2:27(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B895B307FA56DE9ECF77FB468BC15E9E2788E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305277   (556903) от 30.05.2019
-
-VA - Силовая Тренировка (2019) [MP3|320 Kbps] <Hard Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.10 Years - Shoot It Out (3:19)
-02.Adelitas Way - Cage The Beast (3:16)
-03.Adept - Shark! Shark! Shark! (4:18)
-04.Amaranthe - Invincible (3:11)(   Читать дальше...   )Жанр: Hard Rock, Metal, OtherПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC9224A5227BF74F5400049A2D8D772C5979EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

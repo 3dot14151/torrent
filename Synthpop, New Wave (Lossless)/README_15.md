@@ -1,32 +1,3 @@
-###  Публикация: 1407626   (462431) от 09.09.2020
-
-VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Rein - Angel 07 (4:16)
-02. Octolab - Samurai (Did You Ever Dream) (4:14)
-03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
-04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408021   (460231) от 10.09.2020
 
 Runaway Droid - Fragments (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
@@ -751,6 +722,35 @@ Depeche Mode - Cover Me (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549DC3602551209AFC1B5A3B30DF1A1E7B3FB0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253030   (387697) от 07.10.2018
+
+Robert Parker - End of the Night (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of the Night (feat. Doubleboy) (3:56)
+ 02. Rock n Roll (3:58)
+ 03. Make Love (feat. Miss K) (5:10)
+ 04. Maximum Strength (4:29)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BABF8978F0FF84FF7BA8254A82EF2903ECE4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

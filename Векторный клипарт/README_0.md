@@ -1,3 +1,31 @@
+###  Публикация: 1354198   (988880) от 21.01.2020
+
+Векторный клипарт - Fotolia - 25 Abstract Background Collection 209 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные фоны
+25 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE78F7A82C6F6E2E7C791F9C64E6AC8B11DA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354194   (988879) от 21.01.2020
 
 Векторный клипарт - Vector Seamless Pattern [EPS, AI]
@@ -688,34 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478DB86ABE3D09D89CE13B06C6B8CE0EA325C14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355623   (982120) от 27.01.2020
-
-Векторный клипарт - Fotolia - Color Patterns [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цветные узоры
-28 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310D03DA0A6B06D0D2B0D285F2A81FDA6C6D403A
 ```
 
 https://mybot314.ru/tekegram_catalog/

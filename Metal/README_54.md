@@ -1,3 +1,90 @@
+###  Публикация: 1150005   (596615) от 13.07.2017
+
+Decapitated - Anticult (2017) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse
+02. Deathvaluation
+03. Kill the Cult
+04. One-Eyed Nation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE20AFCC7F1E457F34BD58AC01B2ED7198CE6A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915014   (595195) от 04.07.2015
+
+No Return - Fearless Walk to Rise (2015) [MP3|320 кб/с]<Melodic Death/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascent
+02. Stronger Than Ever
+03. Submission Falls
+04. Sounds of Yesterday(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B05054432C1F7715452AE1D7FE68A19354D6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150209   (595078) от 14.07.2017
+
+Cradle Of Filth - Cryptoriana - The Seductiveness Of Decay (2017) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exquisite Torments Await
+02. Heartbreak And Seance
+03. Achingly Beautiful
+04. Wester Vespertine(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C46B2A7061066B927CA70D7B65940764ED4AE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233015   (595003) от 27.06.2018
 
 Nine Inch Nails - Bad Witch (2018) EP [MP3|320 Kbps] <Industrial Metal>
@@ -656,90 +743,6 @@ Adrana - Foreshadow (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D845B51A1ACEF8398ECADFE8F4A1BD5DEF0D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917602   (588648) от 13.07.2015
-
-Aeverium - Break Out (2015) Deluxe Edition 2CD [MP3|320 кб/с]<Nu Melodic Metal, Gothic, Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588648.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Break Out
-02. Distrust
-03. Departed(   Читать дальше...   )Жанр: Nu Melodic Metal, Gothic, Symphonic Metal, Female VocalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3D255FB01ED2180408540E59663FCE35835512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918119   (588070) от 14.07.2015
-
-Dystopia Na! - Dweller On The Threshold (2015) [MP3|320 кб/с]<Experimental Post-Black Metal, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Doppelgänger
-2. Intruder / Ephialtes
-3. Shadowcasting Horologe
-4. Through Mirrors, Darkly(   Читать дальше...   )Жанр: Experimental Post-Black Metal, ShoegazeПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1D239340DB4F4618BCB712A3A5751BF2E0282B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185514   (587795) от 14.07.2015
-
-Троя - Мир в Огне (2008) [MP3|320 kbps]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Power MetalПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

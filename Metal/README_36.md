@@ -1,3 +1,90 @@
+###  Публикация: 1020521   (745467) от 26.05.2016
+
+Suicidal Angels - Division of Blood (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capital of War
+02. Division of Blood
+03. Eternally to Suffer
+04. Image of the Serpent(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9253FDFE0C93DCFBEDB2EB6E9A12E960BFB351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020515   (745466) от 26.05.2016
+
+Death Angel - The Evil Divide (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moth
+02. Cause for Alarm
+03. Lost
+04. Father of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1677218968FEEF6D1D0579633336925C3ABA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396639   (745356) от 16.07.2020
+
+U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemonium (5:27)
+02. We Are One (4:43)
+03. Love and Sin (7:12)
+04. Future Is the Reason Why (5:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7EF88DBBE64A5FA3B937FF1700E9F9F06EDB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282357   (745328) от 12.02.2019
 
 Flotsam and Jetsam - The End of Chaos (2019) [MP3|320 Kbps] <Thrash Metal>
@@ -653,93 +740,6 @@ Saxon - Carpe Diem (2022) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE80A338CB4BCB92923236EF011BD8C28F9F96D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528742   (733983) от 03.02.2022
-
-Korn - Requiem (2022) [MP3|320 Kbps] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten
-02. Let The Dark Do The Rest
-03. Start The Healing
-04. Lost In The Grandeur(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43020449858F9808704DC66589EA14802387706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399329   (732968) от 01.08.2020
-
-Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation (04:40)
- 02. Lyonen (04:54)
- 03. No Borders (04:53)
- 04. Nehme Die Sunde (03:23)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B3DAC3E4BB7B7E301E2C3932C2058501C1C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399367   (732956) от 01.08.2020
-
-Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Human (04:43)
- 02. Railrunner (06:35)
- 03. Fiber of Our Being (04:58)
- 04. Our Last Light (04:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04D033B63FAD13E5AE6EF137CAC0805E688C6B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

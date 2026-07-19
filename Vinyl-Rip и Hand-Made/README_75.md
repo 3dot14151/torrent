@@ -1,26 +1,25 @@
-###  Публикация: 1713462   (111921) от 05.04.2024
+###  Публикация: 1729158   (108111) от 10.06.2024
 
-Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
+Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Technical Brutal Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Corroded — хард-рок группа из Онге, Швеция.
-Музыкально Corroded вдохновлены Black Sabbath и Machine Head.2009 - Eleven Shades Of Black
-2010 - Exit To Transfer
-2012 - State Of Disgrace
-2017 - Defcon ZeroЖанр: Hard Rock, Groove MetalПродолжительность: 05:11:41
+A1 Enlighten Through Agony
+A2 Compulsion For Cruelty
+A3 Feast Of Ashes
+A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:37:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
+magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,26 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713739   (111894) от 06.04.2024
+###  Публикация: 1729683   (108036) от 12.06.2024
 
-Джоконда (DЖОКОНDА, Елена Минина) - Коллекция (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
+Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Джоконда» - российская рок-группа, главным образом работающая в жанре симфонического метала. Вокалисткой и лидером группы является Елена Минина.2021 - Каждый Охотник Желает Знать
-2024 - Последний законЖанр: Symphonic Metal/RockПродолжительность: 01:59:17
+Tales Of Dark... - сербская дум/дэт-метал группа из Нови-Сада, образована в 2001 году и распавшаяся в 2009.2006 - Fragile Monuments
+2009 - Perdition CallsЖанр: Gothic/Doom/Death MetalПродолжительность: 02:13:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
+magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,27 +54,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713681   (111867) от 06.04.2024
+###  Публикация: 1729606   (108035) от 12.06.2024
 
-The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
+Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
-2008 - The Sun And The Moon Complete
-2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
+Nox Aurea - шведская готик-дум-метал группа, действовавшая с 2005 по 2011 год.2009 - Via Gnosis
+2010 - Ascending In TriumphЖанр: Melodic Doom/Death MetalПродолжительность: 02:14:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
+magnet:?xt=urn:btih:242C95DDC1CAC0766A459A3FD67AB2EC8E54662A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714072   (111773) от 08.04.2024
+###  Публикация: 1729693   (108003) от 12.06.2024
 
-Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Country, Country Rock>
+Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Hank Drank
-A2 Teenage Darling
-A3 Chain Gang
-A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:49:43
+Mortician - австрийская хэви-метал группа из Саттайнса и Фельдкирха, Форарльберг.2011 - Mortician
+2014 - Shout For Heavy Metal
+2020 - Titans
+2023 - 40 Years Of MetalЖанр: Heavy MetalПродолжительность: 02:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
+magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714647   (111668) от 10.04.2024
+###  Публикация: 1729733   (108001) от 12.06.2024
 
-«Joshua» (Joshua Perahia) - Surrender (1986) [FLAC 2.0|24/192|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Surrender Love
-A2 Heart Full Of Soul
-A3 Your Love Is Gone
-A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:58
+Xaon — швейцарская метал-группа, образованная в 2014 году.2016 - Face of Balaam (EP)
+2017 - The Drift
+2019 - Solipsis
+2022 - The LetheanЖанр: Symphonic Death MetalПродолжительность: 02:48:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
+magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714835   (111663) от 10.04.2024
+###  Публикация: 1729588   (107999) от 12.06.2024
 
-Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk Metal>
+When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Innferd
-A2 Mellom Bakkar Og Berg
-A3 Haavard Hedde
-A4 Villemann(   Читать дальше...   )Жанр: Viking, Folk MetalПродолжительность: 00:33:27
+When Nothing Remains - шведская дум/дэт-метал группа, в которую входят участники таких групп, как Nox Aurea, The Cold Existence, Rimfrost, Draconian, Doom: VS.
+Идея When Nothing Remains родилась в конце 2010 года, когда Питер Лаустсен «Rimfrost, Nox aurea, The Cold Existence» и Ян Салландер «The Cold Existence» захотели создать что-то очень мрачное и эмоциональное. (   Читать дальше...   )2012 - As All Torn Asunder
+2013 - Thy Dark Serenity
+2016 - In MemoriamЖанр: Gothic/Doom/Death MetalПродолжительность: 03:06:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
+magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714946   (111605) от 11.04.2024
+###  Публикация: 1729933   (107997) от 13.06.2024
 
-Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
+Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|Vinyl-Rip]  <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
-2011 - Icarus (EP)
-2012 - Periphery II: This Time It's Personal
-2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
+A1 Ferrum Aeternum
+A2 Iron
+A3 Sword Chant
+A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
+magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,26 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715848   (111466) от 13.04.2024
+###  Публикация: 1729959   (107994) от 13.06.2024
 
-S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
+Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk Metal, Ambient>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-S-Tool (или Severing Tool) — финская хэви-метал группа, базирующаяся в Оулу/Лахти/Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
-2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
+A1 - Зима Р-254
+A2 - Лён
+A3 - Плач Нау
+B1 - Последнее Лето Детства(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
+magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,28 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716779   (111305) от 17.04.2024
+###  Публикация: 1729872   (107978) от 13.06.2024
 
-Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Heavy Power Metal>
+Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1:
-01. Heart Of Steel
-02. Garden Party
-03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
+A1 Intro
+A2 Hero In A Dream
+A3 Token Of Time
+A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
+magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,28 +255,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637717   (111193) от 20.04.2024
+###  Публикация: 1730009   (107946) от 14.06.2024
 
-Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, AOR>
+Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Praying Mantis — британская рок-группа. Начинала как одна из групп «NWOBHM». Со временем группа стала играть мелодичный хард-рок, ориентируемый на массовую аудиторию - "AOR".1981 - Time Tells No Lies
-1991 - Predator In Disguise
-1993 - A Cry For The New World
-1993 - Only The Children CryЖанр: NWOBHM, AORПродолжительность: 12:27:28
+Aetherian — мелодик-дэт-метал группа из Афин, Греция, образованная осенью 2013 года.2015 - Tales Of Our Times
+2017 - The Untamed Wilderness
+2023 - At Storm's EdgeЖанр: Melodic Death MetalПродолжительность: 02:24:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D40451CC8C5E46FB1A9D543C1D53B3F020F45D0F
+magnet:?xt=urn:btih:9C11AED30D94D4AEFA5B933CD125A9D2EC342AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,27 +283,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717401   (111153) от 20.04.2024
+###  Публикация: 1730062   (107943) от 14.06.2024
 
-Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
-2023 - Live-маскарад
-2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
+01. By The Dividing Stream
+02. Fram Afar
+03. Twilight Tavern
+04. Heathen Throne(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:56:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
+magnet:?xt=urn:btih:25C4ADECB2FB4D4A4FA96B19A424FA5BA37343A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,28 +312,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717775   (111110) от 21.04.2024
+###  Публикация: 1730146   (107939) от 14.06.2024
 
-Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spectre Of Devastation
-02. Pestilence
-03. Rat King
-04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
+Жанр: Epic Folk MetalПродолжительность: 01:47:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
+magnet:?xt=urn:btih:82692E7A2750CFD9B924D0A24A66E9B6A3829B58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +338,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715639   (111072) от 22.04.2024
+###  Публикация: 1730008   (107935) от 14.06.2024
 
-Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove/Gothic Metal>
+Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом Sentenced, певцом и гитаристом Вилле Лайхиала.2003 - Escapexstacy
-2006 - Lust Stained Despair
-2008 - A Dead Heavy Day
-2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
+01. Ad Victoriam
+02. Blood Is the Price of Glory
+03. Deathbringer from the Sky
+04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
+magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,28 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717915   (111067) от 22.04.2024
+###  Публикация: 1730093   (107934) от 14.06.2024
 
-U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Independence Day
-02. Two Faced Woman
-03. Desperate Balls
-04. The Punisher(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:02
+01. Symbols
+02. In My Sword I Trust
+03. Unsung Heroes
+04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:400A9C0F401B1D74AC86D5F4B27B5E510137712C
+magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +396,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718027   (111059) от 22.04.2024
+###  Публикация: 1730108   (107932) от 14.06.2024
 
-U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Holy
-A2 Raiders Of Beyond
-A3 Shout It Out
-A4 Recall The Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:39
+A1 Ajattomasta Unesta
+A2 For Those About To Fight For Metal
+A3 Way of the Warrior
+A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:139FEEC517B52DD5EB5DA417F73536DA1ECDFE63
+magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +425,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718042   (111022) от 23.04.2024
+###  Публикация: 1730450   (107858) от 16.06.2024
 
-U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thunderball
-02. The Arbiter
-03. Pull The Trigger
-04. Fistful Of Anger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
+Torture Squad — бразильская дэт/трэш-метал группа, основанная в 1990 году.1998 - Shivering
+1999 - Asylum Of Shadows
+2001 - The Unholy Spell
+2004 - PandemoniumЖанр: Thrash/Death MetalПродолжительность: 08:05:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1AA0255165B1FF9C6538BB8A77B2F61A0F0C7DD
+magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +454,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718265   (110968) от 24.04.2024
+###  Публикация: 1731732   (107614) от 22.06.2024
 
-U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+VA - Двое - Песни на стихи Михаила Танича. Записи 1982 - 1984 гг. (1984) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Schlager>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Embarkation
-02. Mission No. X
-03. 24/7
-04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
+Сторона 1:
+01. Валерий Леонтьев - Пароходы
+(И. Николаев)
+02. Манана Тодадзе - Скажи мне все(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
+magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +483,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718588   (110914) от 25.04.2024
+###  Публикация: 1732021   (107528) от 23.06.2024
 
-U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mastercutor
-02. The Wrong Side Of Midnight
-03. The Instigator
-04. One Lone Voice(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:41
+S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-трэш группа, сформированная в Нью-Йорке в 1985 году. Группа считается одним из первых кроссовер-трэш коллективов, смешавших в своём творчестве хардкор-панк и трэш-метал.1985 - Speak English or Die
+1999 - Bigger Than The DevilЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 01:26:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
+magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +510,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718582   (110912) от 25.04.2024
+###  Публикация: 1732202   (107492) от 24.06.2024
 
-Coal Chamber - Studio Albums (4 releases) (1997-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coal Chamber — ню-метал-группа из Лос-Анджелеса, образованная в 1993 году вокалистом Брэдли «Дэзом» Фафарой и гитаристом Мигелем «Мигсом» Расконом.1997 - Coal Chamber
-1999 - Chamber Music
-2002 - Dark Days
-2015 - RivalsЖанр: Nu MetalПродолжительность: 04:09:00
+M.O.D. (Method of Destruction) — кроссовер-трэш группа, сформированная в Нью-Йорке в 1986 году бывшим роуди Anthrax и вокалистом Stormtroopers of Death Билли Милано.1987 - U.S.A for M.O.D.
+1988 - Surfin' M.O.D.
+1989 - Gross Misconduct
+1992 - Rhythm Of FearЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 06:05:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
+magnet:?xt=urn:btih:D6FFE5E576D22BEC6B9CB021FB6F0380DAEE8E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718719   (110848) от 26.04.2024
+###  Публикация: 1732625   (107468) от 25.06.2024
 
-Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lords of Black — испанская хэви-метал группа, основанная в Мадриде в 2014 году гитаристом Тони Эрнандо и вокалистом Ронни Ромеро.2014 - Lords Of Black
-2016 - II
-2018 - Icons Of The New Days
-2020 - Alchemy Of Souls - Part I -Жанр: Heavy/Power MetalПродолжительность: 06:58:56
+Lutharo - канадская метал-группа основанная в 2014 году.2018 - Unleash the Beast (EP)
+2020 - Wings of Agony (EP)
+2021 - Hiraeth
+2024 - Chasing EuphoriaЖанр: Melodic Death/Power/Thrash MetalПродолжительность: 02:24:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213090019EF8466C5CBDDA023E97FD4FCFF9A511
+magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718706   (110824) от 26.04.2024
+###  Публикация: 1733961   (107203) от 01.07.2024
 
-Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Arena Rock>
+Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Do Me Right
-A2 Call To The Heart
-A3 Don't Tear Me Down
-A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:46:06
+Лука Турилли — итальянский рок-музыкант, гитарист-виртуоз, клавишник и композитор. Сооснователь пауэр-метал-группы Rhapsody of Fire и соавтор большей части её песен.1999 - King Of The Nordic Twilight
+Luca Turilli's Dreamquest
+Luca Turilli's Rhapsody
+Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжительность: 07:13:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
+magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +597,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718811   (110821) от 26.04.2024
+###  Публикация: 1734313   (107121) от 03.07.2024
 
-Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|24/96|tracks|Vinyl-Rip] <Death, Thrash Metal>
+Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Legal Requirements
-02 Wrong Faith
-03 Meaningless Life
-04 Fire Below The Ash(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:44
+A1 Kembatinan Premaster
+A2 Pious Breath
+A3 Bloud And Souls
+A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
+magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +626,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719216   (110635) от 28.04.2024
+###  Публикация: 1734527   (107075) от 04.07.2024
 
-U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal, Dark Ambient, Drone>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Bogeyman
-A2 Dominator
-A3 Black And White
-A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
+01. 1
+02. P.S. Nautical
+03. Avalon Polo
+04. Laudanum(   Читать дальше...   )Жанр: Black Metal, Dark Ambient, DroneПродолжительность: 00:55:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
+magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,29 +655,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719515   (110570) от 29.04.2024
+###  Публикация: 1735169   (107001) от 06.07.2024
 
-After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Doom, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-After Forever — голландская группа, игравшая музыку в жанре симфоник-метал. Группа использовала женский оперный вокал (сопрано), клавишные и оркестровые аранжировки, а также мужской экстрим-вокал. After Forever была основана в 1995 году, а в 2009 году распалась.
-Марк Янсен, один из основателей группы, покинул её в 2002 году и основал аналогичный по жанру проект2000 - Prison of Desire
-2001 - Decipher
-2004 - Invisible circles
-2005 - Remagine(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 05:57:58
+A1. Wipe Out Christianity (Exordium) (03:38)
+A2. Sleep of the Damned Pt. II (05:00)
+A3. Wipe Out Christianity (Pestis) (12:08)
+B1. Gate of Hell (02:47)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F086759B5C23C58F13296B292A6A40677B029CF
+magnet:?xt=urn:btih:C96CFE848C5EB9063B4713B6AE3B0C39D8EDF3AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,26 +684,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719405   (110558) от 29.04.2024
+###  Публикация: 1735294   (106977) от 07.07.2024
 
-The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 2013, Peaceville [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mayfield Four (aka MF4) - рок-группа, образованная в Спокан, штат Вашингтон, в 1996 году. Группа официально распалась в 2002 году.1998 - Fallout
-2001 - Second SkinЖанр: Hard RockПродолжительность: 01:44:51
+A1 - Carpathian Forest
+A2 - The Pale Mist Hovers Towards The Nightly Shores
+A3 - The Eclipse / The Raven
+B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:18:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
+magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +713,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719892   (110483) от 01.05.2024
+###  Публикация: 1735366   (106952) от 07.07.2024
 
-Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
-2001 - Voimasta Ja Kunniasta
-2003 - Kivenkantaja
-2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
+A - The Burning Voice
+B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
+magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
 ```
 
 https://mybot314.ru/tekegram_catalog/

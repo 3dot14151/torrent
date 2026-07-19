@@ -1,3 +1,29 @@
+###  Публикация: 1287552   (703316) от 07.03.2019
+
+Ant Download Manager Pro 1.12.0 Build 57426 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ant Download Manager - быстрый и простой загрузчик любых файлов из Интернета с передовой функцией для скачивания видео с видеосервисов, таких как Youtube, Myspace, Google Video, DailyMotion и других. Загружает с любого сайта, любой контент, быстро и надёжно. Интегрируется в браузеры - Internet Explorer 8+, Mozilla Firefox 32+, Google Chrome 31+. Поддерживает HTTP (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347DB34FD6435443BB6D3E69B78D31195FB00144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895191   (703296) от 04.05.2015
 
 FastStone Capture 8.2 RePack (&Portable) by VIPol [Ru]
@@ -646,32 +672,6 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A4A4EA947FA3BA7C17043F0A912CAE7B69BA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533667   (703075) от 25.02.2022
-
-GOM Player Plus 2.3.74.5338 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703075.jpg" />
-</div>
-
-
-###  Подробнее
-
-GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B519143021B6A63FC91BBC2DEE4EA4E18B4944D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

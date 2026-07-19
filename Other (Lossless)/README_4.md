@@ -1,3 +1,90 @@
+###  Публикация: 1410708   (433867) от 22.09.2020
+
+François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Dance (01:18)
+02. Mazurka (01:12)
+----
+Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410668   (433862) от 22.09.2020
+
+VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|image + .cue] <Pop, Folk, World & Country, Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - James Last – Biscaya (04:03)
+02 - Billy Vaughn And His Orchestra - Sail Along Silvery Moon (02:12)
+03 - Mantovani And His Orchestra - The Moulin Rouge Theme (02:50)
+04 - Frank Chacksfield & His Orchestra - Three Coins In The Fountain (03:41)(   Читать дальше...   )Жанр: Pop, Folk, World & Country, Stage & ScreenПродолжительность: 03:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BCB014A69F319BCAFF5CAC30815FF956F45167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410790   (431825) от 23.09.2020
+
+Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneback (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие под морем: приключенческие звуки Маттиаса Анебека. Присоединяйтесь к нему в фантастическом экзотическом подводном приключении со звуком! Плывите в открытое море, исследуйте его глубины, восхищайтесь их странными и красочными обитателями. Под волнами и в глубинах ждут забытые миры. Вас ждут биолюминесцентные существа, которые никогда не видели дневного (   Читать дальше...   )01. Triton, God of the Sea (05:32)
+02. Silent World (05:15)
+03. Voyage Beneath the Sea (07:43)
+04. Starfish (02:58)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBC9F5845FEDF466D09978D6A814938E64F9BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410926   (431642) от 23.09.2020
 
 Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
@@ -688,111 +775,6 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 08. Heimwärts (06:41)
 09. Waldpoesie (13:31)
 10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499462   (256373) от 21.05.2012
-
-Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neofolk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dante O' Doré (03:50)
-02. Wadi el 'arish (08:31)
-03. Etheros (02:27)
-04. Zjw (05:04)
-05. Capriccio di cenere (05:27)
-06. Les cloches de Clisson (02:25)
-07. Sacrum II (03:25)
-08. Over the Border (03:42)
-09. Physeos (03:31)
-10. Escalder's Spellbinding (02:53)(   Читать дальше...   )2002Жанр: Acoustic, Ethereal, NeofolkФормат: CD, AlbumПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498635   (255778) от 19.05.2012
-
-Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Set Free (04:34)
-02. Yoo Doo Right (07:13)
-03. Where Did You Sleeep Last Night (03:44)
-04. Like Roling Stone (06:31)
-05. Love Lies (07:11)
-06. Oh My Love (03:27)
-07. Voodoo Chile (03:48)
-08. Heart And Soul (04:03)
-09. Persuasion (06:34)
-10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497342   (253475) от 16.05.2012
-
-VA - Cтаринные русские романсы. Золотая коллекция (2005) [FLAC|Lossless]<Vocal, classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Константин Огневой - Утро туманное
-02. Петр Топчий - Я помню вальса звук прелестный
-03. Валентина Кочур - Не пробуждай воспоминаний
-04. Николай Кондратюк - Я встретил вас
-05. Евгений Зубко - Астры осенние
-06. Петр Топчий - Калитка
-07. Галина Мурзай - Темно-вишневая шаль
-08. Анатолий Кочерга - Забыли Вы
-09. Виктор Титкин - В минуту признанья
-10. Тамара Концевая - О, позабудь былые увлеченья(   Читать дальше...   )2005Жанр: Vocal, classicalПродолжительность: 01:08:39
 
 ## Скачать торент
 ```bash

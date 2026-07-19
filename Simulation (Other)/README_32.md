@@ -1,3 +1,29 @@
+###  Публикация: 1772837   (31140) от 12.01.2025
+
+Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31140.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Construction Simulator 2 US - Pocket Edition вы создаете собственную строительную компанию. А помогают вам в этом 40 оригинальных лицензированных строительных машин от Caterpillar, Liebherr, Palfinger, Bell, STILL, ATLAS, Mack Trucks, MEILLER, Kipper и Kenworth. Ройте котлованы, управляйте огромными подъемными кранами, грузите строительные материалы в кузова мощных (   Читать дальше...   )Тип издания: LicenseРазработчик: weltenbauer. Software Entwicklung GmbHЖанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7D9FBA66C52AA2451B07D3DFD853730D032B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773000   (31117) от 13.01.2025
 
 Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
@@ -641,32 +667,6 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537200FF53AF82CF78BB6E7067DEE66253CC7493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702028   (27683) от 14.02.2025
-
-Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Life: A Cozy Simulator - не просто песочница, а еще и спокойное погружение в мир садоводства. В этом симуляторе вы не просто игрок, а садовник, создающий свой собственный кусочек рая. Вы сможете сажать, выращивать, украшать и разводить множество растений. Но очарование не ограничивается только вашим личным участком, ведь вы общаетесь с дружелюбными соседями, (   Читать дальше...   )Тип издания: RepackРазработчик: Stillalive StudiosЖанр: Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFC57E6A439E019991B126606F27FDFC405000C
 ```
 
 https://mybot314.ru/tekegram_catalog/

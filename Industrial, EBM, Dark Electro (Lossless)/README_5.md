@@ -1,3 +1,32 @@
+###  Публикация: 1420970   (322099) от 03.11.2020
+
+SALEM - Fires In Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Witch-House, Trip-hop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capulets [00:01:56]
+02. Fires In Heaven [00:02:08]
+03. Crisis [00:02:10]
+04. Sears Tower [00:03:07](   Читать дальше...   )Жанр: Electronic, Experimental, Witch-House, Trip-hopПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9121CF3D08502FF980319935FCEA9EB4F227AD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128406   (309804) от 13.11.2017
 
 Nommo Ogo - Discography 12 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Tribal, Electro, Industrial, Ritual, Ambient>
@@ -722,35 +751,6 @@ Any Second - Sünde : Mensch (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1DAD0652DB9DC28E2D82C5AEDC47F3E1EF3745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647018   (231101) от 21.07.2023
-
-Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Modern Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taunting the Jesters [00:03:50]
-02. Parasites and Leeches [00:04:43]
-03. Never Question [00:02:52]
-04. Take the Bullet [00:04:03](   Читать дальше...   )Жанр: Industrial Rock, Modern MetalПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CCEB293ACEF6FFC7DC2B59791BBF5E3B05C1FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

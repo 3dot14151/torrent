@@ -1,3 +1,29 @@
+###  Публикация: 1494845   (885816) от 09.09.2021
+
+CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885816.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED6498AFED75739F0BC4DD8BC883138C0CDEFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494796   (885814) от 09.09.2021
 
 CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -642,32 +668,6 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE05C3C31B843A05AFB3140A08A5C3FC8CF0235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494759   (885440) от 09.09.2021
-
-uTorrent 3.5.5 Build 46090 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885440.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE06DDC4347E3BB87A9A518384DE1D4834757BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 550358   (458367) от 22.09.2012
+
+Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550366   (458365) от 22.09.2012
+
+Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388575   (458069) от 17.09.2011
+
+Legends Disco Star-80 (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
+хркъSandra:
+Maria Magdalena
+The Night is Still Young
+ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321667   (456447) от 25.08.2019
+
+Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
+01. La Bouche - Be My Lover
+02. Backstreet Boys - Everybody
+03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694859   (456154) от 27.09.2013
 
 LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
@@ -581,119 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC4C4FCD8354363394909911BAA79E1775CB5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943852   (444752) от 05.10.2015
-
-VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
-2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
-3. Alex Adair - Heaven (Official Video) (00:03:07)
-4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706263   (444038) от 02.10.2013
-
-Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 50 Cent - Outta Control 1080p (3:23)
-2. Aircraft & Miss Palmer - Dont Ever Let Go 1080p (3:23)
-3. Alchemist Project Feat.Angie - Don't let me down 1080p (3:10)
-4. Alex C feat. Lisa Rowe - Feed Me Diamonds 1080p (3:38)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E87DB59ECAB6DFB15A6A4359C593CAEC047E173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061467   (443628) от 12.10.2016
-
-Баджирао и Мастани / Bajirao Mastani (2015) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами роскошные клипы из фильма, повествующего об удивительной истории любви Баджирао и его второй жены, принцессы Мастани... Наслаждайтесь восточным зрелищем!1. Aayat
-2. Deewani Mastani
-3. Malhari
-4. Mohe Rang Do Laal(   Читать дальше...   )Производство: Индия (EROS)Жанр: Музыка, клипыРежиссер: Санджай Лила Бхансали (Sanjay Leela Bhansali)Актеры: Приянка Чопра, Дипика Падукон, Ирфан Кхан, Ранвир Сингх и др.Язык субтитров: РусскийПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B08664B9F82E322A94ADB29EB1C60D5EF81684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553243   (443354) от 28.09.2012
-
-Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видео группы Uriah Heep01.Жанр: Музыка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0729DFA1E1C2AC8A94EBD6A6AAC4326ECA335F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1487989   (1002803) от 08.08.2021
+###  Публикация: 1482445   (1007605) от 08.07.2021
 
-Шаблоны - Huge Pack of Realistic High Quality Cars & Vehicles [PSD]
+Растровый клипарт - Сборник клипарта #5 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Большой сборник шаблонов транспорта.Формат: PSDРазрешение файлов: 1650x1100-6000x4000
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 264x231-7087x2362
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B00D59C7EED59EE7238D4C5E42B3F41EABB6E452
+magnet:?xt=urn:btih:39D58460CE4EF2F4DDFBD1F641144751AEF3903B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351110   (1002616) от 08.01.2020
+###  Публикация: 1482444   (1007604) от 08.07.2021
 
-Плагины - GraphicRiver - Vector Sketch - Avatar - Cartoon Photoshop Plugin - 25184547 [JSX]
+Растровый клипарт - Сборник клипарта #4 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vector Sketch - Avatar - Многоязычный плагин Photoshop превращает ваши фотографии в настоящий векторный эскиз и мультяшный стиль в один клик. Множество элементов и опций для настройки и улучшения ваших результатов. Самый простой в использовании благодаря уникальному интерфейсу панели. Наслаждайтесь!  (от автора)Формат: JSX
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 266x354-6031x2994
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65CC62317BFDC0CD4ACFBA06DC55B3094E1BC938
+magnet:?xt=urn:btih:6F5D1B69CA3C55FF0C44A599A57B9B1E4F2FA6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351171   (1002417) от 09.01.2020
+###  Публикация: 1482453   (1007602) от 08.07.2021
 
-Шаблоны - Creative Market - Christmas Scene Creator #01 - 4339839 [JPG, PSD]
+Растровый клипарт - Сборник клипарта #9 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте высококачественные изображения для демонстрации презентаций в виде плакатов, заголовков веб-сайтов, Etsy, Instagram, Facebook, проектов Behance, блога Cooking, веб-проектов, социальных сетей, проекта печати, презентаций и т. Д.Формат: JPG, PSDРазрешение файлов: 3000x2000
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 201x201-8464x5520
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87E107D2AAB2C6911047A4629212281A918225B7
+magnet:?xt=urn:btih:47A8317CE966BD0B383F95B60FE21F4A3AB5F320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,52 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351169   (1002406) от 09.01.2020
+###  Публикация: 1482442   (1007520) от 08.07.2021
 
-Стили - GraphicRiver - Hologram Text Effects - 23600572 [ASL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте отличный постер или флаер, обложку facebook, обложку youtube, баннер веб-сайта, название кинематографического фильма, название фильма и т. Д. Бесплатные ссылки для загрузки шрифтов, включенные в файл справки.Формат: ASL, PSDРазрешение файлов: 2560×2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F31699CDAAB3D0E01A324D2AA6F10CC8B29238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351236   (1002396) от 09.01.2020
-
-3D модели - Daz 3D - Robyn 8 Pro Bundle - 65617 [DUF]
+3D материалы - Arroway Textures - design|craft #4 [MAT, PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Robyn 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Древесина, будучи натуральным материалом, является неотъемлемой частью ее привлекательности. Во времена растущего внимания к окружающей среде его естественная эстетика делает дерево все более популярным материалом для дизайна интерьера. Современные технологии обработки древесины позволяют изготавливать новые и инновационные виды шпона, открывающие совершенно новые (   Читать дальше...   )Формат: MAT, PNG, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A12706829F92FA7976BC68D4333E0771C242339
+magnet:?xt=urn:btih:245C80479756835038BB2FB03FED692D5D115736
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,26 +102,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351181   (1002393) от 09.01.2020
+###  Публикация: 1482646   (1007452) от 09.07.2021
 
-3D модели - Daz 3D - Jenni 8 Pro Bundle - 65275 [DUF]
+Растровый клипарт - Сборник клипарта #11 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 270x191-6500x6500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A642CF25F92054091021130BB558309CFF1E525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482649   (1007447) от 09.07.2021
+
+Растровый клипарт - Сборник клипарта #12 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 254x640-6000x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FE99358F7CAC462B6C7E5671E9FDD1A4249FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482628   (1007356) от 09.07.2021
+
+3D модели - Maxtree - Plant Models Vol 57 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Jenni 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Это коллекция высококачественных 3D-моделей растений. Включает в себя 12 видов, всего 72 моделиФормат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A2EDB0F1CD836F292FF6BB7976C54B1357BF13E
+magnet:?xt=urn:btih:2D27444878B84874C5FBAADA6EBD5AAE9555998B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,26 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351230   (1002391) от 09.01.2020
+###  Публикация: 1482637   (1007345) от 09.07.2021
 
-3D модели -  Daz 3D - Leisa 8 Pro Bundle - 64959 [DUF]
+3D модели - KitBash3D - Colonial [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA, ASSET, UASSET, HIP]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Leisa 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Стройте исторические городские площади или постройте фантастический город в стиле неоклассицизма. Эти величественные сооружения заимствованы из традиций архитектуры Палладио и Регентства с использованием красивых фронтонов, арок, колонн, венецианских окон, медного покрытия и высоких сложных башен. Благодаря разнообразию текстур камня, кирпича, штукатурки и дерева (   Читать дальше...   )Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA, ASSET, UASSET, HIP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C40517042B130C7C40AEE9A27E6E88B5ADFE5183
+magnet:?xt=urn:btih:5015558DF04DDD918AA7BBBD850C50DEEE8E1E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,26 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351176   (1002387) от 09.01.2020
+###  Публикация: 1482745   (1007222) от 10.07.2021
 
-3D модели - Daz 3D - dForce Rebel Yell Outfit Textures - 62723 [DUF]
+3D модели - Maxtree - Plant Models Vol 59 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор текстур для dForce Rebel Yell Outfit for Genesis 8 Female(s) из категории Clothing.
-Для Genesis 8Формат: DUF
+Модели растений Том 59-это коллекция высококачественных 3D-моделей. Включает в себя 11 видов, всего 69 одиночных моделей.Формат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEBD7810E3B7429F72086131C825B58DAFB5A2C4
+magnet:?xt=urn:btih:E40A349FB083021366D7852E22A6EA7231EBE2BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,26 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351175   (1002385) от 09.01.2020
+###  Публикация: 1481024   (1007066) от 11.07.2021
 
-3D модели - Daz 3D - Teen Raven 8 Pro Bundle - 64045 [DUF]
+3D модели - CGTrader - Contemporary cars for Arch viz 3D Model Collection [3DS, C4D, FBX, MAX, OBJ, MTL, DAE]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Teen Raven 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Пак 3D моделей содержит коллекцию из 15 современных автомобилей известных компаний.Формат: 3DS, C4D, FBX, MAX, OBJ, MTL, DAE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:319EF7181F35FAA95CFE3F5495B98B4DDD339E38
+magnet:?xt=urn:btih:E7ECED0651D6A053F4CAE74044293D1964328D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351358   (1002365) от 09.01.2020
+###  Публикация: 1483417   (1006906) от 13.07.2021
 
-Звуковые библиотеки - Lens Distortions - Statement SFX [WAV]
+Растровый клипарт - Сборник клипарта #15 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Statement SFX - это большая библиотека кинематографических звуковых эффектов. Эффектные фильмы всегда используют звук, чтобы захватить наше воображение. Передовые брендовые новинки, запуск инновационных продуктов и революционные кампании вызывают больше эмоций благодаря содержательному дизайну звука.Формат: WAV
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 249x1220-6000x4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D3535FD800B40241CE643B3CD0B488CA2A7CF9A
+magnet:?xt=urn:btih:2205460E2BF695BF913A185C801ADEEC856E9CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351172   (1002357) от 09.01.2020
+###  Публикация: 1483420   (1006901) от 13.07.2021
 
-3D модели - Unreal Engine - Character Interaction [UASSET]
+Растровый клипарт - Сборник клипарта #16 [PNG, TIF, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблон включает в себя систему перемещения персонажа, взаимодействия персонажа с различными объектами, использования различного огнестрельного оружия, сбора и изготовления различных предметов, использования средств передвижения, создания различного ИИ противника и т. Д.Формат: UASSET
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 218x1108-6271x6645
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F5046C843E13CA4FE72B819F506391FC231B451
+magnet:?xt=urn:btih:8D2C6A0B214881A5961559C13D8A89FABB70533C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,26 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351165   (1002347) от 09.01.2020
+###  Публикация: 1483422   (1006900) от 13.07.2021
 
-3D модели - 3DDD - PRO – 45 HQ Beds 3D-Models [Corona|V-Ray|*.max, FBX, OBJ]
+Растровый клипарт - Сборник клипарта #17 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 48 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 211x512-4592x3448
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FDBDF6F9DDDFEFCC5BD66FEA7F69E588982EE7B
+magnet:?xt=urn:btih:63DC03218DFCF3786182F0111E1D5E51BE951E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488274   (1002264) от 10.08.2021
+###  Публикация: 1483423   (1006899) от 13.07.2021
 
-Фоны - Сборник фонов [JPG, PNG]
+Растровый клипарт - Сборник клипарта #18 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник фонов для вашего творчества.Формат: JPG, PNGРазрешение файлов: 1920x603-1920x1920
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 201x217-5679x4731
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:695A0E56B25BEDCE53E32DA38944E6D92C5F0F47
+magnet:?xt=urn:btih:B18F311EB2C4C0D707D1E3970FA2F279E80BA114
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +362,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488276   (1002256) от 10.08.2021
+###  Публикация: 1483424   (1006897) от 13.07.2021
 
-Фоны - Сборник фонов #2 [JPG, PNG]
+Растровый клипарт - Сборник клипарта #19 [PNG, TIF, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник фонов для вашего творчества.Формат: JPG, PNGРазрешение файлов: 1920x750-4272x2848
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 248x750-9186x3496
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22546ABCCD78BECA1AB5F7BD490B56325E603BAC
+magnet:?xt=urn:btih:4246598305F5920510E24D6F14034CD885FC7136
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +388,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488223   (1002252) от 10.08.2021
+###  Публикация: 1483426   (1006896) от 13.07.2021
 
-3D модели - Daz 3D - 50 HDRIs - Movie Maker Iray - Metropolis Day - 66897 [DUF, HDR]
+Растровый клипарт - Сборник клипарта #20 [PNG, TIF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Iray HDRI для DAZ 3D из категории Resources.Формат: DUF, HDR
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 260x262-4896x2753
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A35E26AD387BC3F2D0F6BE7579EB30B0CBF2508C
+magnet:?xt=urn:btih:4ADEB3BAE997A4144F389347D2A937913300D189
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +414,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488280   (1002245) от 10.08.2021
+###  Публикация: 1483431   (1006880) от 13.07.2021
 
-Фоны - 1200 High Resolution Backgrounds Bundle [JPG, PNG, HDR]
+Растровый клипарт - PixelSquid - Nursery Collection [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Откройте для себя прекрасный набор из 1200 фонов с высоким разрешением! Это более 1200 супер фонов с удивительно яркими цветами. Они чрезвычайно универсальны и могут использоваться в самых разных дизайнах.Формат: JPG, PNG, HDRРазрешение файлов: 4096X2160
+Клипарт Nursery для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6754AAD64A38A3D080A09B399443AF8AD7C4A1D8
+magnet:?xt=urn:btih:C492757AAFBC48E67D5FED5F47CA38CBDB564BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,26 +440,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488272   (1002243) от 10.08.2021
+###  Публикация: 1483427   (1006867) от 13.07.2021
 
-3D модели - Daz 3D - Cleopatra's Egyptian Bundle - 80789 [DUF]
+Растровый клипарт - PixelSquid - Nautical Collection [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cleopatra's Egyptian для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
+Клипарт Nautical для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9C42CBB22CF51EC94C507AE3812BBF397599042
+magnet:?xt=urn:btih:892EC48BBD9A2539840B0275C16A9F44322FA7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,53 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351509   (1002158) от 10.01.2020
+###  Публикация: 1483457   (1006865) от 13.07.2021
 
-Шаблоны - Дед Мороз прислал нам елку [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский фотоальбом
-Обложка и 5 разворотовФормат: PSDРазрешение файлов: 7205x3602-7913x4087
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621F84BCFE450FA8FFD9120CB8865D8F5EA32481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351501   (1002147) от 10.01.2020
-
-3D модели - Daz 3D - Tristan 8 Pro Bundle - 66153 [DUF]
+3D модели - Hum3D - VAZ Lada 2110 sedan 1995 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Tristan 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+3d модель автомобиля марки VAZФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22712AB8B358CCAD99A45E4CB52EC6359E5231F4
+magnet:?xt=urn:btih:BAF414BAC964DE04A5E89BAF6A1BF40550A46A0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,26 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351494   (1002145) от 10.01.2020
+###  Публикация: 1483487   (1006859) от 13.07.2021
 
-3D модели - Daz 3D - Silas 8 Pro Bundle - 63941 [DUF]
+3D модели - Hum3D - VAZ Lada Samara (2113) hatchback 3-door 1997 [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Silas 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+3d модель автомобиля марки VAZФормат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58DC88A92E6BC6F7E575B514FC81491FD0DCD1EB
+magnet:?xt=urn:btih:DD7F98791CBC399B5B9E0064D7F2CE9B308A4EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,26 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351490   (1002143) от 10.01.2020
+###  Публикация: 1483500   (1006748) от 14.07.2021
 
-3D модели - Daz 3D - Rynne 8 Pro Bundle - 66075 [DUF]
+3D модели - Hum3D - Chevrolet El Camino 1982 [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Rynne 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+3d модель автомобиля марки ChevroletФормат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74019DED95FE14A32C75D4A566CA61CD8EE3A70C
+magnet:?xt=urn:btih:E67AE931312A7791A5ACB40D97E620811B561172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,103 +544,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351567   (1002142) от 10.01.2020
+###  Публикация: 1483503   (1006740) от 14.07.2021
 
-Звуковые библиотеки - Sound Ideas - Cartoon Trax Sound Effects [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели этой коллекции - The Hollywood Edge вместе с известными дизайнерами и студиями. Коллекция мультипликационных шумов, звуковых эффектов и музыкальных фрагментов. Дико забавно - вот лучшее описание для Cartoon Trax. Редкие работы мастеров мультипликационной комедии могут быть услышаны еще раз - в ваших работах!Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D654CD5908D4200FFA1BC9A0EAD16F0CBF9AFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351500   (1002124) от 10.01.2020
-
-Футажи - VideoHive - Cartoon Kawaii Faces - 24685336 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cartoon Kawaii Faces - это интересные мультяшные 2d анимационные Kawaii лица. Которые Вы сможете использовать везде, на различных предметах, фотографиях или в ваших видео роликах на You Tube.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDC3711A5B167CD602570A5F34634314EED6135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351499   (1002122) от 10.01.2020
-
-Футажи - VideoHive - Grunge Transitions - 7281277 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grunge Transitions - это небольшой, но эффектный пакет гранжевых переходов, которые так же можно отнести и к винтажным. Данные переходы используют эффекты утечки света и бликов.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9694B4C017990063454131F3B4514B70E88C3219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488396   (1001933) от 11.08.2021
-
-3D модели - Evermotion - Archmodels vol. 218 [V-Ray|*.max, C4D, FBX, OBJ]
+3D модели - TurboSquid - Chevrolet Corvette ZR1 C7 2018 - 1240637 [V-Ray|*.max, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Archmodels vol. 218 включает 66 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. Эта коллекция включает высококачественные промышленные модели освещения, электрооборудования, пожарной сигнализации, кондиционирования воздуха, камер видеонаблюдения - подходящие для визуализации парковок, гаражей, промышленных зон, общедоступных коридоров (   Читать дальше...   )Формат: V-Ray|*.max, C4D, FBX, OBJ
+3d модель автомобиля марки ChevroletФормат: V-Ray|*.max, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4DDF21BEE570E9647AA9F89E706BD2288CB597B
+magnet:?xt=urn:btih:C5001780800ACD9C5FDC0F541A92770EB76B3390
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +570,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351804   (1001904) от 11.01.2020
+###  Публикация: 1483506   (1006733) от 14.07.2021
 
-Звуковые библиотеки - Articulated Sounds - Kiss [WAV]
+3D модели - Caterpillar CT680 Tractor Truck 2015 [Scanline|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это коллекция подлинных, необработанных записей всех видов поцелуев. Не стесняйтесь использовать их в своем звуковом дизайне и проявлять творческий подход. Может быть, они могут служить для создания визга монстра или скрип шины, кто знает!  :)Формат: WAV
+3d модель автомобиля марки CaterpillarФормат: Scanline|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1C01B6B4F9B8203B2F97D53098E4456E545D723
+magnet:?xt=urn:btih:D1EF030EE0A998A9F40D2AC74AE4F7080E41F8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483673   (1006664) от 15.07.2021
+
+Растровый клипарт - Сборник клипарта #27 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 205x640-6119x6705
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCFFBE5AB418B40434908AF8AEBBCBE35B5284F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483670   (1006662) от 15.07.2021
+
+Растровый клипарт - Сборник клипарта #24 [PNG, TIF, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 206x640-4371x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35361ED3BE1F9F4F0F58395A2B3C875E1986E019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483666   (1006661) от 15.07.2021
+
+Растровый клипарт - Сборник клипарта #21 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 232x700-5650x3766
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CA5BCB3771F85F99728E4C8E2F88E9FAD36B32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 603689   (995905) от 19.01.2013
-
-Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995905.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 (path 29)
-2 The Rites Of Passage
-3 Words Made Flesh
-4 Call To Arms
-5 Back To The Wound
-6 The Tempest
-7 Reinvention
-8 Wormwood Star
-9 Transmutation Babalon
-10 Secret Of Silence(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4BF6238317D7C5F52B9BBD419C518327B19FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607240   (994491) от 23.01.2013
 
 Geordie - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Classic Rock>
@@ -792,6 +757,40 @@ VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDC934996A4E5579687F0C45DB3B7F5F78DD9F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619585   (967818) от 16.02.2013
+
+My Left Boot - Summer Songs (2012) [MP3|320 кб/с]<Stoner Psychedelic Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closest 05:16
+ 02. Your Ancient Bones 05:41
+ 03. Good Mutt 04:39
+ 04. Summer Song 04:41
+ 05. Just Have Ta 04:55
+ 06. Sometimes Love 04:10
+ 07. Only Good For Conversation 03:01
+ 08. Suck It Up 02:47
+ 09. Sharks In The Water 06:41Жанр: Stoner Psychedelic Fuzz RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09F14AD2FAA03F1F4E47012919BF2D77691430E
 ```
 
 https://mybot314.ru/tekegram_catalog/

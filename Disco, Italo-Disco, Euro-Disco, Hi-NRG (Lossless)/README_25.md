@@ -1,3 +1,90 @@
+###  Публикация: 1724076   (109345) от 18.05.2024
+
+Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačinas [FLAC|Lossless|WEB-DL|tracks] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Diena Einam (5:44)
+02. Ilgas Laukimas (4:48)
+03. Prie Atminimu Upes (7:49)
+04. Klausyk, Mieloji (8:52)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B970186E10B847F8466A7088BFA046D319B5EB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724067   (109327) от 18.05.2024
+
+Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Night (5:13)
+02. Remember (3:07)
+03. In My Heart (3:27)
+04. Run Away (3:26)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855FF132179DE4E521435D46BD14D335EF25403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724585   (109234) от 20.05.2024
+
+VA - Fulltime Production Disco Classic, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.B. and Band - Whistle Fantasy (Extended) (5:45)
+02. Selection - I'm So Glad (4:19)
+03. Rainbow Team - Let Your Body (4:00)
+04. Jimmy Ross - Chocolate Ice (5:52)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCFECCE7BF69225A481D2470382113920902E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724586   (109226) от 20.05.2024
 
 VA - Fulltime Production Disco Classic, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
@@ -643,105 +730,6 @@ VA - Italo Disco Dance Party Collection Part 4 (2025) CDr, Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6695FCCD43B3357BDB517CE8CB11FCE8BE081E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821996   (94684) от 04.10.2025
-
-VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Italian Boys (Italo-Disco Extended) (4:10)
-02. Italo4ever feat. Kate Lesing - See Me Now (Extended) (6:01)
-03. David Dima - Time Machine (I Venti Remix) (7:04)
-04. Mextazuma - Lo Qui Siempre Sone (Extended Version) (6:02)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486158   (89814) от 21.04.2012
-
-Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Voice In The Dark
-02 - Die For You
-03 - Fools Cry
-04 - Pretty Woman
-05 - Sail Away
-06 - Keep On Going
-07 - Why Oh Why
-08 - Love Has Called Me Home
-09 - Locomotion
-10 - Saltimbanco(   Читать дальше...   )2001Жанр: EuroDiscoПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470395   (83313) от 20.03.2012
-
-Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're OK (3:29)
-02. D.I.S.C.O. (3:21)
-03. Hands Up (Give Me Your Heart) (3:33)
-04. Crazy Music (3:36)
-05. Shalala-Song (3:45)
-06. Comme Aux U.S.A. (4:57)
-07. A.I.E. Is My Song (3:34)
-08. Shubidube Love (2:54)
-09. Doudou Rumba (3:39)
-10. Hello Rio (4:31)(   Читать дальше...   )2007Жанр: DiscoПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

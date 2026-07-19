@@ -1,3 +1,61 @@
+###  Публикация: 1475566   (1012225) от 07.06.2021
+
+Eric Johanson - Covered Tracks: Vol. 1, Vol.2 (2021) 2xCD [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Covered Tracks - Vol. 1:
+ 01. 25 Or 6 To 4 (03:56)
+ 02. Head Like A Hole (04:36)
+ 03. Oh I Wept (05:08)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A086F2502636FD83B4D24BCA6E68631F098AB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480117   (1009116) от 27.06.2021
+
+Roberta Flack - Quiet Fire (1970) 50th Anniversary Edition, 2021 Remaster [MP3|320 Kbps] <R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Go Up Moses (2021 Remaster) [00:05:23]
+02 - Bridge Over Troubled Water (2021 Remaster) [00:07:17]
+03 - Sunday and Sister Jones (2021 Remaster) [00:05:01]
+04 - See You Then (2021 Remaster) [00:03:44](   Читать дальше...   )Жанр: R&BПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F9B828595F03650DD4A60FCBB7BC8232493EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480229   (1008940) от 28.06.2021
 
 Gary Eisenbraun - Throwing Stones (2021) [MP3|320 Kbps] <Blues Rock>
@@ -714,64 +772,6 @@ Muddy Waters - Bottled Up (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F211FEAB50CF64DA63900CB308066A9513C1A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975413   (973424) от 14.01.2016
-
-Kari Hongisto Band - Trust My Blues (2015) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virus Stole My Baby (05:00)
-02. Trust My Blues (04:59)
-03. Workin' Out (03:49)
-04. Change My Dirty Life (04:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D509EC77080B364E0224FBA484F561280B2104E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976832   (968830) от 18.01.2016
-
-Kim Simmonds - Blues Like Midnight (2001) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Before She Goes (01:57)
-02. Morning Light (04:00)
-03. Tell The World (02:20)
-04. Move To A Country Town (03:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8AB48EE36C0D8404D27D0441CC19C90093DDC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1006910   (825393) от 13.04.2016
-
-Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Baptist Beat [07:09]
- 02.Recado Bossa Nova [08:47]
- 03.You're My Everything [05:28]
- 04.Lotus Blossom [06:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A241D88736BA75F48CFC9F45AF996B1AD014F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116073   (825068) от 19.03.2017
-
-Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Barbados [04:06]
- 02.All The Things You Are [07:28]
- 03.The More I See You [04:07]
- 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116083   (824875) от 19.03.2017
-
-The Louis Armstrong - Collection (1920-e - 1960-e) 4CD, 1991, Tring [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824875.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Mame [02:25]
-02.Stompin At The Savoy [01:51]
-03.I Got Rhythm [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Swing, DixielandПродолжительность: 03:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31129E4D890CBD3524D7A9230E74BC287755EADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116078   (824871) от 19.03.2017
-
-Oscar Peterson - 5 Original Albums (1955, 1959, 1962) 5CD, Remaster, Universal, 2016 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824871.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Oscar Peterson Plays Count Basie:
-01.Lester Leaps In [03:59]
-02.Easy Does It [06:29]
-03.9:20 Special [03:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F819CB66775E0F728A3ADCB51B21802A876FC81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381746   (824817) от 08.05.2020
 
 Mildred Bailey - In Love: 1930-e - 1940-e (1998) Simitar [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -742,6 +626,122 @@ Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9F166F2CB1E958CC4498DEB4DF63F3798040DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196545   (822543) от 03.01.2018
+
+Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Trust [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without A Song [08:41]
+02. Besame Mucho [05:05]
+03. Ain't No Sunshine When She's Gone [10:36]
+04. Vita Bella [05:12](   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, Post-BopПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586144EE3BA03681B9634E15A1CF4B277EAF92FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166028   (822435) от 17.10.2021
+
+Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитаристы Ник Вебб и Грег Кармайкл в 80-х и 90-х годах прошлого столетия под вывеской "Acoustic Alchemy" произвели на свет серию интересных альбомов, классифицируемых на Западе как "adult contemporary music". На самом деле в музыке "алхимиков" всегда присутствовала смесь различных стилей: джаз, фолк, поп, латино, нью-эйдж, соул и т. (   Читать дальше...   )Список альбомов:
+Red Dust & Spanish Lace (1987)
+Natural Elements (1988)
+Blue Chip (1989)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 14:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DA281661A152440309F1525A796890304C9C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196614   (822406) от 03.01.2018
+
+Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kindred Spirits
+02. Breakthrough to the Temperate Zone
+03. Lucky Charm
+04. Solo Act(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D1A592F360026E0950CEE4BCB5E930F069079C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196810   (821758) от 30.04.2010
+
+VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima & His Band - I Wanna Be Like You  (4:22)
+02. Louis Armstrong - Cabaret  (2:43)
+03. Ella Fitzgerald - Mack The Knife (Live)  (5:04)
+04. Nina Simone - My Baby Just Cares For Me  (3:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

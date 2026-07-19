@@ -1,119 +1,3 @@
-###  Публикация: 1196056   (138637) от 31.12.2017
-
-Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Know Why
-02. Come Away with Me
-03. Something is Calling You
-04. Turn Me On(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4192FC633F17B92EBCAE8E00E78B46F69640D49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679358   (138426) от 25.11.2023
-
-Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rumproller [10:30]
-02. Desert Moonlight [9:23]
-03. Eclipso [6:57]
-04. Edda [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349228   (138373) от 31.12.2019
-
-Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Child Is This [4:03]
-02. Christmas Tree [5:29]
-03. Hark the Herald Angels [3:53]
-04. Silent Night [6:11](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9FAA1810CDEDC4D14CE5725F686E740688117C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349345   (138361) от 31.12.2019
-
-Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bemsha Swing [10:12]
-02. Ask Me Now [11:56]
-03. Cotton Tail [8:35]
-04. Pyramid [12:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679352   (138353) от 25.11.2023
 
 Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -774,6 +658,135 @@ Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D87F11436D8948B9449C8EFFEE9ABA498745AE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593100   (135217) от 23.12.2012
+
+Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Swear  [04:24]
+02. Every Breath You Take  [03:57]
+03. I'd Like to Teach the World to Sing  [02:56]
+04. Reality  [05:10]
+05. Especially for You  [04:03]
+06. Have I Told You Lately  [04:54]
+07. Memory  [04:42]
+08. Eternal Flame  [03:22]
+09. Somewhere Out There  [04:32]
+10. All I Ask of You  [04:25](   Читать дальше...   )Жанр: Jazz, Audiophile Female VoicesФормат: XRCD2Продолжительность: 01:00:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584034   (135201) от 23.12.2012
+
+Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossover Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квартет всех звёзд Fourplay образовался в 1991 году, после совместного участия музыкантов в записи альбома Боба Джеймса Grand Piano Canyon, и с тех пор всегда находился на вершине джазовых чатов, заработав репутацию “современной джазовой супергруппы из Америки”.
+На текущий момент в активе группы тринадцать студийных альбомов - двенадцать титульных и один сборник.Список альбомов:
+Fourplay (1991)
+Between The Sheets (1993)
+Elixir (1995)
+The Best Of Fourplay (1997)
+4 (1998)
+Snowbound (1999)
+Heartfelt (2002)
+Journey (2004)
+X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jazz, Jazz-PopПродолжительность: 12:46:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679961   (134989) от 27.11.2023
+
+VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Suggestions - It’s Our Time (5:46)
+02. Chillaxonic - Mellifluous (4:27)
+03. Kool&Klean - Guessing Game (4:17)
+04. Konstantin Klashtorni - Humble and Kind (4:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6761AB6B02260F42355D9B7A890382BB5F0F29E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679958   (134968) от 27.11.2023
+
+VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Watson - Take the 'A' Train (9:10)
+02. Stan Getz - Autumn Leaves (Alternate Take) (3:08)
+03. Michael Bublé - Georgia on My Mind (3:08)
+04. Joshua Redman - Body & Soul (4:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D07D337C0321D28C29C008064E96F239551C9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

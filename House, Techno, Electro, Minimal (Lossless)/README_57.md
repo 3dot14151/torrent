@@ -1,3 +1,177 @@
+###  Публикация: 1583384   (230089) от 14.10.2022
+
+Above & Beyond - 10 Years of Group Therapy (Part 2) (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Got To Go (Fehrplay Remix) (4:27)
+ 02. Giving It Out (Etherwood Remix) (5:21)
+ 03. Sun In Your Eyes (William Orbit Remix) (5:10)
+ 04. Alchemy (i_o Remix) (3:47)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 02:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3E4D10F68E47259C8DC5173440874EDE9D17E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268022   (229829) от 09.12.2018
+
+Justice - Woman Worldwide (2018) 2CD, Japan [FLAC|Lossless|tracks + .cue] <Electro House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waters of Nazareth x We Are your Friends x Phantom 2 (WWW) (06:26)
+02. Chorus (WWW) (06:04)
+03. Audio, Video, Disco (WWW) (06:13)
+04. Stop (WWW) (04:26)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457E65A2A43AB25DAE5DF66D1C617423BA15178F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341654   (229385) от 29.11.2019
+
+Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curse One (06:44)
+ 02. Curse Two (08:21)
+ 03. Curse Three (05:49)
+ 04. Curse Four (08:00)Жанр: Techno, AmbientПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30E55CE2C47AD4FA756C69213AC4AEFE6B925C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341586   (229251) от 29.11.2019
+
+VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Homecoming (1:26)
+02. Rolo Green – Miracle (6:11)
+03. Tinlicker – The Walk (5:09)
+04. Grum – Stay (feat Natalie Shay) (7:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BFB706BEB09CAB43D4F321200A0B0A90B44FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268315   (228200) от 10.12.2018
+
+Valentino Mora - Transmagnetic (2018) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tribal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yant Suea (06:28)
+ 02. Hualien (07:33)
+ 03. Transmagnetic (07:34)
+ 04. Second Skin (05:07)Жанр: Techno, Ambient, TribalПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2069837F914BF2C81021D5AD7D318341BDD8736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424508   (227982) от 17.11.2020
+
+Carl Finlow - Boolean (2018) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronos (06:06)
+ 02. Boolean (05:21)
+ 03. Marauders (04:33)
+ 04. Exige (04:57)(   Читать дальше...   )Жанр: Electro, BreaksПродолжительность: 00:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E832A5E3C53C16BF6561CA41CA873AB24E027E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424529   (227684) от 17.11.2020
 
 VA - Sound Best Radio Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -568,174 +742,6 @@ VA - Balkan Connection Winter 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0C09D5CDDFD3490DFACA6FF57FAFAEA2A872A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270345   (214350) от 18.12.2018
-
-DJ Lykov - The Greatest Hits (2017) Garage Recordings [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Caring Me (4:58)
- 02/10. I Can Live (4:35)
- 03/10. Crash (5:20)
- 04/10. Come On (1:10)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818EAD33071B3BA05D2208B785A89FB6DF08B770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344239   (213659) от 09.12.2019
-
-Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Avalan - Sucker For Love (Original Mix)
-02. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real (Extended Mix)
-03. Armin van Buuren feat. Sam Martin - Wild Wild Son (Original Mix)
-04. Armin van Buuren & Garibay - Phone Down (Original Mix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832226   (213484) от 30.10.2025
-
-VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amlex - Be With You 02:40
-02. Tod Allen & Kris Kiss - Feelings 03:33
-03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
-04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602046   (210982) от 03.01.2023
-
-VA - Beach Lounge Selected, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Medsound -  Afterlife  (3:44)
-02.  Medsound -  Satellites  (4:16)
-03.  Medsound, Maria Estrella -  Firestorm  (3:45)
-04.  Pavel Svetlove -  Look at Me (Medsound Remix)  (4:38)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48722385C51B9F463B9D1DEA8D753D9EAA07AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642234   (210495) от 26.06.2023
-
-Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, Nu-DiscoПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E5B6405AA9DC287C23FB36FE3BF19064C7FF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224726   (210444) от 14.08.2022
-
-Tomcraft - 4 Альбома (2002 - 2007) [FLAC, APE|Lossless]<House, Electro, Ambient, Breaks, Progressive, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: House, Electro, Ambient, Breaks, Progressive, TechnoПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9850AD38E0381FE6DFDE453988EA9FBC3C547D72
 ```
 
 https://mybot314.ru/tekegram_catalog/

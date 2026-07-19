@@ -1,3 +1,29 @@
+###  Публикация: 1467459   (1017744) от 04.05.2021
+
+QuarkXPress 2020 16.3.3 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4E69B2A1E769CB890E37A6A56D83318E7A221E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467580   (1017740) от 04.05.2021
 
 GeoGebra 6.0.640.0 Classic + Portable [Multi/Ru]
@@ -649,35 +675,6 @@ DjVu Reader Pro предельно простое в использовании 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AB9B81B33F289F75253DF1A85C2AFD7236AFE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467884   (1017578) от 05.05.2021
-
-The Alchemist - This Thing Of Ours (2021) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobles (feat. Earl Sweatshirt & Navy Blue)(2:16)
-02. TV Dinners (feat. Boldy James & Sideshow)(2:57)
-03. Holy Hell (feat. Pink Siifu & Maxo)(3:10)
-04. Loose Change (feat. Earl Sweatshirt)(1:58)(   Читать дальше...   )Производство: ALC - ALC 5032Жанр: Hip-HopПродолжительность: 00:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B82674F27DF1E91530F5C5BF9766106D6DF155D
 ```
 
 https://mybot314.ru/tekegram_catalog/

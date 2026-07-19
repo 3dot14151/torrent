@@ -1,3 +1,32 @@
+###  Публикация: 1355877   (980361) от 29.01.2020
+
+VA - Music Collection (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 After Sunrise - Ibiza Mood
+002 Airsh4d3 - lady
+003 Airstream - Ambience (Autumn Cut)
+004 Aleceo feat. Sergi Kampanella - Clouds(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 1/01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A1DE2ED9244E7FB3FD0DA35E0D018EE0DD4349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615890   (975962) от 09.02.2013
 
 Blonker - Шедевры Инструментальной музыки (2001) [MP3|320 кб/с]<Instrumental>
@@ -713,35 +742,6 @@ VA - Calendar Chillout (Chillout for Everyday) (2015) [MP3|320 кб/с]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111EF54BFC836E465039177A27148ADA38ADCF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365501   (930260) от 07.03.2020
-
-VA - Indian Romance (2020) [MP3|192 Kbps] <Native American, New age, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indians, Mato Grosso, Soul Eternity - Sunquyman
-02. The Indians - Circle Of Fire
-03. Indians, Mato Grosso, Soul Eternity, Salaska - Sunquyman
-04. Indians, Salaska - Ananau(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EDC5C7192CD7244D1639769C0F1A175D56E844
 ```
 
 https://mybot314.ru/tekegram_catalog/

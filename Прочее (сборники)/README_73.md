@@ -1,3 +1,272 @@
+###  Публикация: 1135142   (682803) от 18.05.2017
+
+VA - Союз Летний (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Serebro - Между нами любовь  3:11
+02.  Валерия - Микроинфаркты  3:26
+03.  Софи - Я Тебя Искала  3:32
+04.  Людмила Соколова - Люда Хочет Войти  3:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC8D7E8EA870C12440C208A8AADCFCB12B54FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135135   (682655) от 18.05.2017
+
+VA - 90's Eurodance #2 (2017) [MP3|320 Kbps] <Eurodance, Euro House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - No Limit  3:31
+02.  Scooter - F'ck The Millennium  4:11
+03.  Culture Beat - Mr Vain  4:17
+04.  Captain Hollywood Project - More And More  4:10(   Читать дальше...   )Жанр: Eurodance, Euro House, Techno, DanceПродолжительность: 05:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BCB159F482DD76636B7533E9B96BA914729784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222699   (682613) от 30.04.2018
+
+VA - Shazam: World Top 100 (Апрель) (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682613.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicky Jam & J Balvin - X 2:54
+002. Marshmello & Anne-Marie - Friends 3:23
+003. Calvin Harris & Dua Lipa - One Kiss 3:38
+004. Drake - Nice For What 3:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF2285270FF578192DA31F2E7C2ADC4E18765E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535843   (682232) от 08.03.2022
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 116 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. 3Q - Next (Extended Mix)
+02. Akon - Right Now (Ayur Tsyrenov Extended Remix)
+03. Audiosoulz feat. Kazadi - Let The Music Play (Dj Sam & Eugene Star Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BDD65030F318F72349054DFBB5175F5796A4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290118   (682083) от 18.03.2019
+
+VA - New Music Releases Week 10 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13 - Oath
+002. 88GLAM, Lil Yachty, David Charles Marshall Biral, Denzel Michael-Akil Baptiste, Russell Chell - Lil Boat (Remix)
+003. Above & Beyond, Zoë Johnston - Sahara Love (Seven Lions Remix)
+004. AC Slater, Young Lyxx - Free Your Soul(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 12:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9878D5747AD0852F05AE09F1D7DF570544D0BEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290086   (681984) от 18.03.2019
+
+VA - не Громкие новинки недели 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alliel - Encore
+02. Better - Гори Ясно
+03. DJ Jedy feat. VITA - Именно Я
+04. DJ Vianu - Stuck In My Brain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DF2239119DC6278D5F76960503BB722A074340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289820   (681872) от 18.03.2019
+
+VA - Зайцев.нет Лучшие новинки Марта 2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alekseev - НЕ МЕД (3:32)
+02. Bryan Adams - All Or Nothing (2:59)
+03. Buruhin - День за днем (3:18)
+04. Cage The Elephant - House Of Glass (2:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89456CCD67EF77CC5C1CA39C1AEF555694F0A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796716   (681577) от 16.06.2014
+
+VA - The Official UK Top 40 Singles Chart (15-06-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 7 новых исполнителей. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Ella Henderson - Ghost  (3:36)
+02. Ed Sheeran - Sing  (3:55)
+04. Sam Smith - Stay With Me  (2:53)
+05. Mr. Probz - Waves  (3:28)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11CD5AC4977A3CD3C4D2C796C4C407CF7B515E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507863   (681540) от 09.06.2012
+
+VA - Фолк Навигация (2011) [MP3|320 кб/с]<Folk, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Пингина - Без головы
+02. Иван Купала - Старый
+03. После 11 feat. Хелависа - Рядом быть
+04. Медвежий Угол - Ниточка родниковая
+05. Алевтина - Только любовь
+06. Калинов Мост - Дома не был
+07. Рада и Терновник - Над водою
+08. Отава Ё - Про Ивана
+09. Soulmama- Кей ко-ко
+10. Начало Века- Формы времени(   Читать дальше...   )2011Жанр: Folk, RockПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F170D6485CD189D4F5787D775F14EA2D73532311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222749   (681077) от 01.05.2018
 
 VA - Workout Mix Will Dance (2018) [MP3|320 Kbps] <Nu Disco, World, Banda>
@@ -497,279 +766,6 @@ VA - MAXI. 80 Величайших Хитов Всех Времён (2012) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DDA515FA1C4BE4FE8087EE9E5CE633FE654CAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508742   (677467) от 11.06.2012
-
-VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Fisun - I remember syndicate
-002. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Club Mix)
-003. Radio Killer - Calling You (Extended Mix)
-004. Mexx feat. Вика Гранд - White Night (Russian Vocal Version)
-005. Chris Parker - Rock'n'Roll Revolution
-006. Мальчишник - Секс без перерыва (DJ Vengerov Remix)
-007. Aura Dione - Geronimo (The Disco Boys Remix Edit)
-008. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
-009. Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
-010. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 06:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223149   (677389) от 03.05.2018
-
-VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses ft. Karlyn - Freak On (Extended Mix)
-02. Sigrid - Strangers (R3hab Remix)
-03. MAUII - This Ain't Wrong (feat. Adana)
-04. Rock Stalone - Rockstar (BBop & Rocksteadi Radio Edit)(   Читать дальше...   )Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507844   (677339) от 11.06.2012
-
-VA - Музыкальные новинки  (01.06.12 по 07.06.12) (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adam Lambert - Never Close Our Eyes (Almighty Radio Edit) (3:57)
-2. ADN - Ему Ты Больше Не Нужна (3:43)
-3. Aiden Grimshaw - Is This Love (Radio Edit) (3:25)
-4. Akon - America’s Most Wanted (Full + CDQ) (3:40)
-5. Alexandra Burke - Beating Still (3:35)
-6. Alexandra Burke - Between the Sheets (3:09)
-7. Alexandra Burke - Daylight Robbery
-8. Alexandra Burke - Fire
-9. Alexandra Burke - Love You That Much
-10. Alexandra Burke - Oh La La(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 12:46:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136199   (677146) от 21.05.2017
-
-VA - Italo & Space Vol.37 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bobby O - Destiny Calls 3:33
-02.  Yakuro - Star Dance 4:59
-03.  Marco Rochowski - Game Of Love 6:31
-04.  Giuseppe Alicata - Parla Con Me 5:54(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 03:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C8BF305C3820B4C36551FD54069102B5AB9886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223188   (677136) от 03.05.2018
-
-VA - Billboard Hot 100 Singles Chart (05.05.2018) (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - God's Plan
-003. Ariana Grande - No Tears Left to Cry
-004. Bebe Rexha - Meant to Be(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136147   (676843) от 21.05.2017
-
-VA - Guitar Collection 12 (2017) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mark Cook - Nylon Prelude to Not Forgotten  (01:07) 
-02.Gadjo Combo - Les Yeux Noirs  (03:12) 
-03.Jimmy Thackery And The Drivers - Bella Noche  (05:39) 
-04.Romane - Montagne Ste-Genevieve  (01:58) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 04:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F9213954755FD5AC8076A821D4B85049600DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136038   (676731) от 21.05.2017
-
-VA - Absolute Hits Of The 80’s (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Cole - Miss You Like Crazy
-02. The Smiths - Heaven Knows I'm Miserable Now
-03. Peter Cetera - Glory Of Love
-04. Los Lobos - We Belong Together(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE17ED2437548E668FDBCB481E163E9B1DC9ED90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030164   (676534) от 29.06.2016
-
-VA - Ultimate Power Workout (2016) [MP3|256-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garry Noon - Invader
-02. Rodg - Perfect Night
-03. Locus - Creatures
-04. On June feat. Tesity - The Devil's Tears(   Читать дальше...   )Жанр: DanceПродолжительность: 08:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98462091E69A6B712F056BB210235583BEF68A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536304   (676447) от 11.03.2022
-
-VA - Громкие новинки Марта (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676447.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Люся Чеботина - АЭРОЭКСПРЕСС (2:34)
-002. Kygo, DNCE - Dancing Feet (3:35)
-003. Nessa Barrett - dying on the inside (3:24)
-004. Scorpions - When You Know (Where You Come From) (4:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5682CC8871386547DAFD6522E6E2DDC98768DF46
 ```
 
 https://mybot314.ru/tekegram_catalog/

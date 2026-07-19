@@ -1,3 +1,32 @@
+###  Публикация: 1611724   (1040761) от 13.02.2023
+
+VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2 (2005) [OGG Vorbis|480 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hervé Roy–	Emmanuelle
+02. Francis Lai, Nicole Croisille–	Un Homme Et Une Femme
+03. Nicoletta–	Mamy Blue
+04. Mireille Mathieu–	Une Histoire D’amour(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611532   (1040755) от 13.02.2023
 
 VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
@@ -716,35 +745,6 @@ Imagination - британское трио, поп-группа, исполня
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7A2A1766BB1D14892B0E250EDF46173DA1339F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620262   (1032328) от 19.03.2023
-
-VA - The Best 70's Music (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - Da Ya Think I'm Sexy
-02. Maxine Nightingale - Right Back Where We Started From
-03. Fleetwood Mac - Dreams (2018 Remaster)
-04. Kate Bush - Wuthering Heights(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107EBE4C7F6BFD67A3F1AFE154C84686869D4103
 ```
 
 https://mybot314.ru/tekegram_catalog/

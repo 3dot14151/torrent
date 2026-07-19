@@ -1,177 +1,3 @@
-###  Публикация: 1609459   (236388) от 03.02.2023
-
-ОгнеДар (экс Цианид) - 5 Relises (2022-2023) [MP3|320 Kbps] <Pagan Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Огнедар - 2022 - Русские топоры
-Огнедар - 2022 - Старые и новые песни
-Огнедар - 2022 - Территория правды(   Читать дальше...   )Жанр: Pagan Folk RockПродолжительность: 5 CD, 03:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA4C2E41A77C797604C17534AC6EBA127F1EDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457079   (236301) от 25.03.2021
-
-Вячеслав Пронин - Предрассветный (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дорога [00:03:33]
-02 - Солнце в стенах [00:02:52]
-03 - Мастер [00:03:24]
-04 - Прости, Отец! [00:04:55](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAF134252AD2136315D304E04DBB675271000B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609844   (236290) от 05.02.2023
-
-Razörschrieck (Razorschrieck) - 3 Albums (2013-2023) [MP3|320 Kbps] <Death Doom Metal,  Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - Descensus
-2021 - Tragedies
-2023 - Black MagickЖанр: Death Doom Metal,  Depressive Black MetalПродолжительность: 3 CD, 02:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7D210ED93AC92D5FEBABDAFEBE5A648F379480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575262   (236229) от 09.09.2022
-
-Треустье - Т​ё​м​н​ы​е б​ы​л​и​н​ы (2022) [MP3|224 Kbps] <Dark folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Скоморошья [00:03:52]
-02 - Песня Блаженной [00:03:46]
-03 - 1612 [00:04:22]
-04 - Лебедь белая [00:03:15](   Читать дальше...   )Жанр: Dark folkПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870E2359A29D7037E89E677671A9EAE16C9E6B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611102   (236171) от 11.02.2023
-
-Thunder Volt - 4 Relises (2021-2023) [MP3|320 Kbps] <Grunge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Entering the Cave (Single)
-2021 - Initial
-2021 - Wanted Man(   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 4 CD, 03:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C290B2190E7A84BA91757C3FB10D248089ADAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611096   (236147) от 11.02.2023
-
-Lim Okrava - 3 Albums (2019-2023) [MP3|320 Kbps] <Industrial Rock, Alternative Metal, Synth>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Пятно контакта
-2022 - Театр боевых действий
-2023 - КапканЖанр: Industrial Rock, Alternative Metal, SynthПродолжительность: 3 CD, 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF30D2CE42AB77878738C1891EB93162C0BCFE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457287   (236098) от 26.03.2021
 
 МВВМ - Поэмы Гаражных Дней (2021) [MP3|320 Kbps] <Rock>
@@ -194,6 +20,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEFC77AB2A1D8C6C64D3C5D090B05D30FC681547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611273   (236075) от 11.02.2023
+
+КОСМОНАВТОВ НЕТ - ТЕсеБЯся ЛЮсюБЛЮсю (2023) Deluxe Edition [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_236075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. ДОЖДЕМ (Interview)
+3. ДОЖДЕМ
+4. МОИ ДВОРЫ ТВОИ ПОДЪЕЗДЫ (Interview)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C875ADADF6B4BDE5CCAB9997864F11B5561361
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,6 +165,122 @@ Wardencliff - Город (2023) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3024E66D322CCFF141175493DD4340E1FC6B50A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617712   (235533) от 08.03.2023
+
+Alan Waters - Жернова (2023) [MP3|320 Kbps] <Alternative, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_235533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увертюра помола
+2. Жернова
+3. Люди-уроды
+4. Мы играем(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8F2DF7676FC75932C6060A45031069AA3FF643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636804   (235312) от 01.06.2023
+
+Александр Алабугин - Дорога жизни (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_235312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога Жизни (06:28)
+02. Двор (05:57)
+03. Звезда (06:40)
+04. Не Проси (03:31)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6159C0702A1E9B8431F40C7532B328C489A347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632816   (235002) от 12.05.2023
+
+Эпидемия - Загадка Волшебной Страны (2001) Remastered, Remake, 2023, Союз [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_235002.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чёрный маг (2023)
+2. Хождение за три моря (2023)
+3. Кумир (2023)
+4. Феанор (2023)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982205DE8DBCCBBACE24B82F687CEC19270613AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632823   (234966) от 12.05.2023
+
+Леонид Фёдоров - Письма Б.В. (2023) [MP3|320 Kbps] <Poetry, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_234966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гиены, Львы и Носороги
+2. 1
+3. 2
+4. 3(   Читать дальше...   )Жанр: Poetry, Lo-FiПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2571E19F984503A9FB4DBA0DD7A5116BF82565C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,6 +431,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623440   (233873) от 01.04.2023
+
+Changes - Вместе с кровью по венам (2013) [MP3|320 Kbps] <Hardcore Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_233873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:00:30]
+02 - Хозяин времени [00:03:08]
+03 - Братство [00:02:09]
+04 - Главная роль [00:02:03](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBFF0C154401C3F1FA2DFBBA3359E770C6C7B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634178   (233536) от 19.05.2023
+
+Звери - На синем трамвае (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_233536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Синий трамвай
+2. Серфер
+3. Серфер 2
+4. Нытьё(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B7192B25B67D206D81696C9112837E3F5B7377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644315   (233370) от 05.07.2023
 
 Электрофорез - XI лет (Speed Up) (2023) [MP3|320 Kbps] <Electronic, Synth Pop, Darkwave, Experimental>
@@ -547,6 +576,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643054   (232997) от 30.06.2023
+
+Западный Фронт - СанктПитерБлюз (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_232997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Стратегический блюз
+2. Пора становиться большим
+3. Господин Никто
+4. У пяти углов(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2A6407784F13969CF5D36046643E60142DBE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552297   (232977) от 26.05.2022
 
 Монгол Шуудан (Скородед Валерий Евгеньевич) - Дискография (1988-2022) 23 альбома, 8 концертников, 3 сборника, 5 синглов, 20 треков [MP3|128-320 Kbps] <Punk Rock, Anarcho-Punk, Folk-Punk>
@@ -566,6 +624,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8B9D92C68699BB6F15EF3AA6F2A2A0FF2101E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643049   (232924) от 30.06.2023
+
+Дмитрий Ревякин - Стрелы лет (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_232924.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Будем жить!
+2. Абакан
+3. Оренбург
+4. Грёб ложкой(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4664486DBEAB717B2E8A9969873F449460951424
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,6 +689,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635300   (232598) от 25.05.2023
+
+Конец фильма - Непрожитые дни (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_232598.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прыжок
+2. Поцелуй
+3. Огни
+4. Город(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E504E7C8DF8CB84847C8E9D36BF46F74F3D035DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646272   (232573) от 13.07.2023
 
 Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alternative Rock, Rapcore>
@@ -624,122 +740,6 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E92574E8B7E860DDCEC475BC1377E2F2CD37843F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646282   (232552) от 13.07.2023
-
-Хар Дарна - Собачий лай (2023) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Яд [00:04:54]
-02 - Небо [00:05:44]
-03 - 3 [00:05:25]
-04 - Абсолютно черное [00:06:24](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6654CF72B47FE40588E8BC7E450C939020161EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645696   (232536) от 11.07.2023
-
-Части каждого - Гипоксия (2023) [MP3|320 Kbps] <Alternative Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вижу
-02 - Портрет
-03 - Италия
-04 - Шелкопряд (feat. Сергей Раев)(   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD5A08E57FD6FEE6C358D2B61699248D531FF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646286   (232342) от 13.07.2023
-
-Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я люблю бухать и употреблять [00:03:43]
-02 - Здесь можно всё [00:02:55]
-03 - Дарина - Дарина [00:03:13]
-04 - Никогда [00:04:02](   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646380   (232198) от 15.07.2023
-
-Стройбат - Колобок (2023) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колобок [00:04:09]
-02. Тагил [00:03:53]
-03. Генерал Мороз [00:05:21]
-04. Русское поле [00:03:45](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
 ```
 
 https://mybot314.ru/tekegram_catalog/

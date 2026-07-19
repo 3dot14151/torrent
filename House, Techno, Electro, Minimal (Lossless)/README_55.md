@@ -1,3 +1,177 @@
+###  Публикация: 1341343   (262635) от 27.11.2019
+
+Arkaean - Dawnlit Passage (2019) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Callow Tongue (05:38)
+ 02. Hollow Amid the Ferns (07:44)
+ 03. Buried in Fog (06:59)
+ 04. The Tributary (06:52)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEC628273AE05E90C06A3E66EED5973240CA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193112   (262364) от 19.12.2017
+
+Scooter - 100% Scooter: 25 Years Wild & Wicked 5CD (Limited Edition) (2017) [FLAC|Lossless|tracks + .cue] <Electro House,Euro House,House,Techno,Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Logical Song
+02. How Much Is The Fish
+03. One (Always Hardcore)
+04. Move Your Ass!(   Читать дальше...   )Жанр: Electro House,Euro House,House,Techno,TranceПродолжительность: 05:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F237D7A296BE4DA91EC0D6753B4986049818464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341495   (262352) от 28.11.2019
+
+Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker feat. Belle Doron - Close Your Eyes (Extended Mix)
+02. Exit 11 - Nights Of The Jaguar (Extended Mix)
+03. Nora En Pure - Dry Sobbing (Original Club Mix)
+04. Saaz, Gu Noronha - Together (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341333   (262340) от 28.11.2019
+
+Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Goes On
+02. Kiss My Eyes
+03. If I Was
+04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193134   (262272) от 20.12.2017
+
+Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Breakbeat, IDM, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambient A (02:59)
+ 02. Flange 7 (04:04)
+ 03. Steve Reichs Ice Cream Van (03:41)
+ 04. Front End (04:27)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Breakbeat/Techno/IDM/AmbientПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A5B49F040A60EBC3023A8A6F34B70928E8829A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193412   (262086) от 21.12.2017
+
+VA - Remembering The 90's: Best Hits Remixed (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Red 5  -  I Love You Stop (Damage Control Remix)  6:21
+02.  K.K. Project & Felicia Uwaje  -  Mary Had A Little Boy (Thorsten Wagner Remix)  3:27
+03.  Damon Paul, Tony T. & Simone Mangiapane  -  Rhythm Is A Dancer (Rap Festival Mix)  3:30
+04.  Elaine Winter  -  Forever Young (Patricio AMC Remix)  3:54(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB04335152CB59808EED81988C3F230B2692A918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193683   (261994) от 22.12.2017
 
 Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Dub Techno>
@@ -587,180 +761,6 @@ Kainté Kountix (Kainte Kountix) - Assortiments (2019) EP [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4957E8864F840118376EAE53BED463637D7317E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294485   (244368) от 08.04.2019
-
-Flaminia - Illusion In Fire (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Of Fire (04:59)
- 02. Fear Of Fire (Headless Horseman Remix) (04:55)
- 03. The Illusion Of Matter (05:48)
- 04. The Illusion Of Matter (Ancestral Voices Remix) (06:02)Жанр: Techno, ExperimentalПродолжительность: 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25752E15BA1B952571058EFDFF171CC9838BAD6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072513   (244197) от 13.11.2016
-
-Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurelio Buen Día (7:36)
-02. Low.Fi Osaka (feat. Odd Soul) (8:34)
-03. White Post Lane (feat. Santiago Posada) (7:54)
-04. The Changes (7:06)Жанр: Tech HouseПродолжительность: 00:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62753DD31F64325CD4BAABCA6F0ED20935848D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456293   (243306) от 21.03.2021
-
-Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hadal Zone (07:04)
- 02. Mass Frequenz (08:11)
- 03. Spiral Falls (07:31)
- 04. Absorption (06:18)(   Читать дальше...   )Жанр: Ambient, Techno, TribalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1195B8920777A0A5DFEEC3BAA80A379BF3428613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352734   (243242) от 15.01.2020
-
-Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 You Gonna Want Me (Radio Edit) 3:09
-2 You Gonna Want Me (12 Inch Dance Mix) 5:44
-3 You Gonna Want Me (Isolee In-My-Bee Remix) 6:13
-4 Do It Don't Stop 4:15Жанр: House, Techno, ElectroПродолжительность: 00:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF00F3F5BDCCE6654A28803360736DEA641429B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627279   (243138) от 18.04.2023
-
-Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:32)
- 02. Nordic Soul (4:54)
- 03. Don't Even Let Up (ft. Tesla Nix) (5:16)
- 04. Heart Soul Mind - Interlude (0:14)(   Читать дальше...   )Жанр: Progressive House, Techno, Tech HouseПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2509FC32EB605F4BADB5E2FDD9F0B32672191FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457093   (242986) от 25.03.2021
-
-Truncate & Dotdat - HYD (2021) Truncate [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PNQ (05:48)
- 02. HYD V1 (05:03)
- 03. HYD V2 (05:04)
- 04. HYD V3 (05:05)Жанр: TechnoПродолжительность: 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63C8BADE439F5C50A3C2AD4117131B880B8F6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

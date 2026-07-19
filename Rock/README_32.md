@@ -1,32 +1,3 @@
-###  Публикация: 1028878   (686485) от 24.06.2016
-
-VA - Greatest Ever! Driving Rock (2012) 3CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queens of the Stone Age - Go With the Flow (3:09)
- 02. The Runaways - You Drive Me Wild (3:23)
- 03. Weezer - Buddy Holly (2:40)
- 04. Puddle of Mudd - Blurry (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 03:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5CF2E6B4DF4F688473018310386623719E3360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028788   (686396) от 24.06.2016
 
 VA - Greatest Ever! Rock Ballads (2014) 3CD [MP3|320 кб/с] <Rock, Pop>
@@ -770,6 +741,35 @@ Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223849   (671526) от 06.05.2018
+
+Павел Юсов - На краю (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Старец
+2. Смерть и боль
+3. Потерянное поколение
+4. Памяти АПЛ К-278 Комсомолец(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0AE26ED27B9FE3C8E578C75AB7882AF3F68340
 ```
 
 https://mybot314.ru/tekegram_catalog/

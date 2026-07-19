@@ -1,3 +1,148 @@
+###  Публикация: 1704230   (114488) от 03.03.2024
+
+Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [00:02:51]
+02. Party Doll [00:02:12]
+03. Love Me Forever [00:02:47]
+04. Pretty Blue Eyes [00:01:51](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F3D7E5778C4DF4074253218D15F01FE127C8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705226   (113979) от 07.03.2024
+
+Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On My Own (3:05)
+02. Point Of No Return (3:08)
+03. I Was Made For Loving You (3:29)
+04. Magic (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705083   (113913) от 08.03.2024
+
+VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boomdabash, Alessandra Amoroso - Mambo Salentino (2:35)
+02. Tiziano Ferro - Il Regalo Più Grande (3:47)
+03. sangiovanni - farfalle (2:44)
+04. Umberto Tozzi - Gloria (4:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705419   (113885) от 08.03.2024
+
+Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro (end of the world)
+02. bye
+03. don't wanna break up again
+04. Saturn Returns Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF64F97FBA3EF56729090EAA664411FE5BDF1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705741   (113759) от 10.03.2024
+
+The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Then He Kissed Me [00:02:38]
+02. Da Doo Ron Ron [00:02:19]
+03. He's Sure the Boy I Love [00:02:44]
+04. There's No Other Like My Baby [00:02:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705696   (113664) от 12.03.2024
 
 Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLAC|Lossless|tracks] <Rock, Pop>
@@ -600,151 +745,6 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BB9E07F474790480D092CE237775A10D42C4A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723614   (109420) от 16.05.2024
-
-The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vitamin U [00:03:01]
-02. Got Me Good [00:02:47]
-03. Do You Like Me [00:02:44]
-04. Baby Doll [00:03:22](   Читать дальше...   )Жанр: Power-Pop, RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7343241531784D299828F44E94B4C85C01EBE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726782   (108647) от 30.05.2024
-
-Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where We Going (Intro) (1:59)
-02. When It Comes To Loving You (3:52)
-03. Weekender (3:47)
-04. A Message For Broken Hearts (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728669   (108310) от 08.06.2024
-
-Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, Rocket [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Fantastic And The Brown Dirt Cowboy
-02. Tower Of Babel
-03. Bitter Fingers
-04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730506   (107868) от 16.06.2024
-
-VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. LF System - Afraid to Feel (2:57)
-03. Tiësto - 10 - 35 (2:52)
-04. Ava Max - My Head & My Heart (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A254A75AAA00DD5D5A43AB5D78337F077A98CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730500   (107845) от 16.06.2024
-
-GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comfortable [00:02:49]
-02. Nu Nu [00:03:06]
-03. I.O.U. [00:02:44]
-04. Don't Stop [00:02:35](   Читать дальше...   )Жанр: R&BПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3C6E1CA2D230CFD8EA49F7966791C759B4EE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 905090   (651931) от 05.06.2015
-
-The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Number One (3:11)
-2. Blacked Out Windows (2:28)
-3. Keys to the Kingdom (3:41)
-4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905025   (651929) от 05.06.2015
 
 No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
@@ -753,6 +724,41 @@ Tom Petty And The Heartbreakers - Mojo (2010) [MP3|320 kbps]<Rock>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517738   (647528) от 01.07.2012
+
+Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earlybird (4:01)
+ 02. Extractus (1:38)
+ 03. Sackbutt (1:53)
+ 04. Colossus (6:35)
+ 05. Batty Loop (1:13)
+ 06. Splendid (3:46)
+ 07. Repeat After Me (7:39)
+ 08. Elsewhere (4:19)
+ 09. Here's One I Made Earlier (5:42)
+ 10. Midnite Or So (3:34)(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
 ```
 
 https://mybot314.ru/tekegram_catalog/

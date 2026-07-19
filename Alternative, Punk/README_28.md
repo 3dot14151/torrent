@@ -1,3 +1,67 @@
+###  Публикация: 579517   (348201) от 23.11.2012
+
+The Stranglers - Greatest Hits On CD&DVD (2012) [MP3|320 кб/с]<Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Get A) Grip (On Yourself)
+02. Peaches
+03. Go Buddy Go
+04. Something Better Change
+05. No More Heroes
+06. 5 Minutes
+07. Nice N' Sleazy
+08. Walk On By
+09. Duchess
+10. Nuclear Device(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD7B30ED77C2BDB10FF0B2AA6E7A19ED2C24425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953736   (346965) от 05.11.2015
+
+Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Church Bell
+02. You Walk Alone
+03. Blood Red
+04. Son Of Mine(   Читать дальше...   )Жанр: Alternative, 80's Darkwave, Indie RockПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953878   (346607) от 05.11.2015
 
 Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
@@ -693,64 +757,6 @@ Pete Yorn & Scarlett Johansson - Break Up (2009) [MP3|320 Kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F4CD869D960632DC8CA130656A3F2B3955A5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583203   (314316) от 13.10.2022
-
-Celldweller - Satellites (2022) [MP3|320 Kbps] <Alternative, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Void
-2. Blind Lead the Blind
-3. A Matter of Time
-4. My Disintegration(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7482379B09FCB6A05A361BF4224C88E7F3074AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959957   (312398) от 26.11.2015
-
-Тартак - Ввічність (2015) [MP3|320 кб/с]<Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як Би Хотілося
-02. Зміст
-03. Шановні Бандити
-04. Десь Там(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E137EC4653977393808C7082FD11368ABF81BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

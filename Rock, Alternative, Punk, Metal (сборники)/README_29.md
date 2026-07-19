@@ -1,3 +1,90 @@
+###  Публикация: 1051402   (532575) от 11.09.2016
+
+VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Bowie - Diamond Dogs
+002. Iron Savior - Rebellious
+003. Katatonia - Passer
+004. Lacuna Coil - Live to Tell(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155957   (529465) от 05.08.2017
+
+Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All On Your Own  5:10
+02.  Angel Of Dawn  3:56
+03.  Break Free  5:03
+04.  Falling  4:50(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DBE2EF6EAE35BF86E8EA1FA3534B0B11A3B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312804   (528280) от 07.07.2019
+
+VA - Recursion Abyss: Metal Meeting (2019) [MP3|320 Kbps] <Metall, Power, Black>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mindforce - Nightmare
+002. Necrovist - The Journeys Between
+003. Fate After Midnight - Price You Pay
+004. Jon Of The Shred - Reflections Of The Past(   Читать дальше...   )Жанр: Metall, Power, BlackПродолжительность: 10:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507A58E0BE66008C64743B4B84C6DFC8ED5F2AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156786   (526382) от 09.08.2017
 
 VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
@@ -661,93 +748,6 @@ VA - Mojo Presents: David Gilmour & Friends (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3082551D841AEEAF2664AD51895466F484534D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563599   (502601) от 16.07.2022
-
-Shivaree - Compilation (2022) [MP3|320 Kbps] <Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nova (The Luckiest Girl) (Allskate Mix)
-02. New Casablanca
-03. The Fat Lady Of Limbourg
-04. Rubble(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB56CC0EF961BE41B1ED07D222BD8D9E5B7F18FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564496   (499585) от 19.07.2022
-
-Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apparently They Were Travelling Abroad  (03:12)
- 02. It's A Miracle  (08:31)
- 03. Me Or Him  (05:24)
- 04. Picture That  (06:48)(   Читать дальше...   )Жанр: Progresive RockПродолжительность: 01:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA94A66000849170D669847EF0CF999D07415A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404314   (495177) от 24.08.2020
-
-VA - Heartache Tonight: Classic Rock Collection (2020) [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Darkness - I Believe
-002. Jet - Cold Hard Bitch
-003. Jo Jo Gunne - Run Run Run
-004. Snew - Put Upon(   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F877655F28BC354468959942EA55A0C42E2494C
 ```
 
 https://mybot314.ru/tekegram_catalog/

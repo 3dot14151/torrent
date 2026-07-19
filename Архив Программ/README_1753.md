@@ -1,3 +1,31 @@
+###  Публикация: 1614228   (202536) от 21.02.2023
+
+WhatsApp 2.2306.9 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202536.jpg" />
+</div>
+
+
+###  Подробнее
+
+WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
+Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
+уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1818B07B3CE6703974B679BB5A17FF7262D66A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614341   (202534) от 21.02.2023
 
 Balabolka 2.15.0.837 + Portable [Multi/Ru]
@@ -648,35 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA7AD97C3EC62258DD864752C7F93D4A2DFCB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615750   (202142) от 27.02.2023
-
-Winamp Update Pack 5.9.1(c).10030 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202142.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Fix erroneous "URL: Winamp Command Handler" filetype association
-- Fix Big Bento skin drag titlebar issue
-- Fix Big Bento skin config overlap issue
-- Fix detection of Windows 11 for error reporterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534AAE318A4EAA709D5957466911A505936437B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

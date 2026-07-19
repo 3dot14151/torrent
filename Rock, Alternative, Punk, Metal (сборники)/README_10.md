@@ -1,3 +1,90 @@
+###  Публикация: 1373711   (878443) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878443.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Burning Witches - Lords Of War (2018) (3:38)
+02. Phantom - Baptised (2017) (4:15)
+03. Queensryche - 46 North (2019) (3:33)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996997   (877084) от 15.03.2016
+
+VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - I'll Be There For You
+02. Skid Row - I Remember You
+03. Warrant - Heaven
+04. Slaughter - Fly To The Angels(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996454   (875601) от 16.03.2016
+
+VA - Nashville Indie Spotlight (2015) [MP3|192 кб/с] <Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875601.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ruelle - Monsters
+2.	Whissell - Get Free
+3.	Eza - We Keep the Lights Out
+4.	Wave & Rome - Across the Map(   Читать дальше...   )Жанр: IndieПродолжительность: 01:32:28.162
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58976F44DD6ED2DF76A0DA13311847822DC2237A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374168   (874722) от 09.04.2020
 
 VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
@@ -664,93 +751,6 @@ VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375385   (865503) от 14.04.2020
-
-VA - Rock Concept (2020) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Early November - My Weakness
-002. John Floreani - Don't Wait Up
-003. Perry Farrell - Where Have You Been All My Life
-004. Robert Palmer - Every Kinda People(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 06:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13005982A3F51CDD11B4895A21DA68FAF3002DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375596   (865317) от 14.04.2020
-
-VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt White - The Hard Way
-02. Dominic Marsh - Dark Cloud
-03. Dolly Wright - Murderous Mind
-04. Chris Lewis - Devil's Country(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 03:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45C8F28945A0C2CCDCD8D7DFE8E5C665541CE86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375545   (865308) от 14.04.2020
-
-VA - Rock Icons (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Lennon - Woman
-02. George Harrison - Got My Mind Set On You (2009 Mix)
-03. The Beatles - Come Together (Remastered 2009)
-04. The Rolling Stones - Brown Sugar (Remastered 2009)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04F3BCD3C23964222399197C5C103053DF9F5DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

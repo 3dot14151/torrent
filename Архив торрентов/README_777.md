@@ -1,55 +1,3 @@
-###  Публикация: 997026   (877086) от 15.03.2016
-
-AnyMP4 Video Enhancement 1.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877086.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20188113CF4D3FF78FEFE0B847086A3892A4ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996841   (877081) от 15.03.2016
-
-AnyMP4 Video Converter Ultimate 7.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877081.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Video Converter Ultimate - это универсальная профессиональная программа для преобразования видео, может конвертировать почти все видео форматы, такие как MP4, AVI, MOV, FLV, MKV, M4V и даже HD видео HD TS, HD MTS, HD AVI, HD MOV, HD MP4 и т.д., преобразовывать 2D и 3D видео с непревзойденной скоростью и наилучшим качеством полученного видео. Кроме того, пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD18E1AC298E8F748FCA24679836976E4AA3FA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996838   (877080) от 15.03.2016
 
 Маугли (1973) HDRip [H.264] [MP4|688х512]
@@ -685,6 +633,64 @@ Lattice поддерживает множество популярных фор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945016DDA0FB8D33E15C489CE79336FF33EA4BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374050   (876914) от 08.04.2020
+
+Nicky Romero - Saturday Sessions@Don't Let Daddy Know (2020) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero vs. David Guetta & Sia - Duality vs. Bang My Head (Nicky Romero Mashup) (Intro Edit)
+02. Dimitri Vegas & Like Mike vs. Nicky Romero - Here We Go (Hey Boy, Hey Girl)
+03. Nicky Romero vs. Axwell & Sebastian Ingrosso & Steve Angello & Laidback Luke & Bottai - Novell vs. Leave The World Behind (Nicky Romero Mashup)
+04. David Guetta (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8166A0EEB4DA279A56939DF11D12E2EAE8D40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373374   (876909) от 08.04.2020
+
+Timmy Trumpet - Live From Sydney, Australia 2020-04-05 [MP3|320 Kbps] <Electro House, Hardstyle, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Diamonds
+02. Blink-182 - All The Small Things
+03. Zombie Nation - Kernkraft 400 w/Chardy & Kronic - S.W.A.T. Team (Everybody Fucking *Beep* Jump Acappella) w/Vegas - Answer From The Stars (Vini Vici & Bizzare Contact Remix)
+04. The M Machine - Luma w/MEDUZA ft. GOODBOYS - Piece Of Your Heart (Dr Phunk Remix)(   Читать дальше...   )Жанр: Electro House, Hardstyle, Progressive HouseПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557D49E62A1A517260662310F8B51AD899BC3476
 ```
 
 https://mybot314.ru/tekegram_catalog/

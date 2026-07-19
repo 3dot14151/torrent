@@ -1,115 +1,3 @@
-###  Публикация: 1228711   (633911) от 02.06.2018
-
-Векторный клипарт - Vector Elements Collection #7 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Элементы
-50 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D7D1F25AB587DF23AF24C9E700FA66209DC301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228636   (633786) от 02.06.2018
-
-Векторный клипарт - Fotolia - Origami animal for cutting and folding paper [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Оригами, животные из бумаги
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3D68ADB6C838789A655E673BB2A73D6198171C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228715   (633782) от 02.06.2018
-
-Векторный клипарт - Vector Elements Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Элементы
-50 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B7BAF2C4044D59A7DD0CD3A7AABCD2E3FD76C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228640   (633665) от 02.06.2018
-
-Векторный клипарт - Back to school vector illustration [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Вернуться в школу векторные иллюстрации
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C1F5BB077CD41B54547EDFDA1BF29C226DF106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228862   (631973) от 03.06.2018
 
 Векторный клипарт - Ramadan Kareem vector calligraphy design #5 [EPS]
@@ -709,6 +597,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B300BE26971517F10755E5199586D6C286CEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910904   (619401) от 21.06.2015
+
+Векторный клипарт - Карточки и баннеры с абстрактными узорами / Abstract Pattern Cards And Banners [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны визиток, конвертов, баннеров с красивыми абстрактными узорами в векторе.
+Превью в JPEG.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299180240A6A81493376806795FBE29A11BA665F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911393   (617603) от 22.06.2015
+
+Векторный клипарт - Кото-арт / Art Cats [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коты и котята в векторе, нарисованные в оригинальной манере.
+Превью в JPEG.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28882538AB9FA1A0B7C5A43492C65DB5610397C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296093   (615137) от 15.04.2019
+
+Векторный клипарт - Easter card with eggs and chamomiles [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Весенний венок с пасхальными яйцами, листьями и ромашками.
+5 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F670867819B51A76086E93D34B029C33A5F40CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296094   (615136) от 15.04.2019
+
+Векторный клипарт - Happy easter composition with eggs rabbit [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пасхальные композиции - рисованные фоны с яйцами и розовыми тюльпанами.
+5 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AE0DC638C2619A5F4362B551DA236CBC5E166A
 ```
 
 https://mybot314.ru/tekegram_catalog/

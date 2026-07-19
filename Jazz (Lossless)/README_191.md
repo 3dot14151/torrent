@@ -1,120 +1,3 @@
-###  Публикация: 1412098   (423165) от 27.09.2020
-
-The Random Midi Quartet - Pordenone (2018) [FLAC|Lossless|Web-DL|tracks] <Jazz, Ambient, Dark Jazz, Doom Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viale Marconi (4:22)
-02. Il Corso (4:28)
-03. Il Bronx (4:27)
-04. Villanova (4:27)(   Читать дальше...   )Жанр: Jazz, Ambient, Dark Jazz, Doom JazzПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F66C7C6D94E67FCAFBE238AF01DDCFB8F470F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324463   (423109) от 10.09.2019
-
-Pearl Bailey - 16 Most Requested Songs (1945 - 1950) 1991, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legalize My Name [3:21]
-02. Tired [3:21]
-03. St. Louis Blues [2:13]
-04. A Woman's Prerogative [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AC9D43DED372641A727AEDD59022629276367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324615   (423091) от 10.09.2019
-
-Miles Davis - Rubberband (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа над записью велась с октября 1985 г. по январь 1986 г. вскоре после подписания артистом контракта с Warner Bros.
-До настоящего времени альбом полностью нигде не издавался и считался потерянным.01. Rubberband Of Life (Feat. Ledisi)
-02. This Is It
-03. Paradise (Feat. Medina Johnson)
-04. So Emotional (Feat. Lalah Hathaway)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEA9C41DEE95BEB0CE64906C9AB69232CE97655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947045   (422804) от 15.10.2015
-
-David Newman - The Weapon (1972) /2013, Warner/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Missy [05:30]
- 02.Seems Like I Gotta Do Wrong [04:23]
- 03.You Can't Always Get What You Want [07:01]
- 04.Yes We Can Can [03:51](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221D6E75B1138A81B232C9746042C3923095021E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250788   (422772) от 29.09.2018
 
 Jimmy Raney - Four Classic Albums Plus (1953 - 1956) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop, Guitar Jazz>
@@ -757,6 +640,122 @@ Tommy Chase - Groove Merchant (1987) Stiff Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB51CA972BD0ABFE280791293CF0A53E34C9AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065004   (419542) от 23.10.2016
+
+Gordon Goodwin's Little Phat Band - An Elusive Man (2016) [FLAC|Lossless|image + .cue] <Neo-Bop, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The LP Shuffle
+02. Cot In The Act
+03. Behind You
+04. An Elusive Man(   Читать дальше...   )Жанр: Neo-Bop, Modern Big BandПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9B27790FDB9AD26F063EB7BE13B4F17A749FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065029   (419398) от 23.10.2016
+
+Marcella Puppini - Everything Is Beautiful (2015) [FLAC|Lossless|image + .cue] <Swing, Neo-Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Is Beautiful (3:36)
+02. Slow Down (3:49)
+03. I Do (Do I?) (3:45)
+04. Sticky Red Sugar (4:02)(   Читать дальше...   )Жанр: Swing, Neo-SwingПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86D9BF5BA7F250C23551F4CA9D8AADFFE32F510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065011   (419337) от 23.10.2016
+
+Vulfpeck - Thrill of the Arts (2015) [FLAC|Lossless|WEB-DL|tracks] <Funk, Jam Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Vulf Records
+02. Back Pocket
+03. Funky Duck
+04. Rango II(   Читать дальше...   )Жанр: Funk, Jam BandПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502F9E526E55F8F9D9544CD5D13A1FF540C1E347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324954   (419002) от 12.09.2019
+
+Yusef Lateef - Live At Ronnie Scott's (1966) 2017, Gearbox Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes [9:10]
+02. Blues for the Orient [7:33]
+03. Song of Delilah [10:01]
+04. Last Night Blues [5:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686A591521D66AED2C8225782EF72C1B5148D4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

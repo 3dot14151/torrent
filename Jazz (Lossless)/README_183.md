@@ -1,130 +1,3 @@
-###  Публикация: 550335   (446576) от 27.09.2012
-
-Newropean Jazz Quartet (Danilo Memoli Trio,Ralph Reichert) & Ruth Young - Early Autumn (2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got The World On A String [06:51]
-02. Early Autumn [05:16]
-03. I Thought About You (Feat. Ruth Young) [04:48]
-04. I Can't Get Started (Feat. Ruth Young) [05:05]
-05. Easy To Love [05:49]
-06. If I Had You [05:33]
-07. Speak Low [06:54]
-08. I've Got A Crush On You (Feat. Ruth Young) [03:33]
-09. Where Or When [03:46]
-10. I'm In The Mood For Love (Feat. Ruth Young) [04:08](   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706145   (446451) от 01.10.2013
-
-Midnight Serenaders - A Little Keyhole Business (2013) [FLAC|Lossless|image + .cue]<Swing, Retro Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ain t She Sweet   (4:15)
-02.  St. Louis Blues   (4:27)
-03.  When I Drink Your Wine   (3:50)
-04.  My Honolulu Hula Girl   (3:19)(   Читать дальше...   )Жанр: Swing, Retro Swing, Big BandПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBA2A2871ED6A3760D83F4DC692C9F3C64D34B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551867   (446417) от 27.09.2012
-
-Chris Connor - Sings Ballads of the Sad Cafe (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things [03:51]
-02. Bargin Day [03:31]
-03. The End Of A Love Afair [04:09]
-04. Glad To Be Unhappy [03:50]
-05. Ballad Of The Sad Cafe [05:31]
-06. Good Morning Heart Ache [04:46]
-07. Somthing I Dreamed Last Night [04:51]
-08. Lilac Wine [05:22]
-09. One For My Baby [05:21]Жанр: JazzПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163888   (446355) от 07.09.2017
-
-Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Amber [10:11]
-02. Sunshine [03:46]
-03. Two Whips [04:42]
-04. Spring Fever [03:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4FF55467B5F28AEE76B612AFB9C0681DCE70F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552399   (446234) от 27.09.2012
 
 Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<Jazz, Bop, Vocal>
@@ -786,6 +659,119 @@ Luiz Bonfa - Le roi de la Bossa Nova (1963) 2005 [WavPack|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FFF6457A67F2DFE22DFAF190A66ED9215254593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216112   (444426) от 05.10.2015
+
+Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская джазовая певица и инструменталистка Мелоди Гардо олицетворяет собой не только безграничный музыкальный талант, но и удивительную стойкость, силу воли и мужество, которые помогли ей победить тяжелые обстоятельства и стать той, кем она является сейчас. Мелоди родилась в Нью-Джерси в 1985 году. Несмотря на страстное увлечение музыкой и регулярные занятия (   Читать дальше...   )Список альбомов:
+2005 - Some Lessons
+2007 - Worrisome Heart
+2009 - My One and Only Thrill/Live In Paris (EP)Жанр: Jazz, Vocal Jazz, Female VocalПродолжительность: 02:17:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164124   (443935) от 08.09.2017
+
+Grandad Turner - My Friends, My Fam (2011) Fhammond Family Ent [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jeff [04:54]
+02. Marcuse My Dude [06:02]
+03. I Remember George [05:10]
+04. My Love Is Real [05:30](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFC10FA445162BB86626F958E575AAACD9A6C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243604   (443384) от 09.10.2010
+
+Imelda May - No Turning Back (2007) [FLAC|Lossless]<Blues, Jazz, Swing, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues, Jazz, Swing, RockabillyПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409687   (443344) от 18.09.2020
+
+Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canadian Sunset [9:56]
+02. Red Top [4:59]
+03. We'll Be Together Again [4:55]
+04. Ca' Purange (Jungle Soul) [6:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CAD74827BA0A9FCBFB5DFC0FCF240AC0DA7708
 ```
 
 https://mybot314.ru/tekegram_catalog/

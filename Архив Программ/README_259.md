@@ -1,3 +1,29 @@
+###  Публикация: 1092708   (936928) от 13.01.2017
+
+Microsoft Windows and Office ISO Download Tool 4.12 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF364CBBD1613D4EA4923C2261ACA6BC03A501F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092715   (936918) от 13.01.2017
 
 Coolmuster Android Assistant 4.0.4 RePack by tolyan76 [En]
@@ -643,32 +669,6 @@ FurMark - полезная утилита, позволяющая проводи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A93D469B1BE4950DB8AA5FFB76D480B00DF2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984917   (936450) от 10.02.2016
-
-IP-TV Player 0.28.1.8843 [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936450.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP-TV Player - это высококачественный проигрыватель для вещания эфирных каналов IP-телевидения. Индивидуальные настройки для каналов, возможность записи потока в файл. Поддерживаются телепрограммы в формате JTV, планировщик записи/просмотра, фоновая запись.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D18C73444FE2F1B404CF04AF33F2E5AD00C184
 ```
 
 https://mybot314.ru/tekegram_catalog/

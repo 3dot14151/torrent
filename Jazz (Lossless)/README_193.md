@@ -1,119 +1,3 @@
-###  Публикация: 947993   (415999) от 18.10.2015
-
-Nina Simone - The Blues (1997) /CD Media Records/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Do I Move You? [02:48]
- 02.Day And Night [02:36]
- 03.In The Dark [02:58]
- 04.Real Real [02:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFEC80DFF43A675A764E049C85F93F63998BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251653   (415616) от 02.10.2018
-
-Jonathan Zwartz - The Sea (2009) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sea [4:24]
-02. Epic [10:48]
-03. Chester [7:53]
-04. Martha's Lullaby [13:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41042892AB0F0B75E5276570BF705B58B604EEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251652   (415614) от 02.10.2018
-
-Mark Murphy - Stolen...And Other Moments (1972 - 1991) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415614.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Murphy Muses:
-01. The Blue Book [8:34]
-02. Cit It [6:55]
-03. Little Jane [6:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60680AD003B61F25F110B6CD04F81F37A6DC42BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167699   (415260) от 21.09.2017
-
-Mike Fahn - Close Your Eyes and Listen (2002) Sparky [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without Changes [07:20]
-02. Will Call [04:35]
-03. Survivor's Suite [08:26]
-04. Heart Forest [08:27](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0F9058BE78CBA08CEF312DE3ED176C8E8958C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167697   (415259) от 21.09.2017
 
 Don Ewell - Music To Listen To Don Ewell By (1956) 1995, Good Time Jazz [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
@@ -745,6 +629,122 @@ Terry Gibbs - Hootenanny My Way (1963) 2017, Solid Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CA2917C12384A91D7CECCD55DC74229E4AD168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168017   (412896) от 22.09.2017
+
+Johnny Smith - Plays Jimmy Van Heusen (1955) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Beautiful [02:54]
+02. Swinging On A Star [02:39]
+03. I Could Have Told You [02:54]
+04. It Could Happen To You [02:09](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924A5C309A88000139DEDD00EC19AC6209BF6AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325489   (412807) от 15.09.2019
+
+Deborah Franciose - Gypsy Heart (1993) North Star Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr [3:52]
+02. Serengeti [4:32]
+03. Patty Joe [4:17]
+04. Gypsy Heart [3:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296BDCE9084F3B6445EBFEB16C8FF8FB0ABDC520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325493   (412805) от 15.09.2019
+
+Ernie Andrews - Jump For Joy (2003) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Never Fall in Love with Me [6:36]
+02. Danger Zone [5:31]
+03. Sweet Lorraine [5:07]
+04. You Are Too Beautiful [7:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20E97B9EFD578295064962AE3E8FDB05E2A49A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325487   (412803) от 15.09.2019
+
+Anders Widmark Trio - Visor (2010) Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varsang [2:12]
+02. Glimmande nymf [3:47]
+03. Den blomstertid nu kommer [2:54]
+04. Till havs [3:19](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7E1263DD646044ADF7A24EA9FBB7F7917E9E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

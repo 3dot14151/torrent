@@ -1,3 +1,90 @@
+###  Публикация: 1399678   (725065) от 02.08.2020
+
+Lockdown Revival - Stay Home (2020) [MP3|320 Kbps] <Modern Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (01:18)
+ 02. Wake Me Up (03:10)
+ 03. The Call (04:17)
+ 04. Wrong (04:38)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED946E687A87BE61315E98CA87F638DDFE1358F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399707   (724980) от 02.08.2020
+
+Dark Wizardry - Burden Of Salvation (2020) [MP3|320 Kbps] <Symphonic Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture (07:11)
+ 02. To Victory I (05:45)
+ 03. To Victory II (06:33)
+ 04. Todeskampf (02:01)(   Читать дальше...   )Жанр: Symphonic Metal, Progressive MetalПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CBA71BA5B30085029CE1999998DD0D094257EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129194   (724498) от 27.04.2017
+
+Speed Queen - King of the Road (2017) EP [MP3|320 Kbps] <Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Murder 05:02
+02. King of the Road 03:37
+03. Kids of Rock 'N Roll 03:13
+04. Fly High 03:07(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5969215F65E2A097C49B1B8F719C57F942C64FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129184   (724233) от 27.04.2017
 
 Infected Rain - 86 (2017) [MP3|320 Kbps] <Nu-Metal, Metalcore, Female Vocal>
@@ -658,93 +745,6 @@ In Flames - I, The Mask (2019) [MP3|320 Kbps] <Modern Metal, Alt. Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB31F6C317E57244799073A1EC46469024FDE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024705   (716214) от 09.06.2016
-
-Bat - Wings Of Chains (2016) [MP3|320 кб/с] <Thrash Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodhounds
-02. Code Rude
-03. Master of the Skies
-04. Primitive Age(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E460023D4AE4163E25FDAAC787044D6D2C5459D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532257   (716167) от 18.02.2022
-
-Bloodywood - Rakshak (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Rap Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gaddaar
-02 - Aaj
-03 - Zanjeero Se
-04 - Machi Bhasad (Album Version)(   Читать дальше...   )Жанр: Nu-Metal, Modern Metal, Rap Metal, EthnicПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAAE91145F4C9C7D22F468C69FF45846927EF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024700   (716128) от 09.06.2016
-
-Monument - Hair Of The Dog (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hair of the Dog
-2. Blood Red Sky
-3. Streets of Rage
-4. Imhotep (The High Priest)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA54A1565C875DA4C8EA769040999B6800CC50CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

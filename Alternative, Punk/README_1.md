@@ -1,3 +1,60 @@
+###  Публикация: 1137056   (1010582) от 17.06.2021
+
+Of Mice & Men - 7 альбомов + 2 EP (2010-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levee
+02. Bloom
+03. Pulling TeethЖанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 06:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1E8806F20AEC3AFA67459444D16BD3C4F5410C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484097   (1006395) от 17.07.2021
+
+The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] <Garage Rock, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Nkroachment: Yarbles (Live, ATP, Camber Sands, 28 April 2002) [00:03:32]
+02. 2 Librans (Live, ATP, Camber Sands, 28 April 2002) [00:04:01]
+03. The Joke (Live, ATP, Camber Sands, 28 April 2002) [00:04:22]
+04. And Therein (Live, ATP, Camber Sands, 28 April 2002) [00:04:32](   Читать дальше...   )Жанр: Garage Rock, Post PunkПродолжительность: 4CD, 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2995E57CE9B2C72DE0920CDE53957EDBFB11F1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485245   (1002812) от 08.08.2021
 
 Hawksley Workman - дискография (14 альбомов, 1 сингл) (1999-2011) [MP3|320 кб/с]<alternative rock, indie rock, canadian songwriter>
@@ -799,70 +856,6 @@ Mogwai - Les Revenants (2013) [MP3|320 кб/с]<Post-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B82645F6FB36FA919F579C7B6FF7AE7C52B3735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354758   (987016) от 23.01.2020
-
-Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987016.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. So Cold (Aurora Version)
-2. Failure (Aurora Version)
-3. Far Away
-4. Angels Fall (Aurora Version)(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C003730DE485422A45E843F8FBB8B7E4C6EC23C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612688   (986099) от 02.02.2013
-
-Local Natives - Hummingbird (Deluxe Edition) (2013) [MP3|320 кб/с]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You & I [04:22]
-2. Heavy Feet [04:07]
-3. Ceilings [02:56]
-4. Black Spot [04:41]
-5. Breakers [04:09]
-6. Three Months [04:30]
-7. Black Balloons [03:08]
-8. Wooly Mammoth [03:27]
-9. Mt. Washington [03:19]
-10. Colombia [04:50](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5BF24540748D91F3D87770EF5A3B1E1167D57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

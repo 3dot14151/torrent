@@ -1,32 +1,3 @@
-###  Публикация: 1302520   (361208) от 01.10.2019
-
-Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Celephaïs (06:55)
-2. Hypnos (08:46)
-3. Polaris (09:09)
-4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328873   (359062) от 02.10.2019
 
 地球 - ジャングル (2019) Hiraeth Records (Remaster) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Vaporwave>
@@ -738,6 +709,35 @@ Alphaxone & Xerxes the Dark - Aftermath (2018) Cryo Chamber [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6CF94CA69D73A86EDA5355C9C25FBEF56830D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099608   (309950) от 13.11.2017
+
+Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, Dub Techno, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Conversation (04:38)
+ 02. Gravity (03:59)
+ 03. Remains of the Day (04:13)
+ 04. The End (03:28)Тип издания: CD, WebЖанр: Ambient, Minimal, Modern Classical, Dub Techno, Downtempo •Продолжительность: 00:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B518D389EBE343623A72EDDA31E24A5CC0285
 ```
 
 https://mybot314.ru/tekegram_catalog/

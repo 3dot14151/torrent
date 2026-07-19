@@ -1,3 +1,90 @@
+###  Публикация: 756777   (441808) от 06.10.2015
+
+VA - Top 1000 Classic Rock Songs of All Time (2011) [MP3|104-320 кб/с]<Classic Rock, Hard Rock, Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Led Zeppelin - Stairway To Heaven (8:03)
+02.Jimi Hendrix - Purple Haze (2:53)
+03.Foo Fighters - Learn To Fly (3:55)
+04.Lynyrd Skynyrd - Free Bird (9:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 77:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585804E60A23532FBAFE6E72FAEDC683DE85A50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248701   (439815) от 21.09.2018
+
+VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House of lords - One touch
+002. Outloud - Out in the night
+003. Treat - Paper tiger
+004. Freedom hawk - Deep inside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE580A21C814A56B238029E8754ED79243F7CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164596   (438935) от 10.09.2017
+
+VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Foreigner - Girl On The Moon (Remastered)  4:14
+002.  Black Sabbath - Evil Eye  6:00
+003.  Paul Weller - The Cranes Are Back (Instrumental)  4:23
+004.  Alice Cooper - Feed My Frankenstein  5:02(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E8517332833B1A5B19EC0D7AC8D731402E4613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164599   (438840) от 10.09.2017
 
 VA - Для Тех, Кто Помнит! Русский Рок Vol.3 от Ovvod7 (2017) [MP3|320 Kbps] <Rock>
@@ -661,93 +748,6 @@ VA - Highway to Yell (2022) [MP3|320 Kbps] <Rock, Hard Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF768C1A66A5AB360B971F2D0EA00CE2CF6D6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251826   (413069) от 03.10.2018
-
-VA - Great Rock Collection (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Make Them Suffer - 27 Time
-002. The Longshot - Love Is For Losers
-003. Audiotopsy - What Am I
-004. The Isley Brothers - Total Destruction To Your Mind(   Читать дальше...   )Жанр: RockПродолжительность: 10:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF6968E84DA61FF171B7A6C64AD69A7AEEE8E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325458   (412582) от 15.09.2019
-
-VA - Monarchs Of Oblivion: Rock Collection (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hail The Sun - Glass Half Empty
-002. Beak - Abbots Leigh
-003. Electric Citizen - Mother's Little Reject
-004. Ubikar - High Step(   Читать дальше...   )Жанр: RockПродолжительность: 11:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFE33B4A815CEE7F8C1AEC5555D7C35BE8CF89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167831   (412577) от 22.09.2017
-
-VA - Lust And Love: Rock Hard Revue (2017) [MP3|320 Kbps] <Hard Rock, Alternative, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412577.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liv Sin - Black Souls
-002. Mean Streak - Tear DownThe Walls
-003. Vhaldemar - 1366 (Old King's Visions)
-004. Daxx & Roxane - Lust & Love(   Читать дальше...   )Жанр: Hard Rock, Alternative, MetallПродолжительность: 12:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C4053E32083C8B52A557413D802E389771FE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

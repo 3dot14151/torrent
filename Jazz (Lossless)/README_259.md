@@ -1,119 +1,3 @@
-###  Публикация: 1621131   (234783) от 24.03.2023
-
-Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outsider [7:14]
-02. Three Armed Man [5:23]
-03. Barebones [6:46]
-04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642382   (234767) от 27.06.2023
-
-Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocky Scotch [4:41]
-02. Under The Lilacs [5:07]
-03. They Say It's Wonderful [5:49]
-04. Potrezebie [4:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621341   (234753) от 24.03.2023
-
-Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction & 'Go With The National Guard' Jingle [1:49]
-02. Day In, Day Out [2:05]
-03. National Guard Promo & Conversation [1:08]
-04. Midnight Sun [4:38](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECDD0BA38768F8929939321F6D48317D2E9BCF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642384   (234736) от 27.06.2023
-
-Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Minority [4:22]
-02. Yesterday's Gardenias [6:37]
-03. One Way/Detour [5:02]
-04. Morning Nocturn [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86BDD90A16324DDB64EE56E7559E4E3594FABD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639315   (234705) от 13.06.2023
 
 Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -742,6 +626,122 @@ Ray Drummond - Continuum (1994) Arabesque Jazz [APE|Lossless|image + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304961439C315149906AC531B4D9DCCF9B197514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622798   (234217) от 30.03.2023
+
+Wynton Marsalis - Uptown Ruler: Soul Gestures in Southern Blue, Vol. 2 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psalm 26 [1:29]
+02. Uptown Ruler [11:11]
+03. The Truth Is Spoken Here [6:50]
+04. The Burglar [8:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64E65042784F8566A89A633B1BF07FCCF0187AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644089   (234157) от 04.07.2023
+
+Carlos Montoya - Flamenco Meets Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <World Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alegría-Rosa 03:38
+02 - Blues In The Night 03:37
+03 - Zapateado 03:39
+04 - Antonio Vargas Heredia 05:02(   Читать дальше...   )Жанр: World JazzПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF1D7F54BADECE558E7E0022CA6F5D66EFFF660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633664   (234156) от 16.05.2023
+
+V.A. - Smooth Jazz Hits 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cindy Bradley - Drive
+02. Lemek - Co-motion
+03. Nick Colionne - Just Like That
+04. Nathan Mitchell,Marcus Anderson - 100% Cotton(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE253D8B340464B2080BD54924F3221746078F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622800   (234152) от 30.03.2023
+
+Wynton Marsalis - Levee Low Moan: Soul Gestures in Southern Blue, Vol. 3 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levee Low Moan [11:15]
+02. Jig's Jig [8:49]
+03. So This Is Jazz, Huh? [7:00]
+04. In the House of Williams [10:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD111DF87ABB0D64FAB278FE8A23D165C44A925
 ```
 
 https://mybot314.ru/tekegram_catalog/

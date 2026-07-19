@@ -1,3 +1,183 @@
+###  Публикация: 700690   (480319) от 16.09.2013
+
+ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (03:52)
+02. Knowing Me, Knowing You (04:02)
+03. Take A Chance On Me (04:04)
+04. Mamma Mia (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546212   (480202) от 12.09.2012
+
+VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stacie Orrico - Stuck [03:42]
+02. Chingy - Right Thurr [03:37]
+03. Madonna - American Life [04:27]
+04. The Androids - Do It With Madonna [03:48]
+05. Amanda Perez - Angel [03:38]
+06. Kylie Minogue - Come Into My World [04:05]
+07. Sean Paul - Get Busy [03:31]
+08. Hilary Duff - Why Not [02:59]
+09. Dannii Minogue - I Begin To Wonder [03:40]
+10. Snoop Dogg feat. Pharrell, Uncle Charlie Wilson - Beautiful [03:21](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056711   (479305) от 26.09.2016
+
+DJ BOBO - Mystorial (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystorial [00:03:17]
+02. Life Goes On [00:03:10]
+03. Freedom Is... [00:03:30]
+04. Get on Up [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405875   (478977) от 01.09.2020
+
+VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UB40 - Red Red Wine (7” Version) (05:20)
+02. Tears For Fears - Everybody Wants To Rule The World (04:10)
+03. R.E.M. - Losing My Religion (04:28)
+04. Bryan Adams - Summer Of '69 (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566728   (478335) от 31.07.2022
+
+Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'M THAT GIRL
+02. COZY
+03. ALIEN SUPERSTAR
+04. CUFF IT(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319915   (477458) от 15.08.2019
+
+Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atención
+02. Banana (feat. Becky G)
+03. Onda diferente (feat. Ludmilla, Snoop Dogg & Papatinho)
+04. Sin miedo (feat. Dj Luian & Mambo Kingz)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C1E6232EF3D071FC46316E646F3BD2F1F86760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057056   (477380) от 27.09.2016
 
 Chris De Burgh - A Better World (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
@@ -601,182 +781,6 @@ Beatrice Egli - Mini Schwiiz - mini Heimat (2020) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369576DE01C2C72E73D4162A2D720A974A569BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568089   (466013) от 06.08.2022
-
-Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно, но пятьдесят лет прошло с тех пор, как Гилберт О'Салливан праздновал шестинедельное пребывание на вершине чарта Billboard США с песней Alone Again (Naturally) — песней, которая побудила Америку начать невероятный роман с этим ирландцем, но он всё же остаётся самым британским автором-исполнителем.
-Новый альбом Гилберта Driven последовал за его знаменитым (   Читать дальше...   )01. Love Casualty
-02. Blue Anchor Bay
-03. Let Bygones Be Bygones (feat. Mick Hucknall)
-04. Body and Mind(   Читать дальше...   )Жанр: Pop, Pop Rock, Folk RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7F69DAA42AF3389C984ADAD8E1971FA9A8E6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058695   (465873) от 02.10.2016
-
-VA - Radio 538 Hitzone 79 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1
-01. DJ Snake feat. Justin Bieber - Let Me Love You  (3:26)
-02. Jonas Blue feat. JP Cooper - Perfect Strangers  (3:15)
-03. Bastille - Good Grief  (3:28)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E3AB00C0B117ED647AA14BC97FF76EEAF5A18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246134   (465682) от 09.09.2018
-
-Cosmo's Midnight - What Comes Next (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Hip Hop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Confidence (4:29)
- 02/12. Lowkey (3:40)
- 03/12. Montego (3:08)
- 04/12. With U (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Hip Hop, Soul, R&BПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407469   (464262) от 08.09.2020
-
-Aluna - Renaissance (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Starting To Love All The Things I Hate [03:31]
-02. Warrior (feat. SG Lewis) [02:47]
-03. Sneak [02:49]
-04. Envious [03:23](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCF152F303C70DE6FE2186968A432822986C509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941394   (462848) от 27.09.2015
-
-VA - Dream Makers & Heart Breakers (2013) 2CD [APE|image+.cue]<Pop, Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безусловно, что-то из этих треков есть в любой мало-мальски уважающей себя коллекции. Ну кто не слушал и не переслушивал Moon River (Andy Williams) или Unchain My Heart (Ray Charles). Но есть бОльшая часть треков не заслуженно забытая или не известная нашей публике вовсе.
-P.S. Почему-то на AllMusic сборник определяется как Jazz. Думаю, что Вы со мной согласитесь (   Читать дальше...   )CD1
-01. The Beatles - Love Me Do  (2:25)
-02. Elvis Presley - Return To Sender  (2:09)
-03. John D. Loudermilk - Language Of Love  (1:48)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 03:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3116E0E71A532F7D8FFBAF70776E7142FE991BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941429   (462510) от 27.09.2015
-
-Jetty Road - Hearts On Fire (2015) [FLAC|tracks +.cue]<Country, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Bit Of Something
-02. Hearts On Fire
-03. What We Did Last Night
-04. I Turn To You(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CFA3A2136922435B8A5062FB4E997D13CFFF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

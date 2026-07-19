@@ -1,3 +1,29 @@
+###  Публикация: 1193818   (173858) от 23.12.2017
+
+Air Explorer Pro 2.1.0 Portable by FoxxApp [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, Mail.ru, поддержка подключения по протоколам WebDAV, FТP и SFTPЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB6559FF94B4D4ADA84C0BC1C6A80E7B8343C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194065   (173850) от 23.12.2017
 
 IObit Smart Defrag Pro 5.8.0.1276 RePack (& Portable) by TryRooM  [Multi/Ru]
@@ -644,32 +670,6 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:054F4A3BF73D1B992854E40D3BB77F60BA8E23EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668329   (173673) от 12.10.2023
-
-FastStone Capture 10.2 Final RePack (& portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173673.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture - мощная и многофункциональная программа для снятия скриншотов с их последующим редактированием. Позволяет редактировать и просматривать графические файлы. Поддерживает BMP, GIF, JPEG, PCX, PNG, TGA, TIFF и PDF форматы. Несложный в использовании встроенный графический редактор позволяет поворачивать, изменять размер, глубину цвета, вырезать фрагменты (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC1989D64CB8F5A4D4FDEB14BE087EC7B4F7C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

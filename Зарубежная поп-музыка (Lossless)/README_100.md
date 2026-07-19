@@ -1,3 +1,148 @@
+###  Публикация: 1783778   (25452) от 07.03.2025
+
+Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25452.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. You're My Heart, You're My Soul (Thomas' Version) (3:36)
+02. You Can Win If You Want (Thomas' Version) (3:42)
+03. There's Too Much Blue in Missing You (Thomas' Version) (4:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572336475C4FF564D75F11BF0957A47DC9262176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783933   (25313) от 08.03.2025
+
+Lady Gaga - Mayhem (2025) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disease
+02. Abracadabra
+03. Garden Of Eden
+04. Perfect Celebrity(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F801351F0EEBCD77DD7EABF1AF4046B7DA203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785840   (24042) от 20.03.2025
+
+Secret Service - When The Night Closes In (1985) 1st Scandinavian Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night City (3:42)
+02. Let Us Dance Just A Little Bit More (4:32)
+03. Special Songs (3:36)
+04. Do You Remember (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68B59511F3BC05377EA1D107C8263CACE009227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717504   (23715) от 24.03.2025
+
+Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil In Your Heart
+02. Tears Will Fall
+03. Tell Her She Can
+04. Crazy(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDE7A97DFDCE03C1A4D7CE378505496EB0D6A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787466   (23537) от 25.03.2025
+
+100 % Disco - 100 % Disco Vol. 1-5 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Ticket (3:38)
+02. Give Me Love (3:41)
+03. Funkytown (4:03)
+04. Disco Lights (3:27)(   Читать дальше...   )Жанр: Disco, Pop, CoversПродолжительность: 03:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C451EEC0E2D8CCEFE6F8161264BF87F63E5F3ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789172   (22719) от 02.04.2025
 
 VA - Best 80s Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,149 +745,6 @@ VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801813   (14744) от 13.06.2025
-
-VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Azizam (2:42)
-02. Don Toliver - Lose My Mind (From F1® The Movie)Жанр: PopПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801781   (14728) от 13.06.2025
-
-The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untouched		04:14
-02. Hook Me Up		02:56
-03. This Is How It Feels		04:12
-04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801835   (14714) от 13.06.2025
-
-The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation [00:04:13]
-02. Love Me Alive [00:03:25]
-03. Foolish Pleasure [00:02:41]
-04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802200   (14502) от 15.06.2025
-
-VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14502.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. THE GOO GOO DOLLS - Iris (04:49)
-002. Madonna - Vogue (Edit) (04:49)
-003. Third Eye Blind - Semi-charmed Life (2006 Remaster) (04:28)
-004. Simply Red - Stars (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 06:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803104   (13931) от 21.06.2025
-
-Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13931.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Brother Louie (Thomas' Version)
-02. Just We Two (Mona Lisa) (Thomas' Version)
-03. Lady Lai (Thomas' Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

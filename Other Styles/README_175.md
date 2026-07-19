@@ -1,3 +1,180 @@
+###  Публикация: 1782734   (69940) от 02.03.2025
+
+Джонатан Кристенсон - ВОРОН: Воображаемая жизнь и загадочная смерть Эдгара Аллана По (2025) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся релиз мюзикла «Ворон: Воображаемая жизнь и загадочная смерть Эдгара Аллана По». Это канадский мюзиkл, шедший в городе Эдмонтон, в театре «The Catalyst». БАЯРУНАСконцерт представило русскоязычную версию мюзикла в аудио формате.
+Алексей Горшенёв — Артист 1
+Кирилл Гордеев — Артист 2
+Эмиль Салес — Артист 3(   Читать дальше...   )1. Пролог
+2. Начнём сначала
+3. Семейка По, Часть 1
+4. Смерть Элизы(   Читать дальше...   )Жанр: OSTПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E475388B41C97649EFD8434426EF676F49FEE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784719   (69538) от 12.03.2025
+
+Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origination (Original Mix) (3:52)
+02. Token of Love (Original Mix) (4:49)
+03. Try to Understand This (Original Mix) (3:34)
+04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784720   (69537) от 12.03.2025
+
+Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of Peace (4:44)
+02. Like In The Water (3:38)
+03. Regret (3:16)
+04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785163   (69266) от 16.03.2025
+
+Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gitano Amor (04:18)
+02. Tears In Paradise (04:56)
+03. Libertad (04:00)
+04. Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784919   (69235) от 16.03.2025
+
+Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origination (Original Mix) (3:52)
+02. Token of Love (Original Mix) (4:49)
+03. Try to Understand This (Original Mix) (3:34)
+04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787216   (68805) от 25.03.2025
+
+Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manschoud
+02. Timeless
+03. Safi
+04. People(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E569DCCCE7688482B9F5081044C8A2FB38413796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788827   (68453) от 01.04.2025
 
 VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -571,181 +748,6 @@ Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7479C94F1604B374F945F9B8FFCA2BA2BC8CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705795   (63393) от 10.03.2024
-
-Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flor di nha esperança    [0:04:16.45]
-02. Vaquinha mansa    [0:04:49.28]
-03. Amor di mundo    [0:04:07.45]
-04. Paraiso di Atlantico    [0:03:57.30](   Читать дальше...   )Жанр: Latin, Folk, World, & CountryПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D766CA8BD892DCD5E1EA7F1DC2C27714375DC11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705956   (63385) от 10.03.2024
-
-Лёдъ - Ни Чужих, Ни Своих (2024) [MP3|320 Kbps] <Dark Folk, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорогой Мёртвых…
-02. Скёль
-03. В Чащу Не Ходи
-04. Проклятье Сов (feat. Bjarla)(   Читать дальше...   )Жанр: Dark Folk, NeofolkПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DA9521E5E95950A368E45A77F43D536B190941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705603   (63382) от 10.03.2024
-
-VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noam Garcia, Diego Galloso, Tibetania - Mantra (9:12)
-02. Tibetania, Air Paradise - Shawarma (6:14)
-03. Soldatov, Tibetania - Pegasus (4:17)
-04. Tibetania, Lost Bird - Jara (5:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0066449E8CE10F74618F1698450786B5ABFB80D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705267   (63183) от 12.03.2024
-
-Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reincarnation - Qani Vur Jan Im....
-02. Jazz Trio Levon Malkhasyan - Lorik
-03. Inga and Anush Arshakyans - Hala, Hala
-04. Mr. Avant-Garde Folk Arto Tunçboyaciyan, Armenian Navy Band - Gulo(   Читать дальше...   )Жанр: Ethno JazzПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F857080E734CC5B0D1144525405D0A44FF2AAA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512148   (63124) от 13.03.2024
-
-Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest - французский дуэт, состоящий из музыкантов, Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».
-В 1994 году они (   Читать дальше...   )1992 - 1994 - World Mix
-1995 - Boheme
-1997 - Comparsa
-2000 - Pacifique(   Читать дальше...   )Жанр: Electronic, new-age, ambient, world, ethnic electronicaПродолжительность: 13:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9B6A4BEF278DD4FF4F1DE8800A610444AFDF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708196   (62342) от 20.03.2024
-
-Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, House>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Детство [00:06:28]
-02. Жар-Птица [00:03:30]
-03. Сирена [00:03:52]
-04. Ведьмы [00:05:24](   Читать дальше...   )Жанр: Folk, Ethnic, HouseПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC2D337FE080EC56AC84CA6D8B2C441204058F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

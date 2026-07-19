@@ -1,119 +1,3 @@
-###  Публикация: 1080019   (290417) от 06.12.2016
-
-John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Part I: Acknowledgement [06:07]
- 02.Part II: Resolution [11:54]
- 03.Part III: Pursuance [13:05]
- 04.Part IV: Psalm [08:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE362EE8F92728EE1DA6935B4291CD5335C1B673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080402   (290416) от 06.12.2016
-
-Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hackensack [04:18]
- 02.Tea For Two [03:53]
- 03.Criss-Cross [04:46]
- 04.Eronel [04:37](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0A535F11B9ED5B4E8A7A71D0C96C9B9636C177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080083   (290341) от 06.12.2016
-
-Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ev'ry Time We Say Goodbye [04:42]
- 02.You and I [03:30]
- 03.Intro: Goodbye/We'll Be Together Again [03:22]
- 04.People Will Say We're in Love [02:54](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BBD247F3D35818A94CF957678721BCEC466B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263151   (290116) от 18.11.2018
-
-Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charleston Rag [3:07]
-02. Chevy Chase [2:44]
-03. Mirandy [2:43]
-04. Fizz Water [1:48](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263141   (290115) от 18.11.2018
 
 Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Afro-Cuban Jazz>
@@ -744,6 +628,122 @@ Don Cherry Trio - Studio 105, Paris 1967 (2018) Hi Hat [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1A12325CEE2ACE05B6D592FF410AE829FC571E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186403   (288104) от 24.11.2017
+
+Scott Bradlee's Postmodern Jukebox - The New Classics (2017) Live [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing, Vintage, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet The Flintstones
+02. All About That Bass (ft. Casey Abrams, Dani Armstrong, Maiya Sykes & Ariana Savalas)
+03. Introduction (ft. Ariana Savalas)
+04. Bad Blood (ft. Aubrey Logan)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, CoversПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF1E8A5B4460D82CCD3A9855832CD967938D32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335334   (287893) от 02.11.2019
+
+The Duke Ellington Orchestra - Digital Duke (1987) GRP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [4:28]
+02. Cottontail [4:15]
+03. Prelude to a Kiss [4:26]
+04. Perdido [8:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B66328E02CF286502A4B9CC91BC7010D693E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335390   (287558) от 02.11.2019
+
+Jazzamor - Music En Vogue (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Bossa-Nova, Easy-Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Hunter
+02. Keep in Distance
+03. Time is Running
+04. Tattoos(   Читать дальше...   )Жанр: Nu-Jazz, Bossa-Nova, Easy-ListeningПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352180380631A6401AEA3731E9B5B910B65C1F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080591   (286688) от 08.12.2016
+
+Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Granadas [05:55]
+ 02.Valse [05:53]
+ 03.Prelude [03:02]
+ 04.Time Remembered [04:11](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75A80502BD1FA1A8DB349E597209C5B13E7A26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

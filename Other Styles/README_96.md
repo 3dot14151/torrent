@@ -1,3 +1,177 @@
+###  Публикация: 858369   (555337) от 07.06.2019
+
+VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire of the Sun - Alive
+02. Natural Child - She Got A Mind
+03. Franz Ferdinand - Right Action
+04. Eels - Mistakes of My Youth(   Читать дальше...   )Жанр: SountrackПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306964   (555220) от 08.06.2019
+
+Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Snakes
+02. Baby Wave
+03. Goose Song
+04. Never Known(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC620BBF5653FFC39A5156C9EA6410B23C2C1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306905   (555173) от 08.06.2019
+
+Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gap (08:08)
+02. Dark (04:28)
+03. Frameshift (08:16)
+04. Amity (05:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080B977798C437DC8BA206EE651517836326CBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307386   (555013) от 09.06.2019
+
+Armik - Alchemy (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555013.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Alchemy 04:19
+2 Sueno 04:30
+3 Tonight 04:44
+4 Cruising To Moorea 04:25(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D491EA9B3B637429497DBEF1500EBDF2CA8ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307709   (554900) от 10.06.2019
+
+Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burials Foretold
+02. Pilzentanz
+03. She Binds Away The Night
+04. Night Is Coming Soon(   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA866423B80D1FE9898101BBFFDF61FFE7B339C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307710   (554885) от 10.06.2019
+
+Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Living in a Coma                                                   [06:25]
+02. Letter from Choco to Melody                                            [03:12]
+03. Alone (words Edgar Allen Poe)                                          [03:28]
+04. I’m Too High                                                           [05:13](   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A00F9A9F5C2D423210DAC6BC1C782DD9A46CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236499   (554451) от 17.07.2018
 
 Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
@@ -571,180 +745,6 @@ CD1: Pure & Simple
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047068   (550938) от 28.08.2016
-
-Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandala (3:04)
-02. Yeka Yeka (3:21)
-03. Samana (5:44)
-04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237750   (550552) от 25.07.2018
-
-Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Watchers (9:26)
-02. Deep Space (8:09)
-03. Aurora (9:58)
-04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237756   (550380) от 25.07.2018
-
-Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Watchers (9:25)
-02. Deep Space (8:09)
-03. Aurora (9:58)
-04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AEFF98B64521A3EEBA49BEC6C952C488284CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047221   (550094) от 29.08.2016
-
-Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550094.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Swing (4:09)
-2 - Weightless (3:20)
-3 - Say Anything You Want (3:05)
-4 - Rescue My Heart (3:11)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047215   (550029) от 29.08.2016
-
-Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rookie Dreaming (3:28)
-02 - Not the End (2:27)
-03 - Irene (3:47)
-04 - How Quickly Your Heart Mends (3:46)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047219   (550013) от 29.08.2016
-
-Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (5:43)
-02. Back to the Past (6:44)
-03. Awakening (5:49)
-04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

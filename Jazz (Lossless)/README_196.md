@@ -1,119 +1,3 @@
-###  Публикация: 1067278   (408468) от 28.10.2016
-
-Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Was (with Peggy Lee) [02:48]
- 02.That Lucky Old Sun [03:03]
- 03.Night Train To Memphis [01:58]
- 04.In The Cool Cool Cool Of The Evening [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7559C3911464D306147B272F33FA714590539A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413495   (408434) от 04.10.2020
-
-Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 1997, Tradition [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lovin' Man [2:48]
-02. Sugarfoot Stomp (Dippermouth Blues) [2:59]
-03. Southern Stomps [2:39]
-04. Big Butter and Egg Man from the West [3:11](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCB80A3B99B56430F289D87D776541D32373175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948938   (408398) от 22.10.2015
-
-Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Does Anybody Really Know What Time It Is [05:13]
- 02.Maybe Tomorrow [04:56]
- 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
- 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067223   (408394) от 28.10.2016
-
-Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Somewhere Along The Way [02:53]
- 02.Walkin' My Baby Back Home [02:39]
- 03.Faith Can Move Mountains [03:13]
- 04.Funny [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949138   (408272) от 22.10.2015
 
 Art Blakey and His Jazz Messengers - Art's Break! (1972) /2014, Studio Songs/[FLAC|tracks+.cue]<Hard Bop>
@@ -779,6 +663,134 @@ VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<J
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562928   (405253) от 20.10.2012
+
+Caetano Veloso - A Foreign Sound (2004) [FLAC|Lossless]<Jazz, Tropicalia, Psychedelic rock, Folk rock, Bossa nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Carioca (Eliscu, Kahn, Youmans) [03:33]
+02. So in Love (Porter) [05:30]
+03. I Only Have Eyes For You    [01:20]
+04. It's Alright, Ma (I'm Only Bleeding) (Dylan)    [06:07]
+05. Body and Soul (Eyton, Green, Heyman, Sour)    [03:30]
+06. Nature Boy (Ahbez)    [01:58]
+07. The Man I Love (Gershwin, Gershwin)    [04:09]
+08. There Will Never Be Another You (Mack Gordon, Harry Warren)   [01:47]
+09. Smoke Gets in Your Eyes (Harbach, Kern)    [02:38]
+10. Diana (Anka)    [03:28](   Читать дальше...   )Жанр: Jazz, Tropicalia, Ballads, Bossa novaПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562745   (405226) от 20.10.2012
+
+VA - Venus Jazz Cafe - 20th Anniversary Special Blend (2012) 2CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maucha Adnet -  Ceu E Mar  [04:34]
+02. Simone & Her Hawaiian Jazz Band -  I'll Remember You  [03:35]
+03. Joe Beck -  And Here's To You  [05:49]
+04. Giovanni Guidi -  Norweigian Wood  [03:28]
+05. Cyrille Aimee & Diego Figueiredo -  Tea For Two  [04:54]
+06. Eddie Higgins Trio -  Again  [04:44]
+07. Phil Woods with Strings -  Easy To Love  [04:16]
+08. Marion Brown -  Crucificado  [07:23]
+09. Tessa Souter -  The Island  [05:57]
+10. Enrico Rava -  Gnid  [07:03](   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168863   (405064) от 25.09.2017
+
+The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Hopes [05:21]
+02. Our True Friends [06:24]
+03. One to Love [05:21]
+04. An Ancient Civilization [05:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB7AD89D262C9BF3E5935D21794AAD418DBBBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168929   (405063) от 25.09.2017
+
+Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We See [04:53]
+02. I'll Keep Loving You [05:44]
+03. Brilliant Corners [07:51]
+04. Rootie Tootie [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDEF6599E03FFDF70131A7A86736A1868B6CA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1480163   (1009192) от 27.06.2021
+
+Scythelord - Earth Boiling Dystopia (2021) [MP3|320 Kbps] <Progressive Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Sky Is Falling [00:02:42]
+02 Wireframe [00:07:11]
+03 Equanimity [00:06:32]
+04 Rod Of Asclepius [00:07:07](   Читать дальше...   )Жанр: Progressive Death, Thrash Metal /Продолжительность: 00:49:28 /
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D009731EA224FA7544EA57E0593EB80C00111176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480170   (1009190) от 27.06.2021
+
+Invitado De Piedra - 3 Albums (2011-2021) [MP3|320 Kbps] <Psychedelic Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Festín [00:06:02]
+02. Oye Al Diablo [00:04:47]
+03. Cruces [00:05:23]
+04. Todos caerán [00:07:46](   Читать дальше...   )Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 3CD, 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EC5990670C371D70E1376D15B02CD1D0276D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480241   (1009187) от 27.06.2021
+
+Amenra - 6 Albums (2012-2021) [MP3|320 Kbps] <Doom, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ogentroost [00:10:01]
+02. De Dood In Bloei [00:04:38]
+03. De Evenmens [00:08:01]
+04. Het Gloren [00:11:30](   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 6CD, 05:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2C5CE6BA50401B096ADD773751560B21F91E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480119   (1009111) от 27.06.2021
 
 Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
@@ -659,93 +746,6 @@ Mystic Prophecy - Metal Division (2020) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061F50F007C31775D1AE98E9FCC3B76BA9061AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351933   (1001650) от 12.01.2020
-
-Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - True [5:02]
- 2 - Let Them Rest in Peace [4:31]
- 3 - Chasing the Twilight Zone [4:30]
- 4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C1728A7F6CED264296A8F13F729CA0EC387213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351899   (1001639) от 12.01.2020
-
-Brothers of Metal - Emblas Saga (2020) [MP3|320 Kbps] <Folk Metal, Viking Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001639.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Brood of the Trickster [1:56]
- 2 - Powersnake [3:44]
- 3 - Hel [4:40]
- 4 - Chain Breaker [3:53](   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Power MetalПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89113AADF7A1E74E862EF0A416D5E02396FCE887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488869   (1001463) от 13.08.2021
-
-Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие трэш-метал ветераны Destruction выпустили свой новый концертный Blu-ray и CD "Live Attack" 13 августа этого года на лейбле Napalm Records. Он стал следующим релизом после "Born To Perish", напоминая о почти двухчасовой трэш-атаке в прямом эфире, которую группа устроила в январе этого года.CD - 1:
- 01. Born to Perish (Live) (06:36)
- 02. Death Trap (Live) (05:54)
- 03. Nailed to the Cross (Live) (03:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

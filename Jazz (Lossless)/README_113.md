@@ -1,119 +1,3 @@
-###  Публикация: 1135841   (677297) от 21.05.2017
-
-Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 1965, Part 2 (2002) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:43]
-02. Meow [04:42]
-03. Passion Flower/Things Ain't What They Used to Be [07:44]
-04. Jeep's Blues [04:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2581B0E7EE42BB1BA6B73B96990A091070981F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135994   (677293) от 21.05.2017
-
-Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. I Got It Bad (And That Ain't Good) [02:37]
-03. Perdido  [03:15]
-04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135907   (677288) от 21.05.2017
-
-Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Stem [02:52]
-02. Chelsea Bridge [02:56]
-03. Jump for Joy [02:57]
-04. What Am I Here For? [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA060DC67DA04B8D665481F53B7F59A50C3AAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135998   (677276) от 21.05.2017
-
-Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [02:07]
-02. Comes Once in a Lifetime [01:47]
-03. Sophisticated Lady [03:32]
-04. Chopin's Etude in E [03:00](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1318120D65BEBC1227CE89AFC18BBEEFFB8E22DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508646   (677188) от 11.06.2012
 
 Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusion>
@@ -763,6 +647,122 @@ Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC403A31230ACD5866794FD08749657612258646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223511   (673481) от 05.05.2018
+
+Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [06:33]
+02. This Nearly Was Mine [03:37]
+03. It Could Happen to You [03:41]
+04. MyShip [03:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223628   (673416) от 05.05.2018
+
+Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bésame Mucho 3:14
+02. It's Impossible (feat. Nathan East) 3:05
+03. C'est Magnifique 2:52
+04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136376   (673341) от 23.05.2017
+
+Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [00:56]
+02. Johnny Come Lately [03:34]
+03. Swamp Goo [04:52]
+04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136380   (673340) от 23.05.2017
+
+Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Beginning to See the Light [01:11]
+02. Addi [03:20]
+03. Things Ain't What They Used to Be [03:33]
+04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
 ```
 
 https://mybot314.ru/tekegram_catalog/

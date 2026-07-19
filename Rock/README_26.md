@@ -1,32 +1,3 @@
-###  Публикация: 1392340   (769373) от 25.06.2020
-
-Kansas - The Absence of Presence (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Absence Of Presence (08:22)
- 02. Throwing Mountains (06:21)
- 03. Jets Overhead (05:17)
- 04. Propulsion 1 (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751625C3A0EAEF9F64A65F1F45DEFADA25B8C233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392401   (769106) от 27.06.2020
 
 Long Distance Calling - How Do We Want to Live? (2020) [MP3|320 Kbps] <Post-Rock, Progressive Rock>
@@ -745,6 +716,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69BBC4E7C507FEDEBFAC867ABBA307D1B334B6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215404   (759990) от 25.03.2018
+
+The Rocket Dogz - Bad Blood (2018) [MP3|320 Kbps] <Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Blood
+02. Cemetery Walls
+03. Let's Talk About Sex
+04. It's Not You(   Читать дальше...   )Жанр: PsychobillyПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F274FBFFBC08A83B39BF2C6B2FEBCB7FBDEE77FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

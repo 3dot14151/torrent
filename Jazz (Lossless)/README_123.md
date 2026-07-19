@@ -1,119 +1,3 @@
-###  Публикация: 1032255   (647904) от 06.07.2016
-
-Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647904.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Cooker:
-01.A Night In Tunisia [09:25]
-02.Heavy Dipper [07:07]
-03.Just One Of Those Things [07:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906007   (647826) от 07.06.2015
-
-Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire (8:47)
-02. Big City Music (14:07)
-03. Shinkansen (7:43)
-04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227344   (646936) от 26.05.2018
-
-James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Harlem Strut [2:35]
-02. Keep Of The Grass [3:15]
-03. Carolina Shout [2:47]
-04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227466   (646934) от 26.05.2018
-
-Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road to Boston [7:07]
-02. Original Music [6:15]
-03. Lazy Bones [6:03]
-04. A Midwest Moment [7:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21716E51B95EF5E4B51832AD22B80BB90FD2C943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227457   (646931) от 26.05.2018
 
 Chris Connor - Free Spirits (1961, 1962) 2014, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -751,6 +635,134 @@ Sinne Eeg - Don't Be So Blue (2011) Japan Edition [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246F244BFBE0B67632D0B558C312CB905DB830A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032773   (644017) от 08.07.2016
+
+Sinne Eeg & Thomas Fonnesbaek - Eeg-Fonnesbaek (2015) [FLAC|Lossless|image + .cue] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Weep For Me (5:14)
+ 02. Taking It Slow (4:41)
+ 03. Evil Man Blues (3:15)
+ 04. You Don’t Know What Love Is (4:59)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB26EEF6C84C924836D02386E4E5BA0512D8551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517256   (643738) от 03.07.2012
+
+Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Charleston Alley - H. Henderson, J. Hendricks, L. Kirkland [03:18]
+02 Moanin' - B. Timmons, J. Hendricks [02:34]
+03 Twisted A. Ross, W. Gray [02:15]
+04 Bijou - J. Hendricks, R. Burns [03:16]
+05 Cloudburst - J. Harris, L. Kirkland [02:15]
+06 Centerpiece - H. Edison, J. Hendricks [02:26]
+07 Gimme That Wine - J. Hendricks [02:58]
+08 Sermonette J. Adderley, J. Hendricks [03:47]
+09 Summertime - D. Heyward, G. Gershwin [01:43]
+10 Everybody's Boppin' - J. Hendricks [04:11](   Читать дальше...   )Жанр: Jazz, Bop, VocalФормат: CDПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516563   (643736) от 03.07.2012
+
+Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laurindo Almeida
+01. Samba Medley [05:20]
+02. O Barquinho [04:09]
+03. The Busy Bee [01:20]
+04. Canto Do Ossanha [05:31]
+05. Samba Triste [03:19]
+06. Escadoo [03:06]
+07. Air On A G-String [04:52]
+08. Dorival [05:05]
+(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906720   (643703) от 09.06.2015
+
+Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [05:00]
+02. So in Love [04:30]
+03. Boy Next Door [05:34]
+04. Everything I Love [04:48](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38351C7E767CB3F99E925A2A16C5CA820BE4805
 ```
 
 https://mybot314.ru/tekegram_catalog/

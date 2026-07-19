@@ -1,119 +1,3 @@
-###  Публикация: 1137148   (669395) от 25.05.2017
-
-Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delete You (4:06)
-02. Ninja (3:27)
-03. She Knows (3:44)
-04. No Axe To Grind (3:02)(   Читать дальше...   )Жанр: Jazz, Pop, RnBПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291553   (668914) от 25.03.2019
-
-Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:38]
-02. Lucky 13 [4:47]
-03. Suzanne [6:13]
-04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291557   (668912) от 25.03.2019
-
-The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walking Stomp [5:23]
-02. The Legendary Profile [6:45]
-03. Willow Weep for Me [7:38]
-04. The Cylinder [5:33](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE79A8C4BB84EFEF6B6288859057E0A2AED62D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291554   (668911) от 25.03.2019
-
-Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherokee [9:01]
-02. All the Things You Are [6:11]
-03. Lover Man [4:08]
-04. Special Club [3:37](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E188ECD5289FCDDFF9C14DD3CCAA7E064AB22D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031222   (668777) от 03.07.2016
 
 Duke Ellington - The Best Of (1987) [APE|Lossless|image + .cue] <Jazz>
@@ -751,6 +635,122 @@ Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4822DB7F8C5844AA8BE0F66A0AC771045FC83EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901073   (665604) от 24.05.2015
+
+Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As Your Living (6:18)
+02. Now Or Never (6:41)
+03. Guess Who I Saw Today (4:52)
+04. Perdido (4:27)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B89B4CB696FA9AED946835A2ABBF4ADD4818AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537902   (665586) от 18.03.2022
+
+Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:12]
+02. Blue Monk [8:51]
+03. For Dancers Only [9:06]
+04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224634   (664894) от 11.05.2018
+
+Helen Merrill - Parole E Musica (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notte E Giorno [01:05]
+02. Night and Day [03:07]
+03. Accade Tutto A Me [01:19]
+04. Everything Happens to Me [02:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9505C805EF6D47E704A45ECC800FDDF1BEDE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138241   (664564) от 29.05.2017
+
+Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for the Dreamer [03:54]
+02. Hodgy [02:34]
+03. My Ship [05:27]
+04. Flow Gently, Sweet Afton [04:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

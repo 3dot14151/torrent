@@ -1,3 +1,177 @@
+###  Публикация: 1865943   (1065445) от 18.04.2026
+
+VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065445.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
+2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
+3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
+4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF177FDC48AFB9EDC95F13B77AC234F379BA680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864705   (1065092) от 
+
+The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - Pascha of the Faithful (Пасха верных) (2009) [FLAC|Lossless|tracks + .cue] <Духовные песно ...
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behold, the Bridegroom cometh...
+02. Thy Bridal Chamber...
+03. Today there is hung upon the Tree...
+04. Bells of the Lord’s Tomb Christ is risen...(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A491B17856D835602D1AB976609B52A765E206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864769   (1065081) от 
+
+VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Thor - Sussurro (4:28)
+02. Aydn Britt - Albaraan (4:26)
+03. Marga Sol - Memoria (4:45)
+04. m.age.project - Crystal Beauty (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B577A52FC21008C34386280F29633D2D92E23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864779   (1065076) от 
+
+Paul Mauriat - Blooming Hits (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somethin' Stupid
+02. Penny Lane
+03. This Is My Song
+04. Alone In The World(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90EDDBCFA6B0FC2AD8244592FB6A345039685C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860850   (1064189) от 30.03.2026
+
+Александр Софикс - Дискография (2004-2009) [MP3|320 Kbps] <New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город радости (Viva Gomel)
+02. Океан
+03. По дну океана
+04. Я скоро буду с тобой(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908B84FC7BA16CC737E69A8986AECE5E78D2BCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863092   (1063728) от 02.04.2026
+
+VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Suvorov - Orchard (5:43)
+02. Ildar Bik - Talika (5:49)
+03. Gavr - Kamishek (7:22)
+04. Noyan Music - Moyo (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41AAE91F46233549F4BD1CAED0FA1BA7203FC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863365   (1063477) от 04.04.2026
 
 VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -571,180 +745,6 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845942   (1051088) от 04.01.2026
-
-Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever And Ever
-02. Les matins d'hiver
-03. Le peintre des étoiles
-04. Les volets clos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C45C74AC150A508E2B7A7D8BEA68B043479D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845206   (1050748) от 
-
-The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - The bright star raised (Взошла звезда ясная) ( (2007) [FLAC|Lossless|tracks + .cue] <Духов ...
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Nativity, Our Christ
-02. With the lightful Feast
-03. The Nativity of Christ
-04. This night is holy(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620EDB6524C2FFE16E6722773687554FE7E3D0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845464   (1050661) от 31.12.2025
-
-VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <The Orient Collective>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak, Tibetania - Essence of Time (Original Mix) (7:31)
-02. Marga Sol, Darles Flow, Tibetania - Sizzla (Original Mix) (5:04)
-03. Discojack, Fecky Farris, Tibetania - Wojira (Original Mix) (5:59)
-04. Elias Fassos, RisK (Gr), Tibetania - Safe (Original Mix) (6:30)(   Читать дальше...   )Жанр: The Orient CollectiveПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138E31F132F2A66C20A74C88F7758C14BB1860A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 127930   (1047128) от 04.12.2025
-
-Учим соседей! | Для мести соседям (звуковые эффекты) Часть 2 [2009] [MP3]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это диск для мести соседям, которые слишком громко слушают музыку, кричат или шумят любым другим способом. CD. В комплект также входят затычки для ушей. Как сказано в рекламе: "они нужны для того, чтобы защитить вас и сохранить вам рассудок". Достаточно лишь включить один из шумовых эффектов на полную мощность и заткнуть уши (или выйти погулять на полчаса). (   Читать дальше...   )1. A10 Attack Jet 01 (0:18)
-2. A10 Attack Jet 02 (0:30)
-3. A10 Attack Jet 03 (0:20)
-4. Propeller Plane Pass By (0:26)(   Читать дальше...   )Жанр: Юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603131   (1045731) от 09.01.2023
-
-VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Bach - Transcending (Original Version) (3:48)
-02. Loveseed - The Infinite Source (3:42)
-03. Landside - Desert Lake (Original Mix) (4:32)
-04. Five Seasons - River Talk (Original Mix) (5:15)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603564   (1045672) от 10.01.2023
-
-Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun of Inspiration
-02. My Devotion
-03. Kissing the Spirit Awake
-04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 963420   (288676) от 07.12.2015
+
+CCEnhancer 4.4 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288676.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCEnhancer – представляет собой утилиту, которая позволяет расширить функциональные возможности по очистке системы в программе CCleaner. Расширение способно добавить в CCleaner более чем 1000 новых приложений. Для полной интеграции CCEnhancer использует файл «winapp2.ini», который распространяется в стандартном дистрибутиве и встроен в CCleaner для простой реализации (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679A1CEDA48A62CAA89E1714A37D89F67B2EA920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963240   (288672) от 07.12.2015
 
 Daum PotPlayer 1.6.57398 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -644,35 +670,6 @@ PrivaZer - полезная утилита, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50546A8059E8CB1E7EDEB6C3DAE44DE63026FA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263371   (287629) от 19.11.2018
-
-BlueStacks Tweaker 5.8.4 beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287629.jpg" />
-</div>
-
-
-###  Подробнее
-
-приложение для "BlueStacks App Player"
-
-BlueStacksTweaker поможет:
-получить root права и многое другоеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E85B784EF91609A8D90AA1DBA54F4E1392DE126
 ```
 
 https://mybot314.ru/tekegram_catalog/

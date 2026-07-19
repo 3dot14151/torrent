@@ -1,3 +1,87 @@
+###  Публикация: 1042394   (579413) от 12.08.2016
+
+Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to an AnimalЖанр: Power MetalПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CAC12AF70464A0B9F63A272E099A910EC4224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920502   (579094) от 23.07.2015
+
+Licrest - Nothing (2015) [MP3|320 кб/с]<Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579094.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Broken Inside
+2. Nothing
+3. Decay
+4. What Ends In Pain(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CD853800792BF8635ED9257AEEF65ED284D6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920740   (578837) от 23.07.2015
+
+Lamb of God - VII: Sturm und Drang (2015) Deluxe Edition [MP3|320 кб/с]<Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Echoes
+02. Erase This
+03. 512
+04. Embers (feat. Chino Moreno of Deftones)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D056FD743BD55C9F0213DA9511A4505AF358F01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360086   (578663) от 09.07.2011
 
 Battle Beast - Steel (2011) [MP3|320 kbps]<Heavy metal>
@@ -692,93 +776,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E7ACD17584C0CBC3D41A664CA504BE78C9D860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923347   (564504) от 31.07.2015
-
-U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride
-02. Days Of Hope And Glory
-03. Cut Me Out
-04. Trainride In Russia (Poezd Po Rossii)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923099   (564405) от 31.07.2015
-
-Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dein retter
- 02. Alles aus liebe
- 03. Jetzt oder nie
- 04. Als waer's das letzte mal(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB50092F557E6E7704429576548342B686083CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304575   (563977) от 26.05.2019
-
-Orion Child - Continuum Fracture (2019) [MP3|320 Kbps] <Power Metal, Melodic Death Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Long Time Ago... [2:09]
- 2 - The Arrival Gate [4:47]
- 3 - Nuclear Horizons [5:37]
- 4 - Collective Soul Warp [0:38](   Читать дальше...   )Жанр: Power Metal, Melodic Death Metal, Dark MetalПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434F54A9405436E4EBBAF82AD09C81C991E310E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

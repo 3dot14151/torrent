@@ -1,3 +1,29 @@
+###  Публикация: 597983   (1000096) от 03.01.2013
+
+Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №351 (01.01.2013) WEBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:46:53Жанр: Телепередача
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A474BE9E722E7A3179A847783DEC638C5C4A1D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597954   (1000093) от 03.01.2013
 
 Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.5-124) 2013
@@ -737,41 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598003   (999995) от 04.01.2013
-
-Armin van Buuren - Live at Pier 36-New York City (31-12-2012) [MP3|~228 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Ana Criado - I'll Listen (Original Mix)
- 02. Abstract Vision & Elite Electronic vsю Broning - Relict (Original Mix)
- 03. Rank 1 - Airwave (Julian's Bootleg)
- 04. Cosmic Gate feat. Emma Hewitt - Calm Down (Omnia Remix)
- 05. Heatbeat - Chow Mein (Original Mix)
- 06. W&W - Moscow (Original Mix)
- 07. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix)
- 08. Andrew Rayel feat. Jano - How Do I Know? (Original Mix)
- 09. Faruk Sabanci - Elveda (Original Mix)
- 10. Gareth Emery & Ashley Walbridge - DUI (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4B401C2B93B39774BE33BE8CD90E173237B3F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

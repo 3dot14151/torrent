@@ -1,82 +1,3 @@
-###  Публикация: 1138573   (658662) от 03.06.2017
-
-Иллюстрации - Art of Alphonse Mucha [JPG, PNG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы известного художника-иллюстратора Альфонса Мариа Муха.Формат: JPG, PNGРазрешение файлов: 246x640 - 3572x1934
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD992ECA386ABAE626E3CB57D0D4A149EBF9D1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225678   (658602) от 17.05.2018
-
-Обои - Desktop Wallpapers Full HD. Part (211) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82FC7D74E771486B34489D6FF8964833CB9A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225707   (658588) от 17.05.2018
-
-Иконки - Creative Market - 400 Places Line Icons - 2321829 [AI, CDR, EPS, JPG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки - чёрно-белые контурные в векторе и не только.
-Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 1024 x 1024
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225709   (658587) от 17.05.2018
 
 Иконки - Creative Market - 370 People Line Icons - 2321735 [AI, CDR, EPS, JPG]
@@ -675,6 +596,84 @@ Mix SHT icons pack by KSV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD54C8416A06687F62338C89361ECC4C4CD1EA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031298   (651028) от 04.07.2016
+
+Живые обои - Animated Wallpapers 3 (DREAM-NNM) [DREAM]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые видео обои на рабочий стол (Часть 3)Формат: DREAMРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD9C9345CAAD8623BE88766EF004CA1E36E77D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031154   (651023) от 04.07.2016
+
+Живые обои - Animated Wallpapers 2 (DREAM-NNM) [DREAM]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые видео обои на рабочий стол (Часть 2)Формат: DREAMРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B00EB22D9AB99859DA5A3382D12664130E6A261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031481   (651020) от 04.07.2016
+
+Живые обои - Animated Wallpapers 4 (DREAM-NNM) [DREAM]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Live Wallpapers - живые видео обои (часть 4)Формат: DREAMРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777689C27E6E6C8F3B1AF7F00CDB2AC1C7E973D
 ```
 
 https://mybot314.ru/tekegram_catalog/

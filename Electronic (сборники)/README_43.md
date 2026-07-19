@@ -1,3 +1,235 @@
+###  Публикация: 1003225   (845301) от 02.04.2016
+
+VA - LUXEmusic Топ Март (2016) [MP3|320 кб/с] <Dance, House Music, Mash Up, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (DJ Zhukovsky Remix)
+02. Alekseev - Пьяное солнце (DJ Gilevich Remix)
+03. Andry B & JJ - Fallen (DJ Antonio Remix)
+04. Ariana Grande - Focus (DJ Favorite & DJ Lykov Remix)(   Читать дальше...   )Жанр: Dance, House Music, Mash Up, PopПродолжительность: 03:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968BA5B28D4EFF5B5DF8C2508849EDF6BCEAA2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003248   (845300) от 02.04.2016
+
+VA - Top 100 Club Tracks (March) (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 19EIGHTY7 - Get It On (Benny Benassi & MazZz Remix)
+02. 4G - Звонки (Luxesonix Remix)
+03. A-Sen feat. Samoel - Сладкие Ночи (Denis Agamirov & Stylezz Remix)
+04. Alan Walker - Faded (Ian Davecore Remix)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 07:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D339BA53B53688FEBCD18E62E6CF2B6A928A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002991   (845290) от 02.04.2016
+
+VA - Laboratory Chemicals: Bass Techno House (2016) [MP3|320 кб/с] <Minimal, Tech House, Bass Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Unique - Raydrop (7 Hours) Feat. Natalie Arnold
+002. Laing - Morgens Immer Mude
+003. Brodinski Feat. Louisahhh!!! - Let The Beat Control Your Body
+004. The Fog Vs Chus & Ceballos - Been A Long Time (Mark Knight Remix)(   Читать дальше...   )Жанр: Minimal, Tech House, Bass TechnoПродолжительность: 10:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B12BCBAE391DA955BE217E150E4EFAA68AD748F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003239   (845186) от 02.04.2016
+
+VA - Top 100 Deep House (March) (2016) [MP3|320 кб/с] <House, Indie Dance, Jackin House, Minimal House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Lambert - Ghost Town (Fly Remix)
+02. Ahmet Kilic & Stoto feat. Shea Doll - Good Ones Go (Original Mix)
+03. ALEKSEEV - Держи Меня (BlackShot DJs Remix)
+04. Alexander Ben - Losing My Religion (Talel Future Disco Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin House, Minimal House, Nu DiscoПродолжительность: 10:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B26CCFF8338E5DEE2D8F6B0858480CF243FE7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112024   (845159) от 07.03.2017
+
+VA - DMC Dance Mixes 2016 (Volume Two) (2017) [MP3|320 Kbps] <Club, Electro House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Blue Ft. Jp Cooper - Perfect Strangers (Club Mix) 05:12
+02. Jonas Blue Ft. Raye - By Your Side (Extended) 04:41
+03. Kda - Just Say (Extended Mix) 09:08
+04. Kideko & George Kwali Ft. Nadia Rose & Sweetie Irie - Crank It (Woah!) (Extended) 04:36(   Читать дальше...   )Жанр: Club, Electro House, Deep HouseПродолжительность: 02:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB4B2FE8A88B335C915F6E508416E3F353657C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112015   (845146) от 07.03.2017
+
+VA - DMC Dance Mixes 2016 (Volume One) (2017) [MP3|320 Kbps] <Club, Electro House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 99 Souls Ft. Brandy & Destiny's Child - The Girl Is Mine (Club Mix) 05:34
+02. Adele - When We Were Young (Discotech 2Am Radio) 04:11
+03. Alex Newell & Jess Glynne & Dj Cassidy & Nile Rodgers - Kill The Lights (Audien Extended) 04:15
+04. Ariana Grande - Into You (3Lau Remix) 04:17(   Читать дальше...   )Жанр: Club, Electro House, Deep HouseПродолжительность: 02:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F67E0BC72920455480AFFFBE0E89A0B0C607DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002845   (845114) от 02.04.2016
+
+VA - Nude Mix #3 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icarus feat. Aniff Akinola - Ride This Train (Ivy Lab Remix) (05:12)
+02. Wilkinson feat. Wretch 32 - Flatline (04:10)
+03. Hidden Agenda - The Sun (07:47)
+04. Big Bud - Millenium (Carlito Remix) (07:56)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E97FA154A20CF6297FE38BCDB8039E55F296CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112126   (844869) от 07.03.2017
+
+VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dance, Pop, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Donna Summer, Svet, No Hopes - Bad Girls (Coranny Vocal Version)
+02 - David Guetta - Just A Little More Love (Ibitaly Remix)
+03 - Lexter - Never Gonna Give You Up (Tale & Dutch Remix)
+04 - Justin Timberlake - Can't Stop The Feeling (Denis First Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, Deep HouseПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378671   (844804) от 26.04.2020
 
 VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
@@ -513,238 +745,6 @@ VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:920246FD4ED97DC664C338F4CA6BFDBDD71C7F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113048   (840121) от 10.03.2017
-
-VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritmo Fatalismo - Sangria After Midnight
-02. Don Gorda Project - In Silencio
-03. Hardage - Hysterical Years
-04. Moonnight - I Need A New Love (Feat. Neptune)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EA4CDB614754D9776E5EB0FF837C0458CECEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112873   (840008) от 10.03.2017
-
-VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3LAU feat. NEONHEART — Fire (Paris Blohm Remix) (3:13)
-02. ANGEMI & Becko — I’ll Catch You (3:55)
-03. CMC$ — Won’t Let You Go (3:08)
-04. Dream Hackers & JVSE feat. Thomas Daniel — Ready For The Night (4:12)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379518   (839575) от 29.04.2020
-
-VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hard5hooterz - Next Termination
-002. Ophidian - Bring On The Orchestra
-003. Repix - Lost
-004. The Style Creators - Feel Alive(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 07:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379521   (839565) от 29.04.2020
-
-VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearldiver - Hold 'em Down
-002. Absentune - Todo Sigue
-003. Marcelo Berges - Montañas
-004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379526   (839559) от 29.04.2020
-
-VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839559.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Illenium - Angel (Intro)
-02. Skrillex, Boys Noize, Ty Dolla $ign - Midnight Hour(   Читать дальше...   )Жанр: Dance, Pop, Electro, Deep HouseПродолжительность: 04:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFEFB5BD6BCB76050EE7367244E9E7E5DBA9C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379523   (839455) от 29.04.2020
-
-VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Pher - Pushin
-002. Sandrino - Heart Beats Of Long Ago
-003. Bobby Shann - Who Deserves
-004. Illectronic - Marrakesh(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12320F8966727E383576F43742A1D3E69E1344D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379524   (839454) от 29.04.2020
-
-VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armonica - Samburu
-002. Martin Schulte - Frosty Sky
-003. Waveform 99 - Ibiza (Night Tech Mix)
-004. Gabriele Toma - Hook (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 09:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FBA4572C3343CA4FBF094D742A4356FF2FFB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499407   (839219) от 07.10.2021
-
-VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellboy - Гуси (Stanislav Almazov Radio Remix) (3:29)
-02. Земфира - Ромашки (Cheeful & D.Slap Upfinger Radio Edit) (3:52)
-03. Kuyano NAEMS - Rolling in the Deep (Extended Mix) (3:27)
-04. Zivert - Del Mar (Winstep Radio Remix) (3:30)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94F39C472A5F546FC89199D78CF21A3D1780702
 ```
 
 https://mybot314.ru/tekegram_catalog/

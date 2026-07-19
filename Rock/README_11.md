@@ -1,31 +1,3 @@
-###  Публикация: 283960   (938290) от 18.01.2011
-
-Omega - Дискография (16 альбомов + сингл)(1968-1998) [MP3|128 kbps]<Hard Rock, Progressive Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pearls in her Hair (05:26) (256 kbps)
-Исполняется на английском языке.
-Текст песни прилагается.Жанр: Hard Rock, Progressive Rock, New WaveПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364292   (937743) от 02.03.2020
 
 Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [MP3|320 Kbps] <Progressive Rock, Pop>
@@ -756,6 +728,35 @@ Paul Simon - Greatest Hits (2000) [MP3|320 kbps]<Folk-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FF7AF3AE9AF36289A2EF55847B2F25E5E1BDFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961134   (920123) от 23.01.2017
+
+Queen - Discography (1968-2014) 212 Albums [MP3|128-320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская рок-группа, добившаяся широчайшей известности в середине 1970-х годов, и одна из наиболее успешных групп в истории рок-музыки. Средства массовой информации называют группу «культовой» и пишут, что она и по сей день имеет сотни миллионов поклонников. Критики считают классикой рока такие песни группы как: «Bohemian Rhapsody», «We Will Rock You», «We Are (   Читать дальше...   )1973 - Queen
+1974 - Queen II
+1974 - Sheer Heart Attack
+1975 - A Night At The Opera(   Читать дальше...   )Жанр: Rock |Продолжительность: 286:51:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD7CA859F888A4ECAF2DB15D704980DCDED7530
 ```
 
 https://mybot314.ru/tekegram_catalog/

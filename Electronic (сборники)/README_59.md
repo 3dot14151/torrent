@@ -1,3 +1,235 @@
+###  Публикация: 1275790   (789446) от 13.01.2019
+
+VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House Syndicate - Jam The Mace
+002. Ian Jose - Boo (Original Mix)
+003. Jamie Trench - That Teebs (Original Mix)
+004. Jeremy Stott - Caktuss(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD17B43DDDE5BDA6A8F65CEB8A7E109E911986A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275786   (789442) от 13.01.2019
+
+VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Kasper - Zuluu
+002. Dave Owen - Jungle Justice
+003. Dutta - Dominos
+004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275767   (789438) от 13.01.2019
+
+VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Denis First & Reznikov & Bright Sparks - Shameless
+04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275674   (789436) от 13.01.2019
+
+VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adverze Ft. Mc Instinct - On The Block
+002. 2Pole - Magnetar
+003. Alan Mille - Solaris
+004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275848   (789433) от 13.01.2019
+
+VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Plug - Inception
+002. Helix ft. Romy Wave - Divine (Extended Mix)
+003. Methodub - Oscillate (Original Mix)
+004. Titan - Still I Rise(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511093   (789424) от 20.11.2021
+
+VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subraver - Can Feel It
+002. Rikoj & Dh - Carry You Home
+003. DJ Pulse & Nova Scotia - The Ultimate Buzz
+004. Retrospect - Never Break(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 09:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511095   (789422) от 20.11.2021
+
+VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gms - Happy Trails
+002. Vandeta & Ananda Shake - Anandeta
+003. Aida, Thirsty Amigo - Without You
+004. Throw3r - Stay Awake(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23B73A7AFA3BA6C56255ED73F285ED4C1B93876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275885   (789388) от 13.01.2019
+
+VA - Music for Car 11 (2019) [MP3|320 Kbps] <Electronic, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MiyaGi & Эндшпиль, Kadi - In Love (3:15)
+02. Alec Benjamin - Swim (2:24)
+03. Bea Miller - Outside (3:21)
+04. 3LAU - You Want More (feat. Max) (3:00)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 03:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275851   (789384) от 13.01.2019
 
 VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
@@ -510,238 +742,6 @@ VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5EF00DBC0EC9DB3F7CDB9FF208512051B767EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203710   (787730) от 03.02.2018
-
-VA - Empire Records - Classic House 3 (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jeremy Bass & Heydi Garz  -  Hoy (Extended Mix)  6:17
-02.  DJ Hakuei feat. Alicia Saldenha  -  Don't Make Me Love You (Original Mix)  8:11
-03.  Hercules & Love Affair feat. John Grant  -  I Try To Talk To You (Original Mix)  4:10
-04.  Seven Lions with Myon & Shane 54 feat. Tove Lo  -  Strangers (My Digital Enemy Remix)  5:20(   Читать дальше...   )Жанр: HouseПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782DA44382FE613BA4633BC3FD22702999B0BDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203822   (787726) от 03.02.2018
-
-VA - Empire Records - Night Walk 2 (2018) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stereoclip  -  Tramway (Original Mix)  4:03
-02.  Sultan + Shepard feat. Nadia Ali & IRO  -  Almost Home (Melosense Remix)  4:00
-03.  Medsound & Yota  -  The Vice (Vicent Ballester Remix)  4:44
-04.  Compuphonic  -  Mango Figaro (Extended Mix)  5:14(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEE76488880CDFBD84490A19DA97DA3F241EC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203705   (787722) от 03.02.2018
-
-VA - Empire Records - House Clinic 3 (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Of Virus feat. Soliaris  -  I'm Burning (Gary Caos Remix)  6:20
-02.  68 Beats  -  Come Back To The Sound (Extended Mix)  7:06
-03.  House Anatomy  -  Old School (Original Mix)  4:15
-04.  Party On Demand  -  House Party (Workout Mix)  4:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D823220A847C3B10964131CCABD1B7FA1E5EBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203879   (787704) от 03.02.2018
-
-VA - Record Super Chart #522 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-03.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer (Radiology Festival Mix)  4:11
-04.  GSPR  -  With You  4:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C84AA00957C5AF82E771754C3F9028892CBC6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203224   (787676) от 03.02.2018
-
-VA - LUXEmusic proжект: Russian Deep House (2018) [MP3|320 Kbps] <House, Deep House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Смысловые Галлюцинации feat. DJ Nejtrino  -  Зачем топтать мою любовь  5:31
-02.  Джиган  -  Дни и ночи (Amice Remix)  4:14
-03.  Алёна Высоцкая  -  А я ждала (Deep Mix)  3:47
-04.  Бьянка  -  Вылечусь (Amice Remix)  3:42(   Читать дальше...   )Жанр: House, Deep House, DanceПродолжительность: 06:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC46690E24438F608D8DB19957BD197FEFB7E32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512295   (787471) от 24.11.2021
-
-VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Detroit Experiment - Think Twice
-002. Yves Murasca & Rosario - Time
-003. Marcelo Pm - Strangers
-004. Gerardo Moro - District(   Читать дальше...   )Жанр: Electro, House, ClubПродолжительность: 10:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512330   (787469) от 24.11.2021
-
-VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karlo Wanny - Among Us
-002. Shock Therapy - You Were The Moon
-003. Koreless - White Picket Fence
-004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512363   (787468) от 24.11.2021
-
-VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Important - Except
-002. Sonic Art - Orbital Journey
-003. Rey&Kjavik - Zula
-004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
 ```
 
 https://mybot314.ru/tekegram_catalog/

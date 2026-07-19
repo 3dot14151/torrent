@@ -1,3 +1,61 @@
+###  Публикация: 1110367   (853777) от 02.03.2017
+
+Van Rockman - The Lost Tapes (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harley To The Party (04:16)
+02. Which Way Does The River Flow (02:49)
+03. Ricky On The Bridge (03:35)
+04. Rock Me Crazy (03:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F76CB4406AEEA607842ECF87EE9BD22E779165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499849   (846044) от 03.10.2021
+
+Black Sabbath - Technical Ecstasy (1976) Box Set, Deluxe Edition, 4xCD, Reissue, Remastered, 2021,  Rhino Records [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Technical Ecstasy:
+ 01 - Back Street Kids (Remastered) (03:47)
+ 02 - You Won’t Change Me (Remastered) (06:36)
+ 03 - It’s Alright (Remastered) (03:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD831C2DFBBD9F7B457775E873892C2156ADCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112175   (844855) от 07.03.2017
 
 Axxis - Retrolution (2017) [MP3|320 Kbps] <Hard Rock, Melodic Heavy Metal>
@@ -685,61 +743,6 @@ Jaded Heart - Guilty by Design (2016) [MP3|320 кб/с] <Hard Rock, Hard 'n' Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:361926DD599C0857B89B7B2E9E46F3A194195620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384328   (804275) от 19.05.2020
-
-Ladies Ballbreaker - Whole Lotta Bobby (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Female AC/DC cover band:01. Hell Ain't a Bad Place to Be [4:21]
- 02. Whole Lotta Rosie [4:19]
- 03. Dirty Deeds Done Dirt Cheap [4:09]
- 04. Back in Black [5:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BA367FF7327256E61F92EF4C3665FA4948F55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273907   (803382) от 05.04.2011
-
-MIKE TRAMP & Freak Of Nature - Дискография (1993-2011) [MP3|320 kbps]<Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard rock
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

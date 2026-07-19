@@ -1,119 +1,3 @@
-###  Публикация: 1668838   (173189) от 14.10.2023
-
-Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Look Tonight [4:39]
-02. Smile [4:21]
-03. Autumn Leaves [3:08]
-04. Teach Me Tonight [3:25](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFD053278F3618C3A6559FBF7581ADEF77A4B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668841   (173188) от 14.10.2023
-
-Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [4:18]
-02. My Ship [3:56]
-03. Once in a While [3:41]
-04. Cavaquino [2:33](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EC64D36D8CDE8D3BFB62979526A2AB0DF9456A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669099   (173061) от 15.10.2023
-
-Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dog It [4:42]
-02. But Beautiful [4:18]
-03. Caravan [9:24]
-04. All the Gin Is Gone [4:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB71FFC71D15CAB263DD27329FC3EAF0A82FF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669102   (173054) от 15.10.2023
-
-Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No.1 Green Street [7:21]
-02. 'Round About Midnight [7:06]
-03. Grant's Dimensions [7:57]
-04. Green with Envy [9:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669107   (173045) от 15.10.2023
 
 Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
@@ -741,6 +625,122 @@ Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57831353B5A1E1EDB74AB679BCB3D1B775D62639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670574   (171961) от 21.10.2023
+
+Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Time Goes By [5:04]
+02. Stardust [5:36]
+03. I Didn't Know What Time It Was [4:14]
+04. The Very Thought of You [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670558   (171958) от 21.10.2023
+
+Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song One (Seven-Four) [9:33]
+02. Song Two (Ballad) [5:38]
+03. Song Three (Nine-Eight Blues) [7:52]
+04. Song Four (Waltz In Four-Four) [7:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670576   (171956) от 21.10.2023
+
+Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [3:28]
+02. I'm Getting Sentimental Over You [5:05]
+03. Like Someone In Love [5:43]
+04. My Funny Valentine [3:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719983F099B4164A0C46035F3891DC8202AF65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670572   (171955) от 21.10.2023
+
+Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song for You [3:06]
+02. Undecided [4:17]
+03. What Are You Doing the Rest of Your Life? [6:15]
+04. Exactly Like You [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22C526217F91B793BBEBC74ED9C4E5764054BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

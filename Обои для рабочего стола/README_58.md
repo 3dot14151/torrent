@@ -1,33 +1,3 @@
-###  Публикация: 555826   (431593) от 03.10.2012
-
-[Wallpapers] HQ Wallpapers №44
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431593.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HQ Wallpapers №44
-Название: HQ Wallpapers №44
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF4A5D61160D3C8F297DA9DCDAC2030ED1B264D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945810   (431557) от 11.10.2015
 
 Обои - Цветочная палитра. 2560x1440 - 100 шт [JPG]
@@ -678,6 +648,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBDF7DAEE32B3940CB12ED96BE13376DE8F82D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251114   (420035) от 30.09.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (120) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DD2EE78D1E7732EA94972B2A5A453DAE8E0FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

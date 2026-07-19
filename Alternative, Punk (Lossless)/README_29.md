@@ -1,3 +1,120 @@
+###  Публикация: 1040354   (587459) от 04.08.2016
+
+SONOIO - Blue / Red (2010-2011) 2 Albums [FLAC|Lossless|tracks] <Electronica, Alternative Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный проект Alessandro Cortini - клавишника Nine Inch Nails.2010 - Blue:
+01. Just Me
+02. Suck Up Everything
+03. Not Worth Remembering(   Читать дальше...   )Жанр: Electronica, Alternative Rock, SynthpopПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7879887DC9B1275B3FEF64E5C92087354E10D2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552002   (586815) от 21.05.2022
+
+Terranullius - Beachabilly bad boys (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychobilly Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sin nombre [00:02:43]
+02. Terranullius [00:03:12]
+03. Beachabilly bad boys [00:04:31]
+04. Envy [00:02:41](   Читать дальше...   )Жанр: Psychobilly PunkПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E7534F3D6748EE9A9B9ED57112F75D4E0EBF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301185   (586264) от 10.05.2019
+
+Lydia Ainsworth - Phantom Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamonds Cutting Diamonds
+02. Tell Me I Exist
+03. Can You Find Her Place
+04. Edge Of The Throne(   Читать дальше...   )Жанр: Electronic, AlternativeПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8298C3D82D6A12697EF22377498CDEE5236A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358293   (585075) от 03.07.2011
+
+Kitchie Kitchie Ki Me O - Kitchie Kitchie Ki Me O (2011) [FLAC|Lossless]<Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kitchie Kitchie Ki Me O - новая группа и первый альбом бывших членов норвежских групп Madrugada, Ricochets, My Midnight Creeps. После смерти одного из основателей Madrugada гитариста Robert Buras будущее Madrugada оставалось под вопросом. В 2009-2010 г.г. основные участники состава Madrugada Alex K (Vocal, guitar) и Frode Jacobsen (Bass) организовали группу Kitchie Kitchie Ki Me O. Без явного пресса безусловного лидера и вокалиста Madrugada Sivert Hoyem группа обрела новые краски и разнообразие, чего стоят только (   Читать дальше...   )01. Next (3:44)
+02. Forgotten (3:57)
+03. Hey Honey (4:36)
+04. Everything Burns (7:41)
+05. It Must Be Real (3:12)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551813   (584822) от 23.05.2022
 
 Static Dress - Rouge Carpet Disaster (2022) [FLAC|Lossless|tracks] <Post-Hardcore, Emo>
@@ -629,122 +746,6 @@ Liam Gallagher - Down By The River Thames (Live) (2022) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41BE3DBF79D65C64D8BAFF4B8EC2B9055049E56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042871   (576139) от 14.08.2016
-
-Nothing But Thieves - Nothing But Thieves (2015) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Experimental Rock, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excuse Me
-02. Ban All the Music
-03. Wake Up Call
-04. Itch(   Читать дальше...   )Жанр: Alternative Rock, Experimental Rock, Math RockПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003E44FDA530183D4DB7A085B155E7FC61E35A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151119   (575806) от 17.07.2017
-
-Coldplay - Kaleidoscope (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All I Can Think About Is You (4:35)
- 2. Miracles (Someone Special) (4:37)
- 3. A L I E N S (4:42)
- 4. Something Just Like This (Tokyo Remix) (4:34)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:24:9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6D42167CF6D1374C6E197B430777BA859BEEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303117   (573033) от 21.05.2019
-
-The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way In (02:41)
-02. Put Some Miles On (04:00)
-03. Black Light (04:40)
-04. Bullet Holes (04:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303590   (570965) от 22.05.2019
-
-Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room Temperature
-02. Right Side of My Neck
-03. Hurts Me Too
-04. Pigeon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1030958   (670255) от 02.07.2016
-
-VA - Русская Дискотека ХХ Века - 15 (Именной) (2010) [MP3|160-320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веселые Ребята ( Александр Добрынин ) - Розовые Розы ( 1988 )
-02. Пахомов Константин ( Ласковый Май ) - Светлана ( 1989 )
-03. Сладкий Сон ( Сергей Васюта ) - Оля ( 1992 )
-04. Апина Алена - Призывник Мой, Леха ( 1993 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030619   (670250) от 02.07.2016
-
-VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Send My Love (To Your New Lover)
-002. Lucius - What We Have (To Change)
-003. Gwen Stefani - Where Would I Be?
-004. Bahari - California(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030946   (670247) от 02.07.2016
-
-VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бархатный Сезон - Все Пройдет ( 1990 )
-02. Любэ - Не Валяй Дурака, Америка ( 1992 )
-03. Nota Bene - А Сердце Повторяло ( 1990 )
-04. Адреналин - Ковыляй Потихонечку ( 1998 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031087   (670244) от 02.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -736,6 +649,93 @@ VA - Музыкальный адреналин на Русском радио в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A05C63F495E5487A62B9892B622728D7158F792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138159   (665304) от 28.05.2017
+
+VA - Pet Shop Boys - Standard Disco Holiday (2017) [MP3|320 Kbps] <Europop, Synthpop, Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pet Shop Boys & Liza Minnelli - Love Pains 4:11
+02.  Go West (Almighty PSB Mix) (Castro Boy Club Mix) 4:43
+03.  Call Me Old-Fashioned (Demo Version) 4:02
+04.  New York City Boy (The Morales Club Mix) 10:58(   Читать дальше...   )Жанр: Europop, Synthpop, EurodiscoПродолжительность: 02:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C91D21D4141A0654CD1300F2C20B73355BEAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137910   (665246) от 28.05.2017
+
+VA - Зажигай вместе с Европа Плюс выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665246.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Оля Краснова - Мурашки 3:20
+002. Елена Темникова - Голые 3:23
+003. Юран - Пусть Будет Так 3:45
+004. Olisha - Мы Такие Девочки 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D34EA046692FEFA4EAF8D2EB9FF780E86E90A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137903   (665136) от 28.05.2017
+
+VA - Дискотека Hit FM. Любимая музыка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Денис Филимонов - Чужой Мой Близкий Человек 3:30
+002. Fargo - Лев Толстой 3:30
+003. Icetowne - Территория 5:23
+004. Иракли - Два Океана 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E2964509DBF870613306860F3DAC6CB3DA94E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

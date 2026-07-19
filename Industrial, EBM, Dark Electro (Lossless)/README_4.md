@@ -1,3 +1,32 @@
+###  Публикация: 1044154   (482850) от 30.08.2020
+
+Karloz Manufactura (Broken Fabiola, Industria Secundaria, Stranger Dreams) - 25 Releases (2002-2020) Auricle Media, Crunch Pod [FLAC|Lossless] <Rhythmic Noise, Industrial, Experimental, IDM, Amb ...
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckless Child (03:06)
+ 02. Upon Her Drowning (03:30)
+ 03. Captive (04:07)
+ 04. My Mark On You (03:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Industrial, Experimental, IDM, Dark Ambient •Продолжительность: 28:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353214F1D7DBC30BD726563B394B87C96D1C9F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245406   (471908) от 06.09.2018
 
 Blakk Harbor - Madares (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Experimental, Tribal, Industrial, Ambient, Drone, Techno>
@@ -719,35 +748,6 @@ Aeon Rings - Enemy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Beat, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:335FE81CDE08E432203616CF6C31B3E47A2107DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420970   (322099) от 03.11.2020
-
-SALEM - Fires In Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Witch-House, Trip-hop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capulets [00:01:56]
-02. Fires In Heaven [00:02:08]
-03. Crisis [00:02:10]
-04. Sears Tower [00:03:07](   Читать дальше...   )Жанр: Electronic, Experimental, Witch-House, Trip-hopПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9121CF3D08502FF980319935FCEA9EB4F227AD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

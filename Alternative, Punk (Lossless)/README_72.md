@@ -1,3 +1,90 @@
+###  Публикация: 1760524   (37184) от 15.11.2024
+
+Bunuel - Mansuetude (2024) [FLAC|Lossless|WEB-DL|tracks] <Noise-Rock, Punk-Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Missed Me [00:04:20]
+02. Drug Burn [00:03:34]
+03. Class [00:04:05]
+04. Movement No. 201 [00:05:19](   Читать дальше...   )Жанр: Noise-Rock, Punk-BluesПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED60150365AE1751AE1B6898CD6F15F5371877A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760376   (37166) от 15.11.2024
+
+Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Boggy Depot
+2002 - Degradation Trip Volumes 1 and 2
+2021 - Brighten(   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 5 CD, 05:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8EE82F32872A9D2D406612D664B209EA900FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761564   (36266) от 24.11.2024
+
+Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Zero (Intro) (0:22)
+02. The Emptiness Machine (3:10)
+03. Cut The Bridge (3:49)
+04. Heavy Is The Crown (2:47)(   Читать дальше...   )Тип издания: DigisleeveЖанр: Alternative MetalПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59A27041B9B606B9CFD946A8C65E20906D8576F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761565   (36258) от 24.11.2024
 
 Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, Promo Sampler [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
@@ -657,93 +744,6 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAFFECE9FE22429A07A0E838ABA552D97591515C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801778   (14724) от 13.06.2025
-
-Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer    [0:03:57.36]
-02. Crawl    [0:04:06.31]
-03. Sex on Fire    [0:03:23.26]
-04. Use Somebody    [0:03:50.57](   Читать дальше...   )Жанр: Southern Rock, Indie RockПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244822   (14656) от 14.06.2025
-
-Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulletproof Cupid (2:23)
- 02. English Summer Rain (4:02)
- 03. This Picture (3:35)
- 04. Sleeping With Ghosts (4:39)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300190FD700EDC90008D5E9960553DF3DC562E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802412   (14416) от 16.06.2025
-
-letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alternative-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banshee (Ghost Fame) (Revisited) [00:04:05]
-02. Empty Elvis (Revisited) [00:03:04]
-03. White America's Beautiful Black Market (Revisited) [00:03:42]
-04. Dreamers Disease (Revisited) [00:03:43](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Alternative-MetalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

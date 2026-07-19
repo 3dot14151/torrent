@@ -1,22 +1,22 @@
-###  Публикация: 1802989   (14053) от 20.06.2025
+###  Публикация: 1806587   (11387) от 15.07.2025
 
-Фотография - ArtStation - 550 + Splash Art Weapons And Poses Reference Pictures [JPG]
+Иконки - Gumroad - Email Spam Threats 3D Icon Set [PNG]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Splash Art Weapons And Poses Reference Pack содержит коллекцию динамичных поз для всплеск-арта, демонстрирующих использование холодного оружия. С акцентом на движение и действие, позы созданы, чтобы вдохновлять творчество и помогать художникам оживлять своих персонажей с помощью динамичных и убедительных иллюстраций. Независимо от того, новичок вы или профессионал, (   Читать дальше...   )Формат: JPGРазрешение файлов: Разное
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Email Spam Threats 3D Icon Set, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB752208F963FE7953D843644C8F36BFFB8E27F3
+magnet:?xt=urn:btih:59562D81962C4B878CB7BFF1BE40957D5FB79376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802997   (14045) от 20.06.2025
+###  Публикация: 1807090   (11325) от 16.07.2025
 
-Фотография - ArtStation - Splash Art Gun Pose Reference Pictures [JPG]
+Промты - SevenUnited LLC - 699 Ai Art Prompts for Style References - 9336128 [TXT, JPG]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом пакете представлено более 900 высококачественных изображений с женскими персонажами, вооруженными различными типами оружия. Этот великолепный набор включает в себя различные углы, позволяющие вам выбрать нужную позицию, динамические и статические позы, оружие и многое другое! Это обязательный инструмент для дизайна персонажей, иллюстрации, комиксов и многого (   Читать дальше...   )Формат: JPGРазрешение файлов: Разное
+Это набор из 699 промтов по стилю, созданных с помощью AI. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E517246211F0DD29B4F48D4551525A2FAC508999
+magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803303   (13795) от 22.06.2025
+###  Публикация: 1807217   (11213) от 17.07.2025
 
-Фотография - Cubebrush - Mikaela Green Elf - k7mktq [JPG]
+Иконки - Envato - Food Delivery 3D Icon - AP7HNTR [PNG, BLEND, FBX, OBJ]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы рады представить Микаэлу Кестер в качестве модели. Она потрясающий художник, работает с макияжем и создает реквизит и протезы для фильмов. Она также большая любительница гиковских вещей и была готова к съемке в стиле фэнтези.Формат: JPGРазрешение файлов: 5427x8830 - 6336x9504
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Food Delivery 3D Icon, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, FBX, OBJРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6896727101AEDC13F52F61F43E20D9D17C3D89A
+magnet:?xt=urn:btih:405F458410218B30AFB3C728E5A8984AC6EEC2EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,15 +76,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803708   (13635) от 24.06.2025
+###  Публикация: 1807211   (11209) от 17.07.2025
 
-Обои - Eternal Mix Wallpapers Part 62 [JPG]
+Иконки - Envato - Data Server 3D Icon Pack - D6TJ24N [PNG, BLEND, GLB, OBJ]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Matcha Food and Drink 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, GLB, OBJРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14236EEBCAA1E263CA9333703F22CB6F6DF29DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807154   (11205) от 17.07.2025
+
+Иконки - UI8 - Graphic Design 3D Icon Set [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 59 3D-иконок для графического дизайна.Формат: PNG, BLEND
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD8611714448E1BBB5916389FC5A60DCE06F4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807728   (10904) от 20.07.2025
+
+Обои - Eternal Mix Wallpapers Part 65 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10904.jpg" />
 </div>
 
 
@@ -95,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A606E9E46427EF635DFB364EFADE81164A74B2C
+magnet:?xt=urn:btih:BFE048366761525D2F3F210FD7D8CFA2C5075E41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,77 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803828   (13504) от 25.06.2025
+###  Публикация: 1807776   (10883) от 20.07.2025
 
-Фотография - ArtStation - 1000+ Funny Female Casual Poses [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13504.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: "Представляем набор референсных изображений "1000+ Funny Casual Female Poses" — главный источник вдохновения для создания женских персонажей! Эта коллекция содержит более 1000 высококачественных фотографий "живой" девушки в повседневной одежде, зимней одежде и других изображениях. Она также включает выразительные портреты, передающие (   Читать дальше...   )Формат: JPGРазрешение файлов: 2105x3368 - 4896x7443
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C767B2071F1DBF974A2953F9D0AB9F70292EBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804630   (13027) от 30.06.2025
-
-Фотография - ArtStation - Geek Girl with Gadgets - 680 Female Casual Poses - j8r6D [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш новый пакет содержит 680 выразительных изображений любопытной девушки, исследующей мир технологий. От повседневных поз с телефоном, ноутбуком и камерой до профессиональной работы с техническим оборудованием, эти фотографии запечатлели забавную и экспрессивную сторону технической подкованности. Независимо от того, являетесь ли вы цифровым или традиционным художником, (   Читать дальше...   )Формат: JPGРазрешение файлов: 2056x3131 - 4896x7465
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C491341C7EA653E737F0C0C1AECE4B085A7F4843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804899   (12781) от 02.07.2025
-
-Картинки - LunaGirl - Vintage Advertisements, Posters & Trade Cards [JPG]
+Промты - SevenUnited LLC - 435 Midjourney Prompts for Fantasy Characters - 3863627 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почти 1000 изображений VINTAGE ADVERTISING ART and EPHEMERA: викторианские торговые карточки, старинные рекламные объявления, антикварная печатная реклама, плакаты в стиле модерн, патриотические плакаты времен Первой мировой войны и многое, многое другое — тщательно организовано, многие изображения с датами.Формат: JPGРазрешение файлов: Разное
+Набор из 435 настраиваемых промтов Midjourney для фантастических персонажей.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA4A95D2E013ED06E0165D90420A0BB97AC7E07
+magnet:?xt=urn:btih:580DC89D0C2F26074FD0C09D77C87B25DD456913
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804782   (12768) от 02.07.2025
+###  Публикация: 1807886   (10778) от 21.07.2025
 
-Иконки - CraftPix - Chaos Monster Loot 32x32 Icons [PNG, PSD]
+Иконки - Computer 3D Iconset [PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая коллекция иконок в пиксельном стиле.Формат: PNG, PSDРазрешение файлов: 32x32
+Набор из 20 3D-иконок для графического дизайна.Формат: PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7A9B65C44DBDD25AF548CB6058592B374D503C1
+magnet:?xt=urn:btih:174094118A465D04428C82869F8FFFC57D895E00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,131 +207,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805255   (12454) от 05.07.2025
+###  Публикация: 1808130   (10664) от 22.07.2025
 
-Иконки - UI8 - Video Production 3D Icon Set [PNG, FBX, OBJ, BLEND]
+Иконки - UI8 - Gamify RPG [PNG, BLEND, FIGMA]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Video Production 3D, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, FBX, OBJ, BLENDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6225DE8CEDDB7438EA0677DAB1177AB560656087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805254   (12415) от 05.07.2025
-
-Иконки - UI8 - Money 3D 3D Illustration Pack [BLEND, GLB]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money — это пакет премиум 3D иконок. Подходит для веб-сайта, приложения, презентации и других проектов, которые вы создаете. Адаптируется к вашему фирменному стилю, потому что вы можете легко изменить цвет.Формат: BLEND, GLBРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0E5759FEF663513EFFDDEF2A49360B97A068CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805964   (12069) от 09.07.2025
-
-Промты - SevenUnited LLC - 726 Ai Art Prompts for Style References: Vol 3 - 5318427 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12069.jpg" />
-</div>
-
-
-###  Подробнее
-
-726 промтов по стилю для AI-арта: том 3. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E511B9F7576A80F7218C4B854F2656097CDCB8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805980   (12012) от 09.07.2025
-
-Иконки - UI8 - Hearts 3D Icons [PNG, BLEND]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Hearts 3D Icons, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLENDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68098696BA5824347F3D625ACFB5F1D29049ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806080   (11962) от 10.07.2025
-
-Фотография - TrueRef. - Classic Yukata: Mitsuru [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11962.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrueRef имел удовольствие провести съемку с моделью и певицей Mitsuru Kijo в Токио, Япония!
+Сделайте свои игровые проекты более увлекательными с Gamify RPG, полным набором 3D-иллюстраций, разработанным, чтобы добавить глубины и азарта в ваш проект.
 
-Классическая юката представлена ​​в различных динамичных ракурсах, а также в позах стоя, сидя и лёжа. Этот набор включает в себя три юката, цветочные реквизиты и зонтик.Формат: JPGРазрешение файлов: 3971x5954 - 5464x8192
+Этот набор инструментов содержит значки, ранги и рамки высокого разрешения, предоставляя все необходимое для воплощения ваших игровых концепций в жизнь. Независимо от того, являетесь ли вы разработчиком игр, (   Читать дальше...   )Формат: PNG, BLEND, FIGMAРазрешение файлов: 1920x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52C17C17B8797B3B79BC2EF099FE8291BD374515
+magnet:?xt=urn:btih:9D079EE77A5A6CD7C5B35EAAC8093490E82D06FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,25 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806037   (11958) от 10.07.2025
+###  Публикация: 1808020   (10660) от 22.07.2025
 
-Промты - SevenUnited LLC - 412 Midjourney Prompts for Portrait Photography - 4832212 [TXT, JPG]
+Промты - SevenUnited LLC - 425 Ai Art Prompts for Fashion - 5778045 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет из 412 настраиваемых промтов Midjourney для портретной фотосъемки.Формат: TXT, JPG
+Набор из 425 ИИ-промтов по моде. Каждый промт сопровождается 4 примерами изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BABC5AEFFA011A0F87847E998402C680CB0439A3
+magnet:?xt=urn:btih:1F470C2F212DC94E1A5CD6825AF6923C07D7C061
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,15 +261,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806148   (11946) от 10.07.2025
+###  Публикация: 1808297   (10598) от 23.07.2025
 
-Обои - Eternal Mix Wallpapers Part 63 [JPG]
+Иконки - UI8 - Glow Up | 3D LED Dark Technology Pack [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10598.jpg" />
+</div>
+
+
+###  Подробнее
+
+GlowUp — лучший премиум-пакет 3D-иконок LED-Dark Technology. Он отличается передовым дизайном. Украсьте свой веб-проект или проект приложения этим универсальным набором 3D-иконок и объектов.Формат: PNG, BLENDРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5897025119FE73F513C655A45A554A907CEDB07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808215   (10586) от 23.07.2025
+
+Промты - SevenUnited LLC - 402 Ai Art Prompts Environments - 5776902 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 402 промтов с изображением ИИ для локаций. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C285F8FE95ECC4CC958CAB9DE787C83D54292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808744   (10300) от 26.07.2025
+
+Обои - Eternal Mix Wallpapers Part 66 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10300.jpg" />
 </div>
 
 
@@ -384,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BC381D06D7063DDEDEDD9AD9FDBB06760BEDAC6
+magnet:?xt=urn:btih:99C7E49BA3942218EB05B10BFDF25BAFF1A46E54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806095   (11941) от 10.07.2025
+###  Публикация: 1808733   (10248) от 26.07.2025
 
-Иконки - UI8 - Houseplant 3D Icon [PNG, FBX, OBJ, BLEND]
+Промты - SevenUnited LLC - 616 MJ Prompts For Scrapbook Cutouts: Vol 3 - 3361092 [TXT, JPG]
 
 >>Графика, Арт, Разное
->>Иконки и аватарки
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 готовых файлов 3D-иконок «Комнатные растения» для веб-сайтов, мобильных приложений и других приложений.Формат: PNG, FBX, OBJ, BLENDРазрешение файлов: 3000x3000
+Набор из 616 настраиваемых ИИ-промтов c фигурками для скрапбукинга: том 3. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D53C47C9EED52ECD7FE480603751A28DED5095E
+magnet:?xt=urn:btih:A7092162B6B50043023B6DAF6A348204B0354DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806256   (11877) от 11.07.2025
+###  Публикация: 1808912   (10150) от 27.07.2025
 
-Фотография - Cubebrush - 500+ Casual Poses (Plus-Size model) [JPG]
+ИИ Арты - Fruit & Femme [JPG]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот набор включает в себя более 500 референсных изображений женского тела (plus size) — множество различных повседневных поз с разных ракурсов, включая переодевание, разговор по телефону, чтение книги, работу за ноутбуком и многое другое. Он идеально подходит для понимания перспективы, анатомии и форм тела, а также станет отличным инструментом для создания персонажей, (   Читать дальше...   )Формат: JPGРазрешение файлов: 4024x6048
+Небольшой набор ИИ искусства.Формат: JPGРазрешение файлов: 2536x2536 - 4000x2667
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABF4A901B737F57993FE2BFC0E0618B8779D622C
+magnet:?xt=urn:btih:705C8FCB5A59627205211DA8300027C9300B6DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,27 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806215   (11844) от 11.07.2025
+###  Публикация: 1809098   (10062) от 28.07.2025
 
-Фотография - Cubebrush - Ultimate Female Sports Poses: Rugby & Baseball | 1230+ Artist Reference Photo Pack [JPG]
+Промты - SevenUnited LLC - 645 Midjourney Prompts for T-Shirt Designs: Vol 3 - 5510589 [TXT, JPG]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем коллекцию «Лучшие женские спортивные позы: регби и бейсбол» — референсный фотопакет, созданный специально для художников! Более 1230 высококачественных изображений передают энергию и точность движений спортсменок в регби и бейсболе.
-
-Этот набор референсов поможет вам нарисовать динамичные замахи, мощные броски или мгновенные приёмы, чтобы воссоздать (   Читать дальше...   )Формат: JPGРазрешение файлов: 550x1027 - 1020x1814
+Набор из 645 настраиваемых промтов Midjourney для дизайна футболок. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1943C4BD7745C895A817E05F8EB46F3EB16D3E1D
+magnet:?xt=urn:btih:2332C0A377799BBE99EC0F542979FF6E0669C4D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,15 +418,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806322   (11769) от 12.07.2025
+###  Публикация: 1809203   (10006) от 29.07.2025
 
-Обои - Eternal Mix Wallpapers Part 64 [JPG]
+Обои - Eternal Mix Wallpapers Part 67 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10006.jpg" />
 </div>
 
 
@@ -491,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9E7FD4E440B0B8736D9331B2C603B66CCEDB89D
+magnet:?xt=urn:btih:DE6C9BF9A6EB1D673ACB7B7ADC0E90881B29EF21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,77 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806316   (11742) от 12.07.2025
+###  Публикация: 1809465   (9866) от 30.07.2025
 
-Фотография - Cubebrush - 500+ Academic Male Poses [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет включает более 500 высококачественных фотографий, демонстрирующих различные позы и ракурсы. Модель с хорошо выраженной мускулатурой и в отличной физической форме позволяет детально изучить анатомические особенности и работу мышц. Освещение подчеркивает все детали и объемы, делая каждый кадр ценным подспорьем для отработки навыков изображения человека. (   Читать дальше...   )Формат: JPGРазрешение файлов: 4024x6048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6668DAF1277DE9BDEC8D3431831E532774CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806407   (11740) от 12.07.2025
-
-Промты - SevenUnited LLC - 392 Midjourney Prompts for Invitations - 3763201 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 392 настраиваемых промтов Midjourney для приглашений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80684DF15628FFF95EF6B3EFDD5AEE74A53A6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806404   (11733) от 12.07.2025
-
-Иконки - Gumroad - Web Spam & Fake Content 3D Icon Set [PNG]
+Иконки - UI8 - School Education & Learning 3D Icon Pack [PNG, BLEND]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Web Spam & Fake Content 3D Icon Set, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
+3D-иконки для школьного образования и обучения, которые можно использовать в дизайне, анимации, играх, приложениях, дизайне пользовательского интерфейса, веб-дизайне, презентациях, флаерах и плакатах, рекламе в социальных сетях, создании контента и т.д.Формат: PNG, BLENDРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A09B5D0D3A93D41C67A3A8025050E28F1044420C
+magnet:?xt=urn:btih:64983A77DAB5A6B25A4F7D8DD888416F0D9AA1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,25 +471,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806328   (11699) от 12.07.2025
+###  Публикация: 1809431   (9864) от 30.07.2025
 
-Иконки - TemplateMonster - Cyber Security Icon Pack [PNG]
+Промты - SevenUnited LLC - 403 Ai Art Prompts For Gothic Tattoos - 5510589 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 403 промтов для готических татуировок от ИИ. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EBBF15B536524B8D8C8080A7087EC394C30675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809365   (9828) от 30.07.2025
+
+Иконки - Gumroad - Abstract Shape Pack | 150+ Icons [PNG, AI, SVJ, PDF, JPG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Cyber Security Icon Pack, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 2500x2500
+В этом наборе 165 иконок для ваших творческих задач.Формат: PNG, AI, SVJ, PDF, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:084CDF67322A731B48B6D50D74FCB14C403FC98B
+magnet:?xt=urn:btih:00FF0E87D84739AC06516B5A391DF558A4442627
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,26 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806786   (11529) от 14.07.2025
+###  Публикация: 1809828   (9649) от 01.08.2025
 
-Картинки - Tattoo Flash [JPG, GIF, BMP, PSD]
+Промты - SevenUnited LLC - 401 Midjourney Prompts for Mood Portraits - 3312009 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Огромный пакет изображений с татуировками отсортированные по папкам по алфавиту.
-Количество 12000+Формат: JPG, GIF, BMP, PSDРазрешение файлов: Разное
+Это набор из 401 промтов Midjourney с примерами изображений для mood портретов.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AF7F8643852E6753DA34B3A36F7369E7097401C
+magnet:?xt=urn:btih:D92D2D56E62703D08DADC99BCD20CAAC3090BD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806792   (11526) от 14.07.2025
+###  Публикация: 1810252   (9451) от 03.08.2025
 
-Промты - SevenUnited LLC - 416 Midjourney Prompts for Creative Portraits - 9576470 [TXT, JPG]
+Промты - SevenUnited LLC - 598 Midjourney Prompts for Tattoo’s - 8168812 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет из 416 настраиваемых промтов для создания креативных портретов.Формат: TXT, JPG
+Пакет из 598 настраиваемых промтов Midjourney для татуировок.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC5E7871D3EB463C2BF2F50E476D5DF5F86EC70
+magnet:?xt=urn:btih:701BFDF21E842C99FCEBC7ACD5FD981C04025145
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +575,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806826   (11429) от 15.07.2025
+###  Публикация: 1810402   (9382) от 04.08.2025
 
-Фотография - Cubebrush - 1190 Athletic Female and Male Poses [JPG]
+Обои - Eternal Mix Wallpapers Part 69 [JPG]
 
 >>Графика, Арт, Разное
->>Современная фотография
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Откройте для себя множество динамичных и сложных женских и мужских поз с нашим новым пакетом! Эти референсные изображения передают человеческую силу и чистую энергию. Наша великолепная коллекция включает в себя разнообразные упражнения, подтягивания, прыжки, воздушные позы и многое другое. Этот пакет идеально подходит для художников любого уровня подготовки и просто (   Читать дальше...   )Формат: JPGРазрешение файлов: 1743x3100 - 6662x4197
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86827CF83807F3D52505D68670D47A340DB4F02B
+magnet:?xt=urn:btih:E62DEF2B5310C4367C0F2719AC7159BEF56BA37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810394   (9341) от 04.08.2025
+
+Промты - SevenUnited LLC - 644 Midjourney Prompts for Invitations: Vol 2 - 3976880 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 644 настраиваемых промтов Midjourney для приглашений: часть 2.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4B3F6113C970720D73630F1F2E8AD1FA2B3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810595   (9259) от 05.08.2025
+
+Промты - SevenUnited LLC - 432 Midjourney Prompts for Aliens - 8015415 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 432 настраиваемых промтов Midjourney для инопланетян.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A3E339C4EFCBB6EC23F13AF57BBFA414279DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810762   (9130) от 06.08.2025
+
+Промты - SevenUnited LLC - 377 Midjourney Prompts for the 90’s - 6490687 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 377 настраиваемых промтов Midjourney для 90-х.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC823C5943B9DDC8B4CEA0628B9CEE7FEA7954F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

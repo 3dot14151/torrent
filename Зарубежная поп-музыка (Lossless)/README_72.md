@@ -1,3 +1,148 @@
+###  Публикация: 1267048   (268373) от 04.12.2018
+
+VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo & Imagine Dragons - Born to Be Yours
+02. Shawn Mendes - In My Blood
+03. Tiesto, Dzeko, Preme & Post Malone - Jackie Chan
+04. Cecilia Krull & Gavin Moss - My Life Is Going on(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339018   (268216) от 17.11.2019
+
+The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Don't Cry
+02. I Found Out
+03. Greenbank Drive
+04. All Talk(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339057   (268066) от 17.11.2019
+
+VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268066.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, 8 ноября 2019 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )01. Tones and I - Dance Monkey  (3:29)
+02. Kygo, Whitney Houston - Higher Love  (3:48)
+03. Regard - Ride It  (2:38)
+04. Ed Sheeran - Take Me Back to London (feat. Stormzy)  (3:10)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338676   (268052) от 17.11.2019
+
+Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vision Of Love [3:31]
+ 02 - Love Takes Time [3:51]
+ 03 - Someday [4:08]
+ 04 - I Don't Wanna Cry [4:51](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339269   (267055) от 18.11.2019
+
+VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossless|tracks + .cue] <Latin Pop, Electro, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267055.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi - Despacito
+02. Shakira feat. El Cata - Rabiosa
+03. Alvaro Soler - La Cintura(   Читать дальше...   )Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339465   (265335) от 20.11.2019
 
 Dido - Still On My Mind (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Folk, Downtempo>
@@ -600,151 +745,6 @@ Bananarama - True Confessions (1986) Reissue, 1988, London Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10EBAFF9DC894844221B3A715B62F648249EF9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341155   (262582) от 27.11.2019
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
-02. Darkseid (ft. 潘PAN) (3:44)
-03. Delete Forever (03:57)
-04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341526   (262344) от 28.11.2019
-
-Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for love (4:44)
-02. Back for good (4:00)
-03. You've got a friend (4:29)
-04. '74-75 (3:48)(   Читать дальше...   )Жанр: Funk/Soul, Gospel, CoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193455   (262134) от 21.12.2017
-
-Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Verità (05:02)
-02. Luomo Nero (04:28)
-03. Canzone Contro La Paura (03:44)
-04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193894   (261797) от 23.12.2017
-
-Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More (3:16)
- 02. Friendzone (feat. Demarco) (3:15)
- 03. Patterns (3:29)
- 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194044   (261758) от 23.12.2017
-
-Kelly Clarkson - Meaning Of Life (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minute (Intro)
-02. Love So Soft
-03. Heat
-04. Meaning Of Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAF92C9E28605F2DE6F8A1857EB94B36E2FB7C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

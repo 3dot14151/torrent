@@ -1,29 +1,3 @@
-###  Публикация: 309313   (842303) от 15.03.2011
-
-Manfred Mann's Earth Band - Star Collection (4CD BOX) (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Art Rock, Symphonic Rock, Progressive RockПродолжительность: 05:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500278   (841199) от 06.10.2021
 
 David Gilmour - Live In Gdansk (2008) 3CD [MP3|320 Kbps] <Progressive Rock>
@@ -740,6 +714,35 @@ Brian May + Friends - Star Fleet Project (2011) [MP3|320 Kbps] <Rock, Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D046021FF2BAE7FBAD9620C68825782CBFCFA6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381206   (827739) от 06.05.2020
+
+Redlight King - Moonshine (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift The Curse
+02. Champion
+03. Long Way To Heaven
+04. Not Dead Yet(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFE954C79EF6C59DC48553D8621AC46E31D143D
 ```
 
 https://mybot314.ru/tekegram_catalog/

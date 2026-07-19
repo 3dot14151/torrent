@@ -1,119 +1,3 @@
-###  Публикация: 1776703   (735483) от 02.02.2025
-
-The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moose the Mooche [4:37]
-02. And Now There's You [5:14]
-03. Three Little Words [4:55]
-04. Eclypso [5:32](   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31197970887DD9F6F9EB0E7D9B69914267BF8239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776701   (735459) от 02.02.2025
-
-Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesse Jackson [7:23]
-02. Theme from the Odd Couple [8:37]
-03. Lori [7:14]
-04. Theme from Love Story [9:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAFE5FECABD6F93D1FDDCCD6B76E32EBFD15ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528050   (735404) от 31.01.2022
-
-Trummy Young - 1944 - 1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Trombone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood [3:35]
-02. Talk Of The Town [4:32]
-03. Good'n Groovy [3:04]
-04. Rattle And Roll [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Trombone JazzПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C8B3017A7465EAD4E9B55C911C55C34E71AE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528309   (734983) от 01.02.2022
-
-Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time The Dream's On Me [3:34]
-02. Blues In The Night [3:15]
-03. Nocturne [3:36]
-04. Rockin' Chair [3:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2C10B314A2AF4B3A7A3D1ED7F7706000792D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398837   (734806) от 28.07.2020
 
 Dave Brubeck - The Definitive Dave Brubeck on Fantasy, Concord Jazz, and Telarc (1942 - 2004) 2010, 2CD, Concord [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
@@ -745,6 +629,122 @@ Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38530F949E4806D092C1C6258DEFBD8847D058C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127772   (731157) от 22.04.2017
+
+Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modus Operandi [09:38]
+02. Come Sunday [05:28]
+03. Gap Sealer [05:48]
+04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127655   (731155) от 22.04.2017
+
+Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valery Ponomarev [01:14]
+02. Feelin's (I) [04:35]
+03. Cat Dancing on the Piano [04:53]
+04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127600   (731154) от 22.04.2017
+
+Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731154.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sambao (6:21)
+2. Yalelel (5:51)
+3. Bacchanal (6:38)
+4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127673   (731153) от 22.04.2017
+
+Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ka-Real (Take 2) [12:39]
+02. Africanos / Latinos [09:53]
+03. Miles' Mode [07:22]
+04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
 ```
 
 https://mybot314.ru/tekegram_catalog/

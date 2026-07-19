@@ -1,119 +1,3 @@
-###  Публикация: 1019772   (748651) от 24.05.2016
-
-Ameen Saleem - The Groove Lab (2015) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Korinthis (Saleem) - 06:47
-02. Epiphany (Saleem) - 04:48
-03. Don't Walk Away (Saleem-Dunlap) - 05:01
-04. I.L.Y.T. (Saleem) - 07:16(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B118704F9BB1DABCDC4D977890A57782DE9A45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019701   (748637) от 24.05.2016
-
-The Billy Cobham & George Duke Band - "Live" - On Tour In Europe (1976) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hip Pockets
-02. Ivory Tattoo
-03. Space Lady
-04. Almustafa The Beloved(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE8B77B3966700DD597630F77672A0A7261202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281985   (748516) от 10.02.2019
-
-Brad Wheeler - The Future Was Yesterday (2005) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Vision [5:20]
-02. When One Has Peace [8:44]
-03. Journey After Hours [8:32]
-04. Foreign Affair [7:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182505D398B1AEE8CF286B0DF02BE52CFF700C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523760   (748219) от 13.01.2022
-
-VA - Jazz At The Philharmonic (1944 - 1953) 2009, 10CD, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748219.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - JATP All Stars Feat. J.J.Johnson:
-01. Lester Leaps In [9:11]
-02. Tea For Two [12:39]
-03. The Blues [10:36](   Читать дальше...   )Жанр: Swing, Bop, Vocal JazzПродолжительность: 09:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315DDA33795E8C0BB5B14F45D3D7AFFD39D8484E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216710   (747923) от 01.04.2018
 
 Stan Getz presents Jimmy Rowles - The Peacocks (1975) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
@@ -743,6 +627,122 @@ Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLA
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396858   (744200) от 17.07.2020
+
+Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azan [3:38]
+02. All Deliberate Speed [7:36]
+03. Elvin Elpus [5:53]
+04. Soon After [3:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756F5350BB7779CBE5176C0C3BEF570C4A4DCDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396861   (744199) от 17.07.2020
+
+Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744199.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dog Bottom [2:41]
+02. Heebie Jeebies [3:04]
+03. On the Sunny Side of the Street [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C104B1619E6286AA85BEBE75562AE3B62865C1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396883   (744130) от 17.07.2020
+
+VA - Sunday Morning Snooze: Relaxing Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Giuffre - Ictus (2:47)
+02. All Star Sextet - I Can't Get Started (3:37)
+03. Clifford Brown - Sweet Clifford (1:48)
+04. George Russell - Lydiot (8:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF317E55FEBEDE8142AADC53C3261FF7EE418835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282662   (743844) от 13.02.2019
+
+Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak [5:19]
+02. Baroque Steps [6:40]
+03. Nighttime [11:02]
+04. Wind Chant [10:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BF84C9DEDD11F2BA2E1666F98FEE5CA88FA6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

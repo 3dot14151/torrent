@@ -1,3 +1,87 @@
+###  Публикация: 917602   (588648) от 13.07.2015
+
+Aeverium - Break Out (2015) Deluxe Edition 2CD [MP3|320 кб/с]<Nu Melodic Metal, Gothic, Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588648.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Break Out
+02. Distrust
+03. Departed(   Читать дальше...   )Жанр: Nu Melodic Metal, Gothic, Symphonic Metal, Female VocalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3D255FB01ED2180408540E59663FCE35835512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918119   (588070) от 14.07.2015
+
+Dystopia Na! - Dweller On The Threshold (2015) [MP3|320 кб/с]<Experimental Post-Black Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Doppelgänger
+2. Intruder / Ephialtes
+3. Shadowcasting Horologe
+4. Through Mirrors, Darkly(   Читать дальше...   )Жанр: Experimental Post-Black Metal, ShoegazeПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1D239340DB4F4618BCB712A3A5751BF2E0282B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185514   (587795) от 14.07.2015
+
+Троя - Мир в Огне (2008) [MP3|320 kbps]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Power MetalПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916843   (586921) от 15.07.2015
 
 DragonForce - In The Line Of Fire (2015) Live [MP3|320 кб/с]<Power Metal>
@@ -680,90 +764,6 @@ Equilibrium - Armageddon (2016) [MP3|320 Kbps] <Viking Metal, Epic Metal, Folk M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3398F78DA18FA7473A633458154CA77856B76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042394   (579413) от 12.08.2016
-
-Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer to an AnimalЖанр: Power MetalПродолжительность: 00:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CAC12AF70464A0B9F63A272E099A910EC4224B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920502   (579094) от 23.07.2015
-
-Licrest - Nothing (2015) [MP3|320 кб/с]<Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579094.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Broken Inside
-2. Nothing
-3. Decay
-4. What Ends In Pain(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CD853800792BF8635ED9257AEEF65ED284D6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920740   (578837) от 23.07.2015
-
-Lamb of God - VII: Sturm und Drang (2015) Deluxe Edition [MP3|320 кб/с]<Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Echoes
-02. Erase This
-03. 512
-04. Embers (feat. Chino Moreno of Deftones)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D056FD743BD55C9F0213DA9511A4505AF358F01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

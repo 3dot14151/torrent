@@ -1,96 +1,3 @@
-###  Публикация: 1273044   (138751) от 30.12.2018
-
-VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KAZKA - Плакала 3:45
-002. Rauf & Faik - Детство 3:08
-003. Big Baby Tape - Gimme The Loot 2:20
-004. Нурминский - Ауфф 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F826C1D036793A98C335CDFD5A7FA69EA11C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195634   (138724) от 31.12.2017
-
-Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малоизвестные синглы от известной исполнительницы.01. Fire Ball (Long Version) (5:57)
-02. Moonlight Starlight (5:32)
-03. Man Of A Man (4:07)
-04. Talk Me Down (3:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590990   (138691) от 18.12.2012
-
-VA - Новогодняя Дискотека В Стиле Modern Talking (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Modern Talking - It's Christmas
-002 Sandra - Infinite Kiss
-003 Pet Shop Boys - A Certain Je Ne Sais Quoi
-004 Secret Service - The Go-Between
-005 Alex Grand feat. Vitaliy Salpagarov - I Love To Hate You (Cover Erasure Radio Mix)
-006 Patty Ryan feat. Systems In Blue - Should I Stay, Should I Go
-007 Bananarama - Moves Like Jagger
-008 Rolf Kohler - Gimme Gimme Money
-009 Daze - Fool Me! (Radio Edit)
-010 Pasha Leonidov - With A Little Love (Cover Modern Talking)(   Читать дальше...   )Жанр: PopПродолжительность: 12:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6774F144B818997CE6358E742D833056DF17E65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195726   (138416) от 31.12.2017
 
 VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electronic, Rock, Pop>
@@ -850,6 +757,97 @@ VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681577   (132627) от 03.12.2023
+
+Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garmoshka Girl (feat Shatana) (2:27)
+02. Ай я е (2:47)
+03. Бездомный снаряд (2:24)
+04. БОМ БОМ БОМ (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596045   (131651) от 30.12.2012
+
+VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Claudiu Sina - Painted Love
+02. Adrian Sina, Sandra N. - Angel feat. Sandra N. (South Blast! Nympho Angel Remix)Жанр: Pop, DanceПродолжительность: 02:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595957   (131645) от 30.12.2012
+
+VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrodita (Original Mix) - Cosme Martin 05:16
+02. Afrojack & Shermanology - Can't Stop Me (Madein82 Remix) 06:33
+03. Airon Diaz & Raul Ortega - Ya No Puedo Sufrã­r Mã¡s (Pablonez Private Remix) 04:20
+04. Akcent - I'm Sorry (Reworked Radio Edit 2012) 03:35
+05. Akcent - On And On (When The Lights Go Down) 04:22
+06. Aldo Ranks - Parrandero 04:20
+07. Alejandro Sanz - Se Vende 04:00
+08. Alex Mica - Heya 2K12(Radio Edit) 03:35
+09. Alexis & Fido - Donde Estes Llegare 03:14
+10. Alexis & Fido - Hp 04:03Жанр: Pop, Vocal, DanceПродолжительность: 03:03:49
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

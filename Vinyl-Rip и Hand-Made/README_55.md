@@ -1,25 +1,25 @@
-###  Публикация: 1663183   (187201) от 20.09.2023
+###  Публикация: 1668137   (173817) от 12.10.2023
 
-Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
+Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Inspection
-A1 Blaydon Races
-A2 Shirley Bassey Showcase
-A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+Сторона А:
+A1 Где-то В Слезах
+A2 Ветер
+A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662977   (187193) от 20.09.2023
+###  Публикация: 1194072   (173783) от 23.12.2017
 
-Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
-2001 - Sign Of The Winner
-2004 - Dust To Dust
-2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+Creedence Clearwater Revival
+A1. I Put A Spell On You (4:35)
+A2. The Working Man (3:05)
+A3. Suzie Q (8:39)(   Читать дальше...   )Производство: Fantasy Records - BLS 5570Жанр: RockПродолжительность: 01:08:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591175   (187128) от 18.11.2022
+###  Публикация: 1827122   (173410) от 20.10.2025
 
-Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
+Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop, Soul, R&B>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
-1996 - Evil Empire
-1999 - The Battle Of Los Angeles
-2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+Seal - (Henry Olusegun Adeola Samuel) - британский певец и автор песен, обладатель трёх музыкальных премий «Грэмми» и трёх наград Brit Awards.1991 - Seal
+1994 - Seal II
+1998 - Human Being
+2003 - IVЖанр: Pop, Soul, R&BПродолжительность: 10:28:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
+magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546406   (187108) от 20.09.2023
+###  Публикация: 1668817   (173246) от 14.10.2023
 
-Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash Metal>
+Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Heathen — группа из США, играющая в стиле спид/трэш-метал. Группа была основана в 1984 году гитаристом Ли Элтусом и ударником Карлом Сэкко.1987 - Breaking the Silence
-1991 - Victims of Deception
-2010 - The Evolution Of Chaos
-2020 - Empire Of The BlindЖанр: Technical Speed/Thrash MetalПродолжительность: 04:37:44
+Eucharist — шведская метал-группа, основанная в 1989 году. Коллектив значительно повлиял на формирование мелодичного дэт-метала.
+В 1998 году Eucharist распались, но в 2016 году воссоединились и вернулись к концертной деятельности.1993 - A Velvet Creation
+1997 - Mirrorworlds
+2022 - I Am the VoidЖанр: Melodic Death/Black MetalПродолжительность: 02:42:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
+magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572601   (187065) от 20.09.2023
+###  Публикация: 1669001   (173223) от 14.10.2023
 
-Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
+Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
-2007 - Hope
-2010 - Desert Call
-2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+Noumena — мелодик-дэт-метал группа из Эхтяри, Финляндия. Образована в 1998 году.2002 - Pride_Fall
+2005 - Absence
+2006 - Anatomy of Life
+2013 - Death Walks with MeЖанр: Melodic Death MetalПродолжительность: 05:06:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
+magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663324   (186830) от 21.09.2023
+###  Публикация: 1668702   (173165) от 14.10.2023
 
-The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
+Александр Барыкин - Больше Не Встречу (1986) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, New Wave>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Trumpet Overture From «The Indian Queen»
-Suite From Abdelazer
-A2 (a) Overture - Allegro
-A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
+01.Потерянный Рай
+Д. Тухманов – М. ТаничЖанр: Rock, New WaveФормат: FLAC, TracksПродолжительность: 00:09:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
+magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663746   (186451) от 23.09.2023
+###  Публикация: 1669216   (173020) от 15.10.2023
 
-The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
+Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Symphonic Poem ''Finlandia'', Op. 26
-''Karelia'' Suite, Op. 11
-A2 Intermezzo
-A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
+Bullet - шведская хэви-метал группа, основанная в Векшё в 2001 году2006 - Heading for the Top
+2008 - Bite The Bullet
+2011 - Highway Pirates
+2012 - Full PullЖанр: Heavy Metal/Hard RockПродолжительность: 04:08:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
+magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,26 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663882   (186440) от 23.09.2023
+###  Публикация: 1669173   (172981) от 15.10.2023
 
-Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+VA - Машина Времени / Самоцветы - Песни Из Кинофильма «Душа» / Зеркало И Шут (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mortemia — готик-метал сайд-проект Мортена Веланда, норвежского музыканта, который является одним из основателей Tristania и основателем Sirenia.2010 - Misere Mortem
-2022 - The Pandemic Pandemonium SessionsЖанр: Symphonic Gothic MetalПродолжительность: 01:35:47
+A1 Машина Времени - За Тех, Кто В Море
+(А. Кутиков, А. Макаревич)
+A2 Машина Времени - Путь
+(А. Макаревич)(   Читать дальше...   )Жанр: Rock, PopФормат: FLAC, TracksПродолжительность: 00:12:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
+magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663727   (186428) от 23.09.2023
+###  Публикация: 1669484   (172878) от 16.10.2023
 
-A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer (1974) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Choral, Organ>
+Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Hear My Prayer/O For The Wings Of A Dove
-A2 O Sacred Head Surrounded (St Matthew Passion)
-A3 Toccata In F
-A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать дальше...   )Жанр: Classical, Choral, OrganПродолжительность: 01:00:58
+A1 Neslepaks
+A2 Landet Og Havet
+A3 I Kamp Med Kvitekrist
+A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 00:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
+magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663667   (186425) от 23.09.2023
+###  Публикация: 1669651   (172684) от 17.10.2023
 
-Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sirenia — норвежский готик-метал-проект, основанный Мортеном Веландом в 2001 году2002 - At Sixes And Sevens
-2004 - An Elixir For Existence
-2007 - Nine Destinies And A Downfall
-2009 - The 13th FloorЖанр: Symphonic/Gothic MetalПродолжительность: 11:22:47
+A1a Alba (Instrumental)
+A1b Epitome
+A1c Apotheosis
+A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жанр: Progressive Thrash Metal, Progressive MetalПродолжительность: 00:55:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
+magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +286,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664049   (186223) от 24.09.2023
+###  Публикация: 1669512   (172683) от 17.10.2023
 
-Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster Edition, A Steven Wilson stereo remix, 2023, Chrysalis [FLAC 24/96|Lossless|tracks] <hard rock, art rock, folk ro ...
+Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. End Game (demo, instrumental)Жанр: Progressive rock, hard rock, art rock, folk rock, electronic rockПродолжительность: 00:02:46
+A1 The Light
+B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
+magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,28 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827377   (186102) от 21.10.2025
+###  Публикация: 1669523   (172682) от 17.10.2023
 
-Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
-2015 - Shadow World
-2017 - Tyhjyys
-2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
+Chapter One - Vandreren (1993)
+A1 Vinterskugge
+A2 Gjennom Skogen Til Blaafiellene
+A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 001:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
+magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +342,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664424   (185442) от 26.09.2023
+###  Публикация: 1669644   (172673) от 17.10.2023
 
-Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Wired For Sound
-A2 Once In A While
-A3 Better Than I Know Myself
-A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:02
+A1 Repression And Resistance
+A2 Life Cycle
+A3 Apocalyptic Disposition
+A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
+magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,28 +371,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664746   (184834) от 27.09.2023
+###  Публикация: 1669476   (172644) от 17.10.2023
 
-Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
+Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipped] <Indie Rock, Dream Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adrenaline Mob — американская грув-метал супергруппа из Centereach, Long Island, New York, основанная Майком Портным (экс-Dream Theater), Расселом Алленом (Symphony X), Ричи Уордом (Stuck Mojo), Майком Орландо и Полом Ди Лео в начале 2011 года.2012 - Omerta
-2013 - Coverta (EP)
-2014 - Men Of Honor
-2017 - We The PeopleЖанр: Hard Rock, Groove MetalПродолжительность: 03:51:22
+✧ 01 - Takedown (00:03:33)
+✧ 02 - Summer Slaughter (00:04:04)
+✧ 03 - Bianca (00:04:12)
+✧ 04 - Bone Dry Dunes (00:03:23)(   Читать дальше...   )Жанр: Indie Rock, Dream PopФормат: PCM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
+magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664670   (184797) от 27.09.2023
+###  Публикация: 1669555   (172592) от 17.10.2023
 
-Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] Heavy/Power/Symphonic Metal
+Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассел Аллен (англ. Russell Allen; родился 19 июля 1971 года в Лонг Бич) — американский певец, вокалист прогрессив-метал группы Symphony X, а также грув-метал супер-группы Adrenaline Mob.2005 - The Battle
-2007 - The Revenge
-2010 - The Showdown
-2014 - The Great DivideЖанр: Melodic Heavy Metal, Symphonic/Power MetalПродолжительность: 06:14:51
+Guns N’ Roses — американская хард-рок-группа, сформировавшаяся в 1985 году в Лос-Анджелесе, штат Калифорния.1991 - Use Your Illusion I
+1991 - Use Your Illusion II
+1993 - The Spaghetti Incident
+2008 - Chinese DemocracyЖанр: Hard Rock, Heavy MetalПродолжительность: 00:21:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
+magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,26 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665006   (183997) от 28.09.2023
+###  Публикация: 1669873   (172323) от 19.10.2023
 
-Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <House, Dance-Pop, Indie-Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lost Horizon - пауэр-метал группа из Гетеборга, Швеция.2001 - Awakening The World
-2003 - A Flame To The Ground BeneathЖанр: Power MetalПродолжительность: 01:36:06
+01. Romy - Loveher (03:49)
+02. Romy - Weightless (04:29)
+03. Romy - The Sea (03:11)
+04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: House, Dance-Pop, Indie-PopПродолжительность: 00:34:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
+magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,27 +458,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664893   (183669) от 28.09.2023
+###  Публикация: 1326146   (172211) от 19.10.2023
 
-Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/Greatest Hits (1986, 1987) (Melodia, USSR/Wifon, Poland) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Synth-pop>
+Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Secret Service» (с англ. — «Тайная служба») — шведская музыкальная группа, исполнявших свои произведения в жанре популярной музыки в 1980-х годах. Состав группы в разное время менялся, неизменными её участниками являются клавишник и Тим Норелл, последний является автором подавляющего большинства песен группы Secret Service.
+A1 Toki Ni Wa Haha No Nai Ko No Yoni
+ A2 Yoake No Scat
+ A3 Nanairo No Shiawase
+ A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670413   (172141) от 20.10.2023
+
+Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Castaway (02:31)
+A2. Genesis (06:04)
+A3. Spirits Will Collide (04:39)
+A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670294   (172120) от 20.10.2023
+
+Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Morning Has Broken
+A2 I Believe
+A3 Kumbayah
+A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670597   (171948) от 21.10.2023
+
+Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171948.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Beyond Measure (01:31)
+A2. Blue Dot (03:08)
+A3. Drifting and Dreaming (04:26)
+A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670637   (171940) от 21.10.2023
+
+Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171940.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Chromatic Ridge (03:44)
+A2. Life Is but a Dream (03:30)
+A3. Yucky Lung (01:22)
+A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670505   (171830) от 21.10.2023
+
+Мираж - Звёзды нас ждут (1987-1988) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171830.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 (42:50)
 
-Secret Service — легендарная (   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:22:13
+[6:03] 1. Звезды Нас Ждут
+[4:19] 2. Видео(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:20:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B94AAAF91AE0B9CD6A49947356A02621D92AA1F7
+magnet:?xt=urn:btih:261C68AEFD6A04F25E52A6290E8508899A3C06D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,28 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665143   (183346) от 29.09.2023
+###  Публикация: 1670917   (171743) от 22.10.2023
 
-Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Blues Rock, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No More Room In Hell (04:50)
-02. Shadowcult (04:44)
-03. Seven Churches (Live) (03:27)
-04. Swing Of The Axe (Live) (03:54)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:22:21
+Rival Sons — американская блюз-рок-группа из Лонг-Бич, Южная Калифорния.2009 - Before The Fire
+2010 - Prime Cuts (EP)
+2011 - Pressue and Time
+2012 - Head DownЖанр: Blues Rock, Hard RockПродолжительность: 06:36:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B931EDF1117518584E5DE032C35BBEDB4EB4349
+magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,28 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665206   (183203) от 29.09.2023
+###  Публикация: 1670844   (171738) от 22.10.2023
 
-Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vader — польская дэт/трэш-метал группа, основанная в 1983 году в Ольштыне.1992 - The Ultimate Incantation
-1995 - De Profundis
-1996 - Future of The Past
-1997 - Black To The BlindЖанр: Death/Thrash MetalПродолжительность: 13:28:03
+A1 Tony Allen - Love Letters In The Sand
+A2 Tony Allen - He'll Have To Go
+A3 Tony Allen - Forgiving You Was Easy
+A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:32:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
+magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,28 +690,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592781   (182296) от 24.11.2022
+###  Публикация: 1671189   (171583) от 23.10.2023
 
-Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Post-Grunge, Heavy/Progressive Metal>
+Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk, Post-Hardcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alter Bridge — американская рок-группа из Орландо, штат Флорида. Группа была создана в 2004 году бывшими участниками группы Creed (которая распалась за год до того из-за внутренних творческих разногласий) вокалистом и гитаристом Майлзом Кеннеди, ведущим гитаристом Марком Тремонти, басистом Брайаном Маршаллом и барабанщиком Скоттом Филлипсом.2004 - One Day Remains
-2007 - Blackbird
-2010 - AB III.5
-2013 - Fortress(   Читать дальше...   )Жанр: Post-Grunge, Heavy/Progressive MetalПродолжительность: 07:51:12
+Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
+2003 - Deja Entendu
+2006 - The Devil And God Are Raging Inside Me
+2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
+magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,173 +719,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665572   (181613) от 01.10.2023
+###  Публикация: 1671068   (171506) от 23.10.2023
 
-October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Quiet Shores
-A2 Usher
-A3 Tuoni
-A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665649   (181262) от 01.10.2023
-
-Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+Черный Кофе - Два альбома: Переступи Порог и Вольному — Воля (1987, 1990) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
-A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
-A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
-A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
+A1 Брожу По Городу Один • Roaming The City Alone
+(Д. Варшавский – А. Шаганов)
+A2 Вольному — Воля... • Life Never Waits
+(Д. Варшавский – А. Шаганов)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665746   (180956) от 02.10.2023
-
-October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180956.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Marras I
-A2 Marras II
-A3 Marras III
-A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665727   (180860) от 02.10.2023
-
-Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diablo — финская мелодик-дэт/грув-метал группа, основанная в 1995 году как «Diablo Brothers».2000 - Elegance in Black
-2002 - Renaissance
-2004 - Eternium
-2005 - Mimic47Жанр: Melodic Death/Groove MetalПродолжительность: 05:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427597   (180664) от 01.12.2020
-
-Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180664.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mysterons
-A2 Sour Times
-A3 Strangers
-A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665828   (180623) от 02.10.2023
-
-Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180623.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (45:42)
-
-[4:16] 01. Я жду тебя
-[4:25] 02. Скорость(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
+magnet:?xt=urn:btih:719BAB39F16E7BDF1F772CB3C05818C9E3E5BB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

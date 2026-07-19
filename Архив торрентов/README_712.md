@@ -1,32 +1,3 @@
-###  Публикация: 1101762   (894837) от 07.02.2017
-
-Atlas Corporation - The Lord Of Psytrance (2016) [MP3|320 Kbps] <Psy-Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Source - A Great Dream (Radio Edit)
-02. Ultimate Xperience - LAZARUS (Sanctum) (Mix XIII)
-03. Kryptik - New Vision
-04. Open Source - A Thousand Joys (New Edit)(   Читать дальше...   )Жанр: Psy-Trance, TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AC48B1875B62BADDE876C11D22E861720D56F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101745   (894809) от 07.02.2017
 
 Atlas Corporation - The Pirate Bay Trance 001 - 003 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -715,6 +686,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348D00964C2E655EDFB8881CF8821E6CF55C397D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993804   (894348) от 06.03.2016
+
+Футбол. Чемпионат Англии 2015-2016. 29 тур. Уотфорд - Лестер. (05.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894348.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 марта 2016, суббота. 20:30 МСК
+29-й тур
+
+Стадион: Викарэйдж Роуд (Уотфорд, Англия) , 20 884 зрителя (97 % при вместимости 21 500)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4ABAE01902CC3C2966E027E86425CE706477D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

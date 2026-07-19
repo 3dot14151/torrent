@@ -1,3 +1,148 @@
+###  Публикация: 1659041   (190436) от 10.09.2023
+
+Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Fame
+02. Funky Dreamer
+03. Sitting In My Sofa
+04. Wooden House In Sweden(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C750C2F2C6B123BF2B72BAD02D8569EA4C054CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659466   (189757) от 12.09.2023
+
+Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romy - Loveher (03:49)
+02. Romy - Weightless (04:29)
+03. Romy - The Sea (03:11)
+04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660290   (189743) от 12.09.2023
+
+VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - All By Myself
+02. Eros Ramazzotti - L'Aurora
+03. No Mercy - When I Die
+04. Jam & Spoon ( feat. Plavka ) - Kaleidoscope Skies(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658900   (189713) от 12.09.2023
+
+Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. all-american bitch [00:02:45]
+02. bad idea right? [00:03:04]
+03. vampire [00:03:39]
+04. lacy [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659467   (189340) от 13.09.2023
+
+The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Actor And The Cardboard Cowboy (1:10)
+2. Cycles Of The Seasons (2:54)
+3. Faraway Worlds (3:51)
+4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660693   (189299) от 13.09.2023
 
 Mariah Carey - Music Box (1993) 2023, 3CD, 30th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -595,151 +740,6 @@ Sade - Diamond Life (1984) Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B53123FDFE2394FF0D92FC9E99CF7C5745C07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427613   (182384) от 29.11.2020
-
-VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaBaby, Roddy Ricch - ROCKSTAR (3:01)
-02. Internet Money, Gunna, Don Toliver, NAV - Lemonade (3:15)
-03. Jonas Brothers, KAROL G - X (3:05)
-04. J Balvin, Dua Lipa, Bad Bunny, Tainy - UN DIA (ONE DAY) (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE34847CC3026F2D3C24DB800185FCAE2BDD3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427734   (182203) от 29.11.2020
-
-Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of Love (3:44)
- 02. New Day Ahead (3:41)
- 03. Love the Light (3:24)
- 04. Greater Good (3:16)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A176F5F8EC0EF50C96405AB4C7CA91094E648E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593076   (181535) от 25.11.2022
-
-Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisibles [00:03:35]
-02. À tout jamais [00:03:46]
-03. Que l'Aube est belle [00:05:08]
-04. L'Emprise [00:03:55](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593282   (181121) от 26.11.2022
-
-Michael Bublé - Michael Bublé's Cozy Christmas (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Beginning to Look a Lot Like Christmas (03:26)
-02. Let It Snow! (10th Anniversary) (02:39)
-03. Winter Wonderland (02:29)
-04. Have Yourself a Merry Little Christmas (03:50)(   Читать дальше...   )Жанр: Pop, Christmas musicПродолжительность: 00:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1649BFBCB6FF3DD0D14891397980A0FD98FE2163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665842   (180281) от 03.10.2023
-
-Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Came To Dance [00:02:24]
-02. Sorry Daniel [00:03:14]
-03. Bitch With A Broken Heart [00:02:51]
-04. I Wrote A Song [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FBD4CC6DC5B2C4FC4A7A3937630938C2ADE152
 ```
 
 https://mybot314.ru/tekegram_catalog/

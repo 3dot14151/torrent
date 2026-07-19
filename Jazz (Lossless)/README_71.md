@@ -1,119 +1,3 @@
-###  Публикация: 1508964   (796270) от 10.11.2021
-
-Bill Evans - Behind the Dikes: The 1969 Netherlands Recordings 2CD (2021) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Post Bop, Modal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Helen (4:41)
-02. Quiet Now (5:36)
-03. Someday My Prince Will Come (6:04)
-04. Announcement by Aad Bos (0:47)(   Читать дальше...   )Жанр: Cool Jazz, Post Bop, ModalПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9B1B6DB1A24B3E511E4B3E261B66B75AAC88EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385974   (796065) от 27.05.2020
-
-Don Friedman Trio - Waltz For Debby (2003) 441 Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 35 W. 4th St. [4:17]
-02. I Concentrate on You [6:41]
-03. Waltz for Debby [4:34]
-04. Bud Powell [8:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48C3B3266CB815F90105DD6D224915D71FC2CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011917   (795687) от 29.04.2016
-
-George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Great Escape, or Run John Henry Run [04:43]
- 02.Seriously Speaking [08:03]
- 03.Soft Seas [07:21]
- 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011967   (795685) от 29.04.2016
-
-Javier Colina & Antonio Serrano - Colina Serrano Project (2009) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El blues de la alegria [04:59]
- 02.El comandante [08:41]
- 03.Estudio [11:58]
- 04.Zyryab [07:51](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C7017E177C3495CEB2D4AD31404E1DD6734A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011923   (795684) от 29.04.2016
 
 Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +629,124 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6076D60F5A18C1DEBEB33A456E1610494387FB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012700   (793828) от 01.05.2016
+
+Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Pearl [03:39]
+ 02.In A Mellow Tone [05:21]
+ 03.Man From Bad [04:16]
+ 04.Ode To Billie Joe [06:41](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E797157A0231A25444A3C268500E29E5C07A9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012606   (793822) от 01.05.2016
+
+Count Basie & His Atomic Band - Complete Live At The Crescendo 1958 (2016) 5CD, Phono Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793822.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Moten Swing #1 [05:51]
+02.Cute #1 [03:51]
+03.Sweetie Cakes [04:29](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 05:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5394D2F8E0592345139EE8EAB874C5655B5E19AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386594   (793791) от 30.05.2020
+
+B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live At The Regal — концертный альбом Би Би Кинга. Вышел в 1965 году на лейбле ABC Records. Запись была сделана 21 ноября 1964 года на концерте в Чикаго в Regal Theater.
+
+В 2003 году журнал Rolling Stone поместил альбом Live At The Regal на 141 место своего списка «500 величайших альбомов всех времён». В списке 2012 года альбом находится также на 141 месте.01. Every Day I Have The Blues (2:39)
+02. Sweet Little Angel (4:12)
+03. It's My Own Fault (3:36)
+04. How Blue Can You Get (3:37)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFCDACCAED73A9F388CEF2DF3864F2F877E0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122971   (793720) от 06.04.2017
+
+The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With The Wind And The Rain In Your Hair (5:18)
+02. Oslo (5:11)
+03. Later Blues (5:07)
+04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
 ```
 
 https://mybot314.ru/tekegram_catalog/

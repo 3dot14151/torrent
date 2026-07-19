@@ -1,3 +1,90 @@
+###  Публикация: 1078936   (297808) от 02.12.2016
+
+Silicon Dream  - Greatest Hits (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Beat, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Machine (6:00)
+ 02. Jimmy Dean Loved Marilyn-Film Ab (The Hollywood-Age) (3:40)
+ 03. Corleone Speaking (4:50)
+ 04. Holiday In St. Tropez (4:22)(   Читать дальше...   )Жанр: Synth-pop, New Beat, DiscoПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC834AE177F11EF721C59F0D2727F2A4392CACCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184328   (297030) от 19.11.2017
+
+Boney M. - Worldmusic For Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Holiday, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday Jesus (Intro) - 0:24
+02. Carol Of The Bells (For One And All) (feat. Liz Mitchell) - 2:33
+03. Ave Maria - 3:20
+04. White Mountains (Spanish Romance) - 4:05(   Читать дальше...   )Жанр: Christmas, Holiday, Pop, Disco, Pop ReggaeПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F104DC084E5EA882834F12C92F2440C7C03470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333816   (296656) от 28.10.2019
+
+Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chance To Desire (Vocal Version) (7:54)
+02. Vampires (Swedish Remix) (6:25)
+03. Aliens (Swedish Remix) (5:41)
+04. Yeti (Special Remix) (7:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, 80s |Продолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25142BC99C2FC0B4E459C0399E5A930C8FF1B700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961735   (294718) от 04.12.2015
 
 Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
@@ -665,99 +752,6 @@ Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1499B1E98BB62C8107D549BE54CF3AD52184F70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494675   (251000) от 10.05.2012
-
-Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251000.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (Best)
-Продолжительность: 01:18:47
-
-01. Stasera… Che Sera
-02. Per Un’Ora D’Amore
-03. Cavallo Bianco
-04. Che Male Fa
-05. Ma Perche
-06. Solo Tu
-07. Mister Mandarino(   Читать дальше...   )2011Жанр: Italo-popПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621373   (244799) от 24.03.2023
-
-Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Can You Love Me
-02. Take My Hand
-03. My Love(   Читать дальше...   )Жанр: Euro-Disco |Продолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D911FC959A1106593C67683BCDA61651F5A2039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457818   (242534) от 27.03.2021
-
-Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaioh - Emotional Fire (6:00)
-02. Kaioh - Burning Desire (5:50)
-03. Kaioh - Case Closed (4:55)
-04. Kaioh - A Cruel Angel's Thesis (5:27)(   Читать дальше...   )Жанр: EurobeatПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

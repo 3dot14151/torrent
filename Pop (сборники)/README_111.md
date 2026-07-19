@@ -1,102 +1,3 @@
-###  Публикация: 1838891   (261472) от 25.11.2025
-
-Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Turn To Ice (3:29)
-02. Dreams Are Made To Last Forever (4:16)
-03. Forever In Your Eyes (3:42)
-04. Heaven Is Calling (4:33)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504965   (260828) от 03.06.2012
-
-VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Rynno feat. Sylvia - Bring Me Back (Original Radio Edit)
-002. Чай Вдвоем - Время вода
-003. The Disco Boys - Around The World (Radio Mix)
-004. Светлана Лобода - Облака
-005. Taio Cruz - Troublemaker (Radio Edit)
-006. Тимати и Григорий Лепс - Реквием по любви
-007. Sheikh feat. Nicco - Hold Tight (Radio Mix)
-008. Вика Дайнеко - Уезжай
-009. Melanie C - Too Soon
-010. Алсу - Утро надежд(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503354   (259864) от 31.05.2012
-
-VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fun Feat Janelle Monбe - We Are Young
-02 The Wanted - Chasing The Sun
-03 Carly Rae Jepsen - Call Me Maybe
-04 Rita Ora Feat Tinie Tempah - R.I.P
-05 Alex Clare - Too Close
-06 Rihanna - Where Have You Been
-07 Paloma Faith - Picking Up The Pieces
-08 Train - Drive By
-09 Gotye Feat Kimbra - Somebody That I Used To Know
-10 Tulisa - Young(   Читать дальше...   )Жанр: Рop, Rok, R&B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503679   (259639) от 30.05.2012
 
 VA - Лучшая 200ка: Самая модная Русский (2012) [MP3|128 кб/с]<Pop , Dance>
@@ -847,6 +748,99 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494392   (250992) от 10.05.2012
+
+VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Aslan и Эльдар Далгатов - Опа Опа
+002 Группа СК STYLE - Чики-чики
+003 Лаурита - Пропадаю (Лезгинка)
+004 Авраам Руссо и Рухшона - Благодарю
+005 Мурат Тхагалегов - Калым
+006 Анжелика Начесова и Магомед Дзыбов - Я не стану ждать тебя на берегу
+007 Рамазан Кайтмесов - От меня не уйти
+008 Азнаур - Красавица
+009 Тимур Темиров - От судьбы
+010 Ринат Каримов - Девушки Кавказа2012Жанр: Pop,DanceПродолжительность: 06:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563333   (250138) от 13.07.2022
+
+Marie Laforêt - Compilation (2022) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viens, Viens
+02. Pourquoi
+03. Tu Fais Semblant
+04. Lettre De France(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 03:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479D91A61F97CA559FD684F2D1635B29DA3E3F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563838   (249788) от 18.07.2022
+
+VA - Про белые розы (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Шатунов - Про белые розы (3:38)
+02. Семён Розов - А над городом ночь (3:40)
+03. Сергей Васюта и Сладкий Сон - На белом покрывале января (5:30)
+04. Вячеслав Сидоренко - Лепестками алых роз (4:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E94B2EF47DC025F839A4F7416FA9F39FE52E15
 ```
 
 https://mybot314.ru/tekegram_catalog/

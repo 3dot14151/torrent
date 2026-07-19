@@ -1,3 +1,238 @@
+###  Публикация: 1068526   (374151) от 04.11.2016
+
+VA - Chillin on a Winters Eve (2016) [MP3|192-320Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freud - Eternal
+02. 100 Debija - Noslepums
+03. Charlae Olaker - Ebben (From "La Wally")
+04. The Gregorians - Until the Rising Sun(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983A8DC8B0388FE1EC97869AA5D1347795B90D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069147   (373980) от 04.11.2016
+
+Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [MP3|320 Kbps] <EuroHouse, Eurodance, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yerba Del Diablo  4:42
+02. Nu Style  4:31
+03. Eternity  4:18
+04. Fade To Grey  4:42(   Читать дальше...   )Жанр: EuroHouse, Eurodance, TechnoПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C972A4B5E90F88BE553DBC8D834EE6AC3A12C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069537   (373978) от 04.11.2016
+
+VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, Electro, Dancehall, Trap, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & The Federal Empire - Hold On & Believe (Clean) (Radio Edit) 03:54
+02. Flyboy Ft Gavrielle & Jake Newton - Maze (Clean) (Short Edit) 02:46
+03. Party Favor Ft Georgia Ku - In My Head (Clean) (Radio Edit) 03:30
+04. Luca Debonaire - Klubb Killer (Clean) (Short Edit) 02:56(   Читать дальше...   )Жанр: Indie Dance, Bigroom, Electro, Dancehall, Trap, HouseПродолжительность: 08:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD88B1A2A2FFDEDA8C4B6D82E0CA1889A7D462C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069281   (373956) от 04.11.2016
+
+VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren Ft. BullySongs - Freefall (Manse Remix)  2:33
+002. Gareth Emery Ft. Wayward Daughter - Reckless  3:22
+003. Chicane - Offshore (Grum Remix)  3:39
+004. Super8 & Tab - Mega  3:04(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069378   (373870) от 04.11.2016
+
+VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florzinho - A La Luna - Euphonic Traveller Remix
+02. Euphonic Traveller - Pont Notre Dame
+03. Alex Naevecke - Summerlove
+04. Svendaq - Cosmic Sweeper(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C832F9DD438A27EB9D531C4C7A798937A4B8DD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574801   (373455) от 13.11.2012
+
+VA - Trance. Vocal Fascination 36 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373455.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance. Vocal Fascination 36 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Vocal Trance
+Продолжительность: 03:05:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Evgeny Bardyuzha - USSR-2061 (Club Mix)
+002. Faruk Sabanci - Oriental Sentiment (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7D271055F56DE8A8CFE1DB27636992BD2DCCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950231   (373103) от 25.10.2015
+
+VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Horner - Mellow Daze (02:10)
+02. The Big Sound - Lounge Lizard (02:02)
+03. Ginger Tunes - Round Midnight (05:19)
+04. Jive Ass Sleepers - Big Bad Boss Man (04:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950142   (373061) от 25.10.2015
+
+VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Samuel Kimkт - La Zumbera (Video Mix) (03:08)
+02. Flip Capella - Moments in Love (03:23)
+03. Funky Chicos - Funky Town (03:45)
+04. NDS, Tom-E - 2GETHER 4EVER (Radio Mix) (03:52)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B49AADF5F4E071A978092633B0A8D42B3FEDDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949998   (372912) от 25.10.2015
 
 VA - Best Of Vocal Trance Classics Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -520,244 +755,6 @@ VA - Grand Night: Club Vibez (2016) [MP3|320 Kbps] <House, Progressive, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71020DBD1CEF509B8857017CCB4AFBA20B8C2926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070294   (369372) от 06.11.2016
-
-VA - Hot Chart High Songs (2016) [MP3|320 Kbps] <Drumstep, Trap, Future House, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bijou & Gerry Gonza - Incredible 05:27
-02. Silence Groove - Cheeky Growler 05:02
-03. Rufus - Innerbloom (Sasha Remix) 10:49
-04. Ramon Tapia - Move One (Original Mix) 07:22(   Читать дальше...   )Жанр: Drumstep, Trap, Future House, DubstepПродолжительность: 07:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76E49281A05B5C983201B866794E2B141BAAA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069966   (369369) от 06.11.2016
-
-VA - Electro Workout Session (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yesterday (Extended Mix) - Borgeous & Zaeden
-002. Shere Khan (Original Mix) - Fozzy
-003. South Street (Original Mix) - Bebo Serra
-004. Monster Sound - Dj Mns Vs. E-Maxx(   Читать дальше...   )Жанр: HouseПродолжительность: 12:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753A3CD4ACC78B0DEF6061E4DD977B3FE55AA79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070136   (369267) от 06.11.2016
-
-VA - Afro Tech Vocals Monopoly (2016) [MP3|225-320 Kbps] <Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ziggy Phunk - Relax (Original Mix) 06:28
-02. Soul Funk - I Wish 05:05
-03. Lary Pec - Your Friend 03:59
-04. Steady416 - 30 Watts (Original Mix) 06:55(   Читать дальше...   )Жанр: Trance, Club, DanceПродолжительность: 09:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EB6BB90DE850067D018E52033B93475C9EFC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070086   (369257) от 06.11.2016
-
-VA - Top 100 Deep House (October) (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369257.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.4U - Long Ride (Original Mix) 5:15
-002.Alexander Hristov - Let's Dance (Starlike Remix) 5:12
-003.Andrey Exx, Dogus Cabakcor - Mystery (Original Mix) 6:52
-004.Andrey Exx, Dogus Cabakcor - Play Your Heart (Original Mix) 6:04(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 09:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F4C083D0AC147A37A44E1044C9AD083834DE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069939   (369253) от 06.11.2016
-
-VA - Top 100 Club Tracks (October) (2016) [MP3|320 Kbps] <Dance, Club, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.7Hills - Танцы (Kolya Funk & Eddie G Remix) 4:45
-002.A - ha - Take On Me (DJ Solovey Remix) 4:08
-003.Agua Sin Gas by Antoine Clamaran - Comin' (Original Mix) 5:51
-004.Alexco - Cry Your Name (Original Mix) 6:19(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA692316FD3481A8A899BC492F83397D3059FACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069982   (369252) от 06.11.2016
-
-VA - Space Ibiza: 1989 - 2016 (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dele Sosimi Afrobeat Orchestra - Too Much Information (Laolu Remix,edit)
-02. Moloko - Sing It Back (Mousse Tas Feel Love mix , edit)
-03. Kings Of Tomorrow - KOT Anthem
-04. Sandy Rivera - Come Into My Room (feat LT Brown - dub)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFD4D3426AC3466397C42CFB16C7CEBDA875A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575081   (368779) от 15.11.2012
-
-VA - A State Of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368779.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - A State Of Vocal Trance Volume 10 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 03:04:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Allure feat. Emma Hewitt — Stay Forever (Extended)
-002. Ana Criado & Ronski Speed — Afterglow (Ronski Speed Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575073   (368778) от 15.11.2012
-
-VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368778.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012)
-Год: 2012
-Жанр: Trance, Uplifting Trance, Vocal Trance
-Продолжительность: 03:07:51Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Ashley Wallbridge - Zorro (Club Mix)
-002. Corderoy feat. Little Neve White - Run into the Sun (Original Vocal Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453E9E4AFF7E75D9C20BF7754CF540CF3E348A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1041076   (584472) от 07.08.2016
+
+VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <Downtempo, Chillout, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michi Koerner – Falling Sunbeams
+ 02. Prior Matt – Airglow
+ 03. Bob Holroyd – Engines of Creation
+ 04. Dylan Colby – Save the Planet(   Читать дальше...   )Жанр: Downtempo, Chillout, New AgeПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048216654A391FCB1E0A6997B8751F91C5274D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040856   (584461) от 07.08.2016
 
 VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -724,35 +753,6 @@ VA - Chill Acoustic Covers 2 (2015) [MP3|320 кб/с]<Acoustic, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1015334D454A5E139A21EE15A55ABCB886950E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558064   (533471) от 19.06.2022
-
-Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening With Mauriat (Kibab Remix)
-02. Let Me Free
-03. Indeana
-04. Lamba Ghini(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7681310D198134B5539AF2D2C2610A546177CC51
 ```
 
 https://mybot314.ru/tekegram_catalog/

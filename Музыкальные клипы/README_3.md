@@ -1,3 +1,205 @@
+###  Публикация: 604523   (995702) от 19.01.2013
+
+Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
+Magrao - один из пионеров видеомикс-направления.
+Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
+002 - Dr.Alban - Look Who's Talking
+003 - Dr.Alban - Away From Home
+004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605410   (995498) от 20.01.2013
+
+ABBA - ABBA (Deluxe Edition) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ABBA In Australia (Television Special)
+a. Mamma Mia
+b. Hasta Mañana
+c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605831   (995443) от 20.01.2013
+
+Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era  - Come Into My World
+02. Messiah project -  Insomnia
+03. Enigma - Sadeness
+04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605938   (995439) от 20.01.2013
+
+Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - He Is Your Brother
+02. Donna Summer - I feel love
+03. Arabesque - Friday Night
+04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605695   (995366) от 20.01.2013
+
+Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка - EurodanceПродолжительность: vol.1: 02:50:21,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606962   (994639) от 22.01.2013
+
+Лучшие клипы / The best videos of all time (Pop, Sexy) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angus and Julia Stone - Big Jet Plane
+02. Pussycat Dolls - Don't Cha
+03. Chica Bomb - Sexy
+04. Нюша - Воспоминание(   Читать дальше...   )Жанр: Музыка, Pop, Sexy, Dance, HouseПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607111   (994637) от 22.01.2013
+
+Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Richard - Lucille
+02. Bill Haley And His Comets - Vive La Rock 'N' Roll
+03. AC DC - That's the Way I Wanna Rock N' Roll
+04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608230   (994136) от 24.01.2013
 
 Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
@@ -498,194 +700,6 @@ Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22FE287C3553A80C3AAC43C461FAF655DD97F39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610556   (987256) от 01.02.2013
-
-Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hop, R'n'BПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611234   (987098) от 01.02.2013
-
-Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC727D72A0E9D3B8D9B2136F06CCFB12D8312B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611218   (987009) от 01.02.2013
-
-Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD635E7CA6DC75C72300832B764D196632E31FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354753   (986984) от 23.01.2020
-
-Каста - 12 Music Videos (2014-2020) WEB-DL [VP9/2160p, H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986984.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 Каста - Корабельная песня (Official Video) (1920 x 1080).mp4
-2014 Каста - На весь район (Official Video) (1920 x 1080).mp4
-2014 Каста - Романс для Анны (Official Video) (1920 x 1080).mkv
-2015 Каста - Решено (Official Video) (1920 x 1080).mp4(   Читать дальше...   )Жанр: Альтернативный РЭБПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CF25D75032969F9286108527943B83C825430E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612440   (986705) от 01.02.2013
-
-Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13827629989978522B80FE3F7363B34D6CE6E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355006   (985875) от 24.01.2020
-
-Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985875.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые современные клипы. Обложка и блины для дисков в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Русский Хит — Вступление
-01. Ольга Бузова — Лайкер
-02. Макс Барских — Моя любовь
-03. Zivert — Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971308   (985476) от 03.01.2016
-
-Звёздные войны: Музыкальное путешествие (видео) / Star Wars: A Musical Journey (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иэн МакДайармид показывает клипы из 6 эпизодов легендарной фантастики компании «ЛукасАртс», сопровождённые музыкой Королевского филармонического оркестра и хора.Производство: СШАЖанр: МузыкаРежиссер: Типпи БушкинАктеры: Иен МакДермид (Ian McDiarmid)Перевод: ОтсутствуетПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
 ```
 
 https://mybot314.ru/tekegram_catalog/

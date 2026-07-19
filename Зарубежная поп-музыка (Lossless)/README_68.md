@@ -1,3 +1,148 @@
+###  Публикация: 1076798   (311537) от 26.11.2016
+
+Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311537.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Heart Goes Out To You
+2. Live On
+3. Stone In My Pocket
+4. Sand And Water(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A48535C1D809C629D670A38687238BB7FAB439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422257   (310814) от 08.11.2020
+
+Ane Brun - After The Great Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Art-Pop, Indie-Folk, Trip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honey [00:06:08]
+02. After The Great Storm [00:05:11]
+03. Don't Run And Hide [00:05:06]
+04. Crumbs [00:05:15](   Читать дальше...   )Жанр: Art-Pop, Indie-Folk, Trip-HopПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2551FB90695BCBE52DDD2B56303E6E3133DE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960154   (310319) от 27.11.2015
+
+Gloria Estefan - Cuts Both Ways (1989) [FLAC|tracks+.cue]<Latin, Cubano, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ay, Ay, I (3:49)
+02. Here We Are (4:51)
+03. Say (3:41)
+04. Think About You Now (4:20)(   Читать дальше...   )Жанр: Latin, Cubano, Synth-popПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3458215BF5695D68DF84D844BBB5384C3CB8D83A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960539   (307887) от 28.11.2015
+
+Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Changes Everything (with Adam Lazzara) 05:14
+ 02. All Through The Night (with Shaggy) 04:40
+ 03. Time After Time (with Sarah McLachlan) 04:17
+ 04. She Bop 04:16(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AFD73F3551621D444CDD4150444E97D86928D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960549   (307823) от 28.11.2015
+
+Ten Sharp - You (Single) (1991) [FLAC|Image+cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You
+02. When The Snow Falls
+03. White Gold
+04. You (Instrumental)Жанр: PopПродолжительность: 00:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9604681E7A5B6FB8F23AFE06F4939EA49F0F6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260771   (307287) от 09.11.2018
 
 Mireille Mathieu - Mes classiques (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
@@ -601,148 +746,6 @@ Roxette - Bag Of Trix Vol. 2 (Music From The Roxette Vaults) (2020) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EE612D433DC577DB246DDA61A35A0FEAB1B268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184951   (296942) от 19.11.2017
-
-Sia - Everyday Is Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa's Coming For Us
-02. Candy Cane Lane
-03. Snowman
-04. Snowflake(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBF6C670B874C324D7C25A3D9167757F9C99D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334260   (296923) от 28.10.2019
-
-VA - Best Hits Of Jerusalem Radio (2012) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dor Daniel - Kor'e Lach (03:57)
-02. Adir Getz - Ani She'lach (04:10)
-03. Gilad Segev - Isha Me'Hashamaim (03:47)
-04. Harel Moyal - Matchil Mehedash (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DCB7FDA15ACF52B3D9700909B18FB0D6356715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184941   (296839) от 19.11.2017
-
-VA - 100 Hits 90s Originals (2017) Box Set, Demon Muzic Group [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новым этот релиз, конечно, назвать нельзя. Он вышел 17 февраля 2017 года, но до меня "доехал" только недавно, поэтому делюсь как новым. И хотя 90-е от нас убежали не так уж далеко, думаю, что вспомнить есть, что хорошего в музыке было в тот период.CD1:
-01. Backstreet Boys - Everybody (Backstreet’s Back)  (3:45)
-02. *NSYNC - I Want You Back  (3:21)
-03. New Kids on the Block - Step by Step  (4:26)(   Читать дальше...   )Жанр: Pop, Electronic, Hip HopПродолжительность: 06:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD18465443F61DE0510117DED17137D38C777DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106831   (296087) от 18.12.2009
-
-Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New Wave, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, New Wave, Rock, DanceПродолжительность: 12:17:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423380   (295798) от 15.11.2020
-
-VA - Hotel Lobby Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - My Heart Will Go On (4:37)
-02. Graham BLVD - No Scrubs (3:24)
-03. Stockholm Honey - Mamma mia (3:07)
-04. Blue Suede Daddys - Be-Bop-a-Lula (2:39)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF46BC3F34D639227710F97D153B27A472FF9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

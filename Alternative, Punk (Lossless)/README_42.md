@@ -1,3 +1,119 @@
+###  Публикация: 1327360   (376613) от 24.09.2019
+
+The New Pornographers - In the Morse Code of Brake Lights (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Need a New Backseat Driver (04:14)
+02. The Surprise Knock (03:11)
+03. Falling down the Stairs of Your Smile (03:44)
+04. Colossus of Rhodes (04:03)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECB87A335107EA087B3CC880B9E29B0B865B14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575502   (375402) от 10.09.2022
+
+Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect (3:02)
+02. Reckoning (3:58)
+03. Valhalla (3:22)
+04. Freight Train (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01AC7CDCAF23C827C21E20B350AC38C4F681537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327395   (374621) от 25.09.2019
+
+Moon Loves Honey - Bubbleburst (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Only In My Dreams (04:23)
+02. Every Night And Day (05:13)
+03. Oceanbird (04:07)
+04. Aflutter (01:58)(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7420398F3B36DA0FBC2A55DD03C89B35207134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415619   (374193) от 13.10.2020
+
+XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun Times with a Chainsaw [00:03:06]
+02. The Blood on the Wall [00:04:12]
+03. Sin / Feast of Souls [00:03:19]
+04.Жанр: Nu-MetalПродолжительность: 3 CD, 02:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749892471601361FE536B1465AA67D1285482F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069419   (373684) от 04.11.2016
 
 Kidneythieves - The Mend (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Electronic, Industrial>
@@ -629,122 +745,6 @@ Von Wegen Lisbeth - Sweetlilly93@hotmail.com (2019) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C0E98BA5515F4F3B324EF24B707EBECFDDBC739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416643   (363173) от 18.10.2020
-
-Star Insight - 2 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Symphonic, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape as a Last Resort [00:03:37]
-02. Reaching for the Sky Above [00:03:02]
-03. I'm Not a Number [00:03:22]
-04. It's All Lies [00:03:42](   Читать дальше...   )Жанр: Melodic Metal, Symphonic, Power MetalПродолжительность: 2 CD, 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5A9006FC8E0877AC834F55394EBC5F1BCAFFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177476   (362689) от 25.10.2017
-
-Hollywood Undead - Five (2017) [FLAC|Lossless|tracks] <Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreaming (3:55)
- 02. Whatever It Takes (3:08)
- 03. Bad Moon (3:52)
- 04. Ghost Beach (3:55)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC1D0C30763AA3F690E01935519D37A752F2578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576884   (361882) от 16.09.2022
-
-The Devil Wears Prada - Color Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Christian Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exhibition (3:58)
-02. Salt (3:27)
-03. Watchtower (2:48)
-04. Noise (3:43)(   Читать дальше...   )Жанр: Christian Post-HardcoreПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C1193973D68139ED754DD885F072F7CF98E7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255843   (361841) от 19.10.2018
-
-Defeater - Lost Ground (2009) EP [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Red, White And Blues (3:44)
- 02. The Bite And Sting (3:01)
- 03. A Wound And Scar (2:50)
- 04. Home Ain't Never Home (2:51)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E6B4783A031D5A0E2B519E2EF3F2DA0DA34998
 ```
 
 https://mybot314.ru/tekegram_catalog/

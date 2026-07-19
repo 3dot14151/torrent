@@ -1,119 +1,3 @@
-###  Публикация: 1215022   (761925) от 24.03.2018
-
-Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pipeline [03:03]
-02. Memory [11:07]
-03. Planetella Rock [04:27]
-04. The Heyday [05:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3597C12E8A33A2DEF6B6B9DF552A3CA4B7E70C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215015   (761820) от 24.03.2018
-
-Batida - Batida (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Samba, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ponteio [04:29]
-02. Pra Quem Quiser [04:03]
-03. Listen To The Land [00:40]
-04. Oceans Between Us [04:33](   Читать дальше...   )Жанр: Latin Jazz, Samba, Bossa NovaПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E8653C0C74117FB3B9841EDC65ABA642653D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017260   (761332) от 17.05.2016
-
-Billy Higgins - The Soldier (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sugar And Spice [04:51]
- 02.Midnite Waltz [09:48]
- 03.Just In Time [05:46]
- 04.If You Could See Me Now [06:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC7F93D7BD26CE4DB51945769ECF8967E5B460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017524   (761329) от 17.05.2016
-
-Tim Garland - One (2016) [FLAC|Lossless|tracks] <Contemporary Jazz, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sama'i for Peace (5:37)
-2. Bright New Year (7:05)
-3. The Eternal Greeting (6:00)
-4. Colours of Night (6:46)(   Читать дальше...   )Жанр: Contemporary Jazz, JazzПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9779DA8E5F95B405CC6CC4B1825F40719486E01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017328   (761230) от 17.05.2016
 
 Rufus Harley - Bagpipe Blues (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -744,6 +628,122 @@ The Bill Evans Trio - Quiet Now 1969 (1994) Charly Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30379C3819F75D93AD701655B92DEC2949DC744F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280767   (758815) от 04.02.2019
+
+Les Doigts De L'Homme - 1910 (2010) Cristal Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies [4:38]
+02. Old Man River [3:41]
+03. Niglo 1 Waltz [3:08]
+04. Appel Indirect [2:37](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C71B680DBA66E239B57AC3711CC8C8E0B3A419A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522397   (758785) от 07.01.2022
+
+Benny Goodman - Yale University Archives, Vol. 2 (1957 - 1964) 2CD, 2009, Nimbus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758785.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [0:46]
+02. Bugle Call Rag [2:58]
+03. On The Sunny Side Of The Street [3:12](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DFB0041FB6A795CE237A88E6087D95C1BDBBE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280672   (758738) от 04.02.2019
+
+Vula Viel - Do Not Be Afraid (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, World Music, Punk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Come (3:35)
+02. Do Not Be Afraid (4:21)
+03. I Learn (3:38)
+04. Inside Mirror (2:57)(   Читать дальше...   )Производство: Vula Viel RecordsЖанр: Jazz, World Music, Alternative, PunkПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DD9A4C3D24BA5CF1579E58785875A2567167A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215532   (758232) от 26.03.2018
+
+Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just Wild About Harry [03:09]
+02. I Got Rhythm [02:38]
+03. Where Have You Been? [02:57]
+04. Ol' Man River [03:22](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F760C8373E84AC4A5B8DC1286C30DD53B547B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1572332   (423516) от 26.08.2022
-
-C.C.Catch - Like A Hurricane (1987) [OGG Vorbis|485 Kbps] <Electronic, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Guys Only Win In Movies (Long Version)	5:42
-02. Like A Hurricane	3:13
-03. Smoky Joe's Café	3:41
-04. Are You Man Enough	3:36(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F43473BFF17E7D354B5D77A76A50EB7B057D1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250529   (422654) от 29.09.2018
 
 Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -753,6 +724,35 @@ VA - One Shot 80 Vol.1-18 (1998-2006) [MP3|320 кб/с]<Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9646F06617754C0943A9D4B6FAA6681DFA73205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168751   (404987) от 25.09.2017
+
+VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Nighty – Mental Holiday (70’s Classic Disco mix) (03:44)
+02. Jean Claude Project – Partial Transition (Le Disco mix) (03:36)
+03. Tommy Whyte – Get Up My Hands (Disco Love mix) (03:52)
+04. Doctor Rich – Between You And Me (Cocco’s Disco mix) (03:36)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
 ```
 
 https://mybot314.ru/tekegram_catalog/

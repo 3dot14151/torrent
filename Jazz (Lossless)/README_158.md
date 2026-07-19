@@ -1,119 +1,3 @@
-###  Публикация: 1312257   (534498) от 03.07.2019
-
-James Williams - Magical Trio 2 (1988) Emarcy [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bohemia After Dark [3:42]
-02. Too Late Now [6:42]
-03. A Portrait of Elvin [6:13]
-04. Roadlife [6:15](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB56681613C62F57A3208EC82F9C495D6285AA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558248   (533768) от 19.06.2022
-
-Gene Krupa & Harry James - The Complete Capitol Recordings Of Gene Krupa & Harry James (1946 - 1958) 7CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Indiana [3:00]
-02. My Old Flame [2:19]
-03. Wings On My Shoes [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63267E6E84DC2725F53A5488606DB5948F920591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926525   (533663) от 10.08.2015
-
-Mavis Rivers & Shorty Rogers - Mavis Meets Shorty (1962) /2014, Warner/[FLAC|tracks+.cue]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember You [02:12]
-02. You Brought A New Kind Of Love To Me [03:04]
-03. When Sunny Gets Blue [02:28]
-04. Nothing But The Best [02:47](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD33C1750745E5D5B7F6F7A2228EF9B4F3E73F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926529   (533662) от 10.08.2015
-
-Lester Bowie's Brass Fantasy - I Only Have Eyes For You (1985) [FLAC|image+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Only Have Eyes For You [10:32]
-02. Think [01:32]
-03. Lament [13:56]
-04. Coming Back, Jamaica [05:17](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5697AC04DC0EACA04CDE4CEDFD8D85A5D1D986E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926665   (533659) от 10.08.2015
 
 Cedar Walton - Pit Inn (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Chris Amemiya & Jazz Coalescence - In The Rain Shadow (2013) OA2 Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF9E5D28D531E233BB60546F91F42635FA984CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051899   (530680) от 12.09.2016
+
+Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (2009) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenderly     (03:56)
+02. Clouds     (05:00)
+03. How High The Moon     (04:25)
+04. I've Got a Crush On You     (01:00)(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EA07B8D5B8C81594E1316610E87F6D4A61F086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051918   (530678) от 12.09.2016
+
+Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless|tracks + .cue] <Crossover, Guitar Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Last A Day Without You     (05:11)
+02. Jersey Bounce     (03:54)
+03. Bernie's Tune     (03:28)
+04. A Smooth One     (05:30)(   Читать дальше...   )Жанр: Crossover, Guitar Jazz, InstrumentalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927109   (529995) от 12.08.2015
+
+Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free For All [11:09]
+02. Hammer Head [07:51]
+03. The Core [09:29]
+04. Pensativa [08:24](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313D81F8B4FC37D24637648D74864212AF1B8D64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927110   (529945) от 12.08.2015
+
+Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good News [05:58]
+02. Make That Dream Come True [04:11]
+03. Eva [05:20]
+04. The Mark Of Zorro [04:14](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974ED029FF826725D4B223C8EA1A535AF9666249
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,124 +1,3 @@
-###  Публикация: 549947   (457265) от 22.09.2012
-
-Hiromi Uehara - 5 альбомов (2004 - 2011) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice [09:14]
-02. Flashback [08:39]
-03. Now Or Never [06:17]
-04. Temptation [07:55]
-05. Labyrinth [07:41]
-06. Desire [07:20]
-07. Haze [05:54]
-08. Delusion [07:47]
-09. Beethoven's Piano Sonata No. 8, Pathetique [05:13]Жанр: Jazz, Vocal, Contemporary Jazz, Post Bop, FusionПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247102   (457123) от 13.09.2018
-
-Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elephant Dust [7:26]
-02. Scorned as Timber, Beloved of the Sky [6:55]
-03. Mirror Image [8:23]
-04. Rosie [6:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B8A8CC3019DC855A3D6681AB39647A57E4FE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247027   (457122) от 13.09.2018
-
-Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumping at the Woodside (3:04)
-02. All of Me (3:06)
-03. One O'Clock Jump (3:50)
-04. Lester Leaps In (4:05)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E841944BBF7183600DAD3C1814FA4672918A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247075   (457113) от 13.09.2018
-
-Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United [4:06]
-02. Ruby [7:50]
-03. I Fall in Love Too Easily [7:03]
-04. We See [7:25](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F971F5994C7A55FCE29C2274414E69A04E0C5D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246868   (457007) от 13.09.2018
 
 Art Blakey & The Jazz Messengers - Farewell: Live At Sweet Basil (1985) 2CD, 2015, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -750,6 +629,122 @@ Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44B13A5C7CA4C9573D2FC6887672D8C7A31DECE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569224   (453833) от 12.08.2022
+
+Phil Bodner - Once More With Feeling! (1960 - 1970) 2006, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, Lady Be Good! [5:16]
+02. In a Sentimental Mood [4:20]
+03. I'm Gettin' Sentimental Over You [5:46]
+04. Memories of You [6:13](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD41723D3E86495A123FD0B9CFA4D4A6F3C206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060805   (453397) от 08.10.2016
+
+Katica Illenyi - The Jazzy Violin(Inspired by Stephane Grappelli) (2007) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' at Decca
+02. My Man
+03. Alexander's Ragtime Band
+04. Honeysuckle Rose(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA5DB75B64B963432CD422C14AD873AD3A361B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060813   (453395) от 08.10.2016
+
+BWB (Norman Brown - Kirk Whalum - Rick Braun) - BWB (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple Dare
+02. Bust A Move
+03. Bwb
+04. Bolly Bop(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843176EF6A76D7451470F984A7DFD033D11E6F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247381   (452988) от 15.09.2018
+
+John Hicks - In The Mix (1994) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Mix [4:12]
+02. Yemenja [10:23]
+03. Elation [3:17]
+04. Soul Eyes [6:56](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1313172C4051F930C461DA6F3EB63C0C6EE9700
 ```
 
 https://mybot314.ru/tekegram_catalog/

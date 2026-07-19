@@ -1,3 +1,32 @@
+###  Публикация: 1467162   (1017917) от 03.05.2021
+
+Tim van Werd - Live  @ Molin De Hoop Gorinchem, Netherlands (2021-04-30)[MP3|320 Kbps] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim van Werd - Believe (Intro Edit)
+02. Ben Böhmer & Tinlicker ft. Felix Raphael - Run Away
+03. Reflekt ft. Delline Bass - Need To Feel Loved (Tim van Werd Remix)
+04. deadmau5 - luxuria (ov) (Tinlicker Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFBAB29C312C7F2FF1D14AA415EEF04D19FD1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467321   (1017904) от 03.05.2021
 
 PotPlayer 210428 (1.7.21485) [Multi/Ru]
@@ -651,32 +680,6 @@ WizTree - небольшая и полезная утилита для опре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45CB93CC356E8E801C43F53885F38083D828533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467459   (1017744) от 04.05.2021
-
-QuarkXPress 2020 16.3.3 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4E69B2A1E769CB890E37A6A56D83318E7A221E
 ```
 
 https://mybot314.ru/tekegram_catalog/

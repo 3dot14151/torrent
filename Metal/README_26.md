@@ -1,3 +1,90 @@
+###  Публикация: 1113993   (835337) от 13.03.2017
+
+Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night
+02. Inexorbitant Future
+03. Down into the Sun
+04. My Doom(   Читать дальше...   )Жанр: Avant-Garde Metal, Experimental MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97242FA1BBAA0CDBE00B3E29BAF01E1355419590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005339   (834697) от 08.04.2016
+
+I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer (01:02)
+02. Instinct (02:33)
+03. Dark Passenger (03:00)
+04. Bleed (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995184   (834394) от 02.05.2020
+
+Killswitch Engage - 13 Releases (2000-2020) [MP3|320 кб/с] <Metalcore, New Wave Of American Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834394.jpg" />
+</div>
+
+
+###  Подробнее
+
+2000 - Killswitch Engage
+2002 - Alive Or Just Breathing (Reissue 2005)
+2004 - The End Of Heartache (Special Edition)
+2005 - Killswitch Engage (Remastered)(   Читать дальше...   )Жанр: Metalcore, New Wave Of American Heavy MetalПродолжительность: 09:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEC423A22194E19A0E703741B1C209C7FC49386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501722   (833528) от 11.10.2021
 
 Dream Theater - A View From the Top of the World (2021) [MP3|320 Kbps] <Progressive Metal>
@@ -659,93 +746,6 @@ Vildhjarta - Masstaden under vatten (2021) [MP3|320 Kbps] <Progressive Metal, Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:143327D96AF2E9FE2EA938A4E80DCACE7B3AECE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503595   (819253) от 19.10.2021
-
-U.D.O. - Game Over (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие хэви-металлисты U.D.O., ведомые экс-вокалистом ACCEPT Удо Диркшнайдером (Udo Dirkschneider), выпустят новый студийный альбом "Game Over" 22 октября на лейбле AFM. Диск будет включать 16 разнообразных песен - мощных, тяжелых и полных энергии треков в духе U.D.O., но не без сюрпризов, как обещают Удо Диркшнайдер и его команда. Название работы "Game (   Читать дальше...   )01. Fear Detector (04:21)
- 02. Holy Invaders (03:27)
- 03. Prophecy (04:42)
- 04. Empty Eyes (03:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8A1DBDDBE05BBE7D7E387D05C42E780CE27546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196914   (819191) от 05.01.2018
-
-Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Svart Ostoppbar Eld
-2. Gyllene Portarnas Bro
-3. Jag Är Din Fiende
-4. Han Som Lurar Inom(   Читать дальше...   )Жанр: Progressive Black Metal, Depressive Black MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE7626209A53D66CC1359C2648BE03E1FCC779B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007658   (817849) от 17.04.2016
-
-Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death Metal, Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Land Of Ours
-2. The Tree Of Life
-3. Battle Sons
-4. Watchman Of Gods(   Читать дальше...   )Жанр: Melodic Death Metal, Epic MetalПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E669F8B500D5A12C6ABBF514E3B3FF744A9A55D
 ```
 
 https://mybot314.ru/tekegram_catalog/

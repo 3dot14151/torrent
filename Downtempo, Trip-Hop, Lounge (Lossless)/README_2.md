@@ -1,119 +1,3 @@
-###  Публикация: 1602953   (1045842) от 08.01.2023
-
-VA - Relaxing Chillout (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logophilia - Surfaces (6:03)
-02. Ace Of Duty - Prerogatives (6:14)
-03. Chiffre 100 - Summer Longing (Radio Mix) (3:49)
-04. Lusser - Asterism (5:43)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46247EFDD7A4CEF65B305699E968A2599D809A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603707   (1045669) от 10.01.2023
-
-VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Moli - Believe in Yourself (Remix) (4:59)
-02. Marc Hartman - We're Jammin (4:32)
-03. Marco Moli - Excuses (4:16)
-04. DJ Deviance - Water to the Sea (3:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50CE8595D8F13758EF5361456ADF20F60BA1A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604173   (1045491) от 12.01.2023
-
-VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Sitting Alone (Original Mix) (4:35)
-02. Filalete - Soul Design (3:14)
-03. Ian Otta - Rainy Sunday (4:16)
-04. Hölderlin - Lullaby (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605934   (1044729) от 19.01.2023
-
-VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - River Flows in You (04:37)
-02. Chillaxing Jazz Kollektion - Evening Sun (05:24)
-03. Konstantin Klashtorni - Humble and Kind (04:06)
-04. Chillaxonic - Aurora (05:13)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607256   (1044156) от 25.01.2023
 
 VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -136,32 +20,6 @@ VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0FF274D97C314330DCC36C1BA17037930A5250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182191   (1044107) от 25.01.2023
-
-Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Trip-HopПродолжительность: 02:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0946125EFDCD860765118085DE623053D5DCBD52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -742,6 +600,151 @@ The 5th Galaxy Orchestra - Music Through the Years (2008) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3AB3B80FAEBBDB849E7A960B4347FB57412B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445366   (1033763) от 05.02.2021
+
+The 5th Galaxy Orchestra - Eyeland Airlines (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami Airport (5:00)
+02. Love Flight (5:35)
+03. The Stars on a Full Sky (5:01)
+04. I Need Your Love (3:44)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CE60FBC8FFFADDF57F2E35E7445D51E00352D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445117   (1033759) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Tropic Lounge Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream House, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceania (5:20)
+02. Sunny Coastline (5:44)
+03. The Lonely Surfer (4:26)
+04. Venus Sundown (3:46)(   Читать дальше...   )Жанр: Dream House, Chillout, LoungeПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D6307EDEC87736246A2B880CBDAFFFC6A73328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445115   (1033751) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - C - (4:31)
+02. The Melody of the Universe (Re-Edit) (5:00)
+03. Night Melts in Sunrise (6:16)
+04. Arianne Dub (5:51)(   Читать дальше...   )Жанр: Chillout, Lounge, Nu-DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425413DE22A7608B8E153EE0543174961EAE02A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618871   (1033675) от 13.03.2023
+
+Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Airlock [00:05:07]
+02. Mounting the Husk [00:03:34]
+03. Lexicon Galactus [00:05:16]
+04. Don't Believe in Trees [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, ExperimentalПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445890   (1033312) от 07.02.2021
+
+The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road Ahead (5:13)
+02. My Shiny Old Space Car (4:01)
+03. Dreaming Telescopes (5:08)
+04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

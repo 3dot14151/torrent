@@ -1,3 +1,90 @@
+###  Публикация: 1179823   (344234) от 02.11.2017
+
+VA - Russian Metal Ballads (2017) [MP3|320 Kbps] <Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Харизма - Ты ветер, ты пепел
+02. Багира - Момент
+03. Легион - Когда проснётся бог
+04. 5 Стихий - Отпусти(   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 08:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD9EF83209FAADED3522C9E326A0BA05182D7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330238   (340843) от 10.10.2019
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sgt. Pepper's Lonely Hearts Club Band (Take 9) (02:15)
+02-With A Little Help From My Friends (02:45)
+03-Lucy In The Sky With Diamonds (03:05)
+04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419401   (339840) от 28.10.2020
+
+Robert Plant - Funny In My Mind (2CD Compilation) (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom Fries
+02. Morning Dew
+03. One More Cup Of Coffee
+04. Pledge Pin(   Читать дальше...   )Жанр: RockПродолжительность: 02:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419329   (339582) от 28.10.2020
 
 VA - Рок впрок 15 (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
@@ -662,93 +749,6 @@ VA - An Olden Sea Of Prayers (2018) [MP3|320 Kbps] <Heavi, Black, Death Metall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AFD071B5643BFF1837F0E8E95D8160D35A0068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473448   (304956) от 29.11.2015
-
-VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кошки Jam - Под Вопросом
- 02. Леприконсы - Хали-гали, Паратрупер
- 03. Климбатика - Тьма
- 04. День Триффидов - Против ветра(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD94902A88B8AC4BD2822C57330B5473D61F0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960828   (304616) от 29.11.2015
-
-Ария - 30 (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мания величия
-02 Тореро
-03 Воля и разум
-04 Без тебя(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5133C2FA80E242A6229895BA79C55A295BFD898A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422949   (304272) от 11.11.2020
-
-VA - Hard Plylist (2020) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304272.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cellar Stone - Live While You're Alive
-002. Shadow Witch - Sour
-003. Future Static - Adaptive Manipulator
-004. Lamb Of God - Checkmate(   Читать дальше...   )Жанр: Metal, Hardcore, Hard Rock, AlternativeПродолжительность: 08:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12667398291CFB6922A141DAA434F01C30625B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1044629   (565338) от 20.08.2016
+
+Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All In The Bible (3:11)
+02. Down The Bayou (3:06)
+03. Rain, Snow And Ice (2:47)
+04. Honolulu (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, PopПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529677   (564925) от 01.08.2012
 
 Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
@@ -722,35 +751,6 @@ Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307969   (554392) от 12.06.2019
-
-Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellín (with Maluma)
-02. Dark Ballet
-03. God Control
-04. Future (feat. Quavo)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAD0D70E6934C65BFC5DEAEFEC9F7E47AEBA718
 ```
 
 https://mybot314.ru/tekegram_catalog/

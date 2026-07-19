@@ -1,32 +1,3 @@
-###  Публикация: 1192944   (262472) от 19.12.2017
-
-VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01.  The Spencer Davis Group  -  Gimme Some Lovin'  2:59
-02.  Grace Jones  -  Pull Up To The Bumper  3:38
-03.  Simple Minds  -  Alive And Kicking  4:47(   Читать дальше...   )Жанр: Rock, Pop Rock, PopПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EEC6A7E91A57D1976B23C2665F9E46B5B9831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193919   (261823) от 23.12.2017
 
 ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
@@ -836,6 +807,35 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838FBDB72C1459A885BF0BB270B866FA38942F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623362   (246000) от 01.04.2023
+
+Frank Stallone - Frank Stallone (1984) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' (03:32)
+02. Music Is Magic (03:13)
+03. Love Is Like a Light (03:57)
+04. Darlin' (03:23)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604D8A1EDDDCAD786761D5E7267270C0BFD290FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

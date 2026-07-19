@@ -1,3 +1,235 @@
+###  Публикация: 1295993   (615241) от 15.04.2019
+
+VA - Yabba Funk: Soul Full Radio (2019) [MP3|320 Kbps] <Funk Soul, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolooloosh - Always
+02. The Allergies - Run It Back
+03. Funky Destination - Let's Make This Party Jumpin
+04. Cissy Street - Yemanja(   Читать дальше...   )Жанр: Funk Soul, Funky HouseПродолжительность: 05:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C53BA9BD08B28719358F2CD4FDCDB0732CCBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295910   (615236) от 15.04.2019
+
+VA - Options Remake Of Tracks April -A- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Serrano - Hit Me Up (Arno Stolz Remix)
+02. Downgrooves & Chris Sterio - Sublimation
+03. Farius - Eleventh Hour (Original Mix)
+04. Blank & Jones - What You Won't Do For Love(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0883D0D5BAFA5104095F332A1B190F904B97E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295992   (615232) от 15.04.2019
+
+VA - Girls Night Party (2019) [MP3|320 Kbps] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615232.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joachim Garraud - Champions
+002. 98 Degrees - Girls Night Out
+003. Erwin Steijlen - Just Dance
+004. Johnny Karlsson - Dirty Game(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 10:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33096A66543E2C2CC14AE9A290F84087BC702700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296118   (615230) от 15.04.2019
+
+VA - Holograms Of Festival DJ Positions (2019) [MP3|320 Kbps] <Dancehall, Reggaeton, Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615230.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Boogie Wit Da Hoodie ft Offset & Tyga - Startender (Spryte Remix) (Dirty Short Edit)
+002. Marshmello & Bastille - Happier (West Coast Massive Remix) (Clean Extended)
+003. The Chainsmokers - You Owe Me (Nonsens Remix) (Clean Short Edit)
+004. Substance UK - Samurai (Slick Thieves Remix) (Dirty Radio Edit)(   Читать дальше...   )Жанр: Dancehall, Reggaeton, Dubstep, ElectroПродолжительность: 06:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813E5E304EF34C3E178DE62F3029EF090A843F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146462   (614654) от 29.06.2017
+
+VA - The Chillout Session Ibiza (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cantoma - Abando (Original Mix)
+002. Ambient Grooves - Breaking Free
+003. Luc Forlorn - Take Me Home
+004. Alexa Goddard - Say You Won't Let Go(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 07:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABA59697A9EE96E9888962E0788926945EF6F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911725   (614399) от 24.06.2015
+
+VA - Vocal Drum & Bass Temptation Vol 3 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Performance - Waiting For You (04:56)
+02. Ellie Goulding - Love Me Like You Do (Drifta Remix) (04:21)
+03. Drifta, Subsonik - Everlasting (Subsonik Remix) (05:58)
+04. Phantogram - Don&T Move (Malk & Davip Remix) (04:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F621357573F865B7B9E5042975202535481C987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037544   (613983) от 24.07.2016
+
+VA - 45 Suntracks Sunday Music (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topmodelz -  Your Love (CJ Stone Edit) 3:36
+02. Jasper Forks -  Paradise (Video Edit) 3:02
+03. Armin Van Buuren Feat. Mr Probz -  Another You (CID Remix) 4:36
+04. Cosmo & Skoro feat. Nathan Brumley -  Feel So Deep (Alexey Lexx Remix) 4:15(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 02:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0F33E8FA5218C7644BE39B5EAB87FF4F1A9A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037527   (613980) от 24.07.2016
+
+VA - Club Dance Ambience Vol.79 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicky Romero -  Ready 2 Rumble (Original Mix) 2:59
+002. Tiesto & Jauz -  Infected (Original Mix) 3:45
+003. Benny Benassi -  Danceaholic (Original Mix) 3:35
+004. Calvin Harris & Disciples -  How Deep Is Your Love  (Sound Delicious Remix) 3:52(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50C7DEA8039071BCF6E2A9F764151A69C6EE5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037319   (613885) от 24.07.2016
 
 VA - Songs for Lovers Sexy and Erotic Chillout Compilation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -522,238 +754,6 @@ VA - Deep, Dark & Dangerous: Volume 1 (DDDC01) (2016) [MP3|320 Kbps] <Dubstep, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9C8BA2C60B0D686EC831D16EF1A92A046055A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147416   (609180) от 02.07.2017
-
-VA - Aesthetical Progressive House (2017) [MP3|320 Kbps] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609180.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick.Sal - Dark Road
-002. Tony Moran - When the Beat Stops
-003. Da Funk - Stay with Me (Blugazer Remix)
-004. Toy Armada - Stand by Me (Original - Pride Edit)(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 11:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4ABADE503A40AEF1307D04B55C10B9A1234AC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912868   (609121) от 27.06.2015
-
-VA - Extra Trance (episode 4) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Steele - Mantra (The Noble Six Remix) (07:33)
-02. Sean Mathews - Dubai Sunset (Original Mix) (07:12)
-03. Fisher & Sean Tyas - Something In The Way (Original Mix) (08:11)
-04. Freigeist - Back in the Days (Original Mix) (08:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1795E7F1586A1588B43B7CEC3830289D721936D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912967   (609116) от 27.06.2015
-
-VA - Sexy Elevator Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Peixiero - In the Air Tonight [05:16]
-02. Bossanatics, Ana Costa & Barry Gibb - Night Fever [03:56]
-03. Diana Martinez - Time After Time [05:21]
-04. Andre Sarbib - Every Breath You Take [03:41](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CFFBC6F678B781307CBA26BD1B2F130FAFC345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912167   (609115) от 27.06.2015
-
-VA - Tallinna Lounge Collection Vol.10 (2015) [MP3|320 кб/с]<Downtempo, Nu Disco, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Koletzki feat. Jake The Rapper - Fifty Ways To Love Your Liver (Original Mix) (05:01)
-02. Pompeya - 90 (Korablove Slow Disco Remix) (06:03)
-03. Showtek feat. MC Ambush - 90's By Nature (Sam Feldt Remix) (04:24)
-04. Dolls Combers - Last tango in Paris (Original Mix) (09:11)(   Читать дальше...   )Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D9B6B96B8479BF037D5BB42769DCFFA7990DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231002   (609035) от 16.06.2018
-
-VA - Deep House and Techno - Dream Selection 2010-2015 vol.7 (2016) [MP3|320 Kbps] <Deep House, Techno House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Gasperini & Jose Maria Ramon - Unbreakable (Original Mix) [4:05]
-02. Emmanuelle - Italove [4:58]
-03. Miguel Migs - Intro (Life) (feat. Half Pint) [4:26]
-04. Max Riddle - Blue Sky [6:13](   Читать дальше...   )Жанр: Deep House, Techno House, TechnoПродолжительность: 04:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702E2781C319485AB58B598BF9F8B6C5043CF57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231000   (609032) от 16.06.2018
-
-VA - Deep House and Techno - Dream Selection 2010-2015 vol.6 (2016) [MP3|320 Kbps] <Deep House, Techno House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasper Bjorke - Go Away Song (Wareika's Incandescence Resistance Remix) [9:46]
-02. Danism feat. Arnold Jarvis - Fly Away [5:39]
-03. Flex Cop - Placebo [7:54]
-04. Prommer & Barck feat. Lois Longerling - Lovin (Andre Lodemann Remix) [6:56](   Читать дальше...   )Жанр: Deep House, Techno House, TechnoПродолжительность: 04:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484B4B1926B0C86D3BD92A423974FE6698D9A738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038184   (608754) от 27.07.2016
-
-VA - Beatport Trance Pack (25.07.2016) [MP3|320 Kbps] <Trance, Emotional, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM -  Elijah (Dimension Remix) 5:56
-02. Paul Cry -  Velvet (Original Mix) 8:31
-03. Breekler -  What I Am (AXIS-Y Remix) 9:08
-04. Dreamseekers -  Recall (Original Mix) 5:47(   Читать дальше...   )Жанр: Trance, Emotional, EnergyПродолжительность: 04:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF22D085C1E3A1402F766CCADC587CA5C986BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038165   (608747) от 27.07.2016
-
-VA - Trance Evolution - Top Collection (2016) [MP3|320 Kbps] <Trance, Progressive, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferry Corsten And Gouryella -  Neba (Original Mix) 8:17
-002. Aurosonic -  Tell Me Why (feat Nicol Cache )( Club Dub Mix) 7:10
-003. Hazem Beltagui -  On the Edge of Darkness (Original Mix) 7:07
-004. TrancEye -  Healer (Original Mix) 6:53(   Читать дальше...   )Жанр: Trance, Progressive, MelodicПродолжительность: 13:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B7CDDAB0ADB21B49022FCF9D5ADEADDD1B606B
 ```
 
 https://mybot314.ru/tekegram_catalog/

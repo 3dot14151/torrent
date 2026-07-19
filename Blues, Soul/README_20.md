@@ -1,3 +1,61 @@
+###  Публикация: 918511   (586917) от 15.07.2015
+
+Mahalia Jackson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Didn't It Rain (7:00)
+02.  We Shall Overcome (9:13)
+03.  Rusty Bell (4:15)
+04.  If I Could Help Somebody (6:10)(   Читать дальше...   )Жанр: Funk / Soul, BluesПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5E0DCE1B0704104B131FA685E062AF5C05E188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918783   (586039) от 16.07.2015
+
+Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues, Harmonica Blues, Piedmont Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Po' Boy, (2:45)
+02.  Everybody's Blues (6:47)
+03.  Trouble In Mind (3:15)
+04.  I'm A Stranger Here (4:03)(   Читать дальше...   )Жанр: Country Blues, Harmonica Blues, Piedmont Blues, FolkПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5218C55AB1BC3C945C4C56B5B910799CFEB762B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918838   (586010) от 16.07.2015
 
 Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
@@ -687,64 +745,6 @@ Gene Chandler - Les Genies du Rock - Rainbow (1993) [MP3|320 кб/с]<Soul, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F198F54FAB68DE8A5CCEB3EF7F26A72C5C6F284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922163   (571794) от 27.07.2015
-
-Gladys Knight & The Pips - Les Genies du Rock - Every Beat Of My Heart (1995) [MP3|320 кб/с]<Soul,Funk,R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Every Beat Of My Heart (2:05)
-02.  Stop And Get A Hold Of Myself (2:58)
-03.  Another Love (2:45)
-04.  What Will Become Of Me (2:26)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52145702AD6EBB4993DD322C7D196662710AB360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922211   (571785) от 27.07.2015
-
-Jerry Butler - Les Genies du Rock - For Your Precious Love (1995) [MP3|320 кб/с]<Soul,Funk,R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Just for You (2:35)
-02.   Sweet Was the Wind (2:07)
-03.  He'll Break Your Heart (2:47)
-04.  Find Another Girl (2:46)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE55DFB520853C5145CD29F35FE44F5217E7BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

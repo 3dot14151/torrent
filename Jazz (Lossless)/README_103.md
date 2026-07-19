@@ -1,119 +1,3 @@
-###  Публикация: 1131154   (709007) от 05.05.2017
-
-Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Bridge [03:58]
-02. Love Is Here To Stay  [03:25]
-03. It Happens To Be Me [03:23]
-04. All Too Soon [04:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533066   (708997) от 22.02.2022
-
-Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Were Meant for Me [3:35]
-02. I Thought About You [5:10]
-03. Goody Goody [3:50]
-04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131319   (708552) от 05.05.2017
-
-Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love
-02. Isn't It Romantic
-03. L-O-V-E
-04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D96336FADD9F85E6D646D4A0BAEF0C3941F2090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025990   (708294) от 13.06.2016
-
-Chico Hamilton - El Chico & The Further Adventures Of El Chico (1965/1966) 2011, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Chico [03:47]
- 02.People [06:07]
- 03.Marcheta [04:02]
- 04.This Dream [03:12](   Читать дальше...   )Жанр: Mainstream Jazz, Latin JazzПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3631E6B387C14CB78FECAFD2D465FAED293183FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025924   (708293) от 13.06.2016
 
 Phil Woods - Voyage (2001) Chiaroscuro Records[FLAC|Lossless|image + .cue] <Post-Bop>
@@ -745,6 +629,122 @@ Joe Van Enkhuizen & Horace Parlan - Ellington Ballads (1988) Remaster, 2015, Sol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:978836FFC88E6DA7F127B45D9C1417FE2BE2825B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026171   (706243) от 14.06.2016
+
+Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pain Killer - I [08:48]
+ 02.Zig Zag [03:52]
+ 03.Free Stroll [12:05]
+ 04.Little Treat [02:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CB6C376FA41415C7D36297E1A2569C87C041AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220248   (706197) от 18.04.2018
+
+Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-8 Ford Blues [02:17]
+02. Please Don't Talk About Me When I'm Gone [01:32]
+03. Baby, Please Don't Go [02:38]
+04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220254   (706196) от 18.04.2018
+
+Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through the Tunnel [04:47]
+02. Freedom of Mind [05:52]
+03. Black Orpheus [06:37]
+04. Tortoise [06:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EFEFAA57DDADAD74C7BFE08080A97D2B0E43B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220252   (706195) от 18.04.2018
+
+Bo Sundstrom - Mitt Dumma Jag: Svensk Jazz (2018) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forsvann du [04:01]
+02. Kommer du till mig inatt [02:37]
+03. Sommaren vi alskade varann [04:08]
+04. Allt ar som forut [04:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41366B9ADDBD8C0DC1286095322B26B7D9C5B198
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1276401   (788220) от 16.01.2019
-
-Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ma Mama
-02. Naleki
-03. Youwile
-04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203462   (788203) от 02.02.2018
-
-Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Come To Me (4:15)
-02. Priceless Cure (4:09)
-03. Z Rozpaczy Blues (4:54)
-04. Nie Wiadomo (4:14)(   Читать дальше...   )Жанр: Jazz, Female VocalПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13654127960FADF1D97F98569BC76B8A68C632E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276477   (788156) от 16.01.2019
-
-Herbie Hancock - Then And Now (2008) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maiden Voyage [7:55]
-02. Cantaloupe Island [5:28]
-03. Wiggle Waggle [5:50]
-04. Chameleon [7:41](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54DE822EAFE4765EE1BCBC7ED3A754928D6A7BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512005   (787898) от 23.11.2021
-
-Houston Person - I'm Just A Lucky So And So (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow Weep for Me [8:09]
-02. Wonder Why [4:56]
-03. I Guess I'll Hang My Tears Out to Dry [5:48]
-04. I'm Just a Lucky So and So [6:59](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8886236DAB6EAEAECAE56ED5CBA6CE7C2CE37277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512108   (787840) от 23.11.2021
 
 Michael Arthur Holloway - Strange Cargo (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Noir Jazz>
@@ -745,6 +629,122 @@ Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123567   (786411) от 08.04.2017
+
+Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.See You at the Fair [06:16]
+ 02.Hotter than 'Ell [02:58]
+ 03.The Ghost of Dinah [02:50]
+ 04.Cotton Tail [03:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68764A45C8AEC0791F50C7CADB30F0C81EF309B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123683   (786409) от 08.04.2017
+
+Thelonious Monk - Eight Classic Albums (1954 - 1957) 4CD, 2010, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786409.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Monk & Monk's Music:
+01.We See [05:18]
+02.Smoke Gets in Your Eyes [04:33]
+03.Locomotive [06:24](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 05:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463300CB4A8DCB1E0AE796CCC124242CCD9B7AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123647   (786408) от 08.04.2017
+
+Charles Mingus - In A Soulful Mood (1960) 1995, Music Club [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bugs [08:30]
+ 02.Reincarnation Of A Love Bird [07:00]
+ 03.Vassarlean [06:40]
+ 04.Stormy Weather [13:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D3970AE4152AEED98A9486662714A76046A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123633   (786402) от 08.04.2017
+
+Thelonious Monk - Six Classic Albums, Vol.2 (1957 - 1959) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786402.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Brilliant Corners & Thelonious in Action:
+01.Brilliant Corners [07:46]
+02.Ba-Lue Bolivar Ba-Lues-Are [13:07]
+03.Pannonica [08:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 04:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07E5939E584CC57D4E755530519622E34BD2C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

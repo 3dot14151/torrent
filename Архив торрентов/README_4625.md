@@ -1,450 +1,12 @@
-###  Публикация: 484997   (100039) от 19.04.2012
+###  Публикация: 484944   (99956) от 19.04.2012
 
-Величайшие автомобили: Спортивные машины / Great Cars: Sports cars (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивные машины заставляют оборачиваться и привлекают внимание автолюбителей по всему миру. Эти машины дарят радость вождения. Они для тех людей кто любит азартную езду, кто любит испытывать на что способна машина и хочет чтобы это видели другие. Спорткары - это красота, мощность и скорость. Разве перед ними можно устоять?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487985A4B87DA398A3F370175E55271BC8EC07C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484652   (100033) от 19.04.2012
-
-VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Diagnostik - Fear & Loathing [08:02]
- 02. Sci Lab - Pandoras Box [07:22]
- 03. EMP - Renegade [07:19]
- 04. Night Wolf - Scientology [06:18]
- 05. Algorhythm - Reborn [07:54]
- 06. Iron Lotus - Inferno [07:04]2012Жанр: Psychedelic / Night Full OnПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485098   (100029) от 19.04.2012
-
-[Wallpapers]Великолепная природа
+[Wallpapers] Best HD Wallpapers Pack (19.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100029.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Великолепная природа 
-Название: Великолепная природа
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8843BFB0F6B9EAFB0CDC301A26B1F0E1F7FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485101   (100025) от 19.04.2012
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100025.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-Название: HQ Color HD Amazing Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B38CB723E9DA8DAB9A8CC81844C12738E59E4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484984   (100022) от 19.04.2012
-
-Величайшие автомобили: Land Rover / Great Cars: Land Rover (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяга к приключениям, не угасающая жажда исследовать неизвестное, побывать там где еще не ступала нога человека, первым достичь вершины или пересечь континент - именно это стремление стало причиной сухопутных экспедиций, которые прославили Land Rover. Именно оно спровоцировало появление целого семейства автомобилей этой марки.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484985   (100016) от 19.04.2012
-
-Величайшие автомобили: Mercedes / Great Cars: Mercedes (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100016.jpg" />
-</div>
-
-
-###  Подробнее
-
-MERCEDES положил начало автомобильной эпохи. С 1886 года изменилось многое, но говорят что дух Готлиба Даймлера и Карла Бенца живет в каждом автомобиле MERCEDES BENZ. Будь-то на гоночной трассе или на обычной дороге они все так же привлекают водителей своею страстью к стилю и скорости.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485175   (100015) от 19.04.2012
-
-[Wallpapers]Обои с прекрасными уголками природы
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100015.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Обои с прекрасными уголками природы
-Название: Обои с прекрасными уголками природы
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485013   (100011) от 19.04.2012
-
-Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 00:35
- 02. Lord Of Fire 05:05
- 03. Tank Attack 05:04
- 04. Forces Of Evil 05:35
- 05. Gateway To Death 05:27
- 06. Into Oblivion 04:46
- 07. Dark Traveller 03:55
- 08. Death Of A King 07:14
- 09. Curse Of The Black Sea 04:58
- 10. Mountain Of Madness 06:122012Жанр: Black/Viking/Power MetalПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAA3A447726A40C83DF82F0C1134C3140C179E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484841   (100010) от 19.04.2012
-
-VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V0)]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Man - Say What You Said
-02. Alex Agore - Promised You Love
-03. Nicholas - On the Ground
-04. Norm De Plume - Steady Teddy (Franc Spangler Remix)
-05. Deadly Sins - Sometimes
-06. Fantastic Man - Groove With You
-07. Alex Agore - Man Down (Tornado Wallace Remix)
-08. 6th Borough Project - When The Hate Is Gong
-09. Eddie C - Simple Song
-10. South West Seven - The Only One(   Читать дальше...   )2012Жанр: HouseПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230AF305B037A26D382FDEC0158F67BE6CBF2C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485003   (100004) от 19.04.2012
-
-Uneven Structure - Februus (Limited Edition) (2011) [MP3|320 кб/с]<Experimental Progressive Math Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
- 01: Awaken (06:35)
- 02: Frost (06:00)
- 03: Hail (05:55)Жанр: Experimental Progressive Math MetalПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CF0AC6006FC0F7A3B576A12B14ADD8ACA84DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484736   (100003) от 19.04.2012
-
-Mari! Mari! - Flamboyant Flares [EP] (2012) [MP3|320 кб/с]<Indie Rock/Brit-Pop/Indietronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painfully Illuminated (3:14)
-02. Marina Wakes Up At 3 P.M. On Monday (3:17)
-03. Sea (2:49)2012Жанр: Indie Rock/Brit-Pop/IndietronicПродолжительность: 00:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A6814DD45E51823DF2839AB77B0A622A6EE706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484674   (100001) от 19.04.2012
-
-K-Lapso - Deadly Transformations (2012) [MP3|320 кб/с]<Psychedelic / Dark>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Deadly Transformation 07:28
- 02 Mad Monks Reborn (Silent Horror Remix) 06:40
- 03 Ravenous 07:57
- 04 Stricken 07:15
- 05 Doomlord 06:45
- 06 Picha Tripla 08:14
- 07 Transcend To Darkness 06:30
- 08 Killer Night (Remix) 07:59
- 09 Plantriacomatic 07:252012Жанр: Psychedelic / DarkПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F68184A04A23104B32B8CE9EEBE46385E3DC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484989   (100000) от 19.04.2012
-
-Величайшие автомобили: Mustang / Great Cars: Mustang (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mustang выпрыгнул на автомобильную сцену словно резвый пони в 1964 году. Он быстро вырос из многообещающего жеребенка в чистокровного скакуна. Затем на некоторое время он сбился с пути, но поклонники машины со всего мира объединились, чтобы их любимый пони выжил. Более 40-ка лет назад он вышел из стойла, но до сих пор уверенно скачет вперед.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24296562CC28753E6982C61649BA4B4E00DB1DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484982   (99999) от 19.04.2012
-
-Величайшие автомобили: Jeep / Great Cars: Jeep (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jeep-это легенда пробуждающая образ свободы. Это бесспорно американская машина, которая дала нам возможность следовать куда угодно. Ее корни уходят во времена Второй мировой войны, когда она служила на фронте. Создатели оригинального Jeep-а были бы весьма удивлены, увидев насколько он изменился и где находится сегодня. Jeep стал иконой Америки и частью истории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2F7FE753111E52D6D84E3EE5660278E897B1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485168   (99996) от 19.04.2012
-
-[Wallpapers] Wallpapers Fantasy №7 (Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744E148B2DFDA3B17AA7ADA1E56EED5280D20229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485200   (99991) от 19.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (20.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99956.jpg" />
 </div>
 
 
@@ -454,7 +16,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E56DB19EFDCC26AC9BBAE5B523917724291A0B2
+magnet:?xt=urn:btih:7B8D6807E34471ED13E88072F2D843A9BBF2E9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,29 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485227   (99989) от 19.04.2012
+###  Публикация: 485106   (99955) от 19.04.2012
 
-[Wallpapers] Desktop Wallpapers №22
+[Wallpapers]Delicious Wallpapers
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №22
-Название: Desktop Wallpapers №22
+[Wallpapers]Delicious Wallpapers
+Название: Delicious Wallpapers
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1600x1200/2796x3567
+Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F68D6422484E47CB06574F8347EF1267654FC43E
+magnet:?xt=urn:btih:B1B5B74645798D3D477FDB53B2D48B929934C9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,55 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484986   (99987) от 19.04.2012
+###  Публикация: 485210   (99954) от 19.04.2012
 
-Величайшие автомобили: Mini / Great Cars: Mini (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99987.jpg" />
-</div>
-
-
-###  Подробнее
-
-MINI выглядит так же молодо как и в тот день, когда Сер Алек Исегонис сделал его первые наброски на скатерти в ресторане. За четыре десятилетия он стал иконой. Этот символ бунтарства и веселья появился в начале 60-х годов. Но путь MINI еще далек от завершения.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34220884BAE50665924801DA56562058C6B6B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485217   (99985) от 19.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack
+[Wallpapers] Wallpapers Sexy Girls Pack (20.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack
-Название: Desktop Wallpapers Pack
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60E87049D4EEEC29E3C573DE6B32DD9785D2180B
+magnet:?xt=urn:btih:2E6C27810D8A7F7BB05DC00FF03A63FCE723FBF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,27 +80,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484615   (99984) от 19.04.2012
+###  Публикация: 485211   (99951) от 19.04.2012
 
-Psychotic Homicidal Dismemberment - Displaying Her Decapitated Corpse (2011) [MP3|320 кб/с]<Brutal Death / Goregrind>
+[Wallpapers] Wallpapers Sexy Girls (20.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 2582х1849
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F898163FF83BDC099453AF9BB1FEA58F3A71E88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484945   (99950) от 19.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (19.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4075x2288
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4115A14186D31D2E9A8F59E408CFE2CB2FC9F47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485218   (99949) от 19.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484677   (99944) от 18.04.2012
+
+Журнал | Современный дом и офис №1 [2012 февраль-март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная информация о модных тенденциях и дизайнерских идеях на интерьерном рынке, помощник в решении практических вопросов строительства, ремонта и обустройства комфортного качественного интерьера. Журнал регулярно знакомит своих читателей с новинками рынка, рассказывает о наиболее авторитетных марках и производителях мебели, отделочных материалов, строительных компонентов.2012 февраль-мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484869   (99943) от 18.04.2012
+
+[Wallpapers] Wallpapers Fantasy №5 (Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482346   (99915) от 18.04.2012
+
+Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Displaying Her Decapitated Corpse 01:51
- 02. Cannibalize Living Flesh 01:55
- 03. Bleeding Pieces 02:07Жанр: Brutal Death / GoregrindПродолжительность: 00:29:17
+01. Intro (3:49)
+02. Easy Going (6:00)
+03. Panica (7:04)
+04. Axe Fx (7:14)
+05. Shocker (6:57)
+06. Primiera (7:31)
+07. Gold Rush (7:28)
+08. Pandora (6:29)
+09. Selection (7:01)
+10. Prozac (6:07)2010Жанр: PsytranceПродолжительность: 01:05:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52ADB6587A6A0AF02563AA0DD3F8ABED8FB20A7A
+magnet:?xt=urn:btih:3D4F37DD46B5FD690D454CAF4943CD5C0A90ECD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,25 +245,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484979   (99981) от 19.04.2012
+###  Публикация: 484458   (99913) от 18.04.2012
 
-Величайшие автомобили: GT 40 / Great Cars: GT 40 (2004) SATRip
+[Wallpapers] HQ Wallpapers by KSV (18.04.12)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 2004 году FORD выпустил потрясающую новую модель FORD GT. Ее создателей вдохновил FORD GT 40 60-х годов 20-го века, который был заказан Генри Фордом 2 для противостояния Ferrari и утверждения гоночного превосходства FORD-а. Брошенный вызов перерос в одно из захватывающих и дорогостоящих сражений на мировых гоночных трассах...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F7662C3F68301A8E979385FD5A1932E51F7CAE
+magnet:?xt=urn:btih:F1D341DD8568B9BEB75A5FE8329009247D3A1D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,34 +271,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484792   (99979) от 19.04.2012
+###  Публикация: 483867   (99911) от 18.04.2012
 
-Bobina - Russia Goes Clubbing #188 (2012) [MP3|320 кб/с]<Progressive Trance>
+[Wallpapers] Mixed Wallpapers 0.6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс обоев для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484490   (99900) от 18.04.2012
+
+[Wallpapers] Girls Wallpapers Mix (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC93603AC3C4D44BD749E789BD8A960C4D1B3D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484494   (99896) от 18.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 4000х2662
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482966   (99888) от 17.04.2012
+
+Лейтенант Коломбо - Полька Джэмбори (2012) [MP3|320 кб/с]<Old-school Hip-Hop/Funky/Breakbeat>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hour 1:
-01. Daniel Wanrooy feat. Blake Lewis - Stay In The Moment
-02. Ex-Driver & Satelite - See The Light (D-Mad remix)
-03. The Blizzard - Piercing the Fog
-04. Tomas Heredia - Silent Nights
-05. Chris Schweizer - Xeon
-06. Bobina - Diamond Hell (Wezz Devall remix)
-07. Sied van Riel - Tunnel Vision
-08. Andrew Rayel - Exponential
-09. RAM - RAMplify(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:57:06
+01. Фанки Флибустьеры (3:24)
+ 02. Вапабадубап (Боевик) (2:26)
+ 03. Кинг Оф Рок (3:29)
+ 04. Дядя Фрэнки Уходит В Отставку (2:54)
+ 05. Кэмбоооу (3:58)
+ 06. Фантомас Разбушевался (3:53)
+ 07. Р-Н-Р Так Р-Н-Р (2:14)2012Жанр: Old-school Hip-Hop/Funky/BreakbeatПродолжительность: 00:22:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
+magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,25 +381,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484981   (99976) от 19.04.2012
+###  Публикация: 483701   (99881) от 17.04.2012
 
-Величайшие автомобили: Jaguar / Great Cars: Jaguar (2004) SATRip
+День Зеро / Day Zero (2007) DVD5
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Jaguar - одна из знаменитых марок в мире, которая известна своими стильными, быстрыми и грациозными автомобилями. Она гремела по всему миру благодаря гоночным успехам 50-тых годов и машинам, сочетавшим уникальные технологии и выдающуюся скорость. Jaguar оставил неизгладимый след на автомобильном ландшафте.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Америка снова вернулась к призывной армии. Трое друзей — адвокат, таксист и писатель — в тридцатидневный срок должны явиться на службу. У каждого из них своя жизнь, но детские узы дружбы не ослабели.
+
+Рифкин — женат, работает адвокатом, его карьера идет в гору. Недавно его назначили партнером фирмы, поэтому он ищет любую лазейку для того, чтобы не идти в армию.
+
+Феллер пишет свой второй роман. Первый роман имел оглушительный успех, и повестка о призыве в армию мешает ему, вызывая творческое бессилие. Он решает составить список 10-ти вещей, которые ему нужно сделать до того, как он начнет служить в армии.
+
+Диксон работает таксистом, живет один и охотно готов служить в армии. Но неожиданно в его жизни происходят события, которые меняют его жизнь.
+
+В течение тридцати дней их дружба проходит испытание на прочность, также как их представления о жизни, смерти, отваге и любви.Жанр: ДрамаРежиссер: Брайан Гуннар КоулАктеры: Элайджа Вуд, Крис Клейн, Джон Бернтал, Джиннифер Гудвин, Элизабет Мосс, Элли Шиди, София Васильева, Джон РотменПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:29:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +415,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485212   (99974) от 19.04.2012
+###  Публикация: 484470   (99880) от 17.04.2012
 
-[Wallpapers] Girls Wallpapers Mix (20.04.12)
+7раса - Р.Н.Г. (2012) [FLAC|Lossless]<Alternative Rock, Grunge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) Р.Н.Г. (3:57)
+02) Время осталось (3:17)
+03) Огонь молодых (3:15)2012Жанр: Alternative Rock, GrungeПродолжительность: 00:10:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483785   (99878) от 17.04.2012
+
+VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99878.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christopher S feat. Max Urban - Star (Organ Remix).
+002. Remady & Manu-L Feat. J-Son - Single Ladies (Extended Mix).
+003. Chris Garcia Feat. Sherry St Germain - I Rock Alone (Club Extended).
+004. G & G Feat. Jonny Rose & Chris Reeder - All Falls Down (Jean Elan Remix).
+005. BAZEDA, Custom Drops - Love To Party (Original Mix).
+006. Esteban Aracil - Where Is The Love (Soultwister Remix).
+007. suGar, Eva Kade, Evil T - All Around (Andrea Bertolini Remix).
+008. Lana Del Rey - Videogames (Ben DJ & D-Seven Remix).
+009. Sander Kleinenberg - This Is Miami (DJ Morricone remix).
+010. Jimmyburnside - Uppers & Downers (Original Mix).2012Жанр: Club, Dance, Electro, HouseПродолжительность: 28:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484342   (99872) от 17.04.2012
+
+Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D482AC4D2B45FFC62E046D28212CA8531E28389C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484459   (99870) от 17.04.2012
+
+[Wallpapers] Army and military equipment Wallpapers (18.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1440х900 - 3145х2040
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
+magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +530,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484947   (99973) от 19.04.2012
+###  Публикация: 483888   (99864) от 17.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (19.04.12)
+Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3200x2000
+Жанр: Dance, HouseПродолжительность: 00:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
+magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,25 +556,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484492   (99970) от 19.04.2012
+###  Публикация: 484431   (99859) от 17.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (18.04.12)
+DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3600x2400
+01. Nothing You Can Do
+02. Come Back To Me
+03. Footsteps
+04. Horsey (DotEXE Remix)
+05. Alicja
+06. Anything You Want
+07. Elektro Funk
+08. Fast Car
+09. Turn On The Radio
+10. Why Can't I Sleep(   Читать дальше...   )2012Жанр: Drum'n'Bass, DubstepПродолжительность: 01:00:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
+magnet:?xt=urn:btih:BAFD74CE103216D60A8707A6755F217D87129735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483938   (99855) от 17.04.2012
+
+Curandero - Aras (2010) [MP3|320 кб/с]<World>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99855.jpg" />
+</div>
+
+
+###  Подробнее
+
+(09:20) 1. Aras
+(04:53) 2. Segue
+(11:17) 3. River
+(11:25) 4. Man Of The Shadows
+(00:35) 5. Once Upon A Time
+(07:57) 6. Embrujada2010Жанр: WorldПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C9CBCEBD72C831CD7A91BFABB12993BEBB5899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484259   (99853) от 17.04.2012
+
+Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Circle
+02. Hidea
+03. Blacklights
+04. Rapture
+05. Encrypted
+06. The Circle
+07. Omnipotent
+08. Deathwish in the Continuum
+09. Grand Scheme
+10. Alive(   Читать дальше...   )2012Жанр: Modern Metal, Nu-MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B93384B587B9355895E702579E6A139F591534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483967   (99852) от 17.04.2012
+
+Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye (01:39)
+ 02. Space Honkly (02:46)
+ 03. Tomb Of The Mummy (03:42)
+ 04. Lab Chimp Uprising (02:10)Жанр: Progressive Psychedelic SludgeПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E81C81FC48205B9D5F9BD1DB1DB2E192EE4ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484059   (99851) от 17.04.2012
+
+Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Randall - Eight Storeys (2004)
+Год: 2004
+Жанр: Ambient, Istrumental
+Продолжительность: 00:40:50
+Лейбл: Spacious Music
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483168   (99846) от 17.04.2012
+
+[Wallpapers] Wallpaper Sexy Girls 0.6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

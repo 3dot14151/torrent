@@ -1,119 +1,3 @@
-###  Публикация: 1100607   (242530) от 04.02.2017
-
-Herbie Mann - The Beat Goes On (1966, 1967) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Latin Jazz, World Fusion, Cuban jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.No Matter What Shape  [03:27]
- 02.More Rice That Peas, Please [03:34]
- 03.Hey Ho [02:49]
- 04.The Honeydripper  [02:49](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban jazzПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100629   (242504) от 04.02.2017
-
-Eddie “Lockjaw” Davis - Goin' To The Meetin' (1960, 1962) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Wished On The Moon [05:03]
- 02.From This Moment On [04:25]
- 03.It's A Pity To Say Goodnight [05:45]
- 04.Just Friends [06:18](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316C16146B3F09A937D7A5E1E7908304CD0C6F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616655   (242427) от 03.03.2023
-
-Joe Bonner Trio - Parade (1979) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change It [8:10]
-02. Au Privave [5:44]
-03. Sunny [6:08]
-04. Hurry Up and Wait [5:55](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CB03ADF89DBD71B2E0C6B0F56322106D098A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616657   (242411) от 03.03.2023
-
-Dinah Washington - The Jazz Biography (2005) United Audio [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Slick Chick [2:42]
-02. After I Say I'm Sorry [2:38]
-03. Am I Blue? [3:15]
-04. Baby Get Lost [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5143866154E7CA6F48E94D4B9368B89A6121BE33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105402   (242405) от 18.02.2017
 
 Sonny Rollins - Sunny Days, Starry Nights (1984) Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -745,6 +629,122 @@ Brandee Younger - Brand New Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Contempor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59FDD4562350F728AA4721143FDD363D3FFFB508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376509   (241810) от 18.04.2020
+
+Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [4:13]
+02. So Many Stars [5:40]
+03. The Telephone Song [4:54]
+04. O Grande Amor [4:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CD6C56278F5FF957798170BFE9C737CA7AFF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618162   (241783) от 10.03.2023
+
+McCoy Tyner - Sahara (1972) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebony Queen [8:59]
+02. A Prayer for My Family [4:48]
+03. Valley of Life [5:19]
+04. Rebirth [5:20](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9ED5BA4952FFD53ACA08EB95E7E8FA6541BFE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628964   (241755) от 25.04.2023
+
+Billy Taylor - Dr. T (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [6:11]
+02. 'Round Midnight [10:34]
+03. Line for Lyons [6:04]
+04. Cubano Chant [3:51](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9320DD0428CD3D8D93010160BC98E45137D9414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618163   (241754) от 10.03.2023
+
+Dinah Washington - In The Land Of Hi-Fi (1956) 1988, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Love Is Here to Stay [3:09]
+02. Let Me Love You [2:12]
+03. There'll Be a Jubilee [2:09]
+04. My Ideal [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500935DDD5C18C865F0FB3B965F08DBADCACCC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

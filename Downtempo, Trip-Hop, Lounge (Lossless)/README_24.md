@@ -1,148 +1,3 @@
-###  Публикация: 1269920   (217388) от 16.12.2018
-
-VA - Erotica Vol.4 Most Erotic Smooth Jazz and Chillout Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217388.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Pure Water (Over the Blue Mix) - Vladi Strecker 10:10
-2 Over the Hills and Far Away - Michael e 06:24
-3 Cold Sky - Velvet Dreamer 05:16
-4 About Us (Delor Mix) - Simon Le Grec 06:42(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A509A353AD770D489E0B1BD6C38D76B0BE7590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084898   (217354) от 19.12.2016
-
-Schiller - Zeitreise - Das Beste Von Schiller (Limited Ultra Deluxe Edition) (2016) [FLAC|Lossless|image+.cue] <Ambient, Downtempo, Trance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeitreise III
-02. Zeitreise IV
-03. Zeitreise V
-04. Zeitreise VI(   Читать дальше...   )Жанр: Ambient, Downtempo, TranceПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556E3698B2D340B8D3F3A28030392BB131BAAD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343647   (216838) от 07.12.2019
-
-V.A. - Cafe Del Mar: Dreams XI (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Poets - Asylums for the Feeling feat. Leila Adu (Original Mix)
-02. Dub Mentor - Guava feat. Tal Weiss (Original Mix)
-03. Santilli - Watching (Original Mix)
-04. 2XM - The Magic in Her Eyes (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512EE6B579BCD85A6A7AFD48E14FF4DFE16762FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180815   (216202) от 07.12.2019
-
-Joey Fehrenbach - Discography 11 Releases (2006-2019) Delicate Recordings, DT Music, USA [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Ambient, House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Is All That's Ever True (05:39)
- 02. A Subtle Effect (06:40)
- 03. Above the Vaulted Sky (04:38)
- 04. Love in Five Senses (07:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/DowntempoПродолжительность: 07:34:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FB6E982FE25D5EEE58E9F41E5730879450D07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344029   (215150) от 08.12.2019
-
-Clams Casino - Moon Trip Radio (2019) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Trip Hop, Ambient, Cloud Rap>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rune (3:30)
-02. Healing (2:29)
-03. NSX (3:12)
-04. Cupidwing (3:23)(   Читать дальше...   )Производство: Clams Casino - AWD 435910Жанр: Abstract Hop, Trip Hop, Cloud Rap, Instrumental Hop, Beats, AmbientПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C7AF7AB872D49F8E4F5665561F15A682BB0F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653694   (214136) от 17.08.2023
 
 Blank & Jones and Laid Back - Sitting in My Sofa (Van Bellen Remix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
@@ -745,6 +600,151 @@ VA - Deep Relax - Yoga & Chillout Grooves (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7019ACF8ADD0E36F971743CFA317C5B714814C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618555   (201458) от 12.03.2023
+
+Schiller - Illuminate (2023) Limited Premium Deluxe Edititon [FLAC|Lossless|image + .cue] <Electronic, Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Willkommen	(0:53)
+2. Empire Of Light	(8:45)
+3. Illuminate	(4:05)
+4. Meer Der Stille	(4:47)(   Читать дальше...   )Жанр: Electronic, Chillout, DowntempoПродолжительность: 03:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079792E22FDC855C406A7C4B735831750969988D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828947   (199932) от 24.10.2025
+
+VA - Home Office Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Sheela & Luna (6:07)
+02. V-Sta - Carefree (4:54)
+03. Beamy - Travellers (4:55)
+04. Gian Delly - Space Away (3:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5346FAE334FF46B7DBE504D38F436DC03B2A635D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 79880   (197197) от 10.06.2023
+
+DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спасите детей
+02. Мне грустно
+03. Ритмы и чувства
+04. Мы можем летать(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C45F1278EBCDF7706A2219FFA9F0FFC4DD63B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656811   (193043) от 02.09.2023
+
+VA - Sweet September: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - No One Like You (Original Mix) (5:10)
+02. Lounge Groove Avenue - Take Me to Paradise (3:08)
+03. Lennart Richter - Ride Along (Original Mix) (3:24)
+04. Paul Seling - Rewind (3:32)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615375519F9A6652EFA02D2B899078C6A76D8A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588034   (191827) от 03.11.2022
+
+VA - Chilled Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Cool of the Night (Original Mix) (6:39)
+02. Matt Sour - Nighthawk (3:49)
+03. V-Sta - Flashin in the Sun (Original Mix) (2:45)
+04. Zyan Terrance - Overall (2:30)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530FA87F9A14CCCFED790DC6EACB97953CACAA80
 ```
 
 https://mybot314.ru/tekegram_catalog/

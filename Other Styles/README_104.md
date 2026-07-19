@@ -1,3 +1,183 @@
+###  Публикация: 536187   (515361) от 17.08.2012
+
+Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:17:32
+
+01. Conquest Of Paradise
+02. Titles From Chariots Of Fire
+03. Blade Runner (End Titles)
+04. Pulstar
+05. Eternal Alexander
+06. Anthem - 2002 Fifa World Cup Official Anthem
+07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315205   (515015) от 18.07.2019
+
+Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRUMS 1 (05:28)
+02. DRUMS 2 (05:08)
+03. DRUMS 3 (07:27)
+04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930498   (514763) от 23.08.2015
+
+VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Корнелюк - Город, Которого Нет - Бандитский Петербург [00:04:18]
+02. Thomas Newman - The Green Mile [00:03:38]
+03. Clint Mansell & Kronos Quartet - Winter Lux Aeterna - OST Requiem for a Dream [00:03:54]
+04. Bill Medley & Jennifer Warnes - The Time Of My Life - OST Грязные танцы [00:06:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242329   (513972) от 23.08.2018
+
+Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Daydream 04:49
+02. Tracing Rainbows 05:16
+03. Dancing with the Moon 04:08
+04. Our Own Window 03:42(   Читать дальше...   )Жанр: Piano, Neo-Classical, InstrumentalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242536   (513937) от 23.08.2018
+
+DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Ag>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Miss You
+02. Willing to Love
+03. When You're Gone
+04. Apologize(   Читать дальше...   )Жанр: Instrumental, Piano, New AgПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A4B2C21A68169CF4A3E31427D95C2CBF688F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315395   (513818) от 19.07.2019
+
+Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanderer [6:28]
+ 02. Spirits Of The Forest [5:57]
+ 03. Call Of The Unknown [6:15]
+ 04. Beyond The Horizon [6:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EE41514E200CFA5F6EF57EBB17061A60937A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315177   (513806) от 19.07.2019
 
 Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
@@ -584,198 +764,6 @@ Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F21341C1039622A539146BB1CA4A7FB7923EE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231813   (507943) от 01.09.2010
-
-Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507943.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:14) 01. Zyryab Melodia del Puente de J.A. Amargos
-(3:20) 02. Guajiras de Lucia
-(3:09) 03. Cobre Sevillanas
-(4:51) 04. Monasterio de Sal Coluombianas
-(4:17) 05. Cana de Azucar
-(3:24) 06. Barrio la Vina Alegrias
-(5:02) 07. Tio Sabas Homenaje A Sabicas
-(4:35) 08. La Barrosa Alegrias
-(5:42) 09. La Cueva del Gato Rondena
-(4:41) 10. Chiquito(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932731   (507889) от 30.08.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538488   (507582) от 25.08.2012
-
-VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentin Huedo & Atfunk (CDM) - Until The Sun Goes Down
-02. Kenneth Bagger - Speak My Name
-03. Kenneth Bagger - And I Kept Hearing (Radio Edit)
-04. Kenneth Bagger - Love Won't Leave Me Alone
-05. Kenneth Bagger - Time Is Up
-06. Bird - Some Boys (Valentin Huedo Remix)
-07. Bird - Sweetheart
-08. Bird - Wind It Up
-09. Bird - Bad Connection
-10. DJ Disse - Spanish Reggae(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316299   (506824) от 25.07.2019
-
-VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo, The 4 – Candela 3:43
-02. The 4, Yosvany – Prisoner 3:37
-03. Sonora Cubana (Los Picaros De La Habana) – What I Do Yo 4:44
-04. Lkm, Katy-A – Hidden 4:28(   Читать дальше...   )Жанр: Kizomba, Merengue, Sonero, OtherПродолжительность: 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232993   (506102) от 03.09.2010
-
-Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The Godfather - Part I/II/III (1972 / 1974 / 1990) [MP3|320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nino Rota - Main Title (0:42)
-2. Nino Rota - The Godfather Waltz (1:10)
-3. Carmine Coppola, Nino Rota - Marcia Religioso (2:51)
-4. Carmine Coppola, Nino Rota - Michael's Letter (1:08)
-5. Carmine Coppola, Nino Rota - The Immigrant (Love Theme From The Godfather Part III) (2:37)
-6. Nino Rota - The Godfather Waltz (1:24)
-7. Al Martino - To Each His Own (3:21)
-8. Carmine Coppola, Nino Rota - Vincent's Theme (1:49)
-9. Carmine Coppola, Nino Rota - Altobello (2:09)
-10. Carmine Coppola, Nino Rota - The Godfather Intermezzo (3:23)(   Читать дальше...)Жанр: OSTПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933750   (505363) от 02.09.2015
-
-Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eternal Return
-02. The Cave Of Swimmers
-03. Burana
-04. Salamender(   Читать дальше...   )Жанр: Ethnic, Neo-FolkПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
 ```
 
 https://mybot314.ru/tekegram_catalog/

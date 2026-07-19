@@ -1,3 +1,32 @@
+###  Публикация: 1622948   (243584) от 30.03.2023
+
+VA - 100 Hits 80s Rewind (2011) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Power Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness - It Must Be Love
+02. Frankie Goes To Hollywood - Welcome To The Pleasuredome
+03. Howard Jones - Things Can Only Get Better
+04. A-Ha - Touchy!(   Читать дальше...   )Жанр: Pop, Rock, Power PopПродолжительность: 06:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D211AEB89F3BE338F67DDB3E53C8500BC7B1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627365   (243245) от 18.04.2023
 
 Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Dance Pop, Europop>
@@ -716,35 +745,6 @@ VA - 90s Lost & Found (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E787761B83DDE9930EA60C1BE52C0600706578E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627144   (239898) от 18.04.2023
-
-VA - Retro Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Derulo - Want to Want Me
-02. Cher - Strong Enough
-03. Blur - Parklife (2012 Remaster)
-04. Ava Max - Kings & Queens(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 05:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C4D1ABDAB2DE10A9E2AC7A8D7B1DE9C5553DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

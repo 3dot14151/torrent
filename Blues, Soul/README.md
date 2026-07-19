@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1881049   (1076603) от 
+
+Blackwater Blues Band - Wild Willie Morgan (2026) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Willy Morgan (4:27)
+ 02. Pink Tuna Boogie (3:09)
+ 03. Bigfoot Blues (4:22)
+ 04. Blues Is Following Me (4:04)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AE9A858D4B1EB610E0526639D0F92089417038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878973   (1074966) от 
+
+Honey B. & T-Bones - Ninety-Nine (серия "Другие восьмидесятые") (1988) CD, Album, Reissue, Remastered, 2004, Warner Music Finland [MP3|320 Kbps] <Blues Rock, Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howlin' at the Moon
+02. Diamond Ring
+03. T-Bone Rag
+04. You Can't Take It with You(   Читать дальше...   )Жанр: Blues Rock, Rock, BluesПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F42360E72834EDF23B66C21FE2C770FD2A9B72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866597   (1066393) от 22.04.2026
 
 Дарья Безбородова, Дмитрий Гусаров - Блюзовые сказки для взрослых (2025) [MP3|320 Kbps] <Blues>
@@ -688,64 +746,6 @@ Main Street Blues - Studio 79 Vol.2 (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92047BA566898BE491F0965D624196F47C43E0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441113   (1038022) от 20.01.2021
-
-The Steepwater Band - Turn of the Wheel (2020) [MP3|320 Kbps] <Вlues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn of the Wheel (03:38)
- 02. Trance (04:29)
- 03. Running from the Storm (03:14)
- 04. In the Dust Behind (03:37)(   Читать дальше...   )Жанр: Вlues Rock, RockПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582ABFF8DD228AAB83732465B4A4BF1835FD4629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441803   (1037095) от 23.01.2021
-
-VA - Ladies Sing & Play The Blues Vol.2 (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037095.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:53] 01. Shaun Murphy - Welcome To Bluesville
-[2:59] 02. Jennifer Lyn & The Groove Revival - Burned it Down
-[4:47] 03. Zoe Schwarz Blue Commotion - Htroes
-[4:10] 04. Sheba The Missisippi Queen - Pourin' Rain(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B5C64457DB5C99FEF3EAD29EA4109839C3D2F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

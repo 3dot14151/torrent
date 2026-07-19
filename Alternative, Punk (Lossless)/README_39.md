@@ -1,3 +1,119 @@
+###  Публикация: 945673   (429416) от 12.10.2015
+
+†††(Crosses) - †††(Crosses) (2014) [FLAC|image+.cue]<Alternative Rock, Ambient, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. †his Is A †rick [3:06]
+ 02. †elepa†hy [3:34]
+ 03. Bi†ches Brew [3:28]
+ 04. †hholyghs† [4:26](   Читать дальше...   )Жанр: Alternative Rock, Ambient, ElectronicПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687A4171720E90CAC94E795336625DF5ADDA6287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250061   (429130) от 26.09.2018
+
+The Strokes - Room On Fire (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Ever Happened? (2:54)
+ 02. Reptilia (3:42)
+ 03. Automatic Stop (3:27)
+ 04. 12:51 (2:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD467E77ED8153C63BE1617204A1928390DCF5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249571   (428943) от 26.09.2018
+
+Everlast - Whitey Ford's House Of Pain (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of Us (3:37)
+ 02. The Culling (3:14)
+ 03. It Ain't Easy (3:18)
+ 04. The Climb (Interlude) (0:45)(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Hip-HopПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A61126D09C5B037D817DBB00641B02FA4BD1DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411032   (427460) от 25.09.2020
+
+Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL|tracks]<Alternative, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis [00:05:17]
+02. Ceremony [00:03:27]
+03. Urantia [00:04:30]
+04. Error [00:04:50](   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806946F183B67A68F8117A3CB74DA73F71D64BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411390   (427351) от 25.09.2020
 
 Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Alternative, Nu-Metal>
@@ -629,123 +745,6 @@ Linkin Park - Studio Collection 2000-2012 (2013) 6CD [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C0C68933EB8B2EC307A6D1EC37E40170292F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412815   (409858) от 03.10.2020
-
-PVRIS - Use Me (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme a Minute 3:29
-2. Dead Weight 3:27
-3. Stay Gold 4:01
-4. Good to Be Alive 3:17(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B082A3B0D5ABCDCDC7A1FD79FD6BBBDEAD79EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413266   (409848) от 03.10.2020
-
-Blue Stahli - Quartz (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO.S3M [00:01:04]
-02. Crimewave [00:02:42]
-03. Eat the Light [00:04:48]
-04. Anchor [00:04:15](   Читать дальше...   )Жанр: Alternative Metal, Industrial, Electronic RockПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44C0A6372C321EB151BB71C1F3DDC97EC471EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559434   (409682) от 12.10.2012
-
-Cocteau Twins - 9 альбомов (1982 - 1996) [FLAC|Lossless]<Post-Punk, Ethereal, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocteau Twins - музыкальный коллектив из Шотландии. Группа была создана в 1982-м году, а название позаимствовано из одноименной песни Simple Minds.
-В этом же году на лейбле 4AD вышел дебютный альбом, который попал в британские чарты независимой музыки и привлек внимание слушателей к творчеству Cocteau Twins.1982 - Garlands
-1983 - Head Over Heels & Sunburst And Snowblind
-1984 - Treasure
-1986 - The Moon And The Melodies(   Читать дальше...   )Жанр: Post-Punk, Ethereal, Dream PopПродолжительность: 06:18:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399336   (409591) от 12.10.2012
-
-The Birthday Massacre - 2 альбома (2011, 2012) [FLAC|Lossless]<Gothic, Synth-Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Tonight (03:29)
-02. Down (03:47)
-03. Play With Fire (03:47)
-04. Need (03:31)(   Читать дальше...   )Жанр: Industrial, Gothic, Synth-Rock |Продолжительность: 01:07:41 |
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

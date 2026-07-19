@@ -1,113 +1,3 @@
-###  Публикация: 949207   (376892) от 23.10.2015
-
-Векторный клипарт - Vintage backgrounds with patterns [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-9 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1B53AAAC14FFF17CE20B57DCD5559AF010C9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949203   (376883) от 23.10.2015
-
-Векторный клипарт - Luxury vintage vector backgrounds [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошные винтажные векторные фоны.
-Декоративные шаблоны для дизайна.
-AI 8 | EPS 25 | + JPG PreviewФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF4A3882F4E5E87E4D76250E3277089BFD70B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949204   (376731) от 23.10.2015
-
-Векторный клипарт - RETRO CARS [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретро авто в векторе.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1082BD954497600BF9FE62A41D659DEE6DECE391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949875   (374648) от 24.10.2015
-
-Векторный клипарт - Gold patterns on dark background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-Золотые узоры на темном фоне.
-20 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B5C61D23482C27404AD4584A2AFA5B0FFBFEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949838   (374529) от 24.10.2015
 
 Векторный клипарт - Vintage vector backgrounds damask, classic, floral [EPS]
@@ -700,6 +590,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBAF99A9044E6246DCE9D9F8DBFE52C0D0B91915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179148   (351411) от 30.10.2017
+
+Векторный клипарт - Halloween collection 44 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин
+22 EPS PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52AAE592D6A9E253ABA427EF84846C00D0C2184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179141   (351404) от 30.10.2017
+
+Векторный клипарт - Halloween collection 42 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+ХэллоуинФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B11894C0CBFD8E82C98B6F025097A40C691ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179160   (351284) от 30.10.2017
+
+Векторный клипарт - Halloween collection 59 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин
+19 EPS PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02A3B674363A0A13F4EF55652ECA9FD6A3B9F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179122   (351272) от 30.10.2017
+
+Векторный клипарт - Christmas Decorative Ornaments 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественские декоративные украшения
+25xEPSФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D52B673B3F0BD5825DD4E5ACCB3EE8D3F024A37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 976035   (970296) от 16.01.2016
+
+(Linux) Mathworks Matlab 2015b 8.6.0.267246 [x86_64] (iso)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования для инженерных и математических расчетов. Обширная библиотека функций упрощает работу (в частности графическое отображение данных)
+Что такое Matlab: MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C08F11A71CA4CA247DFB943B5EF97A3DE33E432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358013   (970282) от 06.02.2020
 
 21 мост / 21 Bridges (2019) BDRip [H.264/1080p] [PR]
@@ -694,41 +721,6 @@ Guttural Secrete - Nourishing The Spoil (2013) [MP3|320 кб/с]<Brutal Death>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A684125D5FFA5D60F2106D236F4D52477C0E149E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618503   (969857) от 14.02.2013
-
-Heartbreak Radio - On Air  (2013) [FLAC|Lossless]<Westcaost/AOR>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love On Fire
-2. Angelina
-3. You Are Love
-4. Turn On Love
-5. I Will Love You
-6. Live Out Of Love
-7. All Over The World
-8. My Heart's Just Missing You
-9. Keep Kickin' It Back Again
-10. You Don't Love Me AnymoreЖанр: Westcaost/AORПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

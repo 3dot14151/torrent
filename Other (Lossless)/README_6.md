@@ -1,3 +1,93 @@
+###  Публикация: 1432553   (161883) от 19.12.2020
+
+VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайная вечеря (5:44)
+02. Гефсиманский сад (6:21)
+03. Арест (4:18)
+04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588534   (157375) от 13.12.2012
+
+Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_157375.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Raga Puriya Kalyan [11:48]
+2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
+Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
+3. I. Lalit (Presto) [16:36]
+4. II. Bairagi (Moderato) [08:11]
+5. III. Yaman Kalyan (Moderato) [14:32]
+6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271783   (147407) от 25.12.2018
+
+Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Lossless|image + .cue] <Gothic, Dark, Acoustic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gespenster-Revue im Theater Obszön (03:47)
+02. Ein Requiem in Sepia (04:24)
+03. Menschliche Trauer (03:47)
+04. Kali Yuga (03:29)(   Читать дальше...   )Жанр: Gothic, Dark, AcousticПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271812   (145285) от 26.12.2018
 
 Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambient>
@@ -676,99 +766,6 @@ VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44B604422C97BE20BA3E7C58035C8FC7FC1E932A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763510   (102818) от 01.12.2024
-
-VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Da Mata - Aich (5:42)
-02. Tibetania - Monte Musa (7:14)
-03. Tibetania - WooduLes (7:22)
-04. Noam Garcia - Amanda (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BB068E1FD67FF7AA123F523477C8558ED433E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763485   (102798) от 01.12.2024
-
-VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak - Sunlight Through the Treetops (9:04)
-02. Johny - Vasudevaya (5:38)
-03. Indiano - Svadhistana (8:21)
-04. Maris - Arapahoes (6:41)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26B5410614E35299F2B6E39906EF6EA08F82521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491214   (102614) от 02.05.2012
-
-Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Gone Wrong Add trackIn [03:57]
-02. Love Henry [04:23]
-03. Ragged & Dirty [04:09]
-04. Blood In My Eyes [05:04]
-05. Broke Down Engine [03:22]
-06. Delia [05:41]
-07. Stack A Lee [03:50]
-08. Two Soldiers [05:45]
-09. Jack-A-Roe [04:56]
-10. Lone Pilgrim [02:43]1993, Oct 28Жанр: BluesПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

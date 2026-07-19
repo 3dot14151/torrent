@@ -1,3 +1,178 @@
+###  Публикация: 1355378   (983626) от 26.01.2020
+
+VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
+02. Paul Kalkbrenner - Platscher (4:12)
+03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
+04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355821   (981153) от 28.01.2020
+
+Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep House, Dub, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rooftops (Minilogue's Taqism Remix) (09:43)
+ 02. Time (John Daly Remix) (06:55)
+ 03. Ghostship (Deadbeat Remix) (06:55)
+ 04. Backwards Never (XDB Remake) (07:04)(   Читать дальше...   )Тип издания: WebЖанр: Deep Techno/Dub Techno/DubПродолжительность: 03:48:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F97B16A23B969D7F03D27CB5A00FA143A02316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972659   (980765) от 07.01.2016
+
+Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Sinclar feat. The Sugarhill Gang - Lala Song (3:33)
+02. Bob Sinclar feat. Roland Clark - Give Me Some More (3:18)
+03. Bob Sinclar feat. Shabba Ranks - Love You No More (4:22)
+04. Bob Sinclar feat. Vybrate, Queen Ifrica & Makedah - New New New (5:26)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972679   (980674) от 07.01.2016
+
+Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golddiggers (3:36)
+02. Ding Dong Song (4:04)
+03. Teeny Weeny String Bikini (4:00)
+04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356348   (979114) от 30.01.2020
+
+Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Pop-Trance, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One's To Blame (3:52)
+ 02. Remember (4:46)
+ 03. Falling Forward (5:25)
+ 04. All I've Got (5:14)(   Читать дальше...   )Жанр: Progressive House, Pop-Trance, Deep House, DowntempoПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E86CAD8CA89457138467C956678484C01B9FF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606162   (975032) от 10.02.2013
+
+Michael Cassette - Singles & EP's (2007-2011) [FLAC|Lossless]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Windows (Original Mix) (4:49)
+02. Through The Windows (Marcus Maison Remix) (6:54)
+03. Through The Windows (Stephen J Kroos Remix) (8:30)
+04. Through The Windows (John B remix) (6:02)
+05. Through The Windows (Gerhard Saturnus Remix) (6:09)Жанр: House, Progressive HouseПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975569   (972030) от 15.01.2016
 
 Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mixed [FLAC|Lossless|tracks + .cue] <House, Disco, Glam, Garage House>
@@ -567,180 +742,6 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E1F9991C1F2318642D8CB4D01FFCAF12283AA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982503   (947081) от 04.02.2016
-
-Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving To Deep (Minimal Boffin Remix) (06:08)
-02. Diving To Deep (Textural Being Remix) (07:14)
-03. Diving To Deep (Ohrwert Deep Alter) (06:06)
-04. Diving To Deep (Zoltan Solomon Liquid Mix) (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983411   (943610) от 06.02.2016
-
-Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace
-02. Oi
-03. Mary Got No Lamb
-04. Riot(   Читать дальше...   )Жанр: Deep House, Tech House, TranceПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091462   (942995) от 09.01.2017
-
-VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Vogelmann - Toska (09:53)
-02. Red Robin - Wildcard (09:22)
-03. Robert Babicz - Harley Loves Benton (08:13)
-04. Der Dritte Raum - Hullapaluhla (08:08)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D6CDCA37576EE404AD3217B368623494867C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363454   (942601) от 28.02.2020
-
-Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
-02. Booka Shade - Atlantic Beam (5:56)
-03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
-04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363002   (942597) от 28.02.2020
-
-Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Want The Best
-02. A Toast To Momma Rose (Crowd Claps Jacked By Norm Talley)
-03. That's Lil'Boy (feat. Ian Finkelstein)
-04. Second Life (feat. John FM)(   Читать дальше...   )Жанр: House, Deep House, TechnoПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2985362EC37186928860F82E53112C1C4B47C51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090210   (941991) от 28.02.2020
-
-cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtraktive (Original Mix) (15:46)
- 02. Subtraktive (Reimagined) (14:03)
- 03. Subtraktive (Intrusion's Path To Zion Dub) (08:20)
- 04. Subtraktive (Soultek's Morning Dub) (08:38)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 55:46:44 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

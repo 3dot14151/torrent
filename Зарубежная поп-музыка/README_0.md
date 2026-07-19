@@ -1,3 +1,32 @@
+###  Публикация: 1846178   (1051245) от 06.01.2026
+
+VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rascals - A Beautiful Morning
+02. The Classics IV - Spooky
+03. Jose Feliciano - Light My Fire
+04. Sergio Mendes & Brasil '66 - The Look Of Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68E55C8AD9B61CDE7A1D0323BDB56E6AB9617F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846185   (1051244) от 06.01.2026
 
 VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk>
@@ -716,35 +745,6 @@ VA - 70s Forever (2019) 3 CD [OGG Vorbis|450 Kbps] <Rock, Soft Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A42164FD9E1CFCED5E9325351116D18794D8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605800   (1044761) от 19.01.2023
-
-Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Thinking About You
-02. 9 A.M. (The Comfort Zone)
-03. Failing In Love Again
-04. A Better Love(   Читать дальше...   )Жанр: Electronic, Pop, EuropopПродолжительность: 03:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8423DABD62C70808AC7166CB0D53F581F2289BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

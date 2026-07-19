@@ -1,29 +1,3 @@
-###  Публикация: 1328232   (1033836) от 04.02.2021
-
-Battle Brothers (2017) [Ru/En] (1.4.0.47/dlc) Repack xatab [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Brothers пошаговая стратегия-рпг в которой игрок управляет отрядом наемников странствующих по маломагическому средневековому миру. Вы сами решаете куда идти, кого нанимать, или с кем бороться, какие контракты взять и как вооружить, и обучить своих людей в процедурно-сгенерированном мире. Игра состоит из стратегической карты мира и тактической боевой карты.Тип издания: RepackРазработчик: Overhype StudiosЖанр: Strategy, Indie, RPGЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BFC5A15E78E30FFFCE572B22BAC5119B71A99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618714   (1033815) от 12.03.2023
 
 Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital Deluxe Edition]
@@ -668,6 +642,32 @@ Demon Skin — это брутальный Hack&Slash в суровом мире
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F99706C5FB5C51B7AEFE413273BA83B8B3A4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139720   (1020184) от 19.04.2021
+
+The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 CS/dlc) License GOG [Game of the Year Edition Deluxe]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020184.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls IV: Oblivion Game of the Year Edition является одной из лучших RPG в истории. Шагните в самый яркий и проработанный игровой мир. Вы можете пойти только по основной сюжетной линии или погрузиться в этот мир с головой и найти для себя множество интересных и разнообразных заданийТип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, ActionЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D845F363C3B1FCAA2E103EC6192C19B6EBC8673
 ```
 
 https://mybot314.ru/tekegram_catalog/

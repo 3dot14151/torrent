@@ -1,3 +1,29 @@
+###  Публикация: 1661549   (188346) от 15.09.2023
+
+SAS.Планета 230909 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188346.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAS.Планета / SAS.Planet / SASPlanet – свободная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone maps, карты Генштаба и др., (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BBF756AB33E6B5E1AC0EF432CEE439F81F8749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661582   (188318) от 15.09.2023
 
 Blackmagic Design DaVinci Resolve Studio 18.6 Build 9 RePack by KpoJIuK [Multi/Ru]
@@ -658,32 +684,6 @@ PortableApps.com Platform - это функциональная платформ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D2FBE5DD7FCFC6331BC125B825BEE79FB49277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662324   (187994) от 17.09.2023
-
-Subtitle Edit 4.0.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8F4B67D92DFB96E5461B70966AE73CB43B5633
 ```
 
 https://mybot314.ru/tekegram_catalog/

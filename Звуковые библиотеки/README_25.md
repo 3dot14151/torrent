@@ -1,3 +1,29 @@
+###  Публикация: 1735642   (50585) от 09.07.2024
+
+Звуковые библиотеки - Film Crux - Singularity 2 - Cinematic Sound Effects Library [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой библиотеки кинематографических звуковых эффектов Звуковые библиотеки - Film Crux - Singularity - Cinematic Sound Effects LibraryФормат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D785795D3FB7DFA820F9AFE10FAD46115AF0FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821269   (40970) от 01.10.2025
 
 Звуковые библиотеки - BOOM Library - Crowds - War & Battle [WAV]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AB888D39E97B540EDA927F91C711FDE34CDD89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795879   (18417) от 13.05.2025
-
-Звуковые библиотеки - Ghosthack - Universe of Sound - Planet Q'taal [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18417.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора - "Планета Q'taal расположена в дальних уголках таинственной и обширной галактики Fractured Veil, пропитанной таинственными знаниями - примерно в 10 миллиардах световых лет от галактики Млечный Путь, в которой находится наш скромный дом. Этот изолированный и засушливый мир во многом уникален. На первый взгляд можно подумать, что это полностью пустынная (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9071D1164D7F5B022364B2A97F9B281ADDE2EFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

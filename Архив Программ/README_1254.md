@@ -1,3 +1,29 @@
+###  Публикация: 1572820   (419150) от 28.08.2022
+
+WhyNotWin11 2.5.0.3 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита WhyNotWin11 предоставляет информацию о том, совместим ли ваш компьютер и встроенные аппаратные компоненты с Windows 11.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D166B4BEB417CA09B030BC2570CC018800BC5AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572700   (419142) от 28.08.2022
 
 A.O.M. Total Bundle 1.15.2 VST, VST3, AAX (x64) (Standard/AVX2) [En]
@@ -657,32 +683,6 @@ Wise Video Downloader 2.43.93 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0618A9929901C9A40BC6DCC500A519C8198976F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065477   (418745) от 23.10.2016
-
-Soft4Boost Document Converter 4.6.4.427 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DFF7AAEFABE25F4DDA7C8E97AB35D1439A5821
 ```
 
 https://mybot314.ru/tekegram_catalog/

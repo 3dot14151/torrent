@@ -1,3 +1,176 @@
+###  Публикация: 1096356   (917510) от 25.01.2017
+
+James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue] <Bluegrass, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blue In The Blue Ridge
+2. Bill Cheatum
+3. I Just Think I'll Go Away
+4. Down At Mylow's House(   Читать дальше...   )Жанр: Bluegrass, GuitarПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367415   (917235) от 15.03.2020
+
+Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ella [00:03:54]
+02 - Fager som en Ros [00:02:50]
+03 - Leaves of Yggdrasil [00:04:00]
+04 - Ramund [00:03:28](   Читать дальше...   )Жанр: Dark Folk, Female VocalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F60A21D9F4FE9C567E1C0278BDDAFC0D05098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423792   (916968) от 15.03.2020
+
+Jonn Serrie - Sunday Morning (2005) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jonn Serrie - композитор в жанрах космической музыки, эмбиент, нью-эйдж. Он записал не менее восемнадцати альбомов и работал над различными проектами для Lucasfilm, корпорации IMAX, NASA, военно-морских сил США, планетария Хейдена, Экспо Севилья и CNN.01. Sunday Morning (11:26)
+02. Maiden Voyage (11:38)
+03. The Enlightened Path (7:18)
+04. Breath Of The Valley (7:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057F671B468D957B7FD32E13745E421A49E08900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32966   (916820) от 15.03.2020
+
+Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue (4:30)
+02. Final Signal (4:21)
+03. Secret Dreams (4:29)
+04. Symphony (4:57)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC9D486D29CBB2A5FA87F9B41A3477BCC288DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289765   (916745) от 01.02.2011
+
+David Sun Productions - Звуки океана для ароматерапии (2005) [MP3|320 kbps]<Звуки природы/релакс>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Sun Productions - Zvuki okeana
+
+Описание:Жанр: Звуки природы/релаксПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B8E563891433AEEFD29E302DB982E87E5782E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497660   (916690) от 15.03.2020
+
+Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Ice (Marcus Schossow Extended Remix) (09:24)
+02. Like Ice (Album Edit) (04:37)
+03. Like Ice (Rampue Remix) (06:59)
+04. Like Ice (Chris B Remix) (06:24)(   Читать дальше...   )Жанр: Chillout, Ambient, New Age, DowntempoПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10AE6F67B54B82AE03ED6166AB1932C79C19B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989837   (915802) от 23.02.2016
 
 Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
@@ -570,180 +743,6 @@ Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1622B13A3207E4DC1298311357E5284ADE86509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990130   (911723) от 25.02.2016
-
-КичКок - Три Товарища (2009) 3CD [FLAC|Lossless|tracks + .cue] <Mash up>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Один Dj - хорошо, а три - еще лучше!» - решили 3 давних друга, Георгий Петрушин, Дмитрий Ашман и Сергей Минаев, 24 апреля 2009 встав за диджейский пульт. Результатом работы этого трио стал диск с любимой музыкой в стиле mash up. Похоже, именно любовь к хорошей музыке объединяет 3 товарищей: Георгия Петрушина – модного клубного промоутера, организатора самых ярких (   Читать дальше...   )01. Elvis Presley vs Junkie XL - A Little Less Conversation (2:18)
-02. Goran Bregovic - Mesecina (1:00)
-03. Manu Chao - Me Gustas Tu (3:02)
-04. Madness - One Step Beyond (1:48)(   Читать дальше...   )Жанр: Mash upПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990796   (909762) от 26.02.2016
-
-Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necksa Rising
-02. Calming Tides
-03. Drifting On Waves
-04. Etheric Weavers(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368087   (909160) от 20.03.2020
-
-Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathy's Waltz
-02. Pofacetilly
-03. I Heard You Smiling
-04. Winter Magic(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0689E485DBB663440A13621132DC035AE56B6784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368005   (909135) от 20.03.2020
-
-Александр Рябцев - Сквозь вечность (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между небом и землёй (1:42)
-02. Первое свидание (3:07)
-03. Сон во сне (3:38)
-04. Контакт (4:25)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0F44E57FEB4A2EE1A2A8C68910889870A2369C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368006   (909122) от 20.03.2020
-
-Александр Рябцев - Между прошлым и будущим (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между прошлым и будущим (4:45)
-02. Листопад (3:59)
-03. Скажи своё имя (4:00)
-04. Полнолуние (5:55)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367998   (909095) от 20.03.2020
-
-Александр Рябцев - Дайте мне крылья (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дайте мне крылья (5:04)
-02. Пробуждение (4:02)
-03. В вечность (3:34)
-04. Ледяной замок (4:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
 ```
 
 https://mybot314.ru/tekegram_catalog/

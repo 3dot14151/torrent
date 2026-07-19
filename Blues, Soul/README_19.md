@@ -1,3 +1,61 @@
+###  Публикация: 1232434   (600057) от 24.06.2018
+
+Tom McGuinness - Second Glance (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not In My Name (03:23)
+02. Ain't It Strange How Things Can Change? (03:50)
+03. For A Woman Like You (03:18)
+04. Catwalk (03:55)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ECC223D055F98671DCC283FE6145BC9D3F4BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038987   (599678) от 30.07.2016
+
+Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Faced Louise (03:04)
+02. Taylor Made Blues (05:12)
+03. Prison Song (04:16)
+04. I'm Getting Late (02:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914223   (598477) от 02.07.2015
 
 Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
@@ -687,64 +745,6 @@ Robert Johnson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355F22A96CEAE8745D3CA125B45A636C595925A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918511   (586917) от 15.07.2015
-
-Mahalia Jackson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Didn't It Rain (7:00)
-02.  We Shall Overcome (9:13)
-03.  Rusty Bell (4:15)
-04.  If I Could Help Somebody (6:10)(   Читать дальше...   )Жанр: Funk / Soul, BluesПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5E0DCE1B0704104B131FA685E062AF5C05E188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918783   (586039) от 16.07.2015
-
-Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues, Harmonica Blues, Piedmont Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Po' Boy, (2:45)
-02.  Everybody's Blues (6:47)
-03.  Trouble In Mind (3:15)
-04.  I'm A Stranger Here (4:03)(   Читать дальше...   )Жанр: Country Blues, Harmonica Blues, Piedmont Blues, FolkПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5218C55AB1BC3C945C4C56B5B910799CFEB762B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

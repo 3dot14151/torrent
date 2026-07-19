@@ -1,3 +1,61 @@
+###  Публикация: 1024577   (716129) от 09.06.2016
+
+Stretch - You Can't Beat Your Brain For Entertainment (1976) [MP3|320 кб/с] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716129.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fixin' To Die
+2. If The Cap Fits
+3. The Way Life Is
+4. That's The Way The Wind Blows(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AF1F9580C52B78823086B3F50B4C2088E8EF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130683   (714236) от 02.05.2017
+
+Days Of Jupiter - New Awakening (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Never Die  (05:00) 
+02. I Am Stone  (03:53) 
+03. My Tragedy, My Curse  (04:26) 
+04. Wasted Years  (04:58) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E40712D0A532CAC0AAA290240A00E2AA66A9FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400575   (712601) от 08.08.2020
 
 Deep Purple - Whoosh! (2020) [MP3|320 Kbps] <Hard Rock>
@@ -687,64 +745,6 @@ AC/DC - Are You Ready? (The Very Best Of) (2016) 2CD [MP3|320 Kbps] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31C664FD89EEBA41B670A8E5C6006A8EFBE7593C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290796   (675953) от 21.03.2019
-
-UFO - Will the Last Man Standing (Turn Out the Light): The Best of UFO (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor Doctor
-02. Rock Bottom
-03. Shoot Shoot
-04. Too Hot to Handle(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57D1FAFCC2E4A01463EF81F459B36985D0E336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290968   (674191) от 22.03.2019
-
-Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Gambler (US Mix, 2019 Remaster) (3:57)
- 2 - Slide It In (US Mix, 2019 Remaster) (3:19)
- 3 - Slow An' Easy (US Mix, 2019 Remaster) (6:01)
- 4 - Love Ain't No Stranger (US Mix, 2019 Remaster) (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12FDF4254F8C6431A304307235C38DCB8CEC70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

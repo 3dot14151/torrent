@@ -1,3 +1,32 @@
+###  Публикация: 1077545   (306585) от 28.11.2016
+
+Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rendez-Vous Sur La Costa Del Sol (Maxi Version)  (4:33)
+02. Don Quichotte (No Estan Aqui) (Maxi Version)  (5:04)
+03. Stay Away, Stay By Me  (3:31)
+04. Dance Melody (Around The World)  (3:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EA4FC9DD410D0899DF632C9C8A44F78DA9FEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960358   (305448) от 29.11.2015
 
 Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
@@ -713,35 +742,6 @@ ZAZ - Effet Miroir (2018) [MP3|320 Kbps] <Nu Jazz, Chanson, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E662C3B04B3AFED9E71ED10302F50037E569BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184349   (294797) от 20.11.2017
-
-Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Ready For It?
-02. End Game (Feat. Ed Sheeran & Future)
-03. I Did Something Bad
-04. Don’t Blame Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B1BBA573168F5B551E5947E2DA47A32DA1A88C
 ```
 
 https://mybot314.ru/tekegram_catalog/

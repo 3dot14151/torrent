@@ -1,3 +1,235 @@
+###  Публикация: 965981   (222805) от 16.12.2015
+
+VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Florea - Garden of Balance
+02. Relaxea - Into the Blue
+03. Oscar Salguero - We Have to Go Back
+04. M. Vitoria - Shakra Naom(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342452   (222794) от 03.12.2019
+
+VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222794.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Empty Fridge - Fckw
+002. Spencer Dunning - Rave Report
+003. Anton'x - Threesome
+004. Concepto - Frb (Original Mix)(   Читать дальше...   )Жанр: Techno, EdmПродолжительность: 12:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30392162F4B49749EFA78B9EA668E7D3C2D46358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342451   (222775) от 03.12.2019
+
+VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222775.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subandrio - Lydian Manuscript
+002. Mental Order - High Level
+003. Golden Hour - Oaxaca
+004. Panca Borneo - Back 2 Oldskool(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B85029021754D7063E8FFD7BAB67EF192707FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342604   (222739) от 03.12.2019
+
+VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mentallo - Tachyon
+002. Omicron - Victory
+003. Pixelrust - Fulton (Original Mix)
+004. Knight$ - What's Your Poison(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 13:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A175C47DC53443DF06DAF5549B1B05749BBDC1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425216   (222676) от 20.11.2020
+
+VA - crazyДвиж number chetyre (2020) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - Candy Shop (DJ Vini Remix) (5:05)
+02. Disco Gurls - Pole Cat (Extended Mix) (5:46)
+03. Alex Megane - Little Lies 2020 (Ramba Zamba Extended Remix) (4:05)
+04. Alex Pizzuti - Memories (Extended Version) (3:37)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F26067EDD845048A399FFEB87816F318A06D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965932   (222582) от 16.12.2015
+
+VA - Inner Miracle (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222582.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CherryVata - Always (Miracle Edit)
+002. Flavour Animus - Kaffee in Time
+003. Future Mind - Spaceworld 2
+004. Bluesolar - Believe in Me (Chill Out Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A4363606393FFBE5583F61CBDF7EE7C5A79D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966150   (221171) от 17.12.2015
+
+VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton - Eastern Treasure - Original Mix
+02. Antennasia - Seren - Sour Mix
+03. KoolSax - Crazy World - Relax Mix
+04. S.W. - Everything Will Be Perfect - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA69742005F0764ACFC6A1723F984F712602DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966513   (221095) от 17.12.2015
+
+VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluesolar - Believe in Me - Chill Out Mix
+02. G. Papadopoulos - Love Is Everywhere
+03. The Fantasy 7 - Final Soundtrack
+04. Minka - Little Cat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63677845196C8BE473A7F44F5F074299B2D1934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513866   (220976) от 01.12.2021
 
 VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Other>
@@ -510,238 +742,6 @@ VA - Following My Intuition (2016) [MP3|320 Kbps] <Psychodelic Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B7D7EB5AA94903FE3F01BD1A7FA6DAD8A3BF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514024   (219099) от 02.12.2021
-
-VA - Beatport Ambient: Sound Pack #377 (2021) [MP3|320 Kbps] <Ambient, Meditation, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219099.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liquid Bloom - Heart Active8 Meditation
-002. Enya - Oíche Chiúin
-003. Max Cooper - Weakness Of The Flesh
-004. Aswekeepsearching - Sleep Again(   Читать дальше...   )Жанр: Ambient, Meditation, LoungeПродолжительность: 09:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFBD0CC03F0ED3D999E76B55EF7AA6CC2573E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425631   (219074) от 22.11.2020
-
-VA - Beatport Future House: Electro Sound Pack #202 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Skywalk - Love 2 Love
-002. Nebs Jack - Exodus (Original Mix)
-003. Metropolitan Soul Museum - To The Loved Ones
-004. Surge - Aerofly (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 08:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632425FC4E7B146089A53649B642EF88B7C3859A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966682   (218969) от 18.12.2015
-
-VA - 100 Exotic Sound: Sweet Fever (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218969.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gary Cools - Watching from Above - Original Mix
-002. Jason Cabrera - Red Apple - Original Mix
-003. The Magical Corner - Laguna
-004. Zach Fernandez - Chiem - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C37A11057AA4797C7B7E09A5FB79A4450786D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425640   (218866) от 22.11.2020
-
-VA - The Big Bass: Drum Sound Musical Collection Vol.02 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cantstopkillingtime - Falling Down
-002. Audioscribe - Letting Go
-003.  Charlotte Haining - Almost There
-004. Distort - On My Way(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 08:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB6BAA3EA6A032A188E48982A2CDC93D26D2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966498   (218848) от 18.12.2015
-
-VA - Vocal Trance Top 40 2016 (2015) [MP3|320 кб/с] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Arms Of Surrender
-02. Temple One - Show Me The Stars
-03. Philippe El Sisi - Into The Flame
-04. Philippe El Sisi - Comfort You(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08055F48C8403177E6399365BC7635CC9179064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425692   (218828) от 22.11.2020
-
-VA - Record Super Chart 663 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-02. Tiesto - The Business (2:43)
-03. Slava Marlow - Снова я напиваюсь (1:56)
-04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8EE7A7521D63E138C84B7245B5B48714B1363F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514107   (218812) от 02.12.2021
-
-VA - Dub Chill Electronic (2021) [MP3|320 Kbps] <Relax, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218812.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Initial Sequence - R & R Time
-002. Gardens Of God - Mrnng
-003. Ecovillage - Cosmic Man
-004. Abraham Russ - Players Only(   Читать дальше...   )Жанр: Relax, Chillout, ElectronicПродолжительность: 08:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B842C0E99D0FCF8746FB591F5E1C4D1C71684B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737596   (218710) от 22.12.2013
-
-VA - Lounge At The Seashore (2013) [MP3|320 кб/с]<Downtempo, Lounge, Deep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218710.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Lomax - Island Dreams
-002. Acoustic Alchemy - Silent Partner
-003. Enrique Chia & Juan Areco - Piel Canela
-004. Chris Wonderful - I Want to Fly (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, DeepПродолжительность: 01:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CA7A13CB6992A28B75D691A8C435E6068A96F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

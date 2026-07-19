@@ -1,119 +1,3 @@
-###  Публикация: 1807442   (65176) от 19.07.2025
-
-VA - Nu Jazz Electronica (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tallulah Rose - Friends (4:16)
-02.  Alessandro Meroli - Running Errands (2:51)
-03.  Kolosso - Ghost  Dogs (3:41)
-04.  Joe Allotta - James Joint (1:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74133E024E2B1E729B91DC150BD55FBC79A9F582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807431   (65168) от 19.07.2025
-
-Horace Silver - Kind Of Silver (1952 - 1965) 10CD, 2010, House Of Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tale of the Fingers [4:43]
-02. Dear Ann [4:21]
-03. Whims of Chambers [4:06]
-04. Omicron [7:18](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 08:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BF4026F253D6067FDF2A803FB06F92EE43B5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807432   (65160) от 19.07.2025
-
-VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Esperanza Spalding - I Know You Know (3:45)
-02.  Vanisha Gould - I Can Say To You (4:13)
-03.  Hiromi - Another autumn (From "BLUE GIANT" Soundtrack) (2:32)
-04.  Richie - Set It Free (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A6ACB720D2CC7748929E6A1401E53B09BCCEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807436   (65158) от 19.07.2025
-
-VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Louis Armstrong - Summertime (4:56)
-02.  John Legend - Summertime Blue (3:30)
-03.  Samara Joy - Flor de Lis (Upside Down) (5:37)
-04.  Jeff Goldblum & The Mildred Snitzer Orchestra - In The Wee Small Hours Of The Morning (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCDBE9BB7EFD08EFC47A91E3513B7CDCDF676F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807434   (65155) от 19.07.2025
 
 VA - Happy & Jazzy Summer Instrumentals, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +629,122 @@ Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370458   (61172) от 31.03.2024
+
+Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jua Kiss
+02. Let I Go
+03. Kamakumba
+04. Heritage(   Читать дальше...   )Жанр: Jazz, Latin, Funk / SoulПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6D35806A4F2D0B04F1CF48D624A6F89AC582EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717937   (58864) от 22.04.2024
+
+V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve St. Jones - All Night Long (all Night)
+02. Sarah Menescal - Clocks
+03. Sarah Menescal - Always on My Mind
+04. Groove Da Praia - Digging Your Scene(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, PopПродолжительность: 02:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719418   (57925) от 01.05.2024
+
+Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Home in Kansas City [4:33]
+02. Red Bank Heist [7:33]
+03. Our Love Remains [5:26]
+04. Bon Voyage [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719474   (57924) от 01.05.2024
+
+Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Is Another Day [6:30]
+02. The Moon Is Made of Gold [3:16]
+03. Convince Me [4:17]
+04. They Say It's Spring [4:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C49944DD508EFB17197C5DFC00F1345711F2757
 ```
 
 https://mybot314.ru/tekegram_catalog/

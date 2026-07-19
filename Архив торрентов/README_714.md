@@ -1,29 +1,3 @@
-###  Публикация: 1493666   (894164) от 04.09.2021
-
-Valentina Studio Pro 11.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 23.08.2021Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EDF44B87CCCB8A3F315448FD55625CD768C5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993830   (894163) от 06.03.2016
 
 VA - Karmatonic Vol. 3 (Compiled by Sri Loshmi) (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Downtempo, Progressive Trance, Breaks>
@@ -705,6 +679,32 @@ Total Commander является самым мощным и стабильным
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874A22DA2DBEBDD2F2BDCCAE7A3C5E5E93294725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101779   (893849) от 07.02.2017
+
+Rufus 2.12 (Build 1054) Final Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A61CAF33A93CB620AA0BF849FF4AD2B7263198
 ```
 
 https://mybot314.ru/tekegram_catalog/

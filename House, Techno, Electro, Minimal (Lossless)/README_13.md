@@ -1,3 +1,171 @@
+###  Публикация: 989365   (913662) от 24.02.2016
+
+Dj Antonio - XIII - Deja Vu. 1 Year Together (2007) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Not AvailableЖанр: HouseПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66C8EDE3005C3192ADB022979FA339BDFEA463D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097848   (912586) от 28.01.2017
+
+VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diversion & Tania Zygar - On Your Mind (Intro Mix) (7:57)
+02. Christian Monique - Seven (Dimuth K Remix) (8:02)
+03. Max Graham - BCN (Radio Edit) (3:52)
+04. Conjure One - Serac (Eddie Murray Remix) (3:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F83AD40CD8B387BCE764B82D7EF149073E40EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097879   (912483) от 28.01.2017
+
+VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn - Esquape (07:12)
+02. Ten Fe - Turn (Ewan Pearson remix) (06:55)
+03. Oliver Schories - Metris (06:49)
+04. Animal Trainer & Manuel Moreno - MDMA (09:10)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91195DDF3AE416BBE65B85927CE3591C99D60F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368140   (912279) от 18.03.2020
+
+VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Faze DJ-Set 28 (Continuous DJ Mix) [01:15:54]
+02. Mattheis - Klrnoe [09:06]
+03. Adriatique - Lophobia [06:53]
+04. David August - Epikur [08:08](   Читать дальше...   )Жанр: EDM, Deep House, Tech House, MinimalПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2688D3A0CDD8ADFE0D874E39F06812464056851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368197   (912270) от 18.03.2020
+
+VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves) (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Afro House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arco – Touch the Sun (06:40)
+02. Karol XVII & MB Valence & Lazarusman – Whispers | Gorge Extended Remix (07:04)
+03. Mika Olson – Drift Away (06:54)
+04. Matthew1626 – Don't Give Up (06:42)(   Читать дальше...   )Жанр: EDM, Deep House, Afro House, Nu DiscoПродолжительность: 01:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D517AF5D27C490F032CEB1BAB96D31648DE4E193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368139   (912221) от 18.03.2020
+
+K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coronavirus (Antidote) (05:40)Жанр: Techno, IndustrialПродолжительность: 00:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2F5179DA41E290C88724BD2B45567190C5E7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990428   (912174) от 25.02.2016
 
 VA - Reflections (Dub) (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Minimal, Ambient, Downtempo>
@@ -559,180 +727,6 @@ Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33DC624602526E103624A83770F60491903B6FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100221   (901870) от 03.02.2017
-
-Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Have A Drink To Think (04:16)
- 02. Zombie Blip (04:18)
- 03. The Echoes (05:29)
- 04. Do-A Bong (03:29)(   Читать дальше...   )Жанр: Techno, Leftfield, House, ElectroПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5989D226003834BEC1648A24F8ACA7F3DC1D39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992486   (901015) от 02.03.2016
-
-VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901015.jpg" />
-</div>
-
-
-###  Подробнее
-
-4
-01. DJ BoBo - Together (3:41)
-02. Ann Lee - 2 Times (3:50)
-03. DJ Jean - The Launch (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AD2485023A80A894C9043B6C20E923F6FF6F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100720   (899842) от 04.02.2017
-
-VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amine K/Moroko Loko - Mayday [06:34]
-02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
-03. Kant - Dyster (Animal Trainer remix) [07:39]
-04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100537   (899528) от 04.02.2017
-
-VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit (Extended Mix)  7:38
-02.  Dimitri Vegas & Like Mike feat. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
-03.  Hardwell & W&W - Get Down (Extended Mix)  3:41
-04.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Extended Remix)  5:00(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAB9800DFD2E61051E29785E7FF4F41AB7F9741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370215   (898569) от 26.03.2020
-
-Duckson - Stuff i did last year (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898569.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Time is now (4:58)
-2. Deep is 5 (4:44)
-3. Trackson McFinigan (5:54)
-4. What u want (4:43)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F39C70CE97845644E161A39E6C2C4313D35E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370108   (898539) от 26.03.2020
-
-Pablo Moriego - Deep House Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Addiction (7:16)
-2. Close My Eyes (5:01)
-3. Lonely (5:36)
-4. Unbrace (Slow Deep Re-Edit) (7:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6E0C3479C3B6E9ACDED00D9D05D365703F924B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1453581   (1026875) от 11.03.2021
+
+Evanescence - The Bitter Truth (2021) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Artifact_The Turn [00:02:26]
+02-Broken Pieces Shine [00:03:50]
+03-The Game Is Over [00:04:22]
+04-Yeah Right [00:03:29](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698A0CCCFAA94A86F4C9248864CDBEC3BAEBFACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455253   (1025775) от 18.03.2021
+
+Papa Roach - Greatest Hits, Vol. 2: The Better Noise Years 2010-2020 (2021) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born For Greatness (Remastered 2020)
+02. Help (Remastered 2020)
+03. Elevate (Remastered 2020)
+04. Come Around (Remastered 2020)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848F09B060A1BB6E150EBEAE2C965CAB92DF2973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455900   (1025453) от 20.03.2021
 
 Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experimental>
@@ -687,63 +745,6 @@ Blame Me! - The Invisible You (2021) [MP3|320 Kbps] <Alt.Rock, Electronic, Femal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF3B674557CF3E7924C4AC18058031A231DD3C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137056   (1010582) от 17.06.2021
-
-Of Mice & Men - 7 альбомов + 2 EP (2010-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levee
-02. Bloom
-03. Pulling TeethЖанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 06:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1E8806F20AEC3AFA67459444D16BD3C4F5410C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484097   (1006395) от 17.07.2021
-
-The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] <Garage Rock, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Nkroachment: Yarbles (Live, ATP, Camber Sands, 28 April 2002) [00:03:32]
-02. 2 Librans (Live, ATP, Camber Sands, 28 April 2002) [00:04:01]
-03. The Joke (Live, ATP, Camber Sands, 28 April 2002) [00:04:22]
-04. And Therein (Live, ATP, Camber Sands, 28 April 2002) [00:04:32](   Читать дальше...   )Жанр: Garage Rock, Post PunkПродолжительность: 4CD, 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2995E57CE9B2C72DE0920CDE53957EDBFB11F1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

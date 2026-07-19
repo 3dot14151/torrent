@@ -1,3 +1,32 @@
+###  Публикация: 1073547   (344639) от 16.11.2016
+
+Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (Feat. Nanuk) (02:18)
+02. The Omega Point (05:39)
+03. Diving (02:52)
+04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578222   (341076) от 25.09.2022
 
 Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -714,35 +743,6 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B0CB06F6328942E9ABB8598A3EBE623D34FF168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077151   (308625) от 27.11.2016
-
-Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Fires (6:25)
- 02. Zero (4:50)
- 03. Keep On Dreaming (5:24)
- 04. Stay (4:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
 ```
 
 https://mybot314.ru/tekegram_catalog/

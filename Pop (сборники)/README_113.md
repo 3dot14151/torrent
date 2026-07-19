@@ -1,90 +1,3 @@
-###  Публикация: 1079277   (243250) от 04.12.2016
-
-VA - Заключительная осенняя дискотека. Версия 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Маша Ru - Ноль-Ноль 3:18
-002.Samir & Viktor - Saxofuckingfon 3:15
-003.Aisha - Поцелуи 3:13
-004.Tyomcha K. - Белым-Бело 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789FC0778C2E98225051B0A1A5364E14610A0082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539398   (243224) от 27.03.2022
-
-VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk Songs>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пополните свой музыкальный кругозор вместе с 32-м релизом проекта "National Pop Dance Music". Плейлист представляемого лонгплея включает в себя 150 треков попсово-танцевальной направленности со всех сторон света.001. Najoua Belyzel - Curiosa
-002. Tocadisco - Tanz Mit Mir
-003. Zeitflug - Tausendmal Du
-004. Christiane Vallejo - Assassins(   Читать дальше...   )Жанр: Pop, Dance, Folk SongsПродолжительность: 08:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B3BFCD4DEAAD1EDB3B93F543C45245A4B72DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539592   (243153) от 27.03.2022
-
-VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miksu / MacLoud & T-Low - Sehnsucht
-02. Glass Animals - Heat Waves
-03. GAYLE - abcdefu
-04. Civo - Weg von mir(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC41C747129B1C8268D9E80D21F3555ADA04416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081777   (243029) от 12.12.2016
 
 VA - Звездная вечеринка. Зарядись хитами. Выпуск 3 (2016) [MP3|256 Kbps] <Pop>
@@ -751,6 +664,93 @@ VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424673   (227555) от 17.11.2020
+
+VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anastasia Moutsatsou - I Rodia
+002. Black Eyed Peas - Mamacita
+003. Ellie Goulding - Power
+004. John Legend - Actions(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341944   (227485) от 30.11.2019
+
+VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Apache 207 - Wieso tust Du dir das an
+04. The Cratez - Skifahren (mit Bausa Maxwell Joshi Mizu)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC035975D126B716F9CEEF96995ED905848AA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342227   (225040) от 01.12.2019
+
+VA - Рождество Новые песни 2020 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alessia Cara - Make It To Christmas (3:31)
+2.Timi Dakolo, Emeli Sande - Merry Christmas, Darling (3:16)
+3.Jack Savoretti - Christmas Morning (2:46)
+4.Jamie Cullum - It's Christmas (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442842CB56F989402411864277B7013003CBCE0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

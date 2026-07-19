@@ -1,29 +1,3 @@
-###  Публикация: 1340185   (264202) от 22.11.2019
-
-Daz 3D - Structures [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 17шт, категории Structures.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32244A32F88E154CBEEE258BCDA704FAE9DB33B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340331   (263837) от 23.11.2019
 
 KitBash3D - Mini Kit: Aristocracy [MAX, OBJ, FBX]
@@ -685,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91C611D2C7E619FE46B12C6A24224D3AD8925E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835474   (250801) от 06.11.2025
+
+3D print - Kaidan 3D - Statue of God [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaidan3d с гордостью представляет молчаливого бога!Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B6DD068460A5C8EC02447524634D755CD3D92C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1786207   (69107) от 19.03.2025
+###  Публикация: 1790902   (67970) от 11.04.2025
 
-...And Oceans - The Symmetry of I -  The Circle of O (1999) Reissue, 2016, Those Opposed Records [FLAC|24/192|image + .cue|Vinyl-Rip]<Symphonic Black Metal, Industrial, Electronic Metal>
+Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Mechanical Hippie
-A2 Aquarium Of Children - Ajatusten Merenpinta
-A3 The Black Vagabond And The Swan Of Two Heads
-A4 Salipsism(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:41:00
+01. Blood Of My Enemy
+02. Each Dawn I Die
+03. Kill With Power
+04. Hail To England(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36D3E118E0EEDA51858FD9786C791EA073AB2626
+magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786163   (69105) от 19.03.2025
+###  Публикация: 1790901   (67955) от 11.04.2025
 
-Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, Speed Metal>
+Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Una Torcia Illumina Il Cielo
-02. Vampyre Lore
-03. Rite For Exorcism
-04. Streetbanger(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:35:17
+Macbeth - рок-группа из Эрфурта, Германия. Группа была создана в 1985 году, в ГДР, в 1987 году сменила название на Caiman, а в 1989 году распалась.
+С 2003 года группа снова активна.2006 - Macbeth
+2009 - Gotteskrieger
+2012 - Wiederganger
+2015 - ImperiumЖанр: Heavy/Thrash MetalПродолжительность: 04:58:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5A288FA5F177452F98525446DCA667D3EB7DF3E
+magnet:?xt=urn:btih:02D4715DC2D8BE51DCCBBF794319E0E75F57F1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +57,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786468   (69016) от 20.03.2025
+###  Публикация: 1791231   (67920) от 12.04.2025
 
-Bestial Warlust - Blood & Valour (1995) Reissue, 2005, Black Ace Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Blood & Valour (02:51)
-A2. Death Rides Out (02:28)
-A3. Prelude: Descention / Hells Blood (05:27)
-A4. Barbaric Horde (04:46)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:34:36
+A1. Fuel
+A2. The Memory Remains
+A3. Devil's Dance
+A4. The Unforgiven II(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F066AEAE3B7C97DAE60EAB82A8A2AE427BAB073F
+magnet:?xt=urn:btih:C138BD3B2BA1229987584BA63B42E10D0069EB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786343   (69015) от 20.03.2025
+###  Публикация: 1791283   (67888) от 12.04.2025
 
-...And Oceans - A.M.G.O.D (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Industrial, Electronic Metal>
+Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Intelligence Is Sexy
-A2 White Synthetic Noise
-A3 Tears Have No Name
-A4 Esprit De Corps(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:48:10
+Macbeth - проект, родившийся в 1995 году, в Милане, Италия. Развивался от симфонической готики до более экспериментальной, с некоторыми электронными элементами.1998 - Romantic Tragedy's Crescendo
+2001 - Vanitas
+2005 - Malae Artes
+2007 - Superangelic Hate BringersЖанр: Symphonic Gothic MetalПродолжительность: 03:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B34AE6B6D8339B66F6FE0605D7DCE0EF96B34B7
+magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786364   (69011) от 20.03.2025
+###  Публикация: 1791208   (67875) от 12.04.2025
 
-Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Accu§er - немецкая метал-группа. Основана в 1986 году в Зигене. В 1985 году выпустила альбом под именем Breaker. В период с 2002 по 2008 год носила название Scartribe.1985 - Dead Rider (as Breaker)
-1987 - The Conviction/Experimental Errors
-1989 - Who Dominates Who
-1991 - Double TalkЖанр: Thrash/Groove MetalПродолжительность: 12:08:16
+Side One :
+01. All Men Play On 10
+02. Animals
+03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
+magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786366   (69010) от 20.03.2025
+###  Публикация: 1791185   (67870) от 12.04.2025
 
-High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Since You've Been Gone
-02. Restless
-03. Face To Face
-04. Hearts Will Burn(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:34:24
+01. Mechanize
+02. Industrial Discipline
+03. Fear Campaign
+04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CF2857DFEA9842CB06A7B3D8AF0132B112D94BA
+magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779606   (68973) от 21.03.2025
+###  Публикация: 1791955   (67772) от 17.04.2025
 
-Disarmonia Mundi - Studio Albums (6 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disarmonia Mundi — музыкальная группа из города Турин, Италия.2001 - Nebularium
-2004 - Fragments of D-Generation
-2006 - Mind Tricks
-2009 - The Isolation GameЖанр: Melodic Death MetalПродолжительность: 05:51:34
+01. Fighting The World
+02. Blow Your Speakers
+03. Carry On
+04. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F97A4AB4EFB63E8EDE9A22CF6E40AA2B5CE0CD0
+magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786564   (68964) от 21.03.2025
+###  Публикация: 1791908   (67768) от 17.04.2025
 
-Bestial Warlust - Storming Bestial Legions Live 1996 (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A-I. Death Rides Out
-A-II. I, The Warrior
-A-III. Storming Vengeance
-A-IV. Barbaric Horde(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:36:20
+A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
+A2 Everybody Knows • Всем Известно
+A3 Bad Girl • Плохая Девчонка
+A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72820BD4D1076434EB63F8751EECCD20ECDE9879
+magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786615   (68961) от 21.03.2025
+###  Публикация: 1791357   (67762) от 17.04.2025
 
-...And Oceans - Cosmic World Mother (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Industrial, Electronic Metal>
+Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Dissolution Of Mind And Matter
-A2 Vigilance And Atrophy
-A3 Five Of Swords
-A4 As The After Becomes The Before(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:47:34
+01. Music
+02. Noise
+03. Shoemaker
+04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29F60F7A27DC034A7C7756CD7FFACBEBD59F881A
+magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786793   (68928) от 22.03.2025
+###  Публикация: 1791405   (67759) от 17.04.2025
 
-Nightwish - Imaginaerum (2011) [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Power Metal>
+Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Taikatalvi
-A2 Storytime
-A3 Ghost River
-A4 Slow, Love, Slow(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:14:24
+A1 Fighting The World
+A2 Blow Your Speakers
+A3 Carry On
+A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4802CA441A8E1FAF968A5D7C585B7E8E28E4867
+magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +289,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786769   (68917) от 22.03.2025
+###  Публикация: 1791931   (67757) от 17.04.2025
 
-Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Megalomizer
-02. Attracted to Fire
-03. Fury
-04. Unexpected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:26
+Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
+2017 - Reality Illusion
+2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47C447AD831A515C6C1523B726790DF1B472CDD7
+magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,27 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786798   (68916) от 22.03.2025
+###  Публикация: 1791741   (67756) от 17.04.2025
 
-Nephylim - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nephylim - голландская рок-группа, основанная в 2015 году2015 - Torn (EP)
-2020 - Severance of Serenity
-2025 - CircuitionЖанр: Melodic Death MetalПродолжительность: 01:57:50
+A1-Eye For An Eye
+A2-No Hope = No Fear
+A3-Bleed
+A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB520C36488636975B3852FCD9C2E97FC9EADEFB
+magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786855   (68915) от 22.03.2025
+###  Публикация: 1791398   (67753) от 17.04.2025
 
-Hidden Intent - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hidden Intent - метал-группа из Австралии, сформированна в 2011 году.2014 - Walking Through Hell
-2018 - Fear, Prey, Demise
-2021 - Dead End Destiny
-2025 - TerrorformЖанр: Thrash/Groove MetalПродолжительность: 02:51:50
+A1 - The Industrialist
+A2 - Recharger
+A3 - New Messiah
+B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24FC6E73F9B7DE56C75FD259488E2CD349468D07
+magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,27 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786845   (68897) от 22.03.2025
+###  Публикация: 1791728   (67752) от 17.04.2025
 
-Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-Rip] <Epic Doom Metal>
+Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Forsaken:
-A1. Visions in Thy Shadow (09:25)
-A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжительность: 00:35:46
+A1 - Crush Depth
+A2 - Tear Down The Walls
+A3 - Beyond My Destiny
+A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
+magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,26 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786833   (68896) от 22.03.2025
+###  Публикация: 1792148   (67625) от 20.04.2025
 
-Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A. Where Angels Have Fallen (06:45)
-B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
+A1. Fighting The World
+A2. Blow Your Speakers
+A3. Carry On
+A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
+magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786878   (68895) от 22.03.2025
+###  Публикация: 1792775   (67621) от 20.04.2025
 
-Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Death Metal>
+Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Bitter Taste Of Clarity (04:50)
-02. Radiant Ascension (04:03)
-03. Embrace Oblivion (05:55)
-04. Into The Eventide (06:02)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:52:04
+A1-742617000027
+A2-(Sic)
+A3-Eyeless
+A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
+magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,28 +462,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787191   (68844) от 24.03.2025
+###  Публикация: 1792754   (67600) от 20.04.2025
 
-Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elvenpath
-02. Beauty and the Beast
-03. The Carpenter
-04. Astral Romance(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:12:02
+Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
+2019 - Enigma Fire
+2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5D26DF54B0BA7C3C1A8F23BE7B711772124C960
+magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787261   (68838) от 24.03.2025
+###  Публикация: 1792136   (67592) от 20.04.2025
 
-Nightwish - Oceanborn (1998) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stargazers
-02. Gethsemane
-03. Devil & the Deep Dark Ocean
-04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:12:40
+01. The Industrialist
+02. Recharger
+03. New Messiah
+04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:603D8567EE8CB3760963FC09ED549EDBB1046FC8
+magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787183   (68807) от 24.03.2025
+###  Публикация: 1792175   (67591) от 20.04.2025
 
-Ocean of Grief - Nightfall's Lament (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Melodic Doom, Death Metal>
+Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 In Bleakness
-A2 Eyes Of Oblivion
-A3 Mourning Over Memories
-B1 Fiend Of The Overlord(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:39:02
+A1 Sleep Of Death
+A2 Worship Him
+A3 Knowledge Of The Ancient Kingdom
+A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:795A4B875858E5610DFED8F83C16911320450554
+magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,28 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787412   (68791) от 25.03.2025
+###  Публикация: 1792193   (67589) от 20.04.2025
 
-Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music Theories Recordings [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Welcome To The New Dimension
-Lyrics By - Peter Daltrey
-A2 - Isis And Osiris
-Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:52
+A1. Eye For An Eye
+A2. No Hope = No Fear
+A3. Bleed
+A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
+magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,28 +577,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787364   (68775) от 25.03.2025
+###  Публикация: 1792143   (67585) от 20.04.2025
 
-Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stargazers
-02. Gethsemane
-03. Devil & the Deep Dark Ocean
-04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:13
+Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
+2001 - Naive
+2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
+magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,28 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787454   (68771) от 25.03.2025
+###  Публикация: 1792601   (67584) от 20.04.2025
 
-Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Progressive Metal>
+Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Gift / Curse
-A2 - Moth
-A3 - Paragon
-A4 - Misfit Opening(   Читать дальше...   )Жанр: Sludge, Progressive MetalПродолжительность: 00:39:59
+Dark Flood - метал-группа из Оулу, Финляндия, основанная как Flood в 1996 году, и сменившая название на Dark Flood в 1998 году.2004 - Still Liberty
+2006 - The Dead Lines
+2014 - Inverno
+2023 - Illusion of LightЖанр: Progressive Melodic Death MetalПродолжительность: 03:09:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F6C3A562857C2654B928B73560756D696E28419
+magnet:?xt=urn:btih:EC5A7D27403ED9FF7C71CB5DF320904DD8C74C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787640   (68760) от 26.03.2025
+###  Публикация: 1792290   (67581) от 20.04.2025
 
-Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Contemporary Jazz, Smooth Jazz, Fusion>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Is My Sin
-02. The Kinslayer
-03. Come Cover Me
-04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:28
+A1 Omagiu Lui Duke Ellington
+A2 Reminiscente
+A3 Doinind
+A4 Vechi Tezaur(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth Jazz, FusionПродолжительность: 00:40:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
+magnet:?xt=urn:btih:9A82F42508E6A224E452B99625171292E306C95F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787590   (68735) от 26.03.2025
+###  Публикация: 1792497   (67576) от 20.04.2025
 
-Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Is My Sin
-02. The Kinslayer
-03. Come Cover Me
-04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:40
+A1 Angela Ciochina - Odata Cu Cintecul
+A2 Mi-a Batut - Primavara-n Geam
+A3 Mihaela Runceanu - Sperante-vis, Sperante-flori
+A4 George Sava - Se Scalda Ceru-n Ochii Tai(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6DED3E50D2CB38544C7C0489F31978DE4C23885
+magnet:?xt=urn:btih:AB15464D342D3BC85CEEECD10D9948E7F95A4557
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787621   (68729) от 26.03.2025
+###  Публикация: 1792533   (67571) от 20.04.2025
 
-Solefald - Pills Against The Ageless Ills (2001) Released, 2021, Abstract Emotions [WavPack|32/192|image + .cue|Vinyl-Rip] <Post-Black Metal, Avant-garde>
+Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Hyperhuman
-A2 - Pornographer Cain
-A3 - Charge Of Total Affect
-A4 - Hate Yourself(   Читать дальше...   )Жанр: Post-Black Metal, Avant-gardeПродолжительность: 00:46:08
+A1 - Metus Mortis
+A2 - Blind Suffering
+A3 - Shadowland
+A4 - Checkmate In Red(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C576B703FFDD783F23CF021AD90E544BCD3BDC13
+magnet:?xt=urn:btih:0A615CE996BCC238839902418F1E4125016772C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,28 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787578   (68726) от 26.03.2025
+###  Публикация: 1792908   (67535) от 24.04.2025
 
-Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Stoner Metal>
+Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Express Death
-A2 - Pyramids
-A3 - Paper Walls
-A4 - He Dives Down(   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:51:27
+A1 Hiroshima
+A2 Dirty Fingers
+A3 Bad News
+A4 Don't Let Me Be Misunderstood(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
+magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

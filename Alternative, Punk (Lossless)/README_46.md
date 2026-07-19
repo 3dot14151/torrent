@@ -1,3 +1,117 @@
+###  Публикация: 1259222   (323406) от 02.11.2018
+
+Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying In A Blue Dream (5:23)
+ 02. The Mystical Potato Head Groove Thing (5:10)
+ 03. Can't Slow Down (4:49)
+ 04. Headless (1:30)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259061   (323404) от 02.11.2018
+
+Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Join The Game
+02. Hyper Focus
+03. You Are Many
+04. I(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4318ECBC0228E93F1488D618D23CD9ED0C0A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259028   (323271) от 02.11.2018
+
+Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACT I : Sea Borne - Liberator of Minds - Dance of the Bacchantes (16:38)
+02. ACT II : The Mountain - The Invocation - The Forest - Psychopomp (19:26)Жанр: Modern Classical, AmbientПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415550   (321473) от 29.11.2011
+
+Dropkick Murphys - 6 альбомов (1997-2007) [FLAC|Lossless|tracks + .cue] <Celtic Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropkick Murphys (Дропкик Мёрфис) — американская кельтик-панк-группа. Коллектив был основан в 1996 году Майком Макколганом, Кеном Кейси и Риком Бартоном в Бостоне, Массачусетс.01. Famous For Nothing (02:46)
+02. God Willing (03:16)
+03. The State Of Massachusetts (03:52)
+04. Tomorrow's Industry (02:18)(   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 04:21:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075210   (320792) от 22.11.2016
 
 Tori Amos - Boys For Pele (2016) Remastered, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -623,122 +737,6 @@ Ane Brun - A Temporary Dive (2005) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2C3FFEB239A93DBD7F91E5AFABA8A4942EB4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332797   (309870) от 22.10.2019
-
-Waterparks - FANDOM (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry Red
-02. Watch What Happens Next
-03. Dream Boy
-04. Easy To Hate(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFFC8BFF7CBAD52C3341F7910AFDAA561DEA3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183502   (309677) от 13.11.2017
-
-The Rasmus - Dark Matters (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise
-02. Something In The Dark
-03. Wonderman
-04. Nothing(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE3897CD825B2D0855E2D288B8FF5C670A085E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332799   (309366) от 22.10.2019
-
-Swans - Leaving Meaning (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hums (02:00)
-02. Annaline (05:17)
-03. The Hanging Man (10:48)
-04. Amnesia (05:49)(   Читать дальше...   )Жанр: Industrial, Post-PunkПродолжительность: 01:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A970501FAB0B787E25B0695B1B8FF011DD9A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332994   (307661) от 23.10.2019
-
-Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shelter (03:48)
-02. Show Me (04:51)
-03. Feel It All (04:58)
-04. Fire (04:35)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3D11C5B907827D0B04426BA8F5FFDEBCFD377E
 ```
 
 https://mybot314.ru/tekegram_catalog/

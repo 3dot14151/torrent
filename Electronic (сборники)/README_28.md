@@ -1,3 +1,235 @@
+###  Публикация: 987548   (926242) от 17.02.2016
+
+VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - To The Party (Extended Mix) 04:46
+02. Flip Capella - Lose Myself (At Tomorrowland) (Original Mix) 03:24
+03. Turbotronic - Doomchit Doomchit (Original Mix) 03:55
+04. Teknova - The Riddle 2K16 (Original Mix) 04:01(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98ED401EF89E0B8967CC37711C9923EDAFDF32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987312   (926062) от 17.02.2016
+
+VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djuro - 3,2,1 (05:19)
+02. Will Sparks feat. Wiley & Elen Levon - Ah Yeah So What (03:23)
+03. COMBO! - Bill Durry (04:04)
+04. Will Sparks - Catch (Radio Edit) (02:57)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B631097C776AF391B7765487CB943BEF9C63D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986737   (925982) от 17.02.2016
+
+VA - YouTube Top100 Music Singles Chart 25th January (2016) [MP3|236-320 кб/с] <Hip Hop, R&B, Pop Punk, Electropop, Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925982.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. Justin Bieber - Sorry
+003. Drake - Hotline Bling
+004. David Bowie - Lazarus(   Читать дальше...   )Жанр: Hip Hop, R&B, Pop Punk, Electropop, SynthpopПродолжительность: 06:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B3EA35D144F687CA27037AA1C8E3BA461621EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366101   (925831) от 10.03.2020
+
+VA - Beatport Deep House: Electro Sound Pack #20 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Stile - Some Time
+002. Leo Lacker - Behind
+003. Jay Cee Morgan - En Deux Heures
+004. P.Oker - Perfect(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384998411AE02A8A1874284406D85EFB267127B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366051   (925658) от 10.03.2020
+
+VA - Beatport Tech House: Electro Sound Pack #21 (2020) [MP3|320 Kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925658.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Karl Johan - Aquatic
+002. Elastic - Electric Meltdown
+003. Dj Pacha - Sangha
+004. Indepth - The Crack(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCC597C4A1CC8DD805BE7E6CF7B635FAC5E649A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366053   (925654) от 10.03.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #22 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vincent Price - Kazue (Radio Cut)
+002. Quantum Loop - Temple Walk
+003. Arrival - The Legacy
+004. Deft Soul - The Keys To Life(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD8869721B74A4023CB0770F43C7B8E2E27D02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366049   (925528) от 10.03.2020
+
+VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elphasoul - Pluto To Earth
+002. Djscifi - Hot Wired Tensions
+003. Mataio - The Darkness
+004. Frans Vander Hoek - Not Today(   Читать дальше...   )Жанр: House, Future, Progressive HouseПродолжительность: 09:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C645FA9F3DA7DF622212023E144B30CD29DBC703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366102   (924913) от 10.03.2020
+
+VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924913.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Gabriel - It Comes And Goes
+002. Mohjah - Zion Gates (Dub)
+003. Marcelo Diaz - Big Enough
+004. Dj Plur - I Turn To You (Radio Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 11:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987760   (924499) от 18.02.2016
 
 VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
@@ -513,252 +745,6 @@ VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096232   (920985) от 23.01.2017
-
-VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GoodLuck - Back In The Day (Radio Edit)
-02. UnClubbed - Need To Feel Loved (feat. Zoe Durrant)
-03. Toca Lounge - Electric Feeling (Lounge House Mix)
-04. Beth - Don't You Worry Child (Charming Horses Remix Edit)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A2850364A4F637654630F167EA6C4EDC572E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096074   (920920) от 23.01.2017
-
-VA - Function Total EDM (2017) [MP3|320 Kbps] <House, Future House, Progressive, Tech House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DVBBS & MOTi - Switch (Extended Mix)  3:34
-002.  Richard Wette & Danny Mellen - 33rd Parallel (Original Mix)  4:53
-003.  Savi & Bryce Fox - Breathe It In (Noah Neiman Remix)  4:18
-004.  Sam Feldt & Lucas vs. Steve ft. Wulf - Summer On You (Club Mix)  4:39(   Читать дальше...   )Жанр: House, Future House, Progressive, Tech House, Funky HouseПродолжительность: 08:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBC23616FBDF91723CAAE19E3885D65533A370E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096227   (920866) от 23.01.2017
-
-VA - Bass Killer 10 (2017) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Electro, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andres Fresko x Lit Lords — Fire Squad (Original Mix) (2:19)
- 02. Axwell x C-Mos — 2 Million Ways (Tony Romera Flip) (3:05)
- 03. Banghook x Bass King — Phat Groove (Original Mix) (4:15)
- 04. Diplo & Autoerotique — Waist Time (3:18)(   Читать дальше...   )Жанр: Dubstep, Big Room, Trap, Electro, Future BassПродолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F179C520C5F73B157649DA1EC566367BC20AF35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096218   (920840) от 23.01.2017
-
-VA - Record Super Chart #471 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach & Amice - Be Mine (Amice Remix)  3:23
-02.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40
-03.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-04.  KSHMR & Marnik ft. Mitika - Mandala  4:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98236396FAB51E337672111F937BA541537B049B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631624   (920261) от 20.03.2013
-
-VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 3PPL - HeadBanger
-2. Alisiya - Напрасно Ждать
-3. Baauer - Harlem Shake (Dave Silcox Remix)
-4. Beta - Madness
-5. Boo feat. Reece Low - Guardian
-6. Calabria feat. Rob Estell - Space (Club Mix)
-7. Candy Sandy - X Side
-8. Carnage feat. Borgore - Incredible
-9. Crookers - A Go Go
-10. Crookers - Giga(   Читать дальше...   )Жанр: House, Electro, Electro HouseПродолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBE8136934966E7938B5D2BA9631D70FA2EB1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630484   (919818) от 20.03.2013
-
-VA - New Street Music One (2013) [MP3|320 кб/с]<Glitchhop, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919818.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Baauer - Harlem Shake
-2. BeazyTymes - Drop It Low
-3. Brass Knuckles - Bad Habits (Renegades Trap Remix)
-4. Candyland feat. Maksim vs. Mako - All You Gotta Do
-5. Carvar feat. Clock - Miskatonik
-6. CJuicy - Hammered
-7. Creaky Jackals - My Mind
-8. Delhi 2 Dublin - Turn Up The Stereo (The Funk Hunters Remix)
-9. Dj Muggs feat. Chuck D - Wikid (6Blocc remix)
-10. Flosstradamus - Rollup (Baauer Remix)(   Читать дальше...   )Жанр: Glitchhop, TrapПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E55B26CB000339D6F0D980A1D9BBB7DC9FCDF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632499   (919817) от 20.03.2013
-
-VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2-4 Grooves - Rockset 2012 (Extended Club Mix)
-02. Carly Rae Jepsen - Call Me Maybe (FuzzDead Remix)
-03. DB Pure - Fire & Passion (Original Extended Mix)
-04. Diego Logic & Carlo Dall Anese & Glasgo - Arms Wide Open (Ready2Go Remix)
-05. DJane HouseKat ft. Rameez - All The Time (Bodybangers Remix)
-06. DJ M.E.G & N.E.R.A.K ft. Karina Koks - На краю земли (Original Mix) -Жанр: Electro House, Progressive House, Electro Progressive, HouseПродолжительность: 02:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988919   (919196) от 21.02.2016
-
-VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont feat. AME - Need U (100%) (05:53)
-02. Hard Rock Sofa - Quasar Noch breathe (Antony Rolls & Gladunov Mash Up) (06:26)
-03. Jacob Plant - Fire (04:17)
-04. Kronic & Krunk! - 3 Percent (04:51)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

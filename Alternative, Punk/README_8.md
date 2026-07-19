@@ -1,3 +1,61 @@
+###  Публикация: 1512079   (787408) от 24.11.2021
+
+Brothers Till We Die - Collection (2014-2019) [MP3|320 Kbps] <Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787408.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 - We Will Never Grow Up
+2015 - Blood.Death.Suffering.Pain (EP)
+2017 - The Thin Line Between Death And Immortality
+2019 - Touch These Wounds, I Came Back from DeathЖанр: Beatdown HardcoreПродолжительность: 01:50:36 (4CD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C679AECE89AF115FD592E41218564FE892C7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388752   (786596) от 07.06.2020
+
+Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good morning (03:08)
+ 02. Atreyu (05:26)
+ 03. Parachute (06:14)
+ 04. Predawn (feat. Phillip Jamieson) (03:28)(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388683   (786591) от 07.06.2020
 
 Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
@@ -684,64 +742,6 @@ Fvnerals - The Light (2014) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6813EC67064CBE47CCFF898089BCCEC6F5EDE044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125248   (772093) от 14.04.2017
-
-Fvnerals - Wounds (2016) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772093.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Void
-2. Wounds
-3. Shiver
-4. Teeth(   Читать дальше...   )Жанр: post-rock, shoegaze, ambient,Продолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AD1D8960F3BA1F72ED7B4B83D189D9EE470705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125314   (772092) от 14.04.2017
-
-King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wrong
-2. King of Swords
-3. Burn
-4. Candescent SoulЖанр: shoegaze, sludge, dream-popПродолжительность: 00:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32CE58AA4F99B49E53B420626A5041FE9082BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

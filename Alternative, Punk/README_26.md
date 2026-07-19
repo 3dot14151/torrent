@@ -1,3 +1,67 @@
+###  Публикация: 568691   (393936) от 01.11.2012
+
+Anberlin - Vital (2012) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393936.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Self Starter (3:17)
+2.Little Tyrants (3:21)
+3.Other Side (4:05)
+4.Someone Anyone (3:28)
+5.Intentions (3:08)
+6.Innocent (4:17)
+7.Desires (3:05)
+8.Type Three (3:56)
+9.Orpheum (3:50)
+10. Modern Age (4:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0CBD2CDA346F3AAA1AB535E9FE8021B5CF0A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172656   (392093) от 09.10.2017
+
+Upcdownc - I, Awake (2017) [MP3|320 Kbps] <Post Rock, Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Am I Awake?, Pt. 1
+02. Am I Awake?, Pt. 2
+03. Am I Awake?, Pt. 3
+04. Am I Awake?, Pt. 4(   Читать дальше...   )Жанр: Post Rock, Metal, ExperimentalПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE56D46F4613EC3481F4199F623D7035D08BD3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570614   (389982) от 05.11.2012
 
 Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
@@ -717,70 +781,6 @@ Aaron Lewis - The Road [Deluxe Version] (2012) [MP3|320 кб/с]<Alt.Rock | Coun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B77213BBBC98C4E896A1E00A7095853DE4924D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405617   (370648) от 03.11.2011
-
-Leningrad Cowboys - Buena Vodka Social Club (2011) [MP3|192-320 kbps]<Rock'N'Roll / Hard Rock / Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun Blues (02:26)
-02. All We Need Is Love (03:35)
-03. Drill A Hole (04:04)
-04. Gimme Your Sushi (03:05)
-05. Rock n Roll Show (04:57)
-06. I Kill The Dog (02:55)
-07. Gasolina (03:19)
-08. Buena Vodka Social Club (04:25)
-09. Frijoles Y Lager (01:33)
-10. Wash Your Ass (04:40)(   Читать дальше...   )2011Жанр: Rock'N'Roll / Hard Rock / SkaПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66480226924875A4286DF4D8727E5D86C1818F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950515   (370362) от 26.10.2015
-
-40 Below Summer - Transmission Infrared (2015) [MP3|320 кб/с]<Alt. Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mangina (4:21)
-02. Snake Charmer (4:05)
-03. Birthright (3:28)
-04. She Is The Atmosphere (4:18)(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AA21A1B4DDF624B5D80F46489628A0C03C565A
 ```
 
 https://mybot314.ru/tekegram_catalog/

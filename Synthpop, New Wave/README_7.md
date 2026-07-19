@@ -1,32 +1,3 @@
-###  Публикация: 930684   (512921) от 25.08.2015
-
-Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rose (03:05)
-02 Silence (04:04)
-03 Depend On You (04:22)
-04 Opposite of Me (05:42)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930467   (510785) от 27.08.2015
 
 Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
@@ -745,6 +716,35 @@ Eurythmics - We Too Are One (1989) Remastered ,2018, RCA [OGG|485 Kbps] <Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED0B601FEF4DD1373C39FDF455D82CA3B36A0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570598   (438362) от 19.08.2022
+
+Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visitors (The Alien Mix)	6:09
+02. Time	6:26
+03. Dragons Legend (Siegfried's Mix)	6:21
+04. Minoan War	5:53(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1298525   (601683) от 28.04.2019
+
+VA - Игра престолов / For The Throne (Music Inspired by the HBO Series Game of Thrones) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maren Morris - Kingdom of One (03:36)
+02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
+03. The Lumineers - Nightshade (03:01)
+04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2D32730A6A2F79BB1F06393E2EDEAF2326571C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913970   (601149) от 30.06.2015
+
+Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<New Age, Meditative, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parameshwara Mantra / Deep in Love
+02. Sarveshaam Mantra
+03. Ganapati Mantra / Strong My Roots
+04. Karuna(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FC50FB051E91760E404EE1A4A56EA5C7D0ADC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913613   (601132) от 30.06.2015
+
+VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - La Vie En Rose (Jeux D'Enfants) [3:25]
+02. Quincy Jones & His Orchestra - Soul Bossanona ( Austin Power: The Spy Who Shagged Me) [2:41]
+03. Goran Bregovic - Ederlezi (Le Temps Des Gitans) [5:00]
+04. James Brown - I Got You (I Feel Good) (Good Morning Vietnam) [2:47](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276415D60ACD521FBC822E509F314FFE1BF46FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547692   (600253) от 02.05.2022
+
+Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galdra (6:10)
+02. Halloween (3:54)
+03. Gwydion (3:59)
+04. Wainamoinen (4:02)(   Читать дальше...   )Жанр: Medieval, FolkПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B101F44C05B5777AB78E0C8D31FC1D0CA03EED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149227   (600216) от 11.07.2017
+
+Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds (6:49)
+02. Fall in Love (5:10)
+03. After the Rain (6:19)
+04. Inspiration (5:27)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548117   (600134) от 02.05.2022
+
+Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Your Heart (07:07)
+ 02. Old Medicine Man (06:31)
+ 03. Call Of The Great Spirit (06:47)
+ 04. Sacred Space Of Love And Wisdom (07:13)(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299117   (600022) от 01.05.2019
 
 Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
@@ -601,195 +775,6 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3A5A57A66CB39854319B018BD0BC8931786A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038762   (595919) от 01.08.2016
-
-Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Striking Distance
-02. Blood Love
-03. Taken
-04. Sons of Lightning(   Читать дальше...   )Жанр: Indie pop, AlternativeПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526927   (595585) от 25.07.2012
-
-VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , Western>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595585.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Creedence Clearwater Revival - The Midnight Special (4:11)
- 2. Paul McCartney - Heart Of The Country (2:23)
- 3. Bob Dylan - I'll Be Your Baby Tonight (2:38)
- 4. Eagles - Take It Easy (3:31)
- 5. Christie - San Bernadino (3:14)
- 6. Roy Orbison - Dream Baby (How Long Must I Dream) (2:32)
- 7. Elvis Presley - That's All Right (1:56)
- 8. Creedence Clearwater Revival - Cotton Fields (2:54)
- 9. Lynn Anderson - Rose Garden (2:58)
- 10. J.J.Cale - Call Me The Breeze (2:39)(   Читать дальше...   )Жанр: Country, Folk , WesternПродолжительность: 05:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41A1831152DF7EBD04AB82E4C1F573F210FA36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527119   (595584) от 25.07.2012
-
-Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fusion, World Music, Ethnic Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Last Train To Lhasa (11:44)
-2. Kuos (6:56)
-3. China (Clouds Not Mountains) (7:30)
-4. Amber (7:34)
-5. Kincajou (6:47)
-6. White Paint (6:06)
-7. 887 (Structure) (14:17)Жанр: New Age, Ethnic Fusion, World Music, Ethnic InstrumentalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A78C7192C6E047FDCDF81A9CDFC5C8BE10CC354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526752   (595523) от 25.07.2012
-
-Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]<Classical Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recuerdos de la Alhambra (F.Tarrega)    [03:23]
-02. Granada de la suite espaсola N1 (I Albeniz)    [04:21]
-03. Danza espaсola N5 en si menos op 37 (E Granados)    [04:31]
-04. Alegretto de sonatina en do mayor (Moreno Torroba)    [03:19]
-05. Preludio (Moreno Torroba)    [01:54.71]
-06. Sevilla de la suite espaсola N6 (I.Albeniz)    [04:18.21]
-07. Variaciones y fuga de cosas de espaсa (Manuel Ponce)    [14:35]
-08. Fandanguillo de la suite castellana(Moreno Torroba)    [01:59]
-09. Nocturno (Moreno Torroba)    [03:08]
-10. Fandanguillo (J Turina)    [03:57]Жанр: Classical GuitarПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548349   (594731) от 05.05.2022
-
-Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasteland [00:03:40]
-02. Ship Will Sail [00:03:40]
-03. Party Like a Pirate [00:02:43]
-04. After the Rain [00:03:27](   Читать дальше...   )Жанр: Folk Punk, Sailor Punk, CelticПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039543   (594560) от 02.08.2016
-
-Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva (Pianist: Patrick Doyle)
-02. Igor
-03. Scamper & Brain
-04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

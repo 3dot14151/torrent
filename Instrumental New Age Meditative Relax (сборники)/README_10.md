@@ -1,3 +1,32 @@
+###  Публикация: 1558064   (533471) от 19.06.2022
+
+Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evening With Mauriat (Kibab Remix)
+02. Let Me Free
+03. Indeana
+04. Lamba Ghini(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7681310D198134B5539AF2D2C2610A546177CC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533484   (532745) от 10.08.2012
 
 VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
@@ -749,32 +778,6 @@ VA - Инструментальная музыка (2012) vol. № 71 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B8517CFCDA26AA8D540F3E3AAA9FD221A80AE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548310   (466898) от 18.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 74 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2013FE4AE5C55E441A2A84DBFD42182FA7629D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

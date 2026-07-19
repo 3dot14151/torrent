@@ -1,29 +1,3 @@
-###  Публикация: 930850   (514024) от 24.08.2015
-
-Обои - Музыка 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на музыкальную темуФормат: JPGРазрешение файлов: 1280x1024 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17D7B43BC5F3AA82BAB4029D16DCBE744D64ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929037   (514019) от 24.08.2015
 
 Обои - Цветы [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FBB458BCE0CC41627E8989C9FCB4F160166EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931118   (512871) от 25.08.2015
+
+Обои - Computer Desktop Wallpapers Collection 1294 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола . КоллекцияФормат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B5F192E8017D274E69173A19399D3C52C5B055
 ```
 
 https://mybot314.ru/tekegram_catalog/

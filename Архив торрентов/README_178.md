@@ -1,3 +1,29 @@
+###  Публикация: 1468027   (1017445) от 06.05.2021
+
+Sketch 72 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch - это новаторский и свежий взгляд на векторную графику. Его намеренно минималистичный дизайн основан на пространстве для рисования неограниченного размера и слоев, без палитр, панелей, меню, окон и элементов управления. Несмотря на простоту использования, он предлагает мощные инструменты для векторного рисования и текста, такие как совершенные логические операции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1388CF75C0B6D754AB885B5683DC5E8A6BCE5575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467918   (1017444) от 06.05.2021
 
 Sublime Text 4.0 Dev [En]
@@ -656,35 +682,6 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30EC0C2A13ED099805EE22A31E007E24AF1C2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468259   (1017279) от 07.05.2021
-
-Jeremy Olander - Live @ Vivrant at the Lockdown, Trainyard in Stockholm, Sweden (2021-04-29) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Olander - ID
-02. Jeremy Olander - ID
-03. Jeremy Olander - ID
-04. Jeremy Olander - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E88255FAC5CB66D54DCDF430F2E628515D475
 ```
 
 https://mybot314.ru/tekegram_catalog/

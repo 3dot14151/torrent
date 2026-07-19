@@ -1,29 +1,3 @@
-###  Публикация: 1195377   (143525) от 28.12.2017
-
-Растровый клипарт - Fotolia - Sensual attractive lady posing in studio [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3920x5792-8688x5792
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B94F60FA6F2CBF63DCFBF8B2FEE209DF2BDB253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435459   (143319) от 28.12.2020
 
 Фотографии - PHOTOBASH - EASTERN ARMS & ARMOR [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C678FC3942AFCDE9920321F1030728FCD3904791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435650   (142099) от 29.12.2020
+
+Растровый клипарт - Fotolia - New Year and Christmas stock photos №51 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4537x3393-6144x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182B3DFD2133ACB1322543F4121912E516F249F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1384674   (801598) от 21.05.2020
+
+CoolUtils Total PDF Converter 6.1.0.220 RePack (& portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34244052AAC5EEB2021B54315331FEF0F17F6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384707   (801593) от 21.05.2020
 
 Allavsoft Video Downloader Converter 3.22.5.7441 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -645,34 +671,6 @@ StartAllBack - привычная для нас программа, котора
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C715E7950BC1F8FF7940A88E6C2D39085AF5609D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506128   (801378) от 29.10.2021
-
-Ventoy 1.0.57 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ventoy - это инструмент с открытым исходным кодом для создания загрузочного USB-накопителя для файлов ISO/WIM/IMG/VHD(x)/EFI не требующий установки.
-С ventoy вам не нужно форматировать диск снова и снова, вам просто нужно скопировать файлы ISO/WIM/IMG/VHD(x)/EFI на USB-накопитель и загрузить их напрямую.
-Вы можете копировать много файлов за раз, и ventoy предоставит (   Читать дальше...   )Разработчик: longpandaЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10899916EB5E3EA3459001E9C2F279DD29B4B662
 ```
 
 https://mybot314.ru/tekegram_catalog/

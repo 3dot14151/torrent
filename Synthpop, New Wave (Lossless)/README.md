@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1878524   (1074644) от 
+###  Публикация: 1879114   (1074933) от 
+
+Ocean Avenue 84 - Summer 83 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Me Up (Synthwave Remix) (4:03)
+02. Someone You Loved (4:26)
+03. Blinding Lights (Retrowave Vocal Remix) (4:14)
+04. Closer (Retrowave Remix) (4:14)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D440F8B7D27C5B08A9B48453DB6A11F4DBDC3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878524   (1074644) от 26.06.2026
 
 VA - Spacedance, Vol. 8 (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
 
@@ -717,35 +746,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B026364489099B613BD1A53A3E3C78F5CD89C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840945   (1047687) от 08.12.2025
-
-Thompson Twins - Industry & Seduction : A Thompson Twins Collection (2025) 3 x CD, Compilation, Limited Edition, Remastered, BMG [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Industry & Seduction - это всеоблемющий сборник, охватывающий всю карьеру Thompson Twins, отражающий их путь от аутсайдеров пост-панка до мировых икон синти-попа. За свою карьеру Thompson Twins записали семь хитов, вошедших в американский Топ-40, и были в авангарде второго вторжения британских исполнителей в США, в которое также входили The Police, Duran Duran, (   Читать дальше...   )Disc One - The Hits (Remastered):
-01. Hold Me Now (2024 Remaster) (4:46)
-02. If You Were Here (2025 Remaster) (2:56)
-03. Doctor! Doctor! (2024 Remaster) (4:38)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2FB8528E3C9CF612A5E9308C7623D9AD9262C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

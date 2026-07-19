@@ -1,3 +1,67 @@
+###  Публикация: 1351353   (1002184) от 10.01.2020
+
+Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2000 - Arrival
+2002 - Human Stain
+2003 - Once Upon Our Yesterdays(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73A9521CEEF981973ADDAFA6DD2812DCA0C3C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596803   (1000510) от 02.01.2013
+
+Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Showdown In Central Park
+02.  Take Me For A Ride
+03.  Do You Believe In Rock N Roll
+04.  Wildlife
+05.  Fire In The Pouring Rain
+06.  Call Pall Stanley
+07.  Heatwave
+08.  Look Out!
+09.  Touch
+10.  Straight To The GraveЖанр: Hard RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598062   (1000150) от 03.01.2013
 
 Uriah Heep - Greatest Hits (2012) [MP3|320 кб/с]<Hard Rock>
@@ -714,64 +778,6 @@ Shakra - High Noon (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C23C50D6416BBC1E35DE34BF0D8754799A618F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361468   (955641) от 19.02.2020
-
-Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireline (3:51)
-02. Too Much Is Not Enough (3:42)
-03. A Roll Of The Dice (4:26)
-04. Mad World (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980744   (954641) от 30.01.2016
-
-Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture
-02. Walk Away
-03. My Story
-04. For Always(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12D387AD68E4423FCE97F12DFB153F0F369E538
 ```
 
 https://mybot314.ru/tekegram_catalog/

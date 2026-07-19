@@ -1,32 +1,3 @@
-###  Публикация: 1217344   (743230) от 04.04.2018
-
-Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump in infinity 2:00
-02. Seven lights 2:16
-03. City of lonely ghosts 3:12
-04. Phoenix 2:43(   Читать дальше...   )Жанр: Neoclassical, AmbientПродолжительность: 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4EC2710BD1351EFC999CD1340DA5573E4883F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663576   (742822) от 07.06.2013
 
 Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant-garde, Symphony, Chamber>
@@ -746,6 +717,35 @@ Khachaturian - Spartacus, Gayaneh (excerpts) – Bournemouth SymphoKirill Karabi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C31386CCEFFA4BA2F7572C61CD74081E139A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219947   (707907) от 17.04.2018
+
+VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ-Chart - I'm Here Alone
+02. Rumor - Canzone Per E
+03. Lorenzo Casanova - Gitarro Amor
+04. Soheyl Keyani - Alles wird gut (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Indie, AcousticПродолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB67324C24F70F89DA7C2E67E085E4E768D510CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

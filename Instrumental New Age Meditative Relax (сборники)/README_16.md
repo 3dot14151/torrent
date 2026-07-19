@@ -1,3 +1,29 @@
+###  Публикация: 502584   (259117) от 28.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 52 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837562   (257955) от 17.11.2025
 
 Anna Zueva - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -677,35 +703,6 @@ Franck Pourcel Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CE9F2210DD7B220B429101BE6C317C3A68C13FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965116   (227597) от 13.12.2015
-
-VA - New Age Style - Enigmatic 23 (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Oldfield - Reach Out (4:00)
-02. Age Of Echoes - Spirit of Adventure (6:56)
-03. Age Of Echoes - Sea of Voices (8:16)
-04. Wim - Morning Mist (5:46)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EB1AF692A4E1D0B4FB9E5088DD9D6F5C3F5E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 938903   (478148) от 20.09.2015
-
-Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/ [FLAC|tracks+.cue]<Afro-Cuban Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Belongs To Daddy [06:03]
-02. My Man [04:20]
-03. Moonglow [06:25]
-04. ST. Louis Blues [05:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, BopПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3728B0675B8B8DB1245F001B41D16CEFC2098C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938812   (478146) от 20.09.2015
-
-John Coltrane - Stellar Regions (1967) /2015, Universal/ [FLAC|tracks+.cue]<Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Seraphic Light [08:58]
-02.Sun Star [06:09]
-03.Stellar Regions [03:36]
-04.Iris [03:55](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7425409F57016ADDDCF41A880C049CEDB0490A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938834   (478144) от 20.09.2015
-
-Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, What a Beautiful Mornin’ (4:12)
-02. Many A New Day (3:01)
-03. Happy Talk (3:54)
-04. I Cain't Say No (4:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926FFF6AB3AC42D26DEC02BA0E6EEEC03AEEBAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938801   (478025) от 20.09.2015
-
-Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The High Life (2:37)
-02. Edge of Love (3:54)
-03. I'm Confessin' (3:45)
-04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939100   (477923) от 20.09.2015
 
 Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
@@ -787,6 +671,122 @@ John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3962251F96B7CCF8928D93C17C1ED79F0BC9112E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567300   (474546) от 02.08.2022
+
+Herbie Mann - Verve Jazz Masters 56 (1996) PolyGram Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [4:00]
+02. Baia [2:52]
+03. Evolution of Mann [4:08]
+04. Oodles of Noodles [2:56](   Читать дальше...   )Жанр: Mainstream Jazz, Latin JazzПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823EB174A84C31DB06BE90B21ACB6A3306E15939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245236   (474218) от 05.09.2018
+
+Buddy Collette - Six Classic Albums (1957 - 1961) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474218.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cycle [2:54]
+02. Makin' Whoopee [3:38]
+03. Ruby [3:50](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 03:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A4F8AC66EECBB5F13096E6C734F833CA5969D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160545   (474154) от 25.08.2017
+
+Horace Tapscott - Aiee! The Phantom (1995) 2009, Arabesque Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To The Great House [07:55]
+02. The Goat and Ram Jam [08:57]
+03. aiee! The Phantom [10:34]
+04. Drunken Mary/ Mary On Sunday [09:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83411C5AD2BA3AC2317A2F662E665EEA0E4C31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245244   (474008) от 05.09.2018
+
+Madeleine Peyroux - Anthem (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On My Own
+02. Down On Me
+03. Party Tyme
+04. Anthem(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CE8017ED081EF6A3521F800AF6B86BB14CCC8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

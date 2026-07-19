@@ -1,89 +1,3 @@
-###  Публикация: 544168   (491586) от 07.09.2012
-
-VA - Big Italian Music Album { Nagy Olasz Slageralbum } (2007-2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Kent & Luisa Fernandez - Solo Por Ti [04:09]
-02. Al Bano - Sempre Sempre [03:46]
-03. Francesco Napoli - Balla Balla 3.Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7DBC686064D7D3896DB0C059B2B2F6B255F368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565422   (490351) от 25.07.2022
-
-Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafina Como Quieras
-02. Kusha Las Payas
-03. Tengo Un Novio Tantriko
-04. Un Blodymary(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565470   (490337) от 25.07.2022
-
-Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Call Me Baby
-02. Strength Of A Woman
-03. Circles Round The Moon
-04. Desire(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054999   (490296) от 21.09.2016
 
 VA - New Edition Italo Disco 80s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
@@ -810,6 +724,93 @@ VA - Oldies 70's (2017) [MP3|320 Kbps] <Disco, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056324   (481762) от 25.09.2016
+
+VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Haan - Gods From Outer Space (Created Synthleslie) 5:16
+02. The Starforce - Saviours In The Sky (Leroy Dub Mix) 3:51
+03. Franck Choppin - The Lonely Pianist 4:46
+04. Why Not - Smile 6:39(   Читать дальше...   )Жанр: Pop, Synthpop, Italo DiscoПродолжительность: 04:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9EBF80E4BCCF51C3CBDE2B6AE310DF3A5797AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405697   (480957) от 31.08.2020
+
+VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool (3:10)
+02. MARUV & Boosin - I Want You (2:55)
+03. Dotan - NUMB (Addal vs. Balzanellli & Bedo Edit) (3:19)
+04. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056236   (480679) от 25.09.2016
+
+VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
+02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
+03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
+04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
 ```
 
 https://mybot314.ru/tekegram_catalog/

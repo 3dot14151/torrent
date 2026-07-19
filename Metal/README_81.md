@@ -1,3 +1,90 @@
+###  Публикация: 959441   (317392) от 24.11.2015
+
+Battlecreek - Hate Injection (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dealing Death
+2. Redneck Riot
+3. Kill Or Be Killed
+4. Hate Injection(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9A36C22C5696C4CC03391CF6E0AAB8E0EF02C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421749   (315525) от 06.11.2020
+
+White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealers of Divinity (07:32)
+ 02. Mad Magic II_ In the Absence of Gods (Bad Magic) (05:11)
+ 03. Fading into the Obscurity of Ages (04:13)
+ 04. In Memoriam_ Love and Magic (Magic and Love) (07:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78FCBD0AD712465D1E68749DFB043DDA7141389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421728   (315519) от 06.11.2020
+
+Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (03:48)
+ 02. Open Wide the Gate (09:43)
+ 03. Born from the River (06:58)
+ 04. The Free Commots (03:53)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97104C56F1847E13F8409D7CFD422ED47B4E10A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582987   (315245) от 01.12.2012
 
 Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progressive Metal>
@@ -662,96 +749,6 @@ Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9366D457BC5B6CDB54DFC32EC1F791D89DBBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078070   (304826) от 29.11.2016
-
-Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scum
-02. Suffer the Children
-03. Nazi Punks Fuck Off
-04. Breed to Breathe(   Читать дальше...   )Жанр: Grindcore, Death MetalПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF130DF53CA76EFCF24075697D625CC11EB7D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583292   (303596) от 06.12.2012
-
-Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [MP3|320 кб/с]<Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Act I: The First Seal - 09:39
-2. Act II: Beyond the Black Diamond Gates - 07:14
-3. Act III: Carnal Delight in the Vortex of Evil - 06:13
-4. Act IV: Congressus Cum Daemone - 10:24
-5. Act V: The Magic Temple - 04:16
-6. Act VI: The Sixth Seal - 07:50
-7. Bela Lugosi's Dead (Bauhaus cover) - 05:28Жанр: Symphonic Black MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184225   (303536) от 16.11.2017
-
-Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. The Flower Born Of Itself
-03. Dark Daughter Of The Snake
-04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1096456   (919056) от 24.01.2017
+
+ProduKey 1.88 Portabe [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919056.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProduKey - крошечная, бесплатная утилита, которая отображает ProductID и серийные ключи для MS-Office, Windows, Exchange Server и SQL Server, установленных на вашем компьютере. Данная программка может быть полезна, если вы потеряли свой CD-ключ, и вам надо переустановить какой-то из компонентов или ОС целиком.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E7EE2163C48E3227C5243C1D01C476B454719A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096725   (919051) от 24.01.2017
 
 R-Studio 8.2 Build 165337 Network Edition [Multi/Ru]
@@ -650,33 +676,6 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F52096ED7175CD2FB90304621A46636A3758BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988816   (918878) от 21.02.2016
-
-Mp3tag 2.75 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах.
-Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6C1706B74164E519330E21BA6EE497753686A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

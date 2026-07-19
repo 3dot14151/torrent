@@ -1,3 +1,32 @@
+###  Публикация: 921611   (573592) от 26.07.2015
+
+Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573592.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Parameshwara Mantra (Deep in Love) - 14:03
+2. Sarveshaam Mantra - 6:37
+3. Ganapati Mantra (Strong My Roots) - 7:20
+4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234227   (572491) от 04.07.2018
 
 Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
@@ -716,35 +745,6 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E207D2606C9D7A8FCDF9B75C41E2CD8A99D83E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052532   (527912) от 14.09.2016
-
-Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon [00:06:44]
-02. Lyria [00:04:55]
-03. Moola Mantra [00:08:59]
-04. Desert Traveller [00:06:23](   Читать дальше...   )Жанр: World Fusion, New AgeПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C929554BA44F798B7B1ACC7EE938408DCA7B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 1510895   (789714) от 19.11.2021
+
+Donna Summer - I'm a Rainbow: Recovered & Recoloured (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm a Rainbow (4:15)
+02. I Believe (In You) (4:47)
+03. Back Where You Belong (4:21)
+04. You to Me (3:38)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1D2846EE07BCA1BCD97E9364D741D0A765CB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511007   (789708) от 19.11.2021
+
+VA - NOW That's What I Call Music! 80 (2021) USA version [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний такой сборник был на трекере под номером 73, так что больше чем за год вышло в USA 7 таких сборников. Очередной сборник новинок из топов США (и немножко Великобритании) получился очень разнохарактерным по сравнению с общим тоном предыдущих выпусков. Интересна композиция Dua Lipa - Love Again, где в самом начале и по ходу трека повторяется тема из ELO.
+Официальные (   Читать дальше...   )01. Olivia Rodrigo - good 4 u  (2:57)
+02. Doja Cat & The Weeknd - You Right  (3:02)
+03. Dua Lipa - Love Again  (4:14)
+04. Shawn Mendes & Tainy - Summer Of Love  (3:00)(   Читать дальше...   )Тип издания: Singl CD, AlbumРелиз состоялся: 21 октября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84702A581C13A8DE05CDE1B850296199A36130A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511015   (789653) от 19.11.2021
+
+VA - NOW That's What I Call Music! 110 (2021) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сразу перепрыгнули на трекере со 106 выпуска на полный свежачок - 110-й. Это сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Тут тряхнул стариной Elton John в компании с Dua Lipa (   Читать дальше...   )CD1:
+01. Ed Sheeran  - Bad Habits  (3:52)
+02. Elton John & Dua Lipa  - Cold Heart (PNAU Remix)  (3:23)
+03. Coldplay X BTS  - My Universe  (3:49)(   Читать дальше...   )Тип издания: 2 CD, Box SetРелиз состоялся: 19 ноября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05774348A42EBAF88D156CB4625405E7BE8F941B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511051   (789638) от 19.11.2021
+
+James Blunt - The Stars Beneath My Feet (2004-2021) (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft Rock, Indie Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Under Pressure (2:45)
+ 02. 1973 (4:40)
+ 03. Wisemen (3:43)
+ 04. Same Mistake (4:58)(   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, Indie Rock, BalladПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50E0479F6464CCA1A55B5C9C6BEB09EB16E5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438549   (789628) от 12.01.2019
+
+Supermax - Greatest Hits (2012) [FLAC|Lossless] <Rock, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bango Bongo (5:44)
+02. Lovemachine (7:42)
+03. Be What You Are (2:54)
+04. It Ain't Easy (4:18)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 02:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275858   (789440) от 13.01.2019
+
+Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Away Away Away (0:52)
+ 02. In Control (4:25)
+ 03. LaLaLove (3:24)
+ 04. Down By The Riverside (3:13)(   Читать дальше...   )Жанр: Electronic, Pop, Dance, HouseПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275911   (789391) от 13.01.2019
+
+Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Reggae, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Baby (3:40)
+ 02. Reggae Master | feat. Roussinoff (3:46)
+ 03. Rhodopi Mountain (4:16)
+ 04. Stormy Weather (4:34)(   Читать дальше...   )Жанр: Pop Rock, Reggae, Soul, BluesПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944D88EB4B0193F2EE72C4A135EC54F7C85472BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509969   (788755) от 21.11.2021
 
 Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image + .cue] <Chanson, Pop Rock, Synth-pop>
@@ -543,209 +747,6 @@ The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389748   (783930) от 12.06.2020
-
-Mariah Carey - Music Box (1993) Columbia CCK 53205 [FLAC|Lossless|image + .cue]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamlover (3:54)
- 02. Hero (4:20)
- 03. Anytime You Need A Friend (4:26)
- 04. Music Box (4:58)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73EFA954A7631F66948BDE5E662B8D4712E00E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389636   (783921) от 12.06.2020
-
-Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is My Oyster-Snatch Of Fury (Stay) (1:58)
-02. Welcome To The Pleasure Dome (13:39)
-03. Relax (Come Fighting) (3:56)
-04. War (And Hide) (6:14)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7781725183440E0E0F3367E2C2E7A3F3913CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389984   (783392) от 14.06.2020
-
-VA - NOW Pop Icons (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady GaGa - The Edge Of Glory (Radio Edit)
-02. Ellie Goulding - On My Mind
-03. Niall Horan - Slow Hands
-04. Demi Lovato - Cool for the Summer(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA01181EC3CA5871C4599C404B5CE7947CBED97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205687   (783208) от 11.02.2018
-
-Noemi - La Luna (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non smettere mai di cercarmi
-02. Porcellana
-03. Autunno
-04. L'attrazione(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B170A74D73F3AF96F0651FC205BDBCDED0CB85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390862   (781793) от 18.06.2020
-
-Bee Gees - Odessa (1969) Box Set Felt Cover 2009 3-CD Reprise Records [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bee Gees (рус. Би Джиз) — британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )01. Odessa Demo (6:42)
-02. You'll Never See My Face Again Alternate Mix (4:08)
-03. Black Diamond Demo (4:04)
-04. Marley Purt Drive Alternate Mix (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5766EC2AF8AE4BB31A96C06BBED37D2529F1B912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206810   (781732) от 15.02.2018
-
-Тина Кароль - Show Me Your Love (2006) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Doesn't Metter 3:55
-02. Russian Boy 3:14
-03. Life Is Not Enough 3:21
-04. Honey 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2573ACDDCBF4BE14EA770D8B6833C7374737843C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206805   (781728) от 15.02.2018
-
-Ирина Билык - Любовь.Яд (2004) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О любви 3:26
-02. Помнить 3:44
-03. Не такая, как все 3:36
-04. Шутка 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0036392C8D3D183041C1EA56B6081C08FD83F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

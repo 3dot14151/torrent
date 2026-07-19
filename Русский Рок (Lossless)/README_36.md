@@ -1,322 +1,3 @@
-###  Публикация: 953408   (349559) от 04.11.2015
-
-Ва-Банкъ - Игроки и шпионы (2005) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голодные пули
-02. Игроки и шпионы
-03. Радиодыры
-04. Их много(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E793C0D001D675B5B87FEA8D4960A48FADB208C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233617   (348525) от 24.10.2020
-
-Маргулис, Чиж, Ромарио - Имена (2010) [WavPack|Lossless]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Таня - Дура!(2:50)
-02. Пой, Как Маргулис(3:12)
-03. Мой Главный Порок(3:55)
-04. Не Молчи(3:23)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 0:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E43CAAF58611788D9F0BAE443235E07A28BA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257023   (347969) от 11.11.2010
-
-Пикник - Лучшее (2CD) (2009) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Недобитый романтик  (4:12)
-02. Из мышеловки  (4:26)
-03. У шамана три руки  (3:27)
-04. Настоящие дни  (4:07)(   Читать дальше...   )Жанр: RockПродолжительность: 1:19:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089002   (347367) от 25.10.2018
-
-Рок-группа - Попса (2003) переиздание 2004 [FLAC|lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДДТ - Фонограммщик (05:38)
-02. Рок-группа - Попса (03:11)
-03. Рок-группа - Куда ты смотришь? (03:06)
-04. Рок-группа - Дым (02:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA8800C4FE9B07F48558D4BA6F5D6CA96AD9266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179850   (346317) от 01.11.2017
-
-Би-2 - Горизонт событий (2017) 2CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лётчик
-02. Чёрное солнце
-03. Тема века
-04. Детство(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6562395B23BD51775CFF345A0E896C21625728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578338   (345860) от 23.09.2022
-
-Somnambular Dance - Городу - трещины (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Везувий [00:03:47]
-02. И я ослеп [00:04:44]
-03. Белый лес [00:04:53]
-04. И ветер стих [00:01:09](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BDC67CC8E91A44DDF2A6CEB7FEE0EAB9142B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578397   (345699) от 23.09.2022
-
-Пётр Мамонов, Звуки Му - Незнайка (2021) [FLAC|Lossless|Vinyl-Rip|tracks] <Lo-Fi, Experimental, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:04:45]
-02. Пилюлькин [00:04:00]
-03. Тюбик [00:03:35]
-04. Зависть [00:03:35](   Читать дальше...   )Жанр: Lo-Fi, Experimental, Art RockПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4685944D1246F67A7EC9FC6ECB76F89293D7920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073428   (345218) от 16.11.2016
-
-Дельфин - Она (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рябиновые птицы
-02. Помни
-03. Небо
-04. Чудо(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2313692BEB33DBCA3C5D0359DBFD5F3EDB4160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180384   (341947) от 03.11.2017
-
-Король и шут - Будь Как Дома, Путник...! (1996) Remastered, 2017, Шумный Рекордс [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341947.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Будь, как дома, путник!» подарит поклонникам «КиШ» бесценную возможность услышать классические записи, и, спустя двадцать четыре года, оценить их оригинальное звучание. Может быть, даже прочувствовать их заново. И, разумеется, вспомнить, что такое True Russian Punk. Чтобы больше не забывать. Одиннадцать песен, одиннадцать сказок, записанные много лет назад и дождавшиеся (   Читать дальше...   )1. Мотоцикл
-2. Два Друга
-3. Сапоги
-4. Лесник(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0512FB8CBFFE1F5C0F4B7B04C5D991E13FEE559A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953579   (341876) от 07.11.2015
-
-Pompeya - 5 альбомов + 2 EP's (2011-2015) [FLAC|Lossless]<Indie, New Wave, Post-punk, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341876.jpg" />
-</div>
-
-
-###  Подробнее
-
-POMPEYA - группа с необычным звучанием, собранным из танцевального поп-рока, насыщенного яркими гитарными партиями и стильного new wave-вокала. "70-е, 80-е и музыка этого периода просто великолепны сами по себе. Мы выбираем ее и продвигаем вперед!" - говорят музыканты.Albums:
-2011 - Tropical
-2012 - Foursome
-2014 - Tropical Remixed(   Читать дальше...   )Жанр: Indie, New Wave, Post-punk, ElectronicПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAEEB620ACE6290111C84E9618C72083DF84E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954540   (341798) от 07.11.2015
-
-Круиз - Волчок (Серия "Рок архив") (1994) [FLAC|image + .cue]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Виза Для Круиза   (4:55)
-02.  Волчок   (3:41)
-03.  Душа   (5:24)
-04.  Попугай   (3:19)(   Читать дальше...   )Жанр: РокПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3823CA0AFD7EAC483B4E78464B8C0DC4031E0768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600130   (341686) от 07.11.2015
 
 ТонкаяКраснаяНить (Тонкая Красная Нить) - 2 альбома (2009-2011) [FLAC|Lossless] <MetalCore, Alternative>
@@ -750,6 +431,325 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:360123AAD45107CC6A6482567BDA0295A942C632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580342   (329991) от 02.10.2022
+
+ГефесТ - Сам не свой (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Посвящение(zloy) [00:03:25]
+02. Invictus [00:04:08]
+03. Эйфория [00:05:06]
+04. ГефесТ [00:03:54](   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E52561F91751CAA9DA3852659B86FCFBC5C9740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580611   (329978) от 02.10.2022
+
+Однорукий Бандурист - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андеграунд [00:03:37]
+02. Протест против протеста [00:02:30]
+03. Всё катится [00:03:25]
+04. Беспонтовые телодвижения [00:03:18](   Читать дальше...   )Жанр: RockПродолжительность: 3 CD, 02:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AC7F5DB75CF66F48A815871D3F91B8DA9295F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580478   (329917) от 02.10.2022
+
+Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, Blackened>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Головошил [00:03:08]
+02. Царь трухи [00:02:04]
+03. Ненасытная утроба [00:01:12]
+04. Сродство [00:02:53](   Читать дальше...   )Жанр: Crust, Grindcore, BlackenedПродолжительность: 2 CD, 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CCB2369E70BBB06B28E9E3FDB4CE25B2DC1626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580616   (329816) от 02.10.2022
+
+Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город [00:07:10]
+02. 7 дней [00:05:30]
+03. Эйдолон [00:05:34]
+04. Декаданс [00:06:56](   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 4 CD, 03:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5ECB012F246BBF18CE7DEB65EBCACB5159ED0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956938   (329028) от 15.11.2015
+
+Юрий Хой и Сектор Газа - Вой на луну. Лучшее и неизданное (2015) 2CD [FLAC|image + .cue] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раннее сольное творчество лидера известной российской рок-группы "Сектор Газа" Юрия Хоя (Клинских) впервые издано официально: песни, записанные Юрием Хоем за 6 лет до образования в 1987 году "Сектор Газа" впервые увидят свет. Первая часть с ранними песнями Хоя будет дополнена компиляцией из лучших песен "Сектор Газа" - последний сборник (   Читать дальше...   )01. 30 лет
+02. Туман
+03. Пора домой
+04. Лирика(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39ACCF8D7E3AB25807091FF8A27BFCD427A5392C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956766   (328354) от 16.11.2015
+
+VA - Рок против шерсти (приложение к журналам Салон AV и АвтоЗвук) (2003) [FLAC|lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Телевизор - Без сахара (03:40)
+02. Дочь Монро И Кеннеди - Бытовая II (03:53)
+03. Ноль - Человек и кошка (03:53)
+04. Юлия Теуникова и Город Макондо - Чистый спирт (03:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFBF1C1ED8C0E2C230891ACA20D97AADB7FD6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581012   (328061) от 04.10.2022
+
+СА:МИ - Мантра (2022) 2CD, Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мантра [00:04:12]
+02. ЯR [00:03:20]
+03. Р. С. М. [00:03:49]
+04. Время [00:03:36](   Читать дальше...   )Жанр: Rapcore, Alternative RockПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8FD8C3A85E892194090380AFBDFAF15190EF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842654   (327410) от 19.11.2014
+
+Маша и Медведи - Гусеницы (2014) EP [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Правдивая   (4:16)
+02.  Аве Мария   (3:17)
+03.  Яйцо (feat. Инна Желанная)   (4:05)
+04.  Нева (cover 5'nizza)   (4:56)Жанр: RockПродолжительность: 00:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957247   (327376) от 17.11.2015
+
+Линда - Карандаши и Спички (2015) [FLAC|tracks|WEB] <Alternative, Trip-hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карандаши и Спички (03:54)
+02. Болеют Все (04:53)
+03. Кошкин Дом (03:58)
+04. Мне Хорошо (03:02)(   Читать дальше...   )Жанр: Alternative / Trip-hopПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB4ADD4A6F736CD26F2743650BEDE4567F5DA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581646   (326417) от 06.10.2022
+
+Тролль гнёт ель - Девять (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танцуй, танцуй!
+2. Я люблю зелёный
+3. Фру Маннелиг
+4. Оседлай дракона(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7916AE9C7B98A474D86086E96C54DFD390BD9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581271   (326409) от 06.10.2022
+
+Виталий Дубинин - Бал - Маскарад (2022) Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Бал-Маскарад
+03. Бес в твоих глазах
+04. Русский сон(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E381AB6601209D3CDEC5EEA83C85263B80475F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

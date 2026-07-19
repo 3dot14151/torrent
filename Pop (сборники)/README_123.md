@@ -1,94 +1,3 @@
-###  Публикация: 1681577   (132627) от 03.12.2023
-
-Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garmoshka Girl (feat Shatana) (2:27)
-02. Ай я е (2:47)
-03. Бездомный снаряд (2:24)
-04. БОМ БОМ БОМ (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596045   (131651) от 30.12.2012
-
-VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrian Claudiu Sina - Painted Love
-02. Adrian Sina, Sandra N. - Angel feat. Sandra N. (South Blast! Nympho Angel Remix)Жанр: Pop, DanceПродолжительность: 02:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595957   (131645) от 30.12.2012
-
-VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrodita (Original Mix) - Cosme Martin 05:16
-02. Afrojack & Shermanology - Can't Stop Me (Madein82 Remix) 06:33
-03. Airon Diaz & Raul Ortega - Ya No Puedo Sufrã­r Mã¡s (Pablonez Private Remix) 04:20
-04. Akcent - I'm Sorry (Reworked Radio Edit 2012) 03:35
-05. Akcent - On And On (When The Lights Go Down) 04:22
-06. Aldo Ranks - Parrandero 04:20
-07. Alejandro Sanz - Se Vende 04:00
-08. Alex Mica - Heya 2K12(Radio Edit) 03:35
-09. Alexis & Fido - Donde Estes Llegare 03:14
-10. Alexis & Fido - Hp 04:03Жанр: Pop, Vocal, DanceПродолжительность: 03:03:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595756   (131542) от 30.12.2012
 
 VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 кб/с]<Pop>
@@ -785,6 +694,93 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696788   (119395) от 04.02.2024
+
+VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Houdini (3:05)
+02. Клава Кока & FEDUK - Кабы не было тебя (2:40)
+03. Gayazov$ Brother$ - Нужна Перезагрузка (2:57)
+04. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698287   (118634) от 08.02.2024
+
+VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Wicked Games (5:24)
+02. Big Sean - I Know (5:20)
+03. Drake - Jungle (5:20)
+04. PARTYNEXTDOOR - Recognize (feat. Drake) (5:14)(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699537   (117492) от 15.02.2024
+
+Юрий Антонов - Коллекция (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Антонов, мой самый любимый композитор и исполнитель. Ещё во времена СССР, у нас дома были все его пластинки. С самого раннего детства, знаю песни наизусть и слушаю до сих пор. Его творчество - лучшее лекарство от тоски и дипрессняка. Когда 7 лет назад я делал собрание песен, на тот момент у меня не было апаратуры должного уровня. В то время я только учился работать (   Читать дальше...   )01. От печали до радости
+02. Несет меня течение
+03. Все, как прежде
+04. У берез и сосен(   Читать дальше...   )Жанр: PopПродолжительность: 04:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

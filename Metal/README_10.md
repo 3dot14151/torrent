@@ -1,3 +1,102 @@
+###  Публикация: 608748   (992818) от 26.01.2013
+
+Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	 Unbreakable	(04:37)
+02.	 Falling Star	(04:31)
+03.	 The Game Never Ends	(03:48)
+04.	 Freedom	(05:03)(   Читать дальше...   )Жанр: Melodic Power Metal |Продолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9D8E25B195D267A1E03E5F2C08837792B5541E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609174   (992370) от 27.01.2013
+
+Emergency Gate - You (2013) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mindfuck
+ 2. Force United
+ 3. Moshpit
+ 4. Feeling Inside
+ 5. Liar's Truth
+ 6. Breathless
+ 7. Revolution
+ 8. You
+ 9. Lean on Words
+ 10. Regret(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66927673D44D0434712674EA858AA7803419CEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605298   (990953) от 28.01.2013
+
+Helloween - Straight Out Of Hell (Japanese Limited Edition) (2013) [MP3|320 kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nabataea (07:03)
+02. World Of War (04:58)
+03. Live Now! (03:11)
+04. Far From The Stars (04:44)
+05. Burning Sun (05:35)
+06. Waiting For The Thunder (03:55)
+07. Hold Me In Your Arms (05:12)
+08. Wanna Be God (02:02)
+09. Straight Out Of Hell (04:35)
+10. Asshole (04:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC7C707D685722E9E047A3D32C734B4641FEF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353895   (990655) от 19.01.2020
 
 Apocalyptica & Sabaton - Angels Calling (2020) Single [MP3|320 Kbps] <Heavy Metal>
@@ -689,91 +788,6 @@ Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973670   (978936) от 09.01.2016
-
-Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakin' All Over (Johnny Kidd & The Pirates)
-02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356487   (978902) от 30.01.2020
-
-Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United
-02. Eternal Fire Burning
-03. Looking for You
-04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356493   (978901) от 30.01.2020
-
-Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radio SCG 10
-2. Horror for Hire
-3. Shake the Baby Silent
-4. Like a Bee to the Honey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

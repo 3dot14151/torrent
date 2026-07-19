@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1881151   (1076662) от 
+
+VA - Black Hole House Music 07-26 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HALIENE - Solar Waves 04:06
+02. Christian Burns & Paul Thomas - The Two of Us (Extended Mix) 07:24
+03. Kryder - All My Love (Extended Mix) 04:51
+04. MARK ETESON, midah, HENLOW & Øverlake - Sweet the Sound (Extended Mix) 05:06(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 02:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F34390E17DF435AC061656E3D230F20CC326556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878344   (1074792) от 27.06.2026
+
+RavenstrikeX - 114 singles (2025-2026) AI Music [MP3|320 Kbps|WEB-DL] <Electronic, Pop, Hip-Hop>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074792.jpg" />
+</div>
+
+
+###  Подробнее
+
+2026 - Say it till I fade /2026, 9495952 Records DK/
+2026 - Pain Is Loud /2026, 9495952 Records DK/
+2026 - Let The Water Speak /2026, 9495952 Records DK/
+2026 - Mummy Wake Up /2026, 9495952 Records DK/(   Читать дальше...   )Жанр: Electronic, Pop, Hip-HopПродолжительность: 05:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0037152F28E5348BDE391DF4ABC264C320E9F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877783   (1074226) от 23.06.2026
 
 VA - IBIZA SUMMER 2026 - Best Electronic Music (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
@@ -688,64 +746,6 @@ VA - Ibiza Opening Season Deep Sampler 2026 (2026) [MP3|320 Kbps] <Deep House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2AFC708D0FC4205AE03BF5B4EEA32EF41AC2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866183   (1065794) от 19.04.2026
-
-VA - The Fifth Year of Stellar Black (2026) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berdu - Elementos 07:13
-02. Damian Russo - Landing Treshold (Gareth Cole Remix) 06:25
-03. Evaki 14 & Airwave (SL) - Edge of Dissociation 06:57
-04. IVADRO - Galaxy 07:24(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE0FC72E5519069BCA78FF92BBFE81321BB77DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865764   (1065510) от 17.04.2026
-
-VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KMÖBA - Go Home 04:05
-02. Cristian Ferrer - Perfect Storm 06:09
-03. Fleanger - Pure Odyssey 04:32
-04. Nikita Marasey - Stay Human 04:13(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18B16B7024E7B50658E6CFC5EC9A892AD986721
 ```
 
 https://mybot314.ru/tekegram_catalog/

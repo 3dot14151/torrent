@@ -1,119 +1,3 @@
-###  Публикация: 1052826   (527380) от 15.09.2016
-
-Maaike Nicola - A Portrait Of Maaike (1989) IPS[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Easy Living [05:19]
- 02.Corcovado [03:29]
- 03.Day By Day [03:31]
- 04.Close Enough For Love [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE50E96B8EE4A9F5A2305C500384D4AD17576A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052808   (527375) от 15.09.2016
-
-Najee - You, Me and Forever (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air (6:08)
-02. Fly With The Wind (3:50)
-03. Wave (5:23)
-04. Biggest Part Of Me (5:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BFF498935720706A23A47C5DC0D941F8AF08DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559231   (527230) от 24.06.2022
-
-Buddy DeFranco (De Franco) - The Buddy DeFranco Wailers (1956, 1957) 2007, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek to Cheek [6:48]
-02. Let's Call the Whole Thing Off [5:06]
-03. Moonlight on the Ganges [6:33]
-04. Angel Eyes [4:25](   Читать дальше...   )Жанр: BopПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4985C7204C74B26F2824810C74044275EE45A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559061   (527193) от 24.06.2022
-
-Konstantin Klashtorni - Chillaxonic: 1st Facet (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ineffable (5:22)
- 02. Ethereal (5:09)
- 03. Cosmic Visions (4:26)
- 04. Mellifluous (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3685F195334CBBDC5165F14301ED25E08817C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156701   (527079) от 08.08.2017
 
 Cedar Walton & Clifford Jordan - The Pentagon (1976) 2008, Universal [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -753,6 +637,122 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E639F60356EF7EE3F0E9A2FF88AEEFAB88A28D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240534   (524473) от 12.08.2018
+
+Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away
+02. Sail
+03. I Can Only Imagine
+04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559425   (524417) от 25.06.2022
+
+Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Crucible for Crisis [12:08]
+02. The Struggle Is in Your Name [8:59]
+03. Affective Affinities [8:05](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4878F9015F8FC0579792FF32730A4DFBA1DF2B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927739   (524130) от 14.08.2015
+
+The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Nancy [13:18]
+02. Elaborations [04:24]
+03. Midnite Train [03:44]
+04. Freedom Swing Song [04:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E3E1E7BF9CA113885EF4B965888B6BD4246736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927829   (524129) от 14.08.2015
+
+George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1960) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's A Plenty [07:12]
+02. I Ain't Got Nobody [07:25]
+03. September In The Rain [04:05]
+04. Undecided [07:49](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83806BF94F8F5C6108E04862ACF64A8EC633485
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1168017   (412896) от 22.09.2017
-
-Johnny Smith - Plays Jimmy Van Heusen (1955) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Beautiful [02:54]
-02. Swinging On A Star [02:39]
-03. I Could Have Told You [02:54]
-04. It Could Happen To You [02:09](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924A5C309A88000139DEDD00EC19AC6209BF6AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325489   (412807) от 15.09.2019
-
-Deborah Franciose - Gypsy Heart (1993) North Star Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr [3:52]
-02. Serengeti [4:32]
-03. Patty Joe [4:17]
-04. Gypsy Heart [3:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296BDCE9084F3B6445EBFEB16C8FF8FB0ABDC520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325493   (412805) от 15.09.2019
-
-Ernie Andrews - Jump For Joy (2003) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Never Fall in Love with Me [6:36]
-02. Danger Zone [5:31]
-03. Sweet Lorraine [5:07]
-04. You Are Too Beautiful [7:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20E97B9EFD578295064962AE3E8FDB05E2A49A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325487   (412803) от 15.09.2019
-
-Anders Widmark Trio - Visor (2010) Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Varsang [2:12]
-02. Glimmande nymf [3:47]
-03. Den blomstertid nu kommer [2:54]
-04. Till havs [3:19](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7E1263DD646044ADF7A24EA9FBB7F7917E9E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573357   (412532) от 31.08.2022
 
 Masahiko Satoh featuring Eddie Gomez And Steve Gadd - As If... (1985) Denon [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -745,6 +629,122 @@ V.A. - Chilled Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433CCEB361EC0826AA33C7727FA989FBBEDE364A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325731   (410333) от 16.09.2019
+
+Lina Nyberg - Open (1998) Prophone [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Disaster [3:57]
+02. At Last [3:36]
+03. Photograph [4:46]
+04. Reveal Me [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307DFA1D89A28B635B30237479621293B066006D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325734   (410332) от 16.09.2019
+
+Cal Tjader - Plays the Contemporary Music of Mexico and Brazil (1962) 2008, Verve [FLAC|Lossless|image + .cue] <Cool, Latin Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vai Querer [3:04]
+02. Que Tristeza [2:50]
+03. Meditacao [3:33]
+04. Sone [3:09](   Читать дальше...   )Жанр: Cool, Latin Jazz, Mainstream JazzПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5495034A670DBE439E6B0BFFE400A0CCA877E399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066665   (410269) от 27.10.2016
+
+Ahmad Jamal - Freeflight (1971) 1993, GRP[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [00:54]
+ 02.Effendi [11:28]
+ 03.Dolphin Dance [04:52]
+ 04.Manhattan Reflections [10:01](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CABE2EFD24DAF554799AF8C00B90B631D3ABD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066670   (410268) от 27.10.2016
+
+Joe Lovano Quartet - Classic! Live At Newport (2005) 2016, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Big Ben [07:12]
+ 02.Bird's Eye View [11:07]
+ 03.Don't Ever Leave Me [10:24]
+ 04.I'm All For You [09:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B30B793F617632FBE26CA3532EE0F5331D691F
 ```
 
 https://mybot314.ru/tekegram_catalog/

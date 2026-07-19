@@ -1,32 +1,3 @@
-###  Публикация: 1627574   (242765) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amaya - Trapped (Vocal Version)
-02. Siberian Heart - Don't Stop The Music (Spezial ZYX Maxi Version)
-03. The Sweeps - The Last Dream (Flashback Remix)
-04. Mention - Dreams (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B68510E50E2D7E187EB59194ED367B510E5758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624145   (242471) от 04.04.2023
 
 Silver Convention - Success (1976) LP, Compilation feat Penny McLean, Ramona Wulf, Linda G. Thompson [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -745,6 +716,35 @@ Purple Flash - Greatest Hits 1978-1984 (2006) Compilation [MP3|320 Kbps] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AB9C4ED73DDC48E7862592E901A2448228A9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583677   (228694) от 15.10.2022
+
+Gazuzu - 2 Albums (1984, 1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drums On Fire (4:54)
+02. Nana-Banana (3:00)
+03. Go Go Gorila (6:30)
+04. Aruba (6:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

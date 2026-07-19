@@ -1,3 +1,32 @@
+###  Публикация: 1286595   (711303) от 03.03.2019
+
+VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Dance, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D-Tex & Ned Rise - Sex, Drugs & Blasmusik (Bierzelt Version) 7:11
+02. Disco Lounge - I Don't Know (Original Mix) 3:45
+03. Habitat & Malte Kuhn - Smaragd (Original Mix) 5:10
+04. Tony Massera - Jus' Dance (Extended Version) 7:57(   Читать дальше...   )Жанр: House, Indie Dance, Nu-DiscoПродолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286666   (711023) от 03.03.2019
 
 VA - 100 Hits American Anthems (2019) 5CD [MP3|320 Kbps] <Pop>
@@ -717,35 +746,6 @@ Masquerade - The Sound of Masquerade (1984) CD [MP3|320 Kbps] <Electronic, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9AB2318F0BF1CD6AB141EC3B1F3B1A6BA575D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221353   (695143) от 24.04.2018
-
-Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Balls (3:08)
-02. Electrons, Neutrons, Protons & Morons (1:59)
-03. You Can Be Anything (4:36)
-04. Morrocan Roll (3:19)(   Читать дальше...   )Жанр: Electronic,  Synth-pop, DiscoПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80846B6566346A74C8B2422AA728D5436D2BEDA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

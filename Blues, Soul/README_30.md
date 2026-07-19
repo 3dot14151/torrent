@@ -1,3 +1,61 @@
+###  Публикация: 1070635   (366866) от 07.11.2016
+
+Dirk Stelder - Neer (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ik Ben Wat Ik Ben 04:00
+02. Laat Het Zien 02:20
+03. Nooit Zover Van De Weg Afgedwaald 02:28
+04. Waar Is De Swamp 03:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6784915CBE4C37BD64E7BCCC7A4F9DD79F3B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950786   (366186) от 28.10.2015
+
+Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojo Groove (04:57)
+02. Nao Tire O Meu Blues (02:07)
+03. When The Night Comes Falling From The Sky (05:54)
+04. How Blue Can You Get (05:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255354   (366040) от 17.10.2018
 
 VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
@@ -687,64 +745,6 @@ VA - Bongo Boy Records Gospel Blues (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33D5DA18156C0182280047DA3EE00136D5CD3314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953564   (346967) от 05.11.2015
-
-The Sportin' Lifers - Cigars, Billiards, Lunches (2015) [OGG| 479-544 кб/с]<Blues, Rhythm & Blues, Boogie Woogie, Swing>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Idea
-02. (I've Got a Longing) in My Heart
-03. Count On Me Baby
-04. Born At Night(   Читать дальше...   )Жанр: Blues, Rhythm & Blues, Boogie Woogie, SwingПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A44FAEB4ABD98DDE85D350F60E1FE7A48B130A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953524   (346712) от 05.11.2015
-
-Black Cat Bone - Growl (2015) [MP3|320 кб/с]<Blues Rock, Dirty Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growl
-02. Move On
-03. Remiss
-04. Punks And Pushers(   Читать дальше...   )Жанр: Blues Rock, Dirty BluesПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83813DF21E41C399BB79C72F0C05F37CE896FE15
 ```
 
 https://mybot314.ru/tekegram_catalog/

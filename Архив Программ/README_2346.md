@@ -1,3 +1,32 @@
+###  Публикация: 1797090   (18380) от 14.05.2025
+
+Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4061 [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_24h2_updated_april_2025_x64_dvd_50dcfd29
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Установлены обновления по 14.05.2025(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD496834EEF5B50A1F740DB1CC00587A13A01C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797049   (18371) от 14.05.2025
 
 Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20360 (2025.05) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
@@ -651,33 +680,6 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC386844D4BE4864BE9B28DF0BC531313DC50A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797054   (17965) от 18.05.2025
-
-HEU KMS Activator 62.0.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17965.jpg" />
-</div>
-
-
-###  Подробнее
-
-HEU KMS Activator — это простая в использовании программа активации Windows и Office, которая может активировать Windows 10, 11 и MS Office 2024 в 1 клик.
-Программа выберет для вас лучший способ локальной активации всех продуктов Microsoft. Вы можете выбрать свой собственный канал активации с 4 режимами на выбор: цифровая лицензия, KMS38, OEM и KMS, а также множество (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8107073E8C51F0C02BA0FE45B72116C98AA13923
 ```
 
 https://mybot314.ru/tekegram_catalog/

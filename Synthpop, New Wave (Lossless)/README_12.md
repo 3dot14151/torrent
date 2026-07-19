@@ -1,32 +1,3 @@
-###  Публикация: 1545313   (614690) от 19.04.2022
-
-Давид Тухманов, Электроклуб - Тёмная лошадка (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296336   (613310) от 16.04.2019
 
 VA - Kiez Beats: Synthwave, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Syntwave, Retrowave>
@@ -749,6 +720,35 @@ VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552239   (588555) от 19.05.2022
+
+Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шамбала, Ч. 2 (5:25)
+02. Вояджер, Ч. 2 (2:55)
+03. Когда я один, я скучаю по тебе (Remix) (3:10)
+04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07702B28E16699CD9115BFCCF4BF7BF956890093
 ```
 
 https://mybot314.ru/tekegram_catalog/

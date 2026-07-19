@@ -1,3 +1,30 @@
+###  Публикация: 1090498   (947671) от 06.01.2017
+
+Framer Studio v79 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Framer Studio - инновационные прототипирование.
+Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом. Framer позволяет определить анимацию и взаимосвязь. JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.  Framer Студия имеет интеграцию с Photoshop и Sketch и позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 декабря 2016Разработчик: PODIUM BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21A8B185385CACECE35AB099CCE6D4D9EC4A98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090194   (947667) от 06.01.2017
 
 Folx Pro 5.1.13651 [Multi/Ru]
@@ -666,35 +693,6 @@ Soft4Boost Document Converter 4.7.3.477 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99EE68D40579D51A8D54074A2312C947D6E0EA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090431   (947307) от 06.01.2017
-
-Есть Есть Есть - Сказки для Кейто (2016) [MP3|320 Kbps] <Abstract Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Деградация 06:27
-2. Парсеки. Часть 1 04:06
-3. Носки 05:36
-4. Парсеки. Часть 2 03:06(   Читать дальше...   )Жанр: Abstract Hip-HopПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D831FF643F5C26587DC49AAD13F6FE9EB944FC2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

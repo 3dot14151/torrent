@@ -1,3 +1,32 @@
+###  Публикация: 1210956   (778271) от 05.03.2018
+
+Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
+02. Rooster Run 3:22
+03. My Aunt Mari Doesnt Care About My Jacket 4:23
+04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210989   (778241) от 05.03.2018
 
 Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
@@ -720,35 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB5FD1157A72A85272612D1208C9252C58935659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124831   (773538) от 13.04.2017
-
-VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Springfield - For What It's Worth (2:39)
-02. Gordon Lightfoot - Sundown (3:34)
-03. Nilsson - Everybody's Talkin' (2:44)
-04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
 ```
 
 https://mybot314.ru/tekegram_catalog/

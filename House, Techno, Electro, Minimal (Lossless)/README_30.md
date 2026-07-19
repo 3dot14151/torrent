@@ -1,3 +1,176 @@
+###  Публикация: 1132386   (702818) от 08.05.2017
+
+VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JazzyFunk & Stage Rockers - City Lights (original mix) [05:10]
+02. Juloboy - Sweet Summer Sins (feat Mougleta - Touch & Go remix)[05:09]
+03. Dark Matter - Let It Move U (original mix) [05:12]
+04. Dayne S - Blind (original mix) [05:56](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220606   (702552) от 20.04.2018
+
+Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Reactor (06:24)
+ 02. Starsa (06:46)
+ 03. Waterfall (06:13)
+ 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220612   (702458) от 20.04.2018
+
+Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osmosis I (04:17)
+ 02. Osmosis II (07:58)
+ 03. Osmosis III (06:28)
+ 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026699   (702311) от 16.06.2016
+
+VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Caster - Change (feat Leo)
+02. Juloboy & Toly Braun - I Remember
+03. Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria remix)
+04. Nora En Pure - U Got My Body (Return Of The Jaded remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794044   (700377) от 07.06.2014
+
+Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yours Is A History Of Violence
+02. Spirit Lights (feat Linnea Dale)
+03. Accretion
+04. Love Is Over(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F586B2B14538B75ED5D8B94E95B24D0E91559DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221034   (698799) от 22.04.2018
+
+Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rain (Edit) (04:00)
+2. Rain (05:51)
+3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287990   (697764) от 10.03.2019
 
 U96 - Out Of Wilhelmsburg (2007) Centaurus [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro House, Synthpop>
@@ -568,179 +741,6 @@ NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613572E020C514ED75DADE2880C1C0C39CB9082D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222225   (687494) от 28.04.2018
-
-Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maya (02:52)
- 02. Futuristic Past (05:52)
- 03. It Was Advanced (07:07)
- 04. Nostalgia For The Future (06:10)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134678   (687445) от 16.05.2017
-
-Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master of My Fate (Original Mix) (7:15)
- 02. Secret Sense (Original Mix) (7:28)
- 03. Illumine (Original Mix) (7:36)
- 04. Paramour (Original Mix) (6:26)Жанр: Deep House, Tech HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B16C803800A254F57993C5BC0BF04CDB3143E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028903   (686759) от 24.06.2016
-
-Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is How We Know [02:30]
-02. Feel [06:19]
-03. Back [04:44]
-04. All I Do [05:11](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028807   (686647) от 24.06.2016
-
-Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
-02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
-03. Brian Laruso - The Way (Original Mix) [5:38]
-04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222446   (685306) от 29.04.2018
-
-VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subalpine - Sweet Love (Original Mix) (5:57)
-02. Subalpine - Dusk (Original Mix) (5:49)
-03. Mysteria (UK) - Illusion (Original Mix) (5:34)
-04. Mysteria (UK) - Sunrise (Original Mix) (6:10)(   Читать дальше...   )Жанр: Progressive House, Deep House, Chill HouseПродолжительность: 01:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401F98F410FE8F4971A2EB4811FBE12798CA01C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029062   (684540) от 25.06.2016
-
-Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Robot (Rich Lane remix) (07:38)
-02. Sad Robot (D-Nox & Beckers remix) (08:24)
-03. Sad Robot (Alejo Gonzalez & Max Blade remix) (07:32)Жанр: Deep House, Tech HouseПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 461640   (95177) от 03.03.2012
-
-Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wise One (8:37)
-02. Afro Blue (4:40)
-03. Central Park West (6:06)
-04. Spiral (5:56)
-05. Naima (1:56)
-06. Song For John (7:23)
-07. Crescent (7:08)
-08. Welcome (4:15)
-09. After The Rain (4:03)
-10. Mr. Syms (5:28)(   Читать дальше...   )2007Жанр: Contemporary Jazz, GuitarПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461143   (95086) от 02.03.2012
-
-Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Found Out About Love (3:38)
-02. In Love In Vain (6:01)
-03. A Time For Love (6:26)
-04. A Crooked Road (8:49)
-05. Four (5:30)
-06. Gershwin Medley (9:36)
-07. Fire and Rain (6:10)
-08. Beautiful Love (4:43)
-09. The Storm (6:05)
-10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460019   (94950) от 29.02.2012
-
-Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don (3:41)
-02. Bailas (5:17)
-03. Novembre (5:03)
-04. Tirititran Catalan (4:55)
-05. Flamenquillo (5:05)
-06. Scenes d'Enfants (jeunes Filles Au Jardin) (3:12)
-07. Punt i Final (4:09)
-08. Mario (5:44)
-09. Cara Bobo (4:57)
-10. A Solas (3:35)2011Жанр: Latin Jazz, Fusion, FlamencoПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459516   (94891) от 28.02.2012
-
-George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459423   (94889) от 28.02.2012
 
 The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
@@ -871,6 +740,137 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 08. Kurdish Mood
 09. Pilgrim
 10. Rock Wandering(   Читать дальше...   )2012Жанр: Contemporary JazzПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484821   (89381) от 19.04.2012
+
+Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punta Del Soul (5:31)
+02. Southwest Passage (5:50)
+03. First-time Love (4:05)
+04. Western Women (4:40)
+05. Dancing in the Township (6:07)
+06. Old Bones (6:14)
+07. In the Middle of the Night (5:52)
+08. T. K. O. (5:48)
+09. Polina (6:56)
+10. Lupita (1:08)(   Читать дальше...   )1989Жанр: Jazz, Contemporary, Crossover JazzПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483547   (88949) от 17.04.2012
+
+Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [FLAC|Lossless]<Classical, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88949.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 Oct 2004Жанр: Classical, JazzПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481960   (88157) от 13.04.2012
+
+Аня Чайковская & Acoustic Quartet - OljnDvir (2012) [FLAC|Lossless]<pop-jazz, contemporary jazz-art, female vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Легко (4:46)
+02. Никто не знает (6:30)
+03. Пьеро (3:49)
+04. Жестокий романс (3:52)
+05. Весна (5:19)
+06. Не беги (3:52)
+07. Тону (4:47)
+08. Мерилин (4:16)
+09. Я с тобой (3:51)
+10. Ad libitum (3:19)2012Жанр: pop-jazz, contemporary jazz-art, female vocalПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482073   (87975) от 12.04.2012
+
+The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  The Crusaders -  Stomp And Buck Dance  (5:50)
+02..  Down to the Bone -  Staten Island Groove  (6:46)
+03..  The Crusaders -  Creepin'  (6:57)
+04..  Down to the Bone -  The Zodiac  (7:49)
+05..  The Crusaders -  Soul Shadows  (6:21)
+06..  Down to the Bone -  Black Choice  (5:53)
+07..  The Crusaders -  Honky Tonk Struttin  (4:23)
+08..  Down to the Bone -  Gotta Get Back To You  (5:11)
+09..  The Crusaders -  Spiral  (6:10)
+10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
 
 ## Скачать торент
 ```bash

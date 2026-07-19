@@ -1,3 +1,90 @@
+###  Публикация: 1503595   (819253) от 19.10.2021
+
+U.D.O. - Game Over (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие хэви-металлисты U.D.O., ведомые экс-вокалистом ACCEPT Удо Диркшнайдером (Udo Dirkschneider), выпустят новый студийный альбом "Game Over" 22 октября на лейбле AFM. Диск будет включать 16 разнообразных песен - мощных, тяжелых и полных энергии треков в духе U.D.O., но не без сюрпризов, как обещают Удо Диркшнайдер и его команда. Название работы "Game (   Читать дальше...   )01. Fear Detector (04:21)
+ 02. Holy Invaders (03:27)
+ 03. Prophecy (04:42)
+ 04. Empty Eyes (03:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8A1DBDDBE05BBE7D7E387D05C42E780CE27546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196914   (819191) от 05.01.2018
+
+Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Svart Ostoppbar Eld
+2. Gyllene Portarnas Bro
+3. Jag Är Din Fiende
+4. Han Som Lurar Inom(   Читать дальше...   )Жанр: Progressive Black Metal, Depressive Black MetalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE7626209A53D66CC1359C2648BE03E1FCC779B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007658   (817849) от 17.04.2016
+
+Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death Metal, Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Land Of Ours
+2. The Tree Of Life
+3. Battle Sons
+4. Watchman Of Gods(   Читать дальше...   )Жанр: Melodic Death Metal, Epic MetalПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E669F8B500D5A12C6ABBF514E3B3FF744A9A55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882125   (816352) от 29.03.2015
 
 Nightwish - Endless Forms Most Beautiful (2015) 3CD [MP3|320 кб/с]<Symphonic Power Metal>
@@ -658,93 +745,6 @@ Mastodon - Hushed And Grim (2021) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64C771B7D2F1EDE86FCB421DD81BC52156CE6438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505714   (802630) от 28.10.2021
-
-Beast in Black (ex-Battle Beast) - 3 Albums (2017-2021) [MP3|320 Kbps] <Melodic Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blade Runner [00:04:08]
-02. Bella Donna [00:03:52]
-03. Highway to Mars [00:05:13]
-04. Hardcore [00:03:34](   Читать дальше...   )Жанр: Melodic Heavy Power MetalПродолжительность: 3CD, 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5436BD58DC55FB6F8A913F6BECBAACC22825F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505765   (802501) от 28.10.2021
-
-Running Wild - Blood on Blood (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802501.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blood on Blood
-2. Wings of Fire
-3. Say Your Prayers
-4. Diamonds & Pearls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CFE2EF92C76BD1BDD82D9380A1D327A94531D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120504   (802118) от 31.03.2017
-
-Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And the Desert Calls My Name
-02. Daemon Sultan
-03. Cthulhu
-04. With the Deep Ones I Descend(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

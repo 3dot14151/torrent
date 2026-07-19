@@ -1,3 +1,32 @@
+###  Публикация: 1077151   (308625) от 27.11.2016
+
+Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Fires (6:25)
+ 02. Zero (4:50)
+ 03. Keep On Dreaming (5:24)
+ 04. Stay (4:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183565   (307688) от 14.11.2017
 
 Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
@@ -716,35 +745,6 @@ Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187622   (277295) от 30.11.2017
-
-Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Story (04:08)
- 02. Season Romance (04:53)
- 03. Life Journey (03:48)
- 04. Cherish (04:19)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
 ```
 
 https://mybot314.ru/tekegram_catalog/

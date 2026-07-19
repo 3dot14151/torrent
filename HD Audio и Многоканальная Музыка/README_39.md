@@ -1,3 +1,177 @@
+###  Публикация: 1571801   (427511) от 24.08.2022
+
+The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427511.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Song For You
+A2 Fall Is At Your Door
+A3 A Song That's Always New
+A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709191   (426034) от 10.10.2013
+
+Аквариум - История Аквариума: Архив Том III (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Диплом (4:01)
+A2. 15 голых баб (Увы) (2:20)
+A3. Среди миров (1:23)
+A4. Трудовая пчела (6:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411720   (425061) от 26.09.2020
+
+Кино - Любовь - Это Не Шутка (2020) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425061.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.Попробуй Спеть Вместе Со Мной
+A2.Любовь — Это Не Шутка
+A3.Прохожий
+A4.Закрой За Мной Дверь, Я Ухожу(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830973   (423494) от 13.10.2014
+
+Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You (4:41)
+02. Is There Anybody Out There? (2:41)
+03. Nobody Home (3:23)
+04. Vera (1:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411975   (422712) от 27.09.2020
+
+Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422712.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sky Belongs To Me	4:44
+A2 I Will Travel On	4:52
+A3 Song Of The City (Happening To Me)
+A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411920   (422703) от 27.09.2020
+
+Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422703.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sze-Vosztok
+A2 Gammapolis 1
+A3 Nem Tudom A Neved
+B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324758   (421323) от 11.09.2019
 
 Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey (1973) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Cello & Organ>
@@ -568,188 +742,6 @@ B1. Paranoiac Personality (3:10)(   Читать дальше...   )Произв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169724   (401420) от 29.09.2017
-
-Рома Жуков - Пыль Мечты (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пыль мечты (07:22) -Жанр: Pop, DiscoПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169430   (401416) от 29.09.2017
-
-ВИА Пламя - 200 лет (1982) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вячеслав Малежик - Двести лет
-02. ПЛАМЯ - Гороскоп
-03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713828   (401294) от 21.10.2013
-
-Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0 96/24 |Blu-Ray]<Grunge, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Teen Spirit
-02. In Bloom
-03. Come as You Are
-04. Breed(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717382   (392005) от 31.10.2013
-
-Аленький цветочек - Пьеса по сказке С. Аксакова (1991) [FLAC 1.0 24/48|traks(Vinil-Rip)]<Children's, Story>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть 1  (27:10)
-Часть 2  (26:20)
-
-Действующие лица и исполнители:
-Купец - С.Бобров
-Алёнушка - К. Осколкова
-Сёстры - Т. Тихомирова, М. Фонина
-Антон - Ю. Фомичев
-Няня - Е. Руднева
-Баба-Яга - Н. Новлянский(   Читать дальше...   )Жанр: Children's, StoryПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717240   (391665) от 31.10.2013
-
-Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
-A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
-A3.  Верю Я (Verju Ja)  :: 03:03
-A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569449   (388996) от 06.11.2012
-
-Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello 3:21
-02. Roll With It 3:59
-03. Wonderwall 4:18
-04. Don’t Look Back In Anger 4:47
-05. Hey Now! 5:41
-06. Swamp Song #1 0:44
-07. Some Might Say 5:28
-08. Cast No Shadow 4:51
-09. She’s Electric 3:39
-10. Morning Glory 5:03(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

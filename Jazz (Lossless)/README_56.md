@@ -1,119 +1,3 @@
-###  Публикация: 1112070   (845044) от 07.03.2017
-
-Rick Braun - Around The Horn (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Strong
-02. Pool Dancer
-03. Love Take Me (feat. Lindsey Webster)
-04. We Don't Talk Anymore (feat. Peter White)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF55355CA1BE62AFEB9427EFB223BED04B556D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378711   (844876) от 26.04.2020
-
-Oscar Peterson - Somebody Loves Me 1950 - 1954 (2004) 4CD, Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844876.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Oscar's Blues [3:11]
-02. For You [2:06]
-03. Pennies From Heaven [2:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6DDAEEBC1090D56B0618EDD76E75F0D5532C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499951   (844556) от 04.10.2021
-
-Charles Mingus - Mingus At Carnegie Hall (1974) 2CD, 2021, Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844556.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction [3:11]
-02. Peggy's Blue Skylight [11:57]
-03. Celia [22:56](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6982924307C5567FBC7CEB8AF5FFD2531382CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500025   (844532) от 04.10.2021
-
-Dave Grusin - Subways Are for Sleeping & Piano, Strings and Moonlight (1962) 2021, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Taking My Time [4:29]
-02. Ride Through the Night [4:33]
-03. Now I Have Someone [5:34]
-04. When You Help a Friend Out [4:38](   Читать дальше...   )Жанр: Crossover Jazz, Piano JazzПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FF6D436D50CA9334F29810DC84E1C40AA8BFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003419   (843584) от 03.04.2016
 
 Bobby Hutcherson - Cruisin' The 'Bird (1988) 1992, Landmark Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -748,6 +632,128 @@ Roy Eldridge & Richie Kamuca Quintet - At The Half Note (1965, 1966) 2017, Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304ACF4575B42A296D8809D165FA7FF80F56C3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500379   (841397) от 06.10.2021
+
+Warne Marsh Groups - Noteworthy (1956 - 1979) 1988, Discovery Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hard Way [4:08]
+02. Noteworthy [4:23]
+03. Finishing Touch [3:44]
+04. How Deep, How High [4:33](   Читать дальше...   )Жанр: CoolПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3818A0D24E735B52E5878A77B599383DEDB6D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500381   (841395) от 06.10.2021
+
+Tony Bennett & Count Basie - Swingin' Together (1958) 2021, 20th Century Masterworks [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [1:48]
+02. When I Fall in Love [2:22]
+03. Taking a Chance on Love [2:00]
+04. Without a Song [3:09](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E473FE06664107033A161E7A27382CFE3DC3A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500374   (841307) от 06.10.2021
+
+Roy Eldridge With The Gene Krupa Orchestra Featuring Anita O'Day - Uptown (1941 - 1949) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Eyes [2:41]
+02. Let Me Off Uptown [3:06]
+03. Kick It! [2:29]
+04. After You've Gone [2:39](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA0D3EED48C58D5CD2083DF30F2832352910882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309679   (840910) от 16.03.2011
+
+Paul Hardcastle - Desire (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (4:27)
+02. Valentine (3:47)
+03. Forever Dreamin (4:50)
+04. Closer (4:55)
+05. Wonderland (5:18)
+06. Lost Summer (4:51)
+07. Same Place Same Time (5:52)
+08. Lost In Space (4:56)
+09. Smooth Jazz Is Bumpin (4:09)
+10. Cloud Watching (5:30)(   Читать дальше...)Жанр: Jazz-Pop, Smooth Jazz, New AgeПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

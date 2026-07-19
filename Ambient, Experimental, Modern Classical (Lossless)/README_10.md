@@ -1,32 +1,3 @@
-###  Публикация: 1293219   (639195) от 02.04.2019
-
-Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Room (12:30)
- 02. Rainfall (12:00)
- 03. Agora (12:09)
- 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228585   (635944) от 01.06.2018
 
 Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -744,6 +715,35 @@ Tsode - Innerity (2019) [FLAC|Lossless|WEB-DL|24Bit] <Ambient, New Age, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B126559DD3021F50E53EFA39BC0E6D0202EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301807   (584294) от 12.05.2019
+
+Felicia Atkinson - Hand In Hand (2017) Shelter Press [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Spoken Word>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Following You (03:46)
+ 02. Valis (06:42)
+ 03. Curious In Epidavros (03:07)
+ 04. Adaptation Assez Facile (03:49)(   Читать дальше...   )Жанр: Ambient, Experimental, Spoken WordПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCF112F22A4E3E80553CBDE2D72BE10F716C5EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

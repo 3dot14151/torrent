@@ -1,3 +1,32 @@
+###  Публикация: 1611738   (207496) от 13.02.2023
+
+VA - Romantic Collection. Cinema (2005) [OGG Vorbis|480 Kbps] <Jazz, Stage & Screen, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Lai–	Un Homme Et Une Femme
+02. Nino Rota–	Love Theme From The Godfather
+03. Henry Mancini & His Orchestra–	The Windmills Of Your Mind
+04. Francis Lai–	Love Story(   Читать дальше...   )Жанр: Jazz, Stage & Screen, SoundtrackПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D1BF3E482943868F6D8CC672EF718E1C8886E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611995   (207417) от 14.02.2023
 
 VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Pop, Dancehall>
@@ -718,35 +747,6 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91821DE65E820D90B2223392DA745ABD760B7618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658023   (191599) от 07.09.2023
-
-Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Virtual Insanity (Remastered) [00:03:49]
-02 - Cosmic Girl (Remastered) [00:03:47]
-03 - Little L (Remastered) [00:03:59]
-04 - Alright (Remastered) [00:03:42](   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3D786DC6D40E09802EB6056C0154E2DCD121A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

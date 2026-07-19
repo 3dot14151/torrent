@@ -1,119 +1,3 @@
-###  Публикация: 1067489   (387923) от 29.10.2016
-
-Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Classics[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Opening Theme: Straighten Up And Fly Right [01:12]
- 02.Sunday [01:35]
- 03.Wildroot Cream Oil Commercial [00:54]
- 04.Wildroot Charlie [01:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C50B48BBA1150F6FF5A293D02687F46E53D1CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414210   (387890) от 07.10.2020
-
-Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RIAS-ticity [7:25]
-02. Work Song, Part I [1:43]
-03. Work Song, Part II [6:55]
-04. Lost in Zurich (Verloren in Zurich) [7:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8EF9CD7CD4E5BEED224C99FFCA4FF50E57462F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414171   (387889) от 07.10.2020
-
-Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Again [3:13]
-02. Little Joe [3:12]
-03. I'll Be Glad When You're Dead, You Rascal You [3:12]
-04. Them There Eyes [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DF7FA6405EEA28D5F41FE03D8C788210A7A490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414213   (387884) от 07.10.2020
-
-Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brain Dance [7:41]
-02. Chant [6:41]
-03. Means and Ends [7:52]
-04. Dual Nature [7:09](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95023D8A1F2CED13CFC4798F176FD96F68CEBCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067492   (387828) от 29.10.2016
 
 Nat King Cole - Tenderly (1951) 1996, The Entertainers[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -746,6 +630,122 @@ Michel de Villers et son Orchestre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85F026166798DCCA8AAD8BBE3D5E865D0C7239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067935   (384622) от 30.10.2016
+
+Dexter Gordon - Cute: The Lionel Hampton Sessions (1977) 2003, Universe[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cute [07:01]
+ 02.They Say That Falling in Love Is Wonderful [07:56]
+ 03.Lullaby of Birdland [04:19]
+ 04.I Should Care [05:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705CDAACC1AAA82A89F34903F96D7F3322A9E204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414444   (383726) от 09.10.2020
+
+Sam Lazar Trio - Playback (1961) 1998, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep [5:09]
+02. Long Gone [3:53]
+03. Bag's Groove [4:06]
+04. Fuzz Buzz [7:07](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE163B790687915676DBB29D059D47981A73462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414635   (383725) от 09.10.2020
+
+Walt Dickerson - 1976 (2010) Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky [10:17]
+02. Awareness [4:29]
+03. Key of Wisdom [6:00]
+04. Yesterdays [9:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6496B37C5392297D755B093EB7BF390EA981E3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414633   (383724) от 09.10.2020
+
+Peter Bernstein - Let Loose (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Loose [6:47]
+02. Resplendor [7:06]
+03. Hidden Pockets [6:01]
+04. Tres Palabras [5:25](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484861F2A724E69C5D07F0F9063399F6E9A4A2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

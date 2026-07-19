@@ -1,3 +1,119 @@
+###  Публикация: 1312382   (534397) от 03.07.2019
+
+PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hopelessly Devoted To You (04:29)
+02. One Day I'll Fly Away (05:29)
+03. You've Lost That Lovin' Feeling (ft.Sasha Grey) (06:43)
+04. The Blower's Daughter (04:49)(   Читать дальше...   )Жанр: Alternative Rock, Industrial, PunkПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59925E48BEE87E2453FAA2011F496D5D9ACF544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312510   (532787) от 04.07.2019
+
+Sophia - The Infinite Circle (1998) [FLAC|Lossless|tracks + .cue] <Lo-Fi, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Directionless (04:35)
+02. If Only (04:40)
+03. I'd Rather (05:30)
+04. Every Day (05:01)(   Читать дальше...   )Жанр: Lo-Fi, Indie RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D464C61FAFBFF0BABE0F702A620A85004941DEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312520   (532783) от 04.07.2019
+
+Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh My Love (04:31)
+02. Swept Back (04:49)
+03. Fool (04:36)
+04. Desert Song No. 2 (07:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BD728BF9CFC9F6447CE56B769343F15E69A7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312677   (530959) от 05.07.2019
+
+Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Harbours (02:00)
+02. Resisting (04:36)
+03. The Drifter (05:15)
+04. Don't Ask (05:50)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312835   (529211) от 06.07.2019
 
 The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
@@ -628,122 +744,6 @@ Speaking With Ghosts - At Its End (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FA0AF73845D23F2049CEB8EE4D344C8B87C5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241913   (517189) от 20.08.2018
-
-Bill Orcutt - "Solo CD" (Untitled) (1996) [FLAC|Lossless|tracks + .cue] <Noise Rock, Free Improvisation>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Collective Action
-2. Live 71
-3. Communique
-4. Damage Alert(   Читать дальше...   )Жанр: Noise Rock, Free ImprovisationПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E52FEF92B94797EF26BE0705FACE7D72E4ABBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560994   (516912) от 03.07.2022
-
-Dreaming Awake - The Cold Approach (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516912.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chain Gang
-2. Australians Can Tell The Future (Pt. I)
-3. Sea Salt & Vinegar (feat. Andy Cizek)
-4. It's Winter, Paul! Get Inside.(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B23EBEF7A331CA980A4DF80D56477D4A05D6C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561273   (515721) от 04.07.2022
-
-Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - For the Workforce, Drowning (00:03:48)
-02 - Between Rupture and Rapture (00:04:10)
-03 - Division St. (00:04:48)
-04 - Signals over the Air (00:04:49)(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397D5B315060B265AF04C9E80B3BF84A2D15EC6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561173   (515588) от 04.07.2022
-
-Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlophone [FLAC|Lossless|tracks] <Art Pop, Trip-Hop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re-Hash (Instrumental) [00:03:32]
-02. 5/4 (Instrumental) [00:02:35]
-03. Tomorrow Comes Today (Instrumental) [00:03:07]
-04. New Genious (Brother)Жанр: Art Pop, Trip-Hop, ElectronicПродолжительность: 2CD, 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F18A6C3A0DCDC4EB27B8934A28076A9BF011509
 ```
 
 https://mybot314.ru/tekegram_catalog/

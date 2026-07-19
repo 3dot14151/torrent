@@ -1,3 +1,148 @@
+###  Публикация: 1695406   (120290) от 29.01.2024
+
+Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Days (4:33)
+02. Now or Never (3:18)
+03. Beautiful (3:21)
+04. Still Loving You (5:34)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697109   (119149) от 05.02.2024
+
+Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Here (3:37)
+02. Love (Send Him Back To Me) (4:37)
+03. Storm In Our Hearts (5:06)
+04. World In Perfect Harmony (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9094394FCCFA8F06F53FD89391458112B7D3E9F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697102   (119120) от 05.02.2024
+
+Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Mister Heartache (4:37)
+02. You Came (4:34)
+03. Four Letter Word (4:04)
+04. Love In The Natural Way (4:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697396   (118992) от 06.02.2024
+
+VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Mraz - I’m Yours (4:02)
+002. Bruno Mars - Just the Way You Are (3:40)
+003. Big Mountain - Baby, I Love Your Way (4:09)
+004. Christina Perri - A Thousand Years (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698528   (118298) от 10.02.2024
+
+Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parle-moi d'amour, mon amour (3:16)
+02. Aime-moi (2:50)
+03. Pour te dire je t'aime (4:21)
+04. Histoire d'un amour (3:04)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 02:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699538   (117817) от 13.02.2024
 
 Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol Records, Apple Records, MPL [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -601,151 +746,6 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|image + .cue] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC13E6D6616E579189FDB9B6433167D51278EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704230   (114488) от 03.03.2024
-
-Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [00:02:51]
-02. Party Doll [00:02:12]
-03. Love Me Forever [00:02:47]
-04. Pretty Blue Eyes [00:01:51](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F3D7E5778C4DF4074253218D15F01FE127C8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705226   (113979) от 07.03.2024
-
-Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On My Own (3:05)
-02. Point Of No Return (3:08)
-03. I Was Made For Loving You (3:29)
-04. Magic (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705083   (113913) от 08.03.2024
-
-VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boomdabash, Alessandra Amoroso - Mambo Salentino (2:35)
-02. Tiziano Ferro - Il Regalo Più Grande (3:47)
-03. sangiovanni - farfalle (2:44)
-04. Umberto Tozzi - Gloria (4:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705419   (113885) от 08.03.2024
-
-Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro (end of the world)
-02. bye
-03. don't wanna break up again
-04. Saturn Returns Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF64F97FBA3EF56729090EAA664411FE5BDF1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705741   (113759) от 10.03.2024
-
-The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Then He Kissed Me [00:02:38]
-02. Da Doo Ron Ron [00:02:19]
-03. He's Sure the Boy I Love [00:02:44]
-04. There's No Other Like My Baby [00:02:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

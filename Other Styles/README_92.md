@@ -1,3 +1,179 @@
+###  Публикация: 921210   (575419) от 25.07.2015
+
+Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rabbia e Tarantella
+02. Ritorna a Casa
+03. Dirindindin
+04. Frammenti di Sonata(   Читать дальше...   )Жанр: OSTПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E4B18F085F2AF8F5FE8F0EF606907BF71BAE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527692   (574719) от 27.07.2012
+
+Acoustic Sound Orchestra - World Hits Instrumental Vol.1-4 (1994) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574719.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Hits Instrumental Vol.1
+
+01. The Lady in Red (04:00)
+02. Blue Eyes (03:22)
+03. Bilitis (02:50)
+04. The Phantom of The Opera (04:16)
+05. A Day Without You (03:51)
+06. Le Reve (03:44)
+07. My Way 04:30Жанр: Instrumental, Easy ListeningПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B31C2B5AB839259B1EB4D28AE35D499FE96B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361927   (574712) от 11.07.2011
+
+VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental / saxophoneПродолжительность: 03:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD8EAF296C8490010521E5F9FE296BB20DFD790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234072   (574417) от 03.07.2018
+
+Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar (04:50)
+02. Taiyo (05:21)
+03. Brassy Sunrise (06:01)
+04. Ghostly Disco (05:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BEE267885DFF2B710F0E677FE589CFEFE5834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233878   (574254) от 03.07.2018
+
+Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:24)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EC4359CF115E8443CF54FA85531C5A276570AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921823   (573699) от 26.07.2015
+
+Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen's Boat
+02. Inishowen Dawn
+03. Vardo
+04. Mantra(   Читать дальше...   )Жанр: New Age, Ambient, CelticПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921611   (573592) от 26.07.2015
 
 Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
@@ -582,202 +758,6 @@ Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303459   (570187) от 22.05.2019
-
-Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (From Game Of Thrones: Season 8) (01:52)
-02. The Rains of Castamere (03:44)
-03. Arrival at Winterfell (03:44)
-04. Flight of Dragons  (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAAEB3E9129D16814E9250102FF6826B60ADEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303546   (570180) от 22.05.2019
-
-Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (Collection Music from the HBO Series) (2011-2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maren Morris - Kingdom of One (03:36)
-02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
-03. The Lumineers - Nightshade (03:01)
-04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 11:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FE723375E976B262D49ACE38CEAEDFA5E1567C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922026   (569802) от 28.07.2015
-
-Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]<Electronic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene Part 5 (1:16)
-02. Ethnicolor (9:39)
-03. Magnetic Fields Part 1 (4:35)
-04. Souvenir Of China (3:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528069   (569357) от 30.07.2012
-
-Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (3:48)
-02. More... (4:32)
-03. Area 51 (9:12)
-04. Dream Is Real (5:07)
-05. Fishing (5:31)
-06. The Tower Of Babel (4:50)
-07. Give Me A Chance (7:27)
-08. Don't Hold Back (6:04)
-09. Navigator (4:28)
-10. Out Of This World (4:14)Жанр: New age,EnigmaticПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFDFC63864EEF328D8606DC33132D9E6649BF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528653   (568839) от 30.07.2012
-
-Erotic Moods - Эротические настроения (2004) [MP3|256 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacifica (3:34)
-02. Sahara Sun (4:28)
-03. Midnight Clear (6:07)
-04. The Yeart Given (4:48)
-05. Hush (5:18)
-06. Tha Awakening (4:58)
-07. Tranquil Shelter (5:09)
-08. Spring Song (4:34)
-09. The Sound Of Love (5:12)
-10. In Your Arms (5:06)(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AC90EA649453CB4EE6595A916CB69FD3E415C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529103   (568809) от 30.07.2012
-
-101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568809.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 Strings Orchestra - Оркестр 101-ой Скрипки
-Этот оркестр почти неизвестен в нашей стране. В отличие от часто звучащих оркестров Поля Мориа и Джеймса Ласта услышать его можно было только в передаче "Поющие меридианы", которую вел В.Сиверов.
-По данным Wikipedia оркестр был создан Дэвидом Миллером на основе Гамбургского оркестра Германского радио. В 1957 году выпустил свой первый альбом.
-101 Скрипка - это рекламная фишка. Реально музыкантов было больше.
-По своему составу это был, наверно, самый большой оркестр исполнявший музыку easy listening. Большое количество струнных создавало очень плотный приятный звук. Оркестр исполнял музыку в различной аранжировке, но, как правило, это была спокойная музыка.1. Quando, Quando, Quando (2:53)
- 2. Besame Mucho (3:53)
- 3. Fly Me To The Moon (3:42)
- 4. The Blue Danube (2:16)
- 5. Piano Sonata No. 8 (2:42)
- 6. Andante From Violin Concerto In E Minor (3:06)
- 7. Serenade (3:30)
- 8. Chopin's Nocturne (4:46)
- 9. Brahms' Lullaby (3:58)
- 10. Nocturne in E Flat Major, Op. 9, No. 2 (4:07)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

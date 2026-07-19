@@ -1,22 +1,25 @@
-###  Публикация: 593262   (134570) от 24.12.2012
+###  Публикация: 491097   (130228) от 02.05.2012
 
-[Wallpapers] Обои для рабочего стола - Новый Год. Часть 4
+[Wallpapers] Minimalism Desktop Wallpapers Pack 2
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка обоев для рабочего стола на новогоднюю тематику!
+[Wallpapers] Minimalism Desktop Wallpapers Pack 2Название: Minimalism Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B927D8716E610C901290DD7AC8D11C5829464227
+magnet:?xt=urn:btih:E82AF63E16956C84F015621F8AB48C76D17F945E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593678   (134559) от 24.12.2012
+###  Публикация: 491069   (130098) от 02.05.2012
 
-Демотиваторы '220V' (23.12.12)
+Иконки - Recycle Bin Icons – эксклюзивная коллекция иконок корзины
 
 >>Графика, Арт, Разное
->>Интернет-творчество
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Демотиваторы '220V'Разрешение файлов: ~  422x700 ~ 1311x888
+Recycle Bin Icons – эксклюзивная коллекция иконок корзины.(ico,png/128x128 точек).
+Заменить стандартные иконки Windows можно с помощью программы IconPackager, IconTo, других подобных программ или стандартных средств Windows.Разрешение файлов: 128x128
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C802BBD0526CA6A9274F278564661C6D44507687
+magnet:?xt=urn:btih:749A826A1EA83FD5284F6DD4B0D150DE8D33247B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +54,271 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592528   (134422) от 24.12.2012
+###  Публикация: 490491   (129860) от 01.05.2012
 
-Фотография - Anka Zhuravleva
+[Wallpapers]Nature Landcapes Full HD Wallpapers 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EFC5301DB84AD5F9A3820ABB743BFAC05330D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489472   (129403) от 29.04.2012
+
+[Wallpapers] Wallpapers Mix 31 (1600x1200-4000x2657)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129403.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 31 (1600x1200-4000x2657)
+Название: Wallpapers Mix 31 (1600x1200-4000x2657)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4000x2657
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF14D8005A0843ED4DCA2E889D6C261D880D960B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489467   (129365) от 29.04.2012
+
+[Wallpapers] Wallpapers Mix 30 (1600x1200-2560x1920)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129365.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 30 (1600x1200-2560x1920)
+Название: Wallpapers Mix 30 (1600x1200-2560x1920)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-2560x1920
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB7734108F66F610298954836C93E832DE7382F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824569   (128841) от 15.10.2025
+
+Промты - SevenUnited LLC - 547 Ai Art Prompts For Dark Gothic Art: Vol 2 - 2280381 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект из 547 промтов для ИИ по темному готическому искусству: часть 2. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7A6D68C2FFF7DA41D5624E1672F8F1A177AD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 82137   (128840) от 15.10.2025
+
+Книжная иллюстрация - 1000 Decorated Initials [TIF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех форм орнаментального шрифта декорированный инициал всегда был наиболее распространённым. В книге «1000 Decorated Initials» представлено огромное разнообразие инициалов, взятых из оригиналов XVII, XVIII и XIX веков. Расположенные в алфавитном порядке, они готовы как к использованию, так и в качестве источника вдохновения в полиграфическом качестве.Формат: TIFРазрешение файлов: 832х1054 - 4378х4724
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1E414C3D9F8EF574D0A598731BD3ABEA1DEBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823815   (126121) от 12.10.2025
+
+Промты - SevenUnited LLC - 382 Midjourney Prompts for Minimalist Portraits - 8700808 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 382 настраиваемых промтов Midjourney с примерами изображений для минималистичных портретных иллюстраций.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624AD60D3E8E72D438D543FD8C362FA477120503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823236   (121539) от 10.10.2025
+
+Промты - SevenUnited LLC - 408 Midjourney Prompts for Patterns - 4910140 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 408 настраиваемых промтов Midjourney для бесшовных паттернов.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB3AE08043BEE740058C27A3540E3254790DEA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823238   (121535) от 10.10.2025
+
+Обои - Eternal Mix Wallpapers Part 76 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C91908EBFF9560B86CDF03607A78D32D2C2A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697033   (119253) от 05.02.2024
+
+Обои - Обои для рабочего стола от Роскосмоса [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпоративные обои для рабочего стола от Роскосмоса.Формат: JPGРазрешение файлов: 1280х1024(4:3 Normal), 1440x900(16:10 Wide screen), 1920x1080(16:9 HD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1159F0E710FD623EEADB8391122D90E34BD82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697620   (118843) от 07.02.2024
+
+Фотография - Ocean Art 2023 - Фотографии-победители конкурса [PNG]
 
 >>Графика, Арт, Разное
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Anka Zhuravleva
+Жюри конкурса Ocean Art («Искусство океана») объявило победителей 2023 года. В 12-м по счету соревновании участвовали тысячи фотографов из более чем 90 стран мира.
+
+Цель Ocean Art 2023 — демонстрация красоты подводного мира через призму снимков фотохудожников. Конкурс проводится журналом Underwater Photography Guide.
+(   Читать дальше...   )Формат: PNGРазрешение файлов: 800x533 - 8271x5514
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85DA473480F23E8C5131DF1B478E75083ED1D9F8
+magnet:?xt=urn:btih:2AA20DB0C43EBF0026734653382EBE6EA84890ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +326,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594040   (134114) от 25.12.2012
+###  Публикация: 1699713   (117733) от 14.02.2024
 
-Фотоподборка '220V' (24.12.12)
+Фотография - Фотоконкурс CIOB Art of Building 2010-2023: победители и финалисты [PNG]
 
 >>Графика, Арт, Разное
->>Интернет-творчество
+>>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотоподборка '220V'
+Вашему вниманию представлены работы победителей и финалистов конкурсов архитектурной фотографии за 2010-2023 года, которые проводит Сертифицированный институт строительства (Chartered Institute of Building, CIOB). Это крупнейшее в мире соревнование, в котором здания и сооружения показаны как произведения искусства.Формат: PNGРазрешение файлов: 718х745 - 9509х5349
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCAA13FB9C3CFED735B7B0C74B55CED724D3F81A
+magnet:?xt=urn:btih:6734C9D4CDCA69DAD0EFD5669D29511B06853C65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +352,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594471   (134109) от 25.12.2012
+###  Публикация: 1823004   (104376) от 09.10.2025
 
-Работы художников - Digital Art (25.12.12)
+Иконки - CraftPix - C Ranks Game Assets Pack [PNG, PSD]
 
 >>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художников - Digital Art (25.12.12)
+Представляем набор игровых ресурсов C Ranks. Эта коллекция состоит из 22 иконок. Они могут быть использованы в игровых проектах, где игроки получают различные достижения, ранги или уровни. Каждая иконка имеет 5 цветовых вариантов.Формат: PNG, PSDРазрешение файлов: 274x277
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:975D7C01D79477BC229823F649A513138C9C03DB
+magnet:?xt=urn:btih:833811E4035275C8185C32922AECFB581123899F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +378,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594473   (134031) от 25.12.2012
+###  Публикация: 1822824   (102698) от 08.10.2025
 
-Демотиваторы '220V' (25.12.12)
+Промты - SevenUnited LLC - 376 Midjourney Prompts For Drawing Styles - 6537481 [TXT, JPG]
 
 >>Графика, Арт, Разное
->>Интернет-творчество
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Демотиваторы '220V'Разрешение файлов: ~  422x700 ~ 1311x888
+Пакет из 376 настраиваемых ИИ-промтов для стилей рисования.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F60932BAB3FED2A176E03D73CE1302B6E3EC68F1
+magnet:?xt=urn:btih:1B82279344A0B4F8F7190EBCDD083D3CD1DA89F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594044   (134029) от 25.12.2012
+###  Публикация: 1822826   (102696) от 08.10.2025
 
-Работы художников - Robert Griffing - индейцы - восточная граница
+Иконки - UI8 - Indonesia Independence Day 3D Illustration Pack [PNG, OBJ, BLEND]
 
 >>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художников - Robert Griffing - индейцы - восточная граница
+Улучшите свои дизайны с нашей потрясающей коллекцией из 25 высококачественных 3D-иконок ко Дню независимости Индонезии. Идеально подходит для поздравительных открыток, постов в социальных сетях, баннеров на веб-сайтах и ​​многого другого!Формат: PNG, OBJ, BLENDРазрешение файлов: 2500x2500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:774DC6F0425137EC8D2AE14720E90EE1F5AD2633
+magnet:?xt=urn:btih:EAD5ECEDBB0766E10A45B7D1132FB81501E51D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +430,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594527   (133610) от 26.12.2012
+###  Публикация: 491156   (102668) от 02.05.2012
 
-Рисованная графика - Artworks by Andrew Dobell (ANARKYMAN)
+[Системные иконки] Подборка иконок популярных браузеров
 
 >>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Готические, фэнтезийные иллюстрации от Andrew Dobell.
+Подборка иконок популярных браузеров. Firefox,Google Chrome,Internet Explorer,Opera,Safari (ico128x128 точек).Заменить стандартные иконки Windows можно с помощью программы IconPackager, IconToРазрешение файлов: 128x128
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBE34C10616C6E40B1972E462F6249391D79CF92
+magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,107 +456,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594503   (133558) от 26.12.2012
+###  Публикация: 490949   (102600) от 02.05.2012
 
-Рисованная графика - Artworks by Fernando Ferreiro Colmenares
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Fernando Ferreiro Colmenares.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A5A5E0B59A8B9A5FF3773663365B8AB12343FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594472   (133550) от 26.12.2012
-
-Работы художников - Bill Holm - индейцы северной америки
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Bill Holm - индейцы северной америки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B25C063DAF832449AC55AA59260B8A6B5E80A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595248   (132776) от 28.12.2012
-
-Winter Wallpapers (26.12.12) [Wallpapers]
+[Wallpapers] Texture Desktop Wallpapers Pack 2
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D98596C7C150370606726EFA42C4656D2D4983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596043   (132197) от 29.12.2012
-
-[Wallpapers] Traveling vast world (29.12.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132197.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Traveling vast world (29.12.12)
-Название: Traveling vast world (29.12.12)
+[Wallpapers] Texture Desktop Wallpapers Pack 2
+Название: Texture Desktop Wallpapers Pack 2
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
+
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39932978A0218AFAF978D99FBAA3411B2C7D94BB
+magnet:?xt=urn:btih:894E48748355236E819101EB07A1F69AA0A0AE6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,237 +487,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681235   (132194) от 04.12.2023
+###  Публикация: 490936   (102564) от 02.05.2012
 
-Фотография - Artstation - Howard Lyon - Sydney - Figurative [JPG]
+[Photo] Осенний парк
 
 >>Графика, Арт, Разное
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«В этом справочном пакете вы найдете более 530 изображений Сидни. Мне нравятся ее волосы с великолепными естественными локонами. Она выглядит так, словно сошла прямо с картины прерафаэлитов».Формат: JPGРазрешение файлов: 6336x8875 - 6336x9504
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8698BB5C5F3AFDC29BF66E9128E6635CD5FB6E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595287   (131946) от 29.12.2012
-
-Демотиваторы '220V' (27.12.12)
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'Разрешение файлов: ~  422x700 ~ 1311x888
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E250A876B4DF95FA8D2EC799A472EB18EF0641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595825   (131944) от 29.12.2012
-
-Рисованная графика - Artworks by Jeffrey Scott Campbell
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Jeffrey Scott Campbell.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D44E48E06EF46969B2D840E00154349BA64B3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595980   (131929) от 29.12.2012
-
-Демотиваторы '220V' (29.12.12)
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'Разрешение файлов: ~  422x700 ~ 1311x888
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0197A39DE5A3F18E03E71E651261A136E7AA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595987   (131875) от 29.12.2012
-
-Работы художников - Фантасмагория сил природы - Джозеф Мэллорд Уильям Тернер ( Joseph Mallord William Turner)
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Фантасмагория сил природы - Джозеф Мэллорд Уильям Тернер ( Joseph Mallord William Turner)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7DCBEF64B03B750CC0EC77F4411B5EB5B9198C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595283   (131867) от 29.12.2012
-
-Аниме - ANIME-PATCHWORK (27.12.12)
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме - ANIME-PATCHWORK (27.12.12)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05543D6F72E672FB75C5887935E9882975F6DAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595986   (131849) от 29.12.2012
-
-Работы художников - Fantasy Digital Art (29.12.12)
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Fantasy Digital Art
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31CFE63B75591AE29492C7CCA453D4B372CE01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595983   (131839) от 29.12.2012
-
-Работы художников - PURPLE DREAM. Illustrations and Concept Art 2D (part.1) [JPG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - PURPLE DREAM (part.1) Illustrations and Concept Art 2DРазрешение файлов: ~ 1000x1500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11944F37BFDC086A0D1A0FF8BE215B7A431B32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596170   (131628) от 30.12.2012
-
-[Wallpapers] National Geographic (29.12.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131628.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] National Geographic (29.12.12)
-Название: National Geographic (29.12.12)
-Тип раздаваемого:] Wallpapers
-Разрешение файлов: 1600х1200
+[Photo] Осенний парк
+Название: Осенний парк
+Тип раздаваемого: Photo
+Разрешение файлов: 2592х3456 - 3456х2592
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
+
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:856DC6C36981E462D6846C556F6CD5FE70490E6A
+magnet:?xt=urn:btih:8473D573A89B1F85309A0D1602D28965CC316374
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,29 +518,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596327   (131578) от 30.12.2012
+###  Публикация: 490299   (102461) от 01.05.2012
 
-[Wallpapers] Minimalism (30.12.12)
+[Фотоколлаж] Связь времен. Сергей Ларенков [2010, Фотоколлаж, JPEG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Сергея Ларенкова – вполне обычного жителя Санкт-Петербурга – с недавнего времени стало широко известно после его уникального фото-дизайнерского проекта «Невидимый Ленинград». Он представляет собой подборку из нескольких десятков коллажей. На каждом снимке с точностью до миллиметра совмещены кадры одного и того же места, но сделанные в разное время: в годы блокады Ленинграда – и в начале двадцать первого века.
+Эффект от этих снимков потрясающий. Глядя на них, словно вживую ощущаешь, как неспокойно под этим нависшим небом; и непонятно, что на этом месте делает уже другой город!.. Гомон толпы, вскрики, взрывы, очереди выстрелов, бегущие в атаку бойцы… Люди на этих снимках оплакивают своих погибших близких, ждут новых артобстрелов, надеются, что все-таки удастся выжить, верят в скорую Победу…
+При совмещении фотографий получается, что из прошлого возвращаются люди и ситуации блокадной поры и  не только.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE4230C88CCD03FEF283E1EA5D5D988A6F113E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489497   (102043) от 29.04.2012
+
+[Иллюстративная живопись] Дизайн и реклама - Иллюстративная живопись XX-века (2003) | Direless
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены работы 26 дизайнеров и художников: реклама, театральная афиша, компьютерный коллаж, книжные иллюстрации, орнамент, профессиональная фотография, бодиарт и т.д., содержит 3800 тематических работ.2003
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041A3B3AE27B472EDBB7C0E31CA304DD2D1AC184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822680   (101692) от 07.10.2025
+
+Иконки - UI8 - Saas 3D Illustration [PNG, FBX, OBJ, GLB, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выведите свои мобильные приложения, UI/UX и веб-дизайн на новый уровень с помощью Saas 3D Illustration, добавив уникальный и привлекательный элемент.Формат: PNG, FBX, OBJ, GLB, BLENDРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5137AED63C3E3ECAAFCB51E6CBCED06F4CFD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822598   (100960) от 07.10.2025
+
+Промты - SevenUnited LLC - 428 Ai Art Prompts for Caricatures Vol 2 - 5836005 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект из 428 промтов для создания карикатур с помощью ИИ:часть 2. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569B7738A46D191EBEEDDDCF241443A1E6663B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822371   (100774) от 06.10.2025
+
+Промты - SevenUnited LLC - 437 Midjourney Creative Portrait Prompts: Vol 2 - 9146519 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 437 промтов Midjourney с примерами изображений для создания творческих портретов: часть 2.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1CAA92C280E932AF1DDFE475B09D1DFCA453CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487139   (100320) от 23.04.2012
+
+[Wallpapers] Завораживающая красота природы (67 снимков)
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Minimalism (30.12.12)
-Название: Minimalism (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Замечательная природа во всей своей красоте на обоях для монитора
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F737FFEA3862D2C91B319E842783FECE07191C0
+magnet:?xt=urn:btih:21552960F9CC1773087653DCF8C46ACFD6D69678
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,103 +676,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596975   (130977) от 31.12.2012
+###  Публикация: 487170   (100295) от 23.04.2012
 
-New year wallpapers 2013 (30.12.12) [Wallpapers]
+[Wallpapers] Автомобили (195 снимков)
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+Коллекция из 200 шт. HQ обоев автомобилей
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52764B07E0F698B2FE943CF10269B27F521D3E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597023   (130905) от 31.12.2012
-
-New year wallpapers 2013 (31.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99E6B9F0AE2D446A165E7382BA1AE31FDFAD879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596973   (130901) от 31.12.2012
-
-Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600x1200 - 4080x2720
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8CAC52F0A0AE0283D483036F73027D8EC2245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596469   (130848) от 31.12.2012
-
-Рисованная графика - Artworks by Pal Fried
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Pal Fried.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BC9D39353A12DCC91396253463943A67C68A60
+magnet:?xt=urn:btih:DFE96489FB72A1C3839F5D03A3454A58A9B3AE32
 ```
 
 https://mybot314.ru/tekegram_catalog/

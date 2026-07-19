@@ -1,3 +1,29 @@
+###  Публикация: 1755702   (40135) от 17.10.2024
+
+Navicat Premium 17.1.5 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium - это мощный инструмент для администрирования баз данных, позволяющий подключаться к базам MySQL, Redis, MariaDB, MongoDB, SQL Server, Oracle, PostgreSQL и SQLite одновременно в одном приложении. Программа совместима с облачными базами данных Amazon RDS, Amazon Aurora, Amazon Redshift, Amazon ElastiCache, Microsoft Azure, Oracle Cloud, Google Cloud, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE07509C2FAC47AC7F78687041EC151F0F632219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750068   (40128) от 17.10.2024
 
 Notepad++ 8.7.0 Final + Portable [Multi/Ru]
@@ -644,32 +670,6 @@ DaVinci Resolve — единственное в мире решение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53C9477DF7E33D26B2F2B62BCAFB409B688FF17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756014   (39892) от 19.10.2024
-
-NetLimiter 5.3.18.0 (x64) RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39892.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45513F53BFE434E518025C5BD00DB6DA65DC8CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

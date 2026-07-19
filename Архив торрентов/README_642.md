@@ -1,29 +1,3 @@
-###  Публикация: 1367867   (914086) от 17.03.2020
-
-Cross DJ Pro v3.5.1 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cross DJ Pro - Одна из самых лучших и удобным DJ приложений на Android. Замечательное приложение которое имитирует DJ вертушки с замечательной оптимизацией и откликом при работе. Смело смешивайте трэки и синхронизируйте их на мощный звуковой движок.Тип издания: Premium+Релиз состоялся: 15.02.2020Разработчик: MixvibesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB4C986CCF9FC37420E35A253BF0F2D1045CA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491118   (914073) от 23.08.2021
 
 Allavsoft Video Downloader Converter 3.23.7.7903 [Multi/Ru]
@@ -692,6 +666,41 @@ Format Factory - многофункциональный конвертер ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92C721D65CE5D16CD9585504944BA79DE31B9AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288477   (913914) от 03.02.2011
+
+Tiesto - Club Life 200 (28-01-2011) [MP3|192 kbps]<House / Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicci - Penguin (Original Mix)
+02. Cedric Gervais - Spirit of My Life (Pedro Henriques & Digital Lab remake)
+03. Dominik De Leon - Everybody (Andre Wallukat Mix)
+04. Alex Sayz, Hype Jones - Never Give Up (Deniz Koyu Mix)
+
+Tiesto's Classic Of The Week
+05. Nathan Fake - The Sky Was Pink (Holden mix)
+06. Jes – Awaken (Inpetto Mix)
+07. Flo Rida feat. Akon - Who Dat Girl (instrumental)
+08. Sidechain - Back To Life (Mood mix)(   Читать дальше...)Жанр: House / Electro HouseПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87891571236062652914164D4442BC1287DB9812
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,420 @@
+###  Публикация: 1791060   (67909) от 12.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Purple and Gold Ginkgo Texture Digital paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с фиолетово-золотистой текстурой под листья гинкго.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39705CC5AA5AB97CA2282900E189AE707FC925DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791058   (67908) от 12.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Purple and Turquoise Luxury Floral Texture Digital paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фиолетовая и бирюзовая цифровая бумага с роскошной цветочной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BB97F76E239544E749E39AA3FA7FEB49503D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791065   (67901) от 12.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Luxury Lilac Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с роскошной сиреневой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E705CD78930C1C22F88308AA94163B0C10EA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791053   (67900) от 12.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Native American Crochet Digital paper backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровые бумажные фоны стилизованные под вязание крючком индейцев Америки.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FB9EDE3069500771ACFF39C046783C2FA2BBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791061   (67899) от 12.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Frozen Winter Texture Digital paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с морозной зимней текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E753B99378C1A374975FF782D0A2D96DE25F7874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791050   (67893) от 12.04.2025
+
+Текстуры - AllisonSuns - Creative Fabrica - Free Marble Stone Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A710B6BD3CEE70C8B9118E4A6A500F3A8226C569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791047   (67892) от 12.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Luxury Royal Blue Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой синего цвета.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91B0A5F8752A65C31A567BD5B6EFC7EDFB54A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791290   (67861) от 13.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Majestic Mandala Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величественные Мандалайские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791293   (67860) от 13.04.2025
+
+Текстуры - Creative Store - Creative Fabrica - Chambray Fabric Texture Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой ткани шамбре.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791287   (67847) от 13.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Pink Daisy Flowers Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с цветами - розовыми маргаритками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE230D58A0AF7F6733736E7286A40BA91087CE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791282   (67837) от 13.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Christmas Damask Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с рождественской дамасской текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2067197A378427A5796B2A9FAF273AB654843D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791281   (67835) от 13.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Rose and Gold Glitter Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с блестящей розово-золотой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D025433A81A58EF1CF7F4EC22316EDC2FB46F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791674   (67784) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Peacock Stained Glass Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой витражного стекла "Павлин".Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCF76CDB8D269CFD03455B1670388FABC90489B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791673   (67781) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Wild Roses Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой диких роз.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE2F8C493AEDCF55366851DDBA19D451CBED236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792317   (67741) от 18.04.2025
+
+Фоны - FlyingMonkies - Creative Fabrica - Wild Flowers Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный набор фонов с рельефной структурой, покрытых россыпью блёсток, а также рисунками из перьев и полевых цветов.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFC79B215386519C2D1F7A24A06C64B241A40AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792566   (67704) от 19.04.2025
+
+Фоны - Artnoy - Creative Fabrica - Keychain Gradient Colorful Background [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Градиентные красочные фоны для брелоков для ключей.Формат: PNGРазрешение файлов: 2401 x 2401
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00663092AFA428E16DA45D43F0629BC4DECD6D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792563   (67702) от 19.04.2025
 
 Фоны - Artnoy - Creative Fabrica - Metallic Glitter Digital Papers [JPG]
@@ -252,423 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF3F432EFE0883844F05561C2365A6889C7B582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793519   (67482) от 25.04.2025
-
-Паттерны - Behance - Hawaiian Tiki Patterns - 184491561 [PNG, AI, EPS, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные гавайские узоры.
-Материал раздаётся с официальной документацией.Формат: PNG, AI, EPS, PSDРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667427717B1D7A814AFCC4F51564C5C783BB3D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793525   (67460) от 25.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Pastel Holographic Diamond Texture Tumbler Wrap [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обёртка для стаканов с голографической алмазной текстурой в пастельных тонах.Формат: PNGРазрешение файлов: 2790 x 2460
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF3EC2D41C7E71FB2976C77D0F3F5AF8B53D7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793903   (67420) от 27.04.2025
-
-Паттерны - Free PSD Templates - Camouflage Day Patterns [JPG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные паттерны под камуфляж в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B776EA2A2EBDC31A5FBADD9DC7C16BAB83BEF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794171   (67414) от 27.04.2025
-
-Текстуры - Design Stocks - Behance - 10 Rough Plastic Textures - 224509793 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные шероховатые текстуры.Формат: JPG, PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76439569730CDC9C9E0F326843CB8E18B96D220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793906   (67413) от 27.04.2025
-
-Текстуры - Company Folders - Card Stock Paper Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бумажные текстуры.Формат: JPGРазрешение файлов: 2100 x 1500 - 3861 x 2574
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C85B94006F5C82A1CCFD1CBAD143E887C8AC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793911   (67400) от 27.04.2025
-
-Паттерны - Free PSD Templates - Butterfly Patterns [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные узоры с бабочками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 500 x 500 - 2084 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3804A320AE9193185A3D8685BDC073BFE2FE98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793924   (67397) от 27.04.2025
-
-Паттерны - Free PSD Templates - Christmas Sweater Patterns [PNG, AI, PSD, EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Рождественские узоры.Формат: PNG, AI, PSD, EPS, SVGРазрешение файлов: 1043 x 1043
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809039E652D7BE727ECCCE17B26E6B40C62C2266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794180   (67396) от 27.04.2025
-
-Паттерны -  Free PSD Templates - Wedding Patterns Set [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор свадебных узоров.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA318803E5FA939BE70085539D8E746D095F9CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793901   (67393) от 27.04.2025
-
-Паттерны - Free PSD Templates - Animal Skin Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор узоров в виде шкур животных.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E578E87C4544F5C821D1A8E71A7B2E46D1C622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793914   (67392) от 27.04.2025
-
-Паттерны - Free PSD Templates - Autumn Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные осенние узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0446321DADB4BB8CFC12D069227E465B72230CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793892   (67390) от 27.04.2025
-
-Паттерны - Free-PSD-Templates - Marine Seamless Pattern Vector Collection [PNG, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бесшовные узоры на морскую тему.Формат: PNG, AI, PSDРазрешение файлов: 4167 x 4167
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A85B9D53F3E46BF304F0FDDC0BDF2AF356414C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793909   (67389) от 27.04.2025
-
-Паттерны - Free PSD Templates - Seamless Vintage Patterns [PNG, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бесшовные винтажные узоры.Формат: PNG, AI, PSDРазрешение файлов: 2668 x 2669 - 2683 x 2683
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB160C68EEFCCDB80705A864AAAE236CE0708270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793895   (67387) от 27.04.2025
-
-Паттерны - Free PSD Templates - African Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Африканские узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 776 x 776
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9DC507F0D714DA41689CC129AF91A60C042795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793916   (67386) от 27.04.2025
-
-Паттерны - Free PSD Templates - Botanical Pattern Set [JPG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор ботанических паттернов в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793899   (67366) от 27.04.2025
-
-Фоны - Pink Marble Background Images [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны под мрамор в розовых тонах.Формат: JPGРазрешение файлов: 2000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F5F2F9924EEBB9E96AF9D6029ED5EC738D529A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794210   (67340) от 28.04.2025
-
-Паттерны - Free PSD Templates - Space Patterns Set [PNG, AI]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные узоры на космическую тему.Формат: PNG, AIРазрешение файлов: 2817 x 2817
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C690037BE5E1E8F18D2E492C43FE4829E37584
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,120 +1,3 @@
-###  Публикация: 1255829   (361769) от 19.10.2018
-
-Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361769.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Group Activity [2:34]
-02. Excursion [3:42]
-03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255677   (361663) от 19.10.2018
-
-Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Struttin' (9:24)
- 02. Blue Minor (10:20)
- 03. Sippin' at Bells (8:18)
- 04. Deep Night (9:34)(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99A55EED71D8E3CDD4DA5E5980B9F3A5BECB9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255699   (361660) от 19.10.2018
-
-VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abdullah Ibrahim - Angelica [6:27]
-02. Abraham Burton - Laura [5:00]
-03. Antonio Hart - Somewhere [5:25]
-04. Bennie Wallace - How Long Has This Been Going On [5:21](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154414   (361572) от 23.11.2009
-
-Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_361572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
-Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
-02. I Just Called To Say I Love You (4:56)
-03. One More Night (5:30)
-04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177743   (361266) от 26.10.2017
 
 Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
@@ -746,6 +629,122 @@ Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071503   (357129) от 11.11.2016
+
+Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + .cue] <Instrumental, saxophone>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Nocturne (2:49)
+02. Danny Boy (2:57)
+03. Stardust (3:03)
+04. Smoke Gets In Your Eyes (3:15)(   Читать дальше...   )Жанр: Instrumental, saxophoneПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5664F0E6C32063AE6F843AE4754A3F7F55464A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256280   (356906) от 21.10.2018
+
+Benny Goodman - The Legendary Small Groups (1935 - 1938) 2003, BMG [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [2:48]
+02. Body and Soul [3:30]
+03. China Boy [2:34]
+04. Moonglow [3:26](   Читать дальше...   )Жанр: SwingПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767812F98CFB3CE9CACAAB6393416CA287D8D446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329085   (356738) от 03.10.2019
+
+Paul Bley - Solo (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forth [6:31]
+02. Conversations [2:15]
+03. Blueness [6:16]
+04. Intentions [4:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D871BB70CDFF2F030F5431964D3078B9E035B3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246822   (356673) от 21.10.2018
+
+Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something About You
+02. Morning Samba
+03. Mojave
+04. Chemistry(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D455B97F83F872872E992E4DC9DA3942485250F
 ```
 
 https://mybot314.ru/tekegram_catalog/

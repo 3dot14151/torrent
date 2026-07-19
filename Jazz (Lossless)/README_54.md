@@ -1,119 +1,3 @@
-###  Публикация: 1377586   (851950) от 22.04.2020
-
-Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S'posin' [5:31]
-02. Hallelujah! [5:58]
-03. Portrait In Black And White [5:08]
-04. Hey There [6:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE82470397FFCA09C770774CE12692D53D0E694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377630   (851941) от 22.04.2020
-
-Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The James Bond Theme [0:25]
-02. Surrender [5:23]
-03. On Her Majesty's Secret Service [5:13]
-04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377517   (851898) от 22.04.2020
-
-Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [6:21]
-02. Desafinado [5:39]
-03. Dindi [5:04]
-04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001954   (850568) от 30.03.2016
-
-Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Zaire [06:17]
- 02.The Sepia Love Song [08:38]
- 03.Una Muy Bonita [05:13]
- 04.Donna Lee [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B560DBA7487A47827C820BAE31A97E9AAC6D9E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110956   (850529) от 04.03.2017
 
 Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
@@ -743,6 +627,122 @@ Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14148B77A6F835E9388EFFACA827769540B52A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111801   (846805) от 06.03.2017
+
+Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Strange Blues [07:35]
+ 02.Millie's Pad [11:20]
+ 03.What's New [06:38]
+ 04.Disciples Love Affair [06:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111848   (846804) от 06.03.2017
+
+Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.J.C. [07:12]
+ 02.I'm Getting Sentimental Over You [05:06]
+ 03.Play Together Again [05:16]
+ 04.Waltz For Junior [07:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111809   (846754) от 06.03.2017
+
+Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bockhanal [03:01]
+ 02.Ergo [03:12]
+ 03.Moonlight Becomes You [03:28]
+ 04.Headline [03:12](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111804   (846751) от 06.03.2017
+
+Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [06:54]
+ 02.Duerme Negrita [05:18]
+ 03.Evidence [05:16]
+ 04.Gracias a la vida [09:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
 ```
 
 https://mybot314.ru/tekegram_catalog/

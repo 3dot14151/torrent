@@ -1,32 +1,3 @@
-###  Публикация: 1344008   (214951) от 08.12.2019
-
-Aksemetrix - Aqua Perception (2018) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Perception (03:58)
- 02. Star Shepherd (04:16)
- 03. Slow Motion (02:34)
- 04. Light In The Sky (03:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2820FACA62E8875EB56D7134B0B1D65C20870F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426439   (214287) от 24.11.2020
 
 Lars Leonhard - Spaceflight (2020) Synphaera [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo>
@@ -738,6 +709,35 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC 2.0|44.1/24|tracks|WEB-DL] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5627849CA270B2C756DDCB11C90893511A02BFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433434   (161267) от 20.12.2020
+
+Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mickey Mouse Strut (7:58)
+02. The Prairie (7:36)
+03. Words Of Wonder (3:30)
+04. Theme From (4:19)(   Читать дальше...   )Производство: Mélodic - 5060168041739Жанр: Ambient, Dark Jazz, Post Rock, Electronic, InstrumentalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA723AD7FA4C2BB0922CC8E5AC2EE15FEC3EB7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1845100   (1050513) от 29.12.2025
+
+VA - Winter Lounge Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Desert Bloom (3:09)
+02. Johny Luv - She Likes (3:28)
+03. N.E.O.N - Obsession (Radio Edit) (3:06)
+04. Elegant Ape - Sunset Echoes (3:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9051A7343E74917619724FDC5BC91A7D5F77859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842791   (1048872) от 17.12.2025
+
+Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tool 4 (Original Mix)
+02. Tool 5 (Original Mix)
+03. Tool 6 (Original Mix)Жанр: HouseПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842205   (1048590) от 15.12.2025
+
+Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Searchin' (THEMBA Remix) [00:04:08]
+02. So Low (Anthony Middleton Remix) [00:07:42]
+03. Y Don't U (Cinthie Remix) [00:06:38]
+04. Alive (Nick Morgan Remix) [00:05:53](   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842164   (1048544) от 14.12.2025
+
+Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowball (7:29)
+02. Wizard (7:23)
+03. You Take Me Higher (7:50)
+04. Ghost (7:08)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841220   (1047844) от 09.12.2025
+
+VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz - Frequencies (Video) (2:58)
+02. Steen Thottrup - Dreamers (Stefano Martiago Remix) (5:03)
+03. Kornpluck - Tincture (Vocal Mix) (5:23)
+04. Jacob Ireng - Contemplation (2:37)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1D65E6DBFFA7A3A960A9EE2C861745707BEFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839797   (1046769) от 30.11.2025
+
+VA - House Clubhits Megamix 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P!mp The D!sko - Show (3:16)
+02. Damir Pushkar - Smell on Your Skin (2:48)
+03. Les Bisous - Reach Out (2:44)
+04. Hawk - Black Betty (2:35)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6711780BF4EF721887A10D435A76FDB4E4B3258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839638   (1046695) от 29.11.2025
 
 VA - Autumn Lounge (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -570,177 +743,6 @@ VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B69DB8ADCEBA2FA31951B8084935E020148C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436931   (1042815) от 02.01.2021
-
-VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610619   (1042155) от 08.02.2023
-
-VA - Notes & Harmonies, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Drahte -  Virgo (Rafael Cerato Remix)  (7:18)
-02.  Daniele Di Martino -  Lumen  (6:00)
-03.  Justin Cholewski, Ruta Loop -  Saulele (Original Mix)  (6:50)
-04.  Ucha -  Harmoniese (Dario Dea Remix)  (6:19)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C46330BF06F7BB8EFD18A402A0C8B71C50749E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437702   (1042038) от 05.01.2021
-
-Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Continuous DJ Mix (45:29)
- 02. This Is Not The End (feat. Luciana Villanova) (5:37)
- 03. Take My Breath Away (6:45)
- 04. Endless Holidays (5:57)(   Читать дальше...   )Жанр: Tech House, Techno, Minimal, Deep HouseПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C242A6E41DFAA8F4D21018CFC10296A8A29DCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437993   (1041729) от 06.01.2021
-
-Kerala Dust - Light, West (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Bell (Arizona) (7:28)
- 02. Untitled (Or the Evening Redness in the West) (8:02)
- 03. Lilac Dune (2:18)
- 04. Amsterdam (3:23)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F683C4FD34F8EA4E7C53BFFFFEE53E7DECF75B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612171   (1040560) от 14.02.2023
-
-Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (Kaiq Remix) (7:06)
- 02. Sunrise (LOSTIN Remix) (6:01)
- 03. Mana (Dilby Remix) (7:13)
- 04. Across The Ocean (DJ CHUS Remix) (8:02)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819ADFB00F024B7D4DBA3DA18B282FCB095AAD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438777   (1040369) от 11.01.2021
-
-Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Deep-House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (Vintage Culture & Kiko Franco Remix) [00:05:45]
-02. Desire (Vintage Culture & Kiko Franco Remix Edit) [00:03:45]
-03. Desire (Charlotte de Witte Remix) [00:07:52]
-04. Desire (Solomun Remix) [00:06:17](   Читать дальше...   )Жанр: Electronic, Deep-House, SynthpopПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
 ```
 
 https://mybot314.ru/tekegram_catalog/

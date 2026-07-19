@@ -1,3 +1,32 @@
+###  Публикация: 1467884   (1017578) от 05.05.2021
+
+The Alchemist - This Thing Of Ours (2021) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobles (feat. Earl Sweatshirt & Navy Blue)(2:16)
+02. TV Dinners (feat. Boldy James & Sideshow)(2:57)
+03. Holy Hell (feat. Pink Siifu & Maxo)(3:10)
+04. Loose Change (feat. Earl Sweatshirt)(1:58)(   Читать дальше...   )Производство: ALC - ALC 5032Жанр: Hip-HopПродолжительность: 00:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B82674F27DF1E91530F5C5BF9766106D6DF155D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467890   (1017576) от 05.05.2021
 
 Firefox Browser 78.10.1 ESR Portable by PortableApps [Ru]
@@ -654,32 +683,6 @@ Viber, вне зависимости от того каким устройств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8FB7D755D2E7970614210E801F309830C2751FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468027   (1017445) от 06.05.2021
-
-Sketch 72 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch - это новаторский и свежий взгляд на векторную графику. Его намеренно минималистичный дизайн основан на пространстве для рисования неограниченного размера и слоев, без палитр, панелей, меню, окон и элементов управления. Несмотря на простоту использования, он предлагает мощные инструменты для векторного рисования и текста, такие как совершенные логические операции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1388CF75C0B6D754AB885B5683DC5E8A6BCE5575
 ```
 
 https://mybot314.ru/tekegram_catalog/

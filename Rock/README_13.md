@@ -1,32 +1,3 @@
-###  Публикация: 991077   (907914) от 27.02.2016
-
-Brenda Lee - Queen Of Rock'n'Roll (2009) [MP3|320 кб/с] <Rock 'n' Roll, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock The Bop (02:15)
-02. Little Jonah (Rock On Your Steel Guitar) (02:25)
-03. Jambalaya (On The Bayou) (02:09)
-04. Anybody But Me (02:27)(   Читать дальше...   )Жанр: Rock 'n' Roll, Country ClassicПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE7550B83D7DBA4E849F195ED35ACC2ADF94714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991170   (907815) от 27.02.2016
 
 Royal Republic - Weekend Man (2016) [MP3|320 кб/с] <Alternative Rock, Hard Rock>
@@ -744,6 +715,35 @@ Hank Marvin - Heartbeat (1993) [MP3|320 кб/с] <Pop Rock, Classic Rock, Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD041CCC13232C4C64213CC8C9756CECF1C01CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993742   (894181) от 06.03.2016
+
+Theander Expression - Wonderful Anticipation (2016) [MP3|320 кб/с] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anticipation Anthem (2:30)
+ 02.  You Always Ran Away (4:00)
+ 03. Wonderful Anticipation (4:45)
+ 04. Ms. Trendy (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BBF199F4453790E6F22F5E4F7A3D34CC04F3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

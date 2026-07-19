@@ -1,3 +1,90 @@
+###  Публикация: 1444782   (1034201) от 03.02.2021
+
+VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на праздник настоящей Рок музыки! Ценители качественного звука и мастерского исполнения, радуйтесь! Здесь все по-настоящему! «Thе Jаdеd Hеаrts», «Nеurоtiс Fiсtiоn», «Stаnd Atlаntiс», «Hаllоwееn In Hеll», «Sodom» и многие другие мастера современной рок-сцены громоздят сумасшедшие аккорды и рифы, а также виртуозно исполняют свои партии!001. Maggie Cassidy - S.A.D
+002. Billy Nomates - Modern Hart
+003. Outloved - Hurt Me
+004. Division Of Laura Lee - Sit Up Straight(   Читать дальше...   )Жанр: RockПродолжительность: 11:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757CA35AA69DEBBEF62EE4A19229D4874A81C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445223   (1033709) от 05.02.2021
+
+VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный сборник! При прослушивании которого возникает то самое удивительное чувство ностальгии по тем временам, когда музыка поражала многообразием идей, а артисты старались придумать свои уникальные приёмы, не стараясь скопировать друг с друга!001. Josie & The Outlaw - Hipshake
+002. King Salami - Who Do They Watch!
+003. The Red Elvises - Why Why Why
+004. Alex Brown - Fight Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 05:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626F83CEA022BC492C2594BD5D459F4D7E6E166C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619548   (1032716) от 17.03.2023
+
+Pantera - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Pantera — пример того, как важно для музыкантов найти именно своего вокалиста. Подробности есть в сети. С этой командой у меня связано много воспоминаний. Как в 90х мы с пацанами, будучи патлатыми подростками, таскали громоздкие, Советские мафоны и вертаки, с кучей самодельных шнуров и записывали кассеты. Все юнешеские накопления уходили на покупку фирменных (   Читать дальше...   )01. Cowboys From Hell
+02. Primal Concrete Sledge
+03. Psycho Holiday
+04. Heresy(   Читать дальше...   )Жанр: RockПродолжительность: 04:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F166943DF0CCCF27B5C46159193F254AA227D61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446913   (1032246) от 11.02.2021
 
 VA - Рок впрок 16 (2021) [MP3|320 Kbps] <Rock>
@@ -655,93 +742,6 @@ VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75857C9F889DBDF5436CC9A5E74374548CFE7A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465899   (1018802) от 28.04.2021
-
-VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок — это путь. Это такая тропинка. Через тьму, через страх, через твои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь эту музыку — ты выводишь ее в мир и выводишь себя к свету!001. Daka - Just Friends
-002. Champagne Colored Cars - Cache Memory
-003. Chris Garneau - Old Code
-004. Accidents - Cuando El Dia Llegue(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBB9E6FFB77DFC8316F6D808BA057C44ED0B633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465901   (1018681) от 28.04.2021
-
-VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы ценитель качественной музыки? У вас в наушниках постоянно звучат мелодичные гитарные рифы? Тогда вы очутились здесь не случайно! Старое, доброе, настоящее и милое сердцу! - Это девиз музыкального сборника «The Best Pop Rock Ballads 2000s». На лонгплее, кроме всеми признанных музыкальных шедевров, звучат и малоизвестные композиции андерграундной сцены.001. Daniel Schuhmacher - Why
-002. Zella Day - The Outlaw Josey Wales
-003. Brandon Heath - Sunrise
-004. Alex Lloyd - Bring It On(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C4A16FCA22E4C43E7CAA3D1F13D11A1FE31D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466404   (1018393) от 30.04.2021
-
-VA - Beast Mode Rock (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Roach - Ricochet (3:09)
-02. The Prodigy - Firestarter (4:39)
-03. Sixx A.M. - Rise (3:53)
-04. Bush - Machinehead (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89EF3CE75FD5482E4D1C1B749DDD178629FA2F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1119220   (809131) от 27.03.2017
-
-Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life
-02. Dr. Wanna Do
-03. A Night Like This
-04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119235   (809127) от 27.03.2017
-
-Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Skies
-02. The Ghost Of You
-03. Never Ever
-04. Exotic Flu(   Читать дальше...   )Жанр: Neo-swing, Vocal Jazz, Pop JazzПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778234   (808620) от 17.04.2014
-
-Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галактис/ [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Got Nothin' But The Blues [04:36]
-02. Black Butterfly [03:01]
-03. Chelsea Bridge [03:25]
-04. What Am I Here For [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50D65AFB14ACE3BDB5C87C560DE9D4EF3D44F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504930   (808434) от 25.10.2021
-
-Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goduka Mfundi (Going Home) [7:18]
-02. Heyt Mazurki [6:56]
-03. Poor Butterfly [8:32]
-04. In a Sentimental Mood [7:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009717   (808363) от 22.04.2016
 
 Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -745,6 +629,122 @@ Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41CB40FB7889B470DD3EF8259F8865EB60CD468B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505426   (804559) от 27.10.2021
+
+Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:56]
+02. The Nearness of You [8:51]
+03. Lover [8:18]
+04. I Hear a Rhapsody [6:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B922ED060C419E4CDDE248D64FAAF85E7B72DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198825   (804516) от 13.01.2018
+
+Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Madness [03:14]
+02. Flamenco Sketches [09:39]
+03. Isfahan [06:00]
+04. I Love You, Porgy [04:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733F32BF7885A58A49AEEB760901F245224CE703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010315   (804392) от 24.04.2016
+
+Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Quiet Carnival [05:56]
+ 02.Jequie [02:56]
+ 03.Kamba [04:33]
+ 04.Sampaguita [03:12](   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56830B144025CBDA0F641B6D87969BEFAAC56606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010084   (804388) от 24.04.2016
+
+Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slangpolska efter Byss-Kalle [04:42]
+ 02.Allt under himmelens faste [04:09]
+ 03.Medley [06:48]
+ 04.Brannvin ar mitt enda gull [04:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22263B2B31CEBEA4A6EC8C32712AA4BDC9306D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

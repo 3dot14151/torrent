@@ -1,25 +1,25 @@
-###  Публикация: 1684524   (127797) от 15.12.2023
+###  Публикация: 1698754   (118250) от 10.02.2024
 
-Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Silent Force - немецкая группа Heavy Metal/Power Metal, образованная в 1999 году.2000 - The Empire Of Future
-2001 - Infatuator
-2004 - Worlds Apart
-2007 - Walk The Earth(   Читать дальше...   )Жанр: Power MetalПродолжительность: 05:03:50
+A1 Anima Nera (Prologue)
+A2 Sword Of Anger
+A3 Reckless
+A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
+magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684362   (127793) от 15.12.2023
+###  Публикация: 1698749   (118231) от 10.02.2024
 
-Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash/Heavy Metal>
+Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stam1na («Стойкость») — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
-2006 - Uudet Kymmenen Kaskya
-2008 - Raja
-2010 - Viimeinen AtlantisЖанр: Progressive/Thrash/Heavy MetalПродолжительность: 09:33:16
+A1 The House Of Shame
+A2 Broken Things
+A3 Delirium
+A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
+magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684406   (127764) от 15.12.2023
+###  Публикация: 1517531   (118070) от 12.02.2024
 
-Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+Nickelback — канадская рок-группа, основанная в 1995 году в городе Ханна. Группа состоит из гитариста и вокалиста Чеда Крюгера; гитариста, клавишника и бэк-вокалиста Райана Пика; басиста Майка Крюгера и барабанщика Дэниеля Адэра. Название группы образовано от англ. Here’s your nickel back. — «Вот ваша сдача». Или дословно: «Вот ваши пять центов сдачи». Никель (англ. (   Читать дальше...   )1996 - Curb
+1999 - The State
+2001 - Silver Side Up
+2003 - The Long RoadЖанр: Post-Grunge, Hard RockПродолжительность: 10:25:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684782   (127351) от 17.12.2023
+###  Публикация: 1670202   (117984) от 12.02.2024
 
-Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thrash, Death Metal>
+Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Rotten Plague
-A2 Stick In Back
-A3 Brainsuckers Spiders
-A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:21
+Anathema — британская рок-группа, образованная в Ливерпуле в 1990 году. Стиль группы постепенно перешёл от дэт-дум-метала до прогрессивного рока. Вместе с Paradise Lost и My Dying Bride, Anathema считаются одними из основоположников стиля дэт-дум-метал.1992 - The Crestfallen
+1993 - Serenades
+1995 - Pentecost III
+1995 - The Silent EnigmaЖанр: Doom/Death Metal, Progressive/Atmospheric RockПродолжительность: 14:22:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
+magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685955   (126869) от 20.12.2023
+###  Публикация: 1527908   (117589) от 10.10.2025
 
-Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Queen Of Death
-A2 Protector
-A3 Demolition
-A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
+Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
+1988 - The New Order
+1989 - Practice What You Preach
+1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 11:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
+magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685908   (126863) от 20.12.2023
+###  Публикация: 1699585   (117434) от 15.02.2024
 
-Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
+Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, Inside Out Music[FLAC|24/192|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Future Warriors
-A2. Starchild
-A3. Dead Man's Hand
-A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
+01. Used
+02. In the Flesh
+03. Ashes
+04. Morning on Earth(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:47:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
+magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686072   (126770) от 21.12.2023
+###  Публикация: 1699826   (117433) от 15.02.2024
 
-Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
+Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Люди В Ожидании
-A2 Муха На Стекле
-A3 Город
-A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
+01. Of Two Beginnings (02:24)
+02. Ending Theme (04:59)
+03. Fandango (05:52)
+04. A Trace of Blood (08:17)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
+magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685934   (126751) от 21.12.2023
+###  Публикация: 1700250   (117224) от 16.02.2024
 
-Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Queen Of Death
-A2 - Protector
-B1 - Demolition
-B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
+01. Road Salt Theme (00:43)
+02. Softly She Cries (04:16)
+03. Conditioned (04:17)
+04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
+magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686210   (126734) от 21.12.2023
+###  Публикация: 1700149   (117218) от 16.02.2024
 
-Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
+Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kalmah — финская англоязычная метал-группа. «Kalmah» в переводе с карельского значит «до смерти». Kalmah специализируется на быстром и неоклассическом направлении метала.2000 - Swamplord
-2002 - They Will Return
-2003 - Swampsong
-2006 - The Black WaltzЖанр: Melodic Death/Power MetalПродолжительность: 07:00:49
+A1 No Way
+A2 She Likes To Hide
+A3 Sisters
+A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
+magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823947   (126077) от 13.10.2025
+###  Публикация: 1700256   (117217) от 16.02.2024
 
-Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
+Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unanimated — шведская метал-группа, основанная в 1988 году. Является одним из основоположников мелодичного блэк-метала.1993 - In The Forest Of The Dreaming Dead
-1995 - Ancient God Of Evil
-2009 - In The Light Of Darkness
-2018 - Annihilation (EP)Жанр: Melodic Death/Black MetalПродолжительность: 03:19:21
+A1 Accelerator
+A2 Unfuture
+A3 Restless Boy
+B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
+magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,27 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823944   (126076) от 13.10.2025
+###  Публикация: 1700102   (117142) от 16.02.2024
 
-Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Countless Skies - рок-руппа из Хартфордшира, Великобритания, образовалась в 2009 году под названием Hatespire, но в 2012 году сменила название на Countless Skies.2014 - Countless Skies (EP)
-2016 - New Dawn
-2020 - GlowЖанр: Melodic Death MetalПродолжительность: 01:51:03
+Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
+2009 - Marauders
+2011 - Parasites
+2016 - TyrantsЖанр: Thrash/Death MetalПродолжительность: 03:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
+magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823936   (126075) от 13.10.2025
+###  Публикация: 1700658   (117028) от 17.02.2024
 
-Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Callenish Circle - метал-группа из Нидерландов, существовавшая с 1992 по 2007 годы1996 - Drift Of Empathy
-2000 - Graceful... Yet Forbidding
-2002 - Flesh_Power_Dominion
-2003 - My Passion, Your PainЖанр: Melodic Death MetalПродолжительность: 04:23:58
+Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
+2003 - Regressus
+2004 - Never Ending
+2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
+magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823933   (126074) от 13.10.2025
+###  Публикация: 1700648   (117011) от 17.02.2024
 
-Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
+Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Let's Begin
-A2 Lullaby Of Broadway
-A3 Let There Be Love
-A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:25:26
+01. Die Macht
+02. Willenlos
+03. Ikarus
+04. Sage Ja!(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
+magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823608   (125889) от 12.10.2025
+###  Публикация: 1700462   (117008) от 17.02.2024
 
-Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Synth-pop>
+Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Iti Citesc In Ochi
-A2 Toate Femeile
-A3 O Inima De 16 Ani
-A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:26:36
+Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
+1999 - Soulburner
+2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
+magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,27 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686977   (125707) от 25.12.2023
+###  Публикация: 1700673   (116849) от 18.02.2024
 
-Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
+Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Charred Walls of the Damned — американская хэви-метал супергруппа, образованная в 2009 году и состоящая из барабанщика Ричарда Кристи, басиста Стива Ди Джорджио, вокалиста Тима «Риппера» Оуэнса и гитариста Джейсона Суэкофа.2010 - Charred Walls Of The Damned
-2011 - Cold Winds on Timeless Days
-2016 - Creatures Watching Over The DeadЖанр: Power/Thrash MetalПродолжительность: 02:10:29
+01. Sternzeit (1. Strophe)
+02. Kling Glöckchen Klingelingeling
+03. Leise Rieselt Der Schnee
+04. O Tannenbaum(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
+magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,27 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687458   (125459) от 27.12.2023
+###  Публикация: 1700800   (116847) от 18.02.2024
 
-Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Melodic Death Metal>
+Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dissection — шведская мелодик-блэк-дэт-метал-группа, основанная вокалистом и гитаристом Йоном Нёдтвейдтом в Стрёмстаде в 1989 году.1993 - The Somberlain
-1995 - Storm of the Light's Bane
-2006 - ReinkaosЖанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 02:23:55
+01. Die Filmrolle
+02. Zauberer
+03. Hört Mein Wort
+04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
+magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688230   (125286) от 28.12.2023
+###  Публикация: 1700860   (116830) от 18.02.2024
 
-Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Experimental Death Metal>
+Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Denature (04:50)
-A2. Stilled the Hollows' Sway (06:11)
-A3. Penitent (05:52)
-A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:50:52
+01. Das Uhrwerk
+02. Luftschiff
+03. Ich Will Alles
+04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
+magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688691   (125045) от 30.12.2023
+###  Публикация: 1700717   (116829) от 18.02.2024
 
-Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Gothic Metal>
+Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deathstars — шведская индастриал-метал-группа, основанная в январе 2000 года. Группа не придерживается каких-либо жанровых рамок и играет в своем стиле, называемом deathglam.2002 - Synthetic Generation
-2006 - Termination Bliss
-2009 - Night Electric Night
-2014 - The Perfect CultЖанр: Industrial Metal, Gothic MetalПродолжительность: 05:26:31
+01. Eva
+02. Maschine
+03. Gib Mir Mehr
+04. Sternenschiff(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
+magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689087   (124859) от 31.12.2023
+###  Публикация: 1701220   (116527) от 20.02.2024
 
-Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death Metal>
+Лариса Мондрус - Поет Лариса Мондрус (1970) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Lunacy - итальянская мелодик-дэт-метал группа, образованная в 1997 году в Парме.1998 - Silent Storm (EP)
-2000 - Devoid
-2003 - Forget Me Not
-2006 - The DiaristЖанр: Symphonic/Melodic Death MetalПродолжительность: 06:17:52
+A1 Синий Лён
+(Р. Паулс – А. Круклис, перевод А. Дмоховский)
+A2 Озёрный Край
+(Р. Паулс - З. Пурвс, перевод А. Дмоховский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
+magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690823   (123292) от 12.01.2024
+###  Публикация: 1701224   (116500) от 20.02.2024
 
-Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. An Ordinary Dream (Enla Momento)
-B1. To Love, A Tyrant
-B2. Her Halo
-C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:56:33
+01. Das Meer
+02. Seenot
+03. Für Immer
+04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
+magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690687   (123278) от 12.01.2024
+###  Публикация: 1701200   (116499) от 20.02.2024
 
-Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death/Gothic Metal>
+Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Graveworm — итальянская дарк-метал-группа, образованная в 1993 году.1997/1998 - When Daylight's Gone & Underneath The Crescent Moon
-1999 - As The Angels Reach The Beauty
-2001 - Scourge Of Malice
-2003 - Engraved In BlackЖанр: Melodic Black/Death/Gothic MetalПродолжительность: 08:17:00
+01. Vorhang Auf
+02. Puppenspieler
+03. Spiegelbild
+04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85ADEDB81DB9292B0C30461F3BBB3935CD18747E
+magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +606,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691212   (123249) от 12.01.2024
+###  Публикация: 1701230   (116485) от 20.02.2024
 
-Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
+Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ектения • I • Очищение
-A2 Ектения • II • Благословение
-A3 Ектения • III • Премудрость
-A4 Ектения • IV • Милость(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
+01. Das Licht (Intro)
+02. Herzwerk
+03. Stark 2012
+04. So Wie Du Warst(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D6D10BB09207C0A3E4BA1835AB8505F5FF42E07
+magnet:?xt=urn:btih:A27753F38AE4C345C25413D82A6AD046F5B220BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691146   (123243) от 12.01.2024
+###  Публикация: 1701233   (116478) от 20.02.2024
 
-Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black, Folk Metal>
+Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Estorat Taghoot
-A2 Fe Al Diaji
-A3 Hayat Al Khlood
-A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalПродолжительность: 00:39:24
+01. Der Berg (Intro)
+02. Hinunter Bis Auf Eins
+03. Zeit Zu Gehen
+04. Die Weisheiten Des Lebens(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:04:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
+magnet:?xt=urn:btih:85CAFF8783015D35FE7545F1978F3A5A063DAD5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690861   (123241) от 12.01.2024
+###  Публикация: 1701688   (116171) от 22.02.2024
 
-Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Fight Or Flight
-A2. Are We Soldiers
-A3. Control Conquer Collide
-B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:27
+01. Veil Of Maya (05:22)
+02. Celestial Voyage (03:40)
+03. The Eagle Nature (03:30)
+04. Sentiment (05:30)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
+magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689723   (123238) от 12.01.2024
+###  Публикация: 1701757   (115971) от 23.02.2024
 
-Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death/Avant-garde Metal/Metalcore>
+Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Infernal Poetry — итальянская дэт-метал-группа из Анконы, образовавшаяся в 1996 году и распавшаяся в 2014 году.2002 - Not Light But Rather Visible Darkness
-2005 - Beholding the Unpure
-2009 - Nervous System Failure
-2013 - ParaphiliacЖанр: Progressive Death/Avant-garde Metal/MetalcoreПродолжительность: 02:37:27
+01. Nunc Fluens
+02. The Space For This
+03. Evolutionary Sleeper
+04. Integral Birth(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:34:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
+magnet:?xt=urn:btih:55BF23EB3021C8679F65DB84E96ABDD24B9F1548
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,26 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691341   (123237) от 12.01.2024
+###  Публикация: 1701719   (115970) от 23.02.2024
 
-Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Green Labyrinth - швейцарская прогрессив-метал группа, основанная в 2008 году.2014 - Shadow of My Past
-2023 - SequencesЖанр: Progressive MetalПродолжительность: 02:01:57
+01. Veil Of Maya (05:20)
+02. Celestial Voyage (03:37)
+03. Eagle Nature (03:27)
+04. Sentiment (04:27)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:35:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
+magnet:?xt=urn:btih:8FFF36659263DD0B4D0434187BE7721CB0DE67DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

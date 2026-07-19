@@ -1,119 +1,3 @@
-###  Публикация: 1280767   (758815) от 04.02.2019
-
-Les Doigts De L'Homme - 1910 (2010) Cristal Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies [4:38]
-02. Old Man River [3:41]
-03. Niglo 1 Waltz [3:08]
-04. Appel Indirect [2:37](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C71B680DBA66E239B57AC3711CC8C8E0B3A419A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522397   (758785) от 07.01.2022
-
-Benny Goodman - Yale University Archives, Vol. 2 (1957 - 1964) 2CD, 2009, Nimbus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758785.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [0:46]
-02. Bugle Call Rag [2:58]
-03. On The Sunny Side Of The Street [3:12](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DFB0041FB6A795CE237A88E6087D95C1BDBBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280672   (758738) от 04.02.2019
-
-Vula Viel - Do Not Be Afraid (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, World Music, Punk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well Come (3:35)
-02. Do Not Be Afraid (4:21)
-03. I Learn (3:38)
-04. Inside Mirror (2:57)(   Читать дальше...   )Производство: Vula Viel RecordsЖанр: Jazz, World Music, Alternative, PunkПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DD9A4C3D24BA5CF1579E58785875A2567167A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215532   (758232) от 26.03.2018
-
-Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Wild About Harry [03:09]
-02. I Got Rhythm [02:38]
-03. Where Have You Been? [02:57]
-04. Ol' Man River [03:22](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F760C8373E84AC4A5B8DC1286C30DD53B547B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215514   (758231) от 26.03.2018
 
 Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Bop>
@@ -746,6 +630,122 @@ VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6BA850A0A882833A7BF75F130BDAD082D638329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395563   (753828) от 11.07.2020
+
+Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn't This a Lovely Day [3:19]
+02. I Cover the Waterfront [6:53]
+03. Gee Baby, Ain't I Good to You [2:32]
+04. Cold Cold Feeling [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2229FE548B95FBF94D436DC0CBDBF3E1C1F30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281323   (753597) от 07.02.2019
+
+VA - Jazz In Texas 1924-1930 (1997) Timeless [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milenberg Joys (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:58)
+02. Clarinet Marmalade (Blues) (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:55)
+03. Mama Will Be Gone (Jimmy Joy's St. Anthony's Hotel Orchestra) (3:19)
+04. You'll Want Me Back Some Day (Lloyd Finlay And His Orchestra) (2:59)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C818AE69E5FDB09051AEFDAEFDEA070E73D228B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281398   (753596) от 07.02.2019
+
+Chris Gall - Room of Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Curtain
+02. Room of Silence
+03. It Never Entered My Mind
+04. Interlude I(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091CFB2E3DFF232E6B2873E27691F72B69AFFD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888736   (753459) от 15.04.2015
+
+Cesaria Evora - Greatest Hits (2015) [FLAC|Lossless]<Ethnic, Jazz, Morna>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sodade (Version Piano Bar)
+02. Mae Carinhosa
+03. Mar De Canal
+04. Ligereza(   Читать дальше...   )Жанр: Ethnic, Jazz, MornaПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155F477FC278FE32446472B695186E530114E2E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1263371   (287629) от 19.11.2018
+
+BlueStacks Tweaker 5.8.4 beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287629.jpg" />
+</div>
+
+
+###  Подробнее
+
+приложение для "BlueStacks App Player"
+
+BlueStacksTweaker поможет:
+получить root права и многое другоеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E85B784EF91609A8D90AA1DBA54F4E1392DE126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335383   (287569) от 02.11.2019
 
 Process Lasso 9.4.0.28 RePack (& Portable) by TryRooM [Ru/En]
@@ -645,32 +674,6 @@ The Bat! – общепризнанная система обработки эл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC86B028FD81D78B0A0B4BB42316AC79A6B86B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186315   (287115) от 24.11.2017
-
-Acronis BootCD 7PE x86/x64 by naifle (24.11.2017) [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis BootCD WinPE - загрузочный диск, содержащий пакет последних версий двух наиболее популярных русскоязычных программ компании Acronis - Acronis True Image и Acronis Disk Director, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: создание, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C49675B3B4753009016E4527B15166C88FCF833
 ```
 
 https://mybot314.ru/tekegram_catalog/

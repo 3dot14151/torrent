@@ -1,3 +1,148 @@
+###  Публикация: 1624897   (255414) от 08.04.2023
+
+Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255414.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mr. Roboto
+A2 Cold War
+A3 Don't Let It End
+A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625027   (255339) от 10.04.2023
+
+Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255339.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Manic Monday
+A2 In A Different Light
+A3 Walking Down Your Street
+A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625837   (255306) от 11.04.2023
+
+Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Camera Never Lies
+A2 Easy Love
+A3 Love Dies Hard
+A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625753   (255302) от 11.04.2023
+
+Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+
+1. I hear talk 4:34
+2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625760   (255300) от 11.04.2023
+
+Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Waiting On The Border Line (3:46)
+A2. How Do You Feel Now (4:51)
+A3. Back To The Wall (5:12)
+A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625981   (255266) от 12.04.2023
 
 Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
@@ -288,65 +433,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630475   (254673) от 30.04.2023
-
-Демонстрационные диски DTS 5.1 CD-Audio ##14-16 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и еще три сборничка поспели...
-При подготовке релиза использовал материал, собранный ув.Диск 14
-
-01. Alan Parsons - A Valid Path
-02. Beatles - Back In The USSR(   Читать дальше...   )Продолжительность: 01:03:08+00:56:01+00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2D2E6595F46B32844882A9FCDF8C2E68B204AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632297   (254485) от 09.05.2023
-
-Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cue|SACD] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop This World 4:11
-02. The Girl In The Other Room 4:05
-03. Temptation 4:29
-04. Almost Blue 4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836720   (254164) от 12.11.2025
 
 VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
@@ -608,35 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617214   (250260) от 07.03.2023
-
-Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
-2004 - Since the Day it All Came Down
-2006 - Above the Weeping World
-2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617966   (250117) от 09.03.2023
 
 Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -688,63 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618707   (249886) от 13.03.2023
-
-Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterplan — немецкая пауэр-метал-группа. Основана гитаристом Роландом Граповым и барабанщиком Ули Кушем после их увольнения из Helloween в 2001 году.2003 - Masterplan
-2005 - Aeronautics
-2007 - MK II
-2010 - Time To Be King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 06:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618995   (249796) от 14.03.2023
-
-Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
-2013 - Synchronicity
-2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
 ```
 
 https://mybot314.ru/tekegram_catalog/

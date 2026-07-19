@@ -1,32 +1,3 @@
-###  Публикация: 913423   (605009) от 29.06.2015
-
-Chris Norman - Golden Hits (2011) 2CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witch's Promise (04:41)
-02. The Night Has Turned Cold (04:28)
-03. Some Hearts Are Diamonds (03:45)
-04. Run From The Shadows (04:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609140CD531ADDD53D531B117B3D3EFC4FF4B6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038660   (604982) от 29.07.2016
 
 35th and Taylor - I Know You're Trouble (2016) [MP3|320 Kbps] <Blues Rock, Rock, Female Vocal>
@@ -752,6 +723,35 @@ Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379390   (594651) от 04.07.2015
+
+The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, Post Black Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Tomorrow Is A Grey Day (03:16)
+02. Make The Change...Are Your Last Days (08:58)
+03. The Time Will Never Come Back (09:04)
+04. Soul Of City (09:16)(   Читать дальше...   )Жанр: Shoegaze, Post Black Metal, Post RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA1F935E9E2B2FCB4830A2B9572DF8FD6FBA46A
 ```
 
 https://mybot314.ru/tekegram_catalog/

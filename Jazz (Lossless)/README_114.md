@@ -1,119 +1,3 @@
-###  Публикация: 1223511   (673481) от 05.05.2018
-
-Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [06:33]
-02. This Nearly Was Mine [03:37]
-03. It Could Happen to You [03:41]
-04. MyShip [03:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223628   (673416) от 05.05.2018
-
-Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bésame Mucho 3:14
-02. It's Impossible (feat. Nathan East) 3:05
-03. C'est Magnifique 2:52
-04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136376   (673341) от 23.05.2017
-
-Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [00:56]
-02. Johnny Come Lately [03:34]
-03. Swamp Goo [04:52]
-04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136380   (673340) от 23.05.2017
-
-Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [01:11]
-02. Addi [03:20]
-03. Things Ain't What They Used to Be [03:33]
-04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136640   (673339) от 23.05.2017
 
 Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
@@ -745,6 +629,122 @@ Halie Loren - From The Wild Sky (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D8D1605E737AAC247AD20C3C8C34408760A654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030762   (672409) от 01.07.2016
+
+Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chiapas [08:30]
+ 02.Theme From 'Love Story' [06:11]
+ 03.The Peanut Vendor [09:01]
+ 04.Rhapsody In Blue [07:14](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030775   (672405) от 01.07.2016
+
+Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Of Love [04:55]
+02. Paradise [04:49]
+03. The Only One [04:41]
+04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291134   (672231) от 23.03.2019
+
+Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands in Tranquility
+02. Sublime You
+03. So Divine
+04. Morning Mist(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792F70432F471B768874DCBB57BD1D77C189ED5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291064   (671926) от 23.03.2019
+
+VA - Smooth Jazz n Chill (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebron - Kiss And Tell
+02. Oli Silk - Get Out Claws
+03. Randy Scott - Kisses
+04. Jaared - Jamaican Winds(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C43AE6C1D710B6860F925FB4557696A9220CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

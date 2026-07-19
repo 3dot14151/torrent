@@ -1,32 +1,3 @@
-###  Публикация: 1273582   (799842) от 02.01.2019
-
-Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа из Нью-Йорка, образованная в 1977 году и расформированная в 1984 году. Выпустили два представленных альбома. В 1982 году они сменили название на Shanghai и записали последний альбом.01. New Romance (It's A Mystery) (3:08)
-02. Burning Love (3:28)
-03. Shady Lady (4:06)
-04. Everything Is Alright (3:27)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBDC1B9F712F6CF2D6872426D8D194485E419BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273622   (799735) от 02.01.2019
 
 Sweet - The Lost Singles (2017) [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Rock>
@@ -745,6 +716,35 @@ Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387656   (791268) от 02.06.2020
+
+VA - Rockin' the 70's (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791268.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Doobie Brothers - China Grove
+2. The Cars - My Best Friend's Girl
+3. The Stranglers - Something Better Change
+4. Bad Company - Can't Get Enough(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8482B2681BEB6BD1DA7A2D048AB55026E8A1BF35
 ```
 
 https://mybot314.ru/tekegram_catalog/

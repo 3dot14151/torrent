@@ -1,3 +1,61 @@
+###  Публикация: 1037769   (612014) от 25.07.2016
+
+Tracy Chapman - Greatest Hits (2015) Compilation (Remastered)[MP3|320 Kbps] <Blues Rock, Folk Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telling Stories (2015 Remastered)    03:58
+02. Baby Can I Hold You (2015 Remastered)    03:12
+03. Change (2015 Remastered)    05:05
+04. The Promise (2015 Remastered)    05:25(   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Pop RockПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57ECDE1F2B6DA5130DCFA5232E755422FE1906A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147189   (611315) от 01.07.2017
+
+Shaw Davis & The Black Ties - Shaw Davis & The Black Ties (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Hit the Road  (03:28) 
+02. Set Me Free  (04:47) 
+03. Hell with Ya  (04:12) 
+04. Starvin' Blues  (03:48) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1DA9856F7D54E309BA0EB35F991B5ADD24689D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912513   (610880) от 26.06.2015
 
 Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
@@ -687,64 +745,6 @@ Budda Power Blues - Budda Power Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFC7310A892C78F90A965360519283EC1838986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232434   (600057) от 24.06.2018
-
-Tom McGuinness - Second Glance (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not In My Name (03:23)
-02. Ain't It Strange How Things Can Change? (03:50)
-03. For A Woman Like You (03:18)
-04. Catwalk (03:55)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ECC223D055F98671DCC283FE6145BC9D3F4BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038987   (599678) от 30.07.2016
-
-Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Faced Louise (03:04)
-02. Taylor Made Blues (05:12)
-03. Prison Song (04:16)
-04. I'm Getting Late (02:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
 ```
 
 https://mybot314.ru/tekegram_catalog/

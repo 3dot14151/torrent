@@ -1,3 +1,90 @@
+###  Публикация: 1024705   (716214) от 09.06.2016
+
+Bat - Wings Of Chains (2016) [MP3|320 кб/с] <Thrash Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodhounds
+02. Code Rude
+03. Master of the Skies
+04. Primitive Age(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E460023D4AE4163E25FDAAC787044D6D2C5459D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532257   (716167) от 18.02.2022
+
+Bloodywood - Rakshak (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Rap Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gaddaar
+02 - Aaj
+03 - Zanjeero Se
+04 - Machi Bhasad (Album Version)(   Читать дальше...   )Жанр: Nu-Metal, Modern Metal, Rap Metal, EthnicПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAAE91145F4C9C7D22F468C69FF45846927EF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024700   (716128) от 09.06.2016
+
+Monument - Hair Of The Dog (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hair of the Dog
+2. Blood Red Sky
+3. Streets of Rage
+4. Imhotep (The High Priest)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA54A1565C875DA4C8EA769040999B6800CC50CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218557   (715601) от 13.04.2018
 
 Andy James - 6 альбомов (2005-2017) [MP3|320 Kbps] <Modern Metal, Shred, Instrumental>
@@ -658,93 +745,6 @@ Erik Ekholm - Titanium Angel (2015) [MP3|320 кб/с]<Epic Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C634EA00C8AAA1D80D306666B0BBE7AE86BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894281   (707022) от 02.05.2015
-
-Kamelot - Haven (2015) 2CD, Deluxe Edition [MP3|320 кб/с]<Progressive / Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen Star (4:39)
-02. Insomnia (4:13)
-03. Citizen Zero (5:50)
-04. Veil of Elysium (3:54)(   Читать дальше...   )Жанр: Progressive / Melodic Power Metal |Продолжительность: 02:01:04 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB097DC180B4FF514CE2534D06E375B4A5E07AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026134   (705874) от 14.06.2016
-
-Stratovarius - Best Of (3 CD) Limited Edition (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705874.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Until The End Of Days (brand new song)
-02. My Eternal Dream
-03. Eagleheart(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F72C33E28B2B153FE2098D130DFB67B0638BA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026281   (705790) от 14.06.2016
-
-Rage - The Devil Strikes Again (2016) 2CD [MP3|320 кб/с] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil Strikes Again
-02. My Way
-03. Back On Track
-04. The Final Curtain(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E3DDC4ABBFCFAE089DF90C964BE6FCA2918B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1697140   (119069) от 05.02.2024
-
-Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speculation [3:43]
-02. Over the Rainbow [8:21]
-03. Nica's Tempo [5:33]
-04. Blue Concept [5:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE865B8B0CFBD6D7317167546B74F74DFC000EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697240   (118940) от 06.02.2024
-
-VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smoke Orchestra - Just Kiss My Baby (5:15)
-02. Black & Brown - Tribal Boogaloo (3:39)
-03. Jerome van Rossum - Truth (4:29)
-04. Super Bad - Don't Let The Flies Eat Your Marilyn's Painting (3:36)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCBA3B05844E69B570A0C35F6676492FBF53014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697246   (118934) от 06.02.2024
-
-VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundset City - Late Night (3:34)
-02. Nightview - Nightdrive (3:15)
-03. Jean Mare - Only Lounge (3:17)
-04. Audiozoom - 5th Pleasure (3:14)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697423   (118928) от 06.02.2024
-
-Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (feat. Laura Serra)
-02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
-03. I Can See Clearly Now (feat. Daniele Vit)
-04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697315   (118914) от 06.02.2024
 
 Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -745,6 +629,122 @@ Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF90B36C53DD1FD22DB7D2BC689FCF32C042181F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699461   (117788) от 13.02.2024
+
+Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Belongs to Daddy [3:08]
+02. Just the Other Day [3:08]
+03. Should I Tell You I Love You [3:03]
+04. If I'm Lucky [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80675653E88A2E31AE4DDA60893506E2627D385B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699509   (117773) от 13.02.2024
+
+Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Unlikely Story (4:36)
+02. A Blues for You (3:38)
+03. Here Comes the Sun (feat. Miranda Perl) (3:54)
+04. Darn That Dream (6:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9B20F598B4C70C0528CC6ED8A466DBBB6C5706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699634   (117686) от 14.02.2024
+
+Julie London - Original Paper Sleeve Collection (1955-1969) (2010) 30CD[FLAC|Lossless|tracks + .cue] <Jazz, pop, vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список Альбомов:
+1955 - Julie Is Her Name
+1956 - Lonely Girl
+1956 - Calendar Girl(   Читать дальше...   )Жанр: Jazz, pop, vocalПродолжительность: 16:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0F213F66CC878B82DF4A4090D067195B52BA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699654   (117665) от 14.02.2024
+
+Bossa Nova Lounge Club, Romantic Love Songs Academy - Bossa Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion and Attraction (4:06)
+02. Burning Desires (4:39)
+03. Kissing in the Rain (4:39)
+04. Let Me Love You (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED94E8BA10CBC3AD227C06BD75F2CE5E550DACF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

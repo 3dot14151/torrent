@@ -1,3 +1,149 @@
+###  Публикация: 1763583   (35411) от 02.12.2024
+
+Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without Love (3:42)
+02. Mother (4:35)
+03. I Love You Always Forever (4:00)
+04. Nothing Ever Changes (4:28)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, DowntempoПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCACD420350E73939A549DF06CD1CC429B64C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763320   (35405) от 02.12.2024
+
+VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LAU & Sebastian Da Vinn - What To Do (Sebastian Da Vinn Remix) (4:55)
+02. Future Analog - Sinners (3:33)
+03. Natalie Gray - Dance Floor (2022 Rework) (3:08)
+04. Belash - Hold Back (2:58)(   Читать дальше...   )Жанр: Dance, Indie PopПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC32898625C8971F31C895CE3D5EC808690D71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764916   (34682) от 09.12.2024
+
+Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, Remastered, 2024, WM Sweden [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34682.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01. Harleys & Indians (Riders in the Sky) (03:44)
+ 02. Crash! Boom! Bang! (05:01)
+ 03. Fireworks (03:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33240C6BA2133A205C72C6F21D16137B57D0F90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764766   (34629) от 10.12.2024
+
+Kylie Minogue - Tension II (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Electro-Disco, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lights Camera Action [2:43]
+02 - Taboo [2:49]
+03 - Someone For Me [2:35]
+04 - Good As Gone [3:10](   Читать дальше...   )Жанр: Alternative Dance, Electro-Disco, Dance-PopПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7505BCC255487950DEE1CED48C72BF15E99F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765331   (34432) от 12.12.2024
+
+Roxette - ROX RMX (2024) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2022 году Roxette выпустила ROX RMX Vol. 1, ROX RMX Том. 2 и ROX RMX Vol. 3 как релизы только в цифровом формате по всему миру. В сентябре 2024 года была выпущена физическая версия этого сборника ремиксов под названием ROX RMX. Так как в физическую версию были внесены некоторые изменения, она слегка отличается от цифровой версии альбома.
+Roxette — вторая по популярности (   Читать дальше...   )CD One:
+01. Roxette & Galantis - Fading Like a Flower (2:27)
+02. Roxette & Alle Farben - Listen to Your Heart (Alle Farben remix) (2:28)
+03. Stars (Almighty 12" Definitive mix) (8:03)(   Читать дальше...   )Жанр: Pop Rock, Dance-PopПродолжительность: 03:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00E22D364F1586EA0983A0D241B11CBFA81EF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764950   (34402) от 12.12.2024
 
 Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Edition, 2001 [FLAC|Lossless|tracks + .cue] <Pop, Disco>
@@ -600,151 +746,6 @@ VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0174A28DA2BCBAEF5F56AC466A7E46701834FFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783778   (25452) от 07.03.2025
-
-Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25452.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. You're My Heart, You're My Soul (Thomas' Version) (3:36)
-02. You Can Win If You Want (Thomas' Version) (3:42)
-03. There's Too Much Blue in Missing You (Thomas' Version) (4:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572336475C4FF564D75F11BF0957A47DC9262176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783933   (25313) от 08.03.2025
-
-Lady Gaga - Mayhem (2025) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disease
-02. Abracadabra
-03. Garden Of Eden
-04. Perfect Celebrity(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F801351F0EEBCD77DD7EABF1AF4046B7DA203D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785840   (24042) от 20.03.2025
-
-Secret Service - When The Night Closes In (1985) 1st Scandinavian Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night City (3:42)
-02. Let Us Dance Just A Little Bit More (4:32)
-03. Special Songs (3:36)
-04. Do You Remember (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68B59511F3BC05377EA1D107C8263CACE009227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717504   (23715) от 24.03.2025
-
-Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil In Your Heart
-02. Tears Will Fall
-03. Tell Her She Can
-04. Crazy(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE7A97DFDCE03C1A4D7CE378505496EB0D6A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787466   (23537) от 25.03.2025
-
-100 % Disco - 100 % Disco Vol. 1-5 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Covers>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way Ticket (3:38)
-02. Give Me Love (3:41)
-03. Funkytown (4:03)
-04. Disco Lights (3:27)(   Читать дальше...   )Жанр: Disco, Pop, CoversПродолжительность: 03:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451EEC0E2D8CCEFE6F8161264BF87F63E5F3ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 573461   (377307) от 11.11.2012
+
+Драйверы для ноутбука Samsung 300E5A for Windows 7 64-bit
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драйверы для ноутбука Samsung 300E5A for Windows 7.iso
+Образ диска с программным обеспечением и драйверами,
+записанный с помощью Samsung Easy Software Media v1.0 на ноутбуке Samsung 300E5A-S0H
+Есть автоопределение не установленного ПОНазвание программы: Драйверы для ноутбука Samsung 300E5A for Windows 7 64-bitЯзык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572940   (377302) от 11.11.2012
 
 XSplit 1.1.1209.0601 [Английский]
@@ -647,32 +676,6 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC5D9781F5CDA3C385AA00794C30370EA584B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575482   (376930) от 09.09.2022
-
-EZ CD Audio Converter 10.2.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376930.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A1445BDCD68998D28CE7BC1A5CB0FB3A9AA99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

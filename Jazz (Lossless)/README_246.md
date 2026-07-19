@@ -1,119 +1,3 @@
-###  Публикация: 1077581   (243458) от 01.12.2016
-
-Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.We Three [07:58]
- 02.Tombo in 7/4 [10:26]
- 03.Las Olas [05:58]
- 04.(Used to Be a) Cha-Cha [12:17](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456051   (243451) от 21.03.2021
-
-Peggy Lee - The Lost '40s & '50s Capitol Masters (1944 - 1952) 2CD, 2008, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243451.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ain't Goin' No Place (with The Capitol Jazzmen) [3:03]
-02. A Cottage for Sale [2:56]
-03. Don't Be So Mean to Baby (alternate take) [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BEB1C72A36EF46461A4D4811D8C7942262F1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456114   (243436) от 21.03.2021
-
-Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Bitter Earth
-02. How Lovely to Be a Woman
-03. You've Got to Be Carefully Taught
-04. Getting to Know You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC784E91AF00513C9F6FA2C406CA3E9B17CBD1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340291   (243434) от 23.11.2019
-
-VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243434.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Coleman Hawkins - Body and Soul [5:54]
-02. Coleman Hawkins - Basin Street Blues [5:54]
-03. Coleman Hawkins - Lazy Butterfly [1:05](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 06:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077673   (243432) от 01.12.2016
 
 National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] <Big Band>
@@ -745,6 +629,122 @@ Charles Mingus - Jazz Composers Workshop (1954, 1955) 1992, Savoy Jazz [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7100B4387379065F9D333C2D4764FF190F2DA196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082389   (243038) от 12.12.2016
+
+Oliver Nelson, King Curtis, Jimmy Forrest - Soul Battle (1960) 1992, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues At The Five Spot [05:44]
+ 02.Blues For M.F. (Mort Fega) [09:40]
+ 03.Anacruses [05:43]
+ 04.Perdido [09:23](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E5DF3CD445FAC326A4F8AFE8E47AEC1844DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614690   (243009) от 23.02.2023
+
+Duke Ellington And His Orchestra - Ellington Indigos (1957) 1989, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitude [4:43]
+02. Where or When [4:02]
+03. Mood Indigo [3:07]
+04. Night and Day [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BB2EF9F40C6BA5A37E8C034DB8AFE59B646557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627450   (242995) от 19.04.2023
+
+GoGo Penguin - Everything Is Going to Be OK (2023) [FLAC|Lossless|WEB-DL|tracks] <jazz, fusion, contemporary jazz, future jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Stronger Than You Think [00:01:16]
+02. Glimmerings [00:04:01]
+03. Saturnine [00:04:53]
+04. Glow [00:02:40](   Читать дальше...   )Жанр: jazz, fusion, contemporary jazz, future jazzПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A7BC28EFB2121C9FDF7DDB3C4F18DFB79F3615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627432   (242948) от 19.04.2023
+
+James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le manoir de mes reves [11:29]
+02. Melodie au crepuscule [10:47]
+03. Anouman [10:06]
+04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
 ```
 
 https://mybot314.ru/tekegram_catalog/

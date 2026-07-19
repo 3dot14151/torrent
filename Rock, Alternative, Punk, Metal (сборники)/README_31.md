@@ -1,3 +1,90 @@
+###  Публикация: 1567708   (470079) от 04.08.2022
+
+VA - Rock Indie Night (2022) [MP3|320 Kbps] <Rock, Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lanterns On The Lake - Not Going Back To The Harbour
+002. Maa Ilmasta - Aamutuima
+003. Kitsugaki - Sotaisei
+004. Color Dolor - The Void(   Читать дальше...   )Жанр: Rock, Indie Rock, AlternativeПродолжительность: 11:28:23 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74832C027CC0E602F495316B4629E9B787F8002A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058068   (468843) от 01.10.2016
+
+The Sword - Greatest Hits (2016) [MP3|320 Kbps] <Sludge, Stoner Rock, Post-Metal,>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocryphon
+02. Arrows in the Dark
+03. How Heavy This Axe
+04. Fire Lances Of The Ancient Hyperzephrians(   Читать дальше...   )Жанр: Sludge, Stoner Rock, Post-Metal,Продолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE957820997B35FB75FA0CE1879E939B06B3A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407222   (468487) от 06.09.2020
+
+VA - Tears Of The Dragon (2020) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_468487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. March - Challenger
+002. Ockra - In A Dream
+003. Backwater - Sweet Little Passion
+004. Crow Killer - Castigate(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161704   (465516) от 29.08.2017
 
 VA - Metal World Digest (2017) [MP3|320 Kbps] <Metall, Hard Rock>
@@ -664,93 +751,6 @@ VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF9F5537D2DE9F56ED8BFBB67E89D60D8B286E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756777   (441808) от 06.10.2015
-
-VA - Top 1000 Classic Rock Songs of All Time (2011) [MP3|104-320 кб/с]<Classic Rock, Hard Rock, Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Led Zeppelin - Stairway To Heaven (8:03)
-02.Jimi Hendrix - Purple Haze (2:53)
-03.Foo Fighters - Learn To Fly (3:55)
-04.Lynyrd Skynyrd - Free Bird (9:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 77:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585804E60A23532FBAFE6E72FAEDC683DE85A50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248701   (439815) от 21.09.2018
-
-VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. House of lords - One touch
-002. Outloud - Out in the night
-003. Treat - Paper tiger
-004. Freedom hawk - Deep inside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE580A21C814A56B238029E8754ED79243F7CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164596   (438935) от 10.09.2017
-
-VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Foreigner - Girl On The Moon (Remastered)  4:14
-002.  Black Sabbath - Evil Eye  6:00
-003.  Paul Weller - The Cranes Are Back (Instrumental)  4:23
-004.  Alice Cooper - Feed My Frankenstein  5:02(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E8517332833B1A5B19EC0D7AC8D731402E4613
 ```
 
 https://mybot314.ru/tekegram_catalog/

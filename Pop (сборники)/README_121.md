@@ -1,90 +1,3 @@
-###  Публикация: 1272286   (144480) от 27.12.2018
-
-VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jax Jones - Breathe Feat Ina Wroldsen
-002. Omi & Felix Jaehn - Masterpiece
-003. Zinovatny - Barum
-004. Lamebot - I'm Sorry... I Love You(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 10:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44568B17B0B21C5B072C0ADD1A6F4EA77592349C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087308   (144370) от 28.12.2016
-
-VA - Новогодний Микс 50Х50 (2016) [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Don Diablo Feat. Dave Thomas Jr. - Silence 3:30
-002.Filatov & Karas Feat. Masha - Лирика 2:56
-003.John Newman Feat. Charlie Wilson - Tiring Game 3:24
-004.Olisha - Ой Мама 2:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B87429A80FE53DA4FBB947B81EBD7129862D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348206   (144214) от 27.12.2019
-
-VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NILETTO - Любимка 3:40
-002. Tones And I - Dance Monkey 3:30
-003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
-004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087490   (143946) от 28.12.2016
 
 VA - Новогодние хиты. Песни года Выпуск № 6 (2016) [MP3|256 Kbps] <Pop>
@@ -751,6 +664,99 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273044   (138751) от 30.12.2018
+
+VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KAZKA - Плакала 3:45
+002. Rauf & Faik - Детство 3:08
+003. Big Baby Tape - Gimme The Loot 2:20
+004. Нурминский - Ауфф 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F826C1D036793A98C335CDFD5A7FA69EA11C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195634   (138724) от 31.12.2017
+
+Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малоизвестные синглы от известной исполнительницы.01. Fire Ball (Long Version) (5:57)
+02. Moonlight Starlight (5:32)
+03. Man Of A Man (4:07)
+04. Talk Me Down (3:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590990   (138691) от 18.12.2012
+
+VA - Новогодняя Дискотека В Стиле Modern Talking (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Modern Talking - It's Christmas
+002 Sandra - Infinite Kiss
+003 Pet Shop Boys - A Certain Je Ne Sais Quoi
+004 Secret Service - The Go-Between
+005 Alex Grand feat. Vitaliy Salpagarov - I Love To Hate You (Cover Erasure Radio Mix)
+006 Patty Ryan feat. Systems In Blue - Should I Stay, Should I Go
+007 Bananarama - Moves Like Jagger
+008 Rolf Kohler - Gimme Gimme Money
+009 Daze - Fool Me! (Radio Edit)
+010 Pasha Leonidov - With A Little Love (Cover Modern Talking)(   Читать дальше...   )Жанр: PopПродолжительность: 12:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6774F144B818997CE6358E742D833056DF17E65F
 ```
 
 https://mybot314.ru/tekegram_catalog/

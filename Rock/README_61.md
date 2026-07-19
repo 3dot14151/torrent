@@ -1,32 +1,3 @@
-###  Публикация: 1173739   (389627) от 12.10.2017
-
-Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The May Queen
-02. New World...
-03. Season's Song
-04. Dance With You Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D686E2F7A4AF8BB1238D30CEA43B1CCDD4893A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173936   (388972) от 13.10.2017
 
 VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
@@ -750,6 +721,35 @@ Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E04545999DFE5E4C4AA20819B214058C93EB2CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068701   (378450) от 02.11.2016
+
+Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilo Runs The Voodoo Down 05:55
+02. Green Tourist 05:19
+03. Amusements Of The Western Capital 11:08
+04. Habitrot 07:23(   Читать дальше...   )Жанр: Psychedelic, Post-Rock, Progressive RockПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB441D899933E8E9E07FDA6FA7C22FCF403CED18
 ```
 
 https://mybot314.ru/tekegram_catalog/

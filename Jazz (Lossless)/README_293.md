@@ -1,119 +1,3 @@
-###  Публикация: 1826049   (150697) от 18.10.2025
-
-Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Daniele) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Laura Lanzillo - Keep On Movin'
-02. Vento Di Passione
-03. Femmena
-04. Anna Verrà(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677515   (150571) от 18.11.2023
-
-Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outlaw [6:10]
-02. Melancholy Mood [6:38]
-03. Pyramid [6:42]
-04. Moon Rays [11:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5B93ECC42ECAA00E94C798D45C27F58816A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677522   (150569) от 18.11.2023
-
-Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [5:46]
-02. Perdido [7:58]
-03. Thunderbird [5:18]
-04. Polka Dots and Moonbeams [6:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154BFA258670BB985B0F3236CC93781776D04564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677500   (150568) от 18.11.2023
-
-Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Queen Bess [7:10]
-02. I Can't Get Started [5:26]
-03. Mess A Stomp [3:20]
-04. Stompy Jones - Limbo Rock [9:34](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 05:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA22902B6937802F3FF63148207A8BD167E0072D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677375   (150546) от 18.11.2023
 
 VA - Acid Jazz Today 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
@@ -744,6 +628,122 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087035   (148816) от 26.12.2016
+
+Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148816.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Ow [13:00]
+02.There's A Small Hotel [13:10]
+03.Ballad Medley: Darn That Dream / Where Or When / In Love In Vain / Stardust [10:05](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD700C5494B8CBCA404694F3B871598D92BBF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086852   (148768) от 26.12.2016
+
+Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Imagine [04:28]
+ 02.Herman's Helmet [04:36]
+ 03.Changing With The Times [03:05]
+ 04.Night Creature [03:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086790   (148761) от 26.12.2016
+
+The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [05:08]
+ 02.Wait 'Till You See Her [02:19]
+ 03.0500 Blues [03:50]
+ 04.More Bass [02:33](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63830F6700AFD1AC4DC890C2C9ABB1F3323A5AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087030   (148752) от 26.12.2016
+
+John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rehearsin' For A Nervous Breakdown [02:39]
+ 02.Undecided [02:59]
+ 03.It Feels Good [02:48]
+ 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
 ```
 
 https://mybot314.ru/tekegram_catalog/

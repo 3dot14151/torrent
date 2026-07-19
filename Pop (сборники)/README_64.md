@@ -1,90 +1,3 @@
-###  Публикация: 1545559   (607829) от 23.04.2022
-
-VA - National Pop Dance Music Vol.34 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс-сборник популярной народной музыки с  наименованием "National Pop Dance Music" 34-го выпуска, скрасит ваши серые будни и подарит немного праздника. Треки лонгплея выделяются нестандартным подходом к исполнению, широкой гаммой национального колорита и великолепным настроением.001. Kevin Bock - Schoen Dass Es Bier Gibt
-002. Gordon & Doyle - Stand By Me
-003. Hannes Wader - Im Garten
-004. Angélique Kidjo - Choose Love(   Читать дальше...   )Жанр: Pop, Dance, Schlager, FolkПродолжительность: 08:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549D76D973C89057E185B2B1F682EC1419B4713B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545778   (607687) от 23.04.2022
-
-VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SITHEA - Right My Wrongs (2:00)
-02. Rudimental, Major Lazer, Anne-Marie - Let Me Live - Banx & Ranx Remix (2:57)
-03. The Weeknd - A Lonely Night (3:40)
-04. Ed Sheeran - Afterglow (3:18)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545564   (607460) от 23.04.2022
-
-VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
-002. Soft Cell - Tainted Love
-003. Andrea True Connection - What's Your Name
-004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297032   (606687) от 20.04.2019
 
 VA - Magic Lights: European Pop Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -754,6 +667,93 @@ VA - Dancing Pops (Vol.01) (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B0383FB8706973DBE14D3C641D4A765220B4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039166   (597801) от 31.07.2016
+
+My Sister's Band - Collection (2016) [MP3|320 Kbps] <Pop Rock, Country Pop, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лета ждать
+02. Яндекс
+03. Гагарина
+04. Помчали(   Читать дальше...   )Жанр: Pop Rock, Country Pop, Vocal JazzПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D14911D661F485B3D8CE5842816F1DEC4760A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039119   (597635) от 31.07.2016
+
+VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But The Girl - Missing
+02. George Michael - Praying For Time
+03. Robert Miles - Children
+04. Andru Donalds - Mishale(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39BB9A911F55E34535A95A1D238344D6DC1A46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039227   (597629) от 31.07.2016
+
+VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker -  Sing Me To Sleep 3:09
+002. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42
+003. Robin Schulz feat. Akon -  Heatwave 3:07
+004. Alle Farben feat. YOUNOTUS -  Please Tell Rosie 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

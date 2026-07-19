@@ -1,3 +1,171 @@
+###  Публикация: 1023231   (724545) от 05.06.2016
+
+Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Passion to Sorrow (07:33)
+02 - Lonely (04:40)
+03 - Cheerfulness (01:18)
+04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284589   (724458) от 24.02.2019
+
+Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cast – Intro (00:20)
+2. Bradley Cooper – Black Eyes (03:03)
+3. Cast – Somewhere Over the Rainbow (Dialogue) (00:42)
+4. Cast – Fabulous French (Dialogue) (00:19)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298C227D49AA01FD9263B6F06E2F8043264AA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129209   (724371) от 27.04.2017
+
+VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healing Oriental Spa Collection - Mindful Sessions: Turkish Massage Treatment
+02. Tranquility Spa Universe - Zone of Zen Deepth
+03. Relaxing Spa Music Zone - Relaxing Nature Sounds
+04. Unforgettable Paradise SPA Music Academy - Healing Touch(   Читать дальше...   )Жанр: New Age, Meditative, RelaxПродолжительность: 03:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023169   (724250) от 05.06.2016
+
+Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе самой игры, то есть музыка была извлечена из самой игрыЖанр: SoundtrackПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023430   (724245) от 05.06.2016
+
+Argishty - Первый ереванский снег (2012) [FLAC|Lossless|tracks] <Armenian Duduk, Folk, Relax>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В феврале 2012 года вышел третий альбом музыканта «Первый ереванский снег». Здесь, кроме оригинальных обработок, представлены новые авторские композиции Argishty, а также необычные сочетания дудука с такими этническими инструментами, как австралийский диджериду и индийский ситар.01. Ты, как чинара
+02. Выше Арарата
+03. Высокие горы
+04. Findjan(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53427B74A46B2ECD9800384A651A737D388937D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023385   (724241) от 05.06.2016
+
+Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе самой игры, то есть музыка была извлечена из самой игры. В стиме музыка игры продается с качеством 128 kbpsЖанр: ScoreПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00100FDB69DC858FEED3E6BA4E09F2DADDE92D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129219   (724225) от 27.04.2017
 
 Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <New Age, Piano, Soundtracks>
@@ -568,180 +736,6 @@ Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129235   (720326) от 29.04.2017
-
-Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damascus 1:59
-02. Center Of The Sun 5:06
-03. Tears From The Moon 4:18
-04. Tidal Pool 6:51(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023997   (720303) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024000   (720182) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129740   (720057) от 29.04.2017
-
-VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [FLAC|Lossless|tracks+.cue, tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime A-Holes (01:28)
-02. vs The Abilisk (02:35)
-03. The Mantis Touch (01:54)
-04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96779E52DA3BD7E547FFC15D160DA1702666337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129739   (720046) от 29.04.2017
-
-VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime A-Holes (01:28)
-02. vs The Abilisk (02:35)
-03. The Mantis Touch (01:54)
-04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023948   (720039) от 07.06.2016
-
-Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticking Glock (06:28)
-02. The Drop (02:07)
-03. Eleven Fifty Nine (06:21)
-04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

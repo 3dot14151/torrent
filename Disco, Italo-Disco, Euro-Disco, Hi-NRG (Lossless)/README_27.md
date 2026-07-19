@@ -1,3 +1,90 @@
+###  Публикация: 1718098   (58759) от 23.04.2024
+
+Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever [00:05:35]
+02. Yourself [00:06:22]
+03. Sunrise [00:04:06]
+04. Musica [00:05:49](   Читать дальше...   )Жанр: cosmic discoПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AED6D5F69D874A62B10BFA18437E0735AB44C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719534   (58163) от 29.04.2024
+
+Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Ross - The Last Wall (Zyx Edit Remastered 2023) (3:09)
+02. Roy - Shooting Star (Zyx Edit Remastered 2023) (2:59)
+03. Quinn Martin - One More Mission (Zyx Edit Remastered 2023) (3:05)
+04. Helen - I Love You (Zyx Edit Remastered 2023) (3:10)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E0D26AEBCEC940A20409F03C47F732C90FD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719810   (58025) от 30.04.2024
+
+VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Mauro & Fred Ventura - You And I (Vocal Version) 05:11
+02. Fabian Nesti - Dreamer (115 H.Q. Version) 05:00
+03. Italowarriors feat. Raffale Fiume & Fabian Nesti - The Warrior (Italo Version) 05:28
+04. Joey Mauro & Clock On 5 - Love Kills (The Mayerling Part 2) 05:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894328   (57566) от 05.05.2024
 
 Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
@@ -650,93 +737,6 @@ Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FCDC139C7A19E1A556C084F6EFE60DB03A6B6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749300   (43678) от 13.09.2024
-
-VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man Sound – Summer Night (extended mix) (03:25)
-02. One Man Sound – The Stars On 45 (extended mix) (02:55)
-03. One Man Sound – It's My Life (extended mix) (03:58)
-04. The Man With The Oranges Eyes – Here Comes The Sun (extended mix) (03:12)(   Читать дальше...   )Жанр: Euro Dance/Pop DanceПродолжительность: 01:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755690ED875AD18BDA62D1A05B96D961F57D254F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750193   (43180) от 18.09.2024
-
-Giorgio Moroder - Radio Edits, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E=Mc2 (Mairos Radio Edit) [00:03:30]
-02. Last Night (Andrew Becks Radio Remix) [00:03:25]
-03. What a Feeling (Beach Messiah Radio Remix) [00:03:38]
-04. E=Mc2 (Kniagna Radio Edit) [00:03:52](   Читать дальше...   )Жанр: Electronic, Disco, HouseПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954819BC6B0420F887B1CCD02475A4383A8E26B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750709   (42812) от 21.09.2024
-
-Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want (New version) (feat. Chelcee Grimes & Mike City)
-02. Summer Lovin' (edit) (feat. Purple Disco Machine)
-03. A Part Of You (edit)
-04. Love In C Minor (Franc Moody remix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0A0A1E7D61E0510E9BFAADD2B472709F5C1CE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 365942   (540835) от 21.07.2011
+
+AVS All-In-One Install Package 2.0.1.67 [EN/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_540835.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS All-In-One Install Package - мощный мультимедийный пакет, состоящий из более чем 15-ти приложений таких как: AVS Video Converter, AVS Video Editor, AVS Video ReMaker, AVS Audio Converter, AVS Audio Editor, AVS Audio Recorder, AVS Disc Creator, AVS DVD Authoring, AVS DVD Copy, AVS Ringtone Maker, AVS Media Player, AVS Registry Cleaner, AVS Image Converter, AVS Photo Editor. Все программы имеют русскоязычный интерфейс.Язык интерфейса: EN/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925377   (540823) от 06.08.2015
 
 SpeedyFox 2.0.13 Build 90 Portable [En]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Этот сборник содержит драйверы для более 400,000 аппаратных компонентов продуктов, таких производителей как Dell, HP, Compaq, IBM, Sony, Toshiba, Panasonic, а также аппаратных компонентов производителей Intel, 3Com , VIA, NVIDIA, ATI, SoundMAX, и многих других! В сборник входят две папки: Drivers for Laptops и Drivers for PC.
 Идеально подходит для инженеров и техников по ремонту Notebooks и PC.Язык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365566   (540280) от 21.07.2011
-
-Супероперационный 2011 Windows 7 Ultimate x86/x64, Windows XP SP3 x86/x64 Windows7 6.1, Build 7601 : Service Pack 1, v.721;Windows XP 5.1.2600.5512 Service Pack 3 [Русский, Multilanguage]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистые версии Windows без драйверов (при установке Windows 7 драйвера подгружаются из Интернета), оригинальный утановщик Windows 7 не требует форматирования диска, предыдущая версия со всеми файлами сохраняется в отдельную папку.Выбор разрядности (x86/x64) при установке.Обновления без проблем.Для установки Windows XP необходима перезагрузка.Windpws 7 устанавливается без перезагрузки.Язык интерфейса: Русский, Multilanguage
 
 ## Скачать торент
 ```bash

@@ -1,32 +1,3 @@
-###  Публикация: 1079413   (295980) от 03.12.2016
-
-VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roby - It's My Life (Short Bacardi Mix) 7:08
-02. Limelight - Falling in Love (Radio Beach Club Remix) 4:38
-03. Brad Lake - Run in the Night (Radio Mix) 4:19
-04. Momento - Hold Me in the Night (Radio Blast) 4:47(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 01:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EAAD1D5B65267C8575F1E1CB92587D41D67030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423993   (295917) от 15.11.2020
 
 Salsa Orchestra - Dazzlin Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -742,6 +713,33 @@ VA - RA - RE Rework 2018 (2018) [MP3|320 Kbps] <Italo-Disco, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2BA33F8A386E7B4F580D5AE95D36EF6D80F9C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264851   (277715) от 25.11.2018
+
+Italian Disco Mafia - 1 Album, 2 Singles (2012, 2018) [MP3|320 Kbps] <Italo-Disco, Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessa (Extended Mix) (7:14)
+02. Confessa (Radio Edit) (3:48)Жанр: Italo-Disco, Disco, DanceПродолжительность: 02:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

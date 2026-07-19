@@ -1,64 +1,3 @@
-###  Публикация: 1102198   (892779) от 08.02.2017
-
-Avast Clear 17.1.3394.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23975CFE8BB43939D02D54408254B6107319C54F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184112   (892774) от 18.03.2010
-
-VA - House Vip (16.03.10) [MP3|192-320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell - Watch The Sunrise (Moke Essa & Julian Airia Remix) (6:07)
-02. Boyko Sound Shocking - I Miss Your Love (Grey Sound Remix) (6:18)
-03. DJ Red, DJ Scotty Boy - 4am In Vegas (Original Mix) (7:16)
-04. DJ Rooster, Sammy Peralta, Alejandro Montero - Tokyo (Original Mix Instrumental) (7:09)
-05. Guaranna Project - Pink Lights (Original Mix) (6:09)
-06. Jorgensen, Patric La Funk - Hear Here! (J Nitti Remix) (8:10)
-07. Lenzi vs. Soriani Feat. Sily - Poker Face (Alex Berti Version) (6:52)
-08. Linkin Park - Numb Encore 2010 (Hard2house Club Master Mix) (6:52)
-09. Mondotek - New Sound 2010 (Club Edition)(Rip) (4:30)
-10. Ne!tan vs. Addictiv - Little Game (Pump Extended Mix)(Rip) (5:22)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184144   (892771) от 18.03.2010
 
 VA - House Vip (15.03.10) [MP3|320 kbps]<Electro House>
@@ -701,6 +640,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4940CC6B476F1DE777E8C5A6C28BAEE839C093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493926   (892269) от 05.09.2021
+
+КВН-2021. Высшая лига. Голосящий КиВиН (04.09.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892269.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 сентября Первый канал показал музыкальный фестиваль КВН «Голосящий КиВиН 2021», состоявшийся 17 июня 2021 года в Светлогорске. В конкурсной программе фестиваля приняли участие 16 команд: «Уже не дети», Светлый; «Пал Палыч», Хабаровск; «Юра», Москва; «Северяне», Нягань; «Такая история», Орел; «G-Drive», Россия; «Доктор Хаусс», Могилев; «Город N», Челябинск; «ИП (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 02:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCB0A9B7211C6723169F3E2C51B8BDA332FE659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184178   (892260) от 18.03.2010
+
+Подшивка журналов | Хакер [1999 - Декабрь 2009] +  Хакер Спец [2000-2007] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все номера компьютерного журнала Хакер-Спец с 2000 по 2007год в PDF форматеФормат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

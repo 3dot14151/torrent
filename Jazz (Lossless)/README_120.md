@@ -1,119 +1,3 @@
-###  Публикация: 904166   (655690) от 02.06.2015
-
-Mimi Terris - Flytta Hemifran (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flytta hemifran (3:02)
-02. I drommen (3:40)
-03. Om kvinnan (3:31)
-04. En paradvaning (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4E8C0F5A7ACEAEB85E9F4C870543CE098251F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904377   (655687) от 02.06.2015
-
-Red Holloway - Coast To Coast (2003) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Groovin' [06:03]
-02. Avalon [08:05]
-03. 3 Steps Up Clark [05:11]
-04. Indian Summer [04:08](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB572E200BF5256ABE0D55FD4655106BCFEEA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140673   (654989) от 07.06.2017
-
-Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecaroh [04:35]
-02. The More I See You [09:24]
-03. Lament For Edda [05:26]
-04. Blues For Carla [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E27CD182D79231AE76AB509C11DC4D0A1897FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140675   (654987) от 07.06.2017
-
-Alexander Fisher (Александр Фишер) - Three Question Marks (2005) Austro Mechana [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiphopation [05:51]
-02. Yes No Yes No [05:41]
-03. Wienkorso [05:17]
-04. Peace [10:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBCA64C69D847492597BFD265B529D439E5782C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140745   (654986) от 07.06.2017
 
 Harry Allen - The King (1962) 2008, Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
@@ -774,6 +658,122 @@ Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45EE866EFB2279A6E58A0DD357FD7A5B6973A131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904722   (653461) от 04.06.2015
+
+Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Note (4:15)
+02. River Crossing (3:36)
+03. The Way It Was (3:49)
+04. Polished (3:30)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D8318A2BE9E5C53DB080CB1A32D0E58CA1FFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904763   (653458) от 04.06.2015
+
+Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evocacao das montanhas (6:03)
+02. Teia de renda (2:43)
+03. Anima (4:12)
+04. Olha (3:13)(   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE44CB98447BE28D850226F184FB0D0322454FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904775   (653380) от 04.06.2015
+
+Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come (2:49)
+02. Come Fly With Me (3:09)
+03. The Lady Is A Tramp (3:27)
+04. Ain't That A Kick In The Head (2:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291754   (652731) от 26.03.2019
+
+Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulnay Blue [4:16]
+02. You Must Believe In Spring [6:13]
+03. Batida De Coco [6:21]
+04. Cactus Dance [7:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877132A17DC227953249B17FF815F08CA673F9D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

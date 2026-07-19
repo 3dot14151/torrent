@@ -1,119 +1,3 @@
-###  Публикация: 1123567   (786411) от 08.04.2017
-
-Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.See You at the Fair [06:16]
- 02.Hotter than 'Ell [02:58]
- 03.The Ghost of Dinah [02:50]
- 04.Cotton Tail [03:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68764A45C8AEC0791F50C7CADB30F0C81EF309B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123683   (786409) от 08.04.2017
-
-Thelonious Monk - Eight Classic Albums (1954 - 1957) 4CD, 2010, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786409.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Monk & Monk's Music:
-01.We See [05:18]
-02.Smoke Gets in Your Eyes [04:33]
-03.Locomotive [06:24](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 05:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463300CB4A8DCB1E0AE796CCC124242CCD9B7AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123647   (786408) от 08.04.2017
-
-Charles Mingus - In A Soulful Mood (1960) 1995, Music Club [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bugs [08:30]
- 02.Reincarnation Of A Love Bird [07:00]
- 03.Vassarlean [06:40]
- 04.Stormy Weather [13:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D3970AE4152AEED98A9486662714A76046A8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123633   (786402) от 08.04.2017
-
-Thelonious Monk - Six Classic Albums, Vol.2 (1957 - 1959) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786402.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Brilliant Corners & Thelonious in Action:
-01.Brilliant Corners [07:46]
-02.Ba-Lue Bolivar Ba-Lues-Are [13:07]
-03.Pannonica [08:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 04:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07E5939E584CC57D4E755530519622E34BD2C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123875   (786223) от 09.04.2017
 
 Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -743,6 +627,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277442   (785479) от 20.01.2019
+
+Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785479.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Powaii [18:48]
+02. St. Thomas [5:26]
+03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277446   (785478) от 20.01.2019
+
+Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy Free [12:07]
+02. I Love the Girl [8:48]
+03. The Uptowner [9:17]
+04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277418   (785474) от 20.01.2019
+
+Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me
+02. I've Grown Accustomed To Her Face
+03. Unforgettable
+04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204001   (785471) от 04.02.2018
+
+Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domino [04:22]
+02. Old Folks [06:44]
+03. My Little Red Nose [05:51]
+04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
 ```
 
 https://mybot314.ru/tekegram_catalog/

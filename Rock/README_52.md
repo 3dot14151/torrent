@@ -1,32 +1,3 @@
-###  Публикация: 1318036   (497755) от 04.08.2019
-
-24 Pesos - Flesh & Bones (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Am The Blues [4:27]
- 2. Broken Hearted Man [4:41]
- 4. You Don't Want Me [4:15]
- 3. All The Same [4:03](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2159D32D5B5B0D5FD044827FBA6550264F0E818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564896   (497727) от 21.07.2022
 
 October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
@@ -747,6 +718,41 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545345   (485368) от 10.09.2012
+
+Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Heavy Into Ross (3:30)
+2.  Nightmare Epiphany (4:40)
+3.  Blues For Sandra (3:07)
+4.  Don't Fear The Reaper (acoustic version) (5:30)
+5.  Gammer Is Missing (3:23)
+6.  Fall At Your Feet (2:57)
+7.  Secret Road (4:39)
+8.  Loofah (3:09)
+9.  Real Estate Attorney (2:54)
+10.  I'm Alive (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3ADAFE1417D3F476DB3A5CE58C600419A9C3AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

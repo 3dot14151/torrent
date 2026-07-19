@@ -1,3 +1,31 @@
+###  Публикация: 1649807   (227882) от 30.07.2023
+
+Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - Warner Records [MP3|320 Kbps] <Southern Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Sailin’ Shoes (2023 Remaster)
+Disc 2: Hotcakes, Outtakes, Rarities & Thank You! I’ll Eat It Here: Live at the Palladium, Los Angeles, CA 8/28/71Жанр: Southern Rock, Blues RockПродолжительность: 2CD, 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A50BD4BF2F648AB0D1FA6BA608F5901E15D4194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268450   (227834) от 10.12.2018
 
 Paul McCartney & Wings - Wild Life (1971) Remastered, 2018, Capitol Records [MP3|320 Kbps] <Rock>
@@ -721,35 +749,6 @@ Red Mess - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B920F92A9918FC592480BA9B2C73DD298571490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584461   (224705) от 19.10.2022
-
-Berlin - Best Of Berlin 1979-1988 (1988) [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blowin' Sky High
-02. No More Words
-03. Like Flames
-04. Take My Breath Away(   Читать дальше...   )Жанр: Rock, Pop Rock, Post-PunkПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5306DCA6995C0D6CE678CE557C93F9030030A637
 ```
 
 https://mybot314.ru/tekegram_catalog/

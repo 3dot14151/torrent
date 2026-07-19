@@ -1,3 +1,61 @@
+###  Публикация: 1222260   (684938) от 29.04.2018
+
+VA - Ultimate Punk & New Wave (5CD) (2018) [MP3|320 Kbps] <New Wave, Art Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Punk & New Wave - CD01
+01. The Jam - The Modern World
+02. The Damned - Neat Neat Neat
+03. Skids - Into The Valley(   Читать дальше...   )Жанр: New Wave, Art Rock, GlamПродолжительность: 05:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4908EA4D78476EF21E4BC03021258EEC747E76B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135095   (684704) от 17.05.2017
+
+Blink-182 - California (2016) 2CD, 2017, Deluxe Edition [MP3|320 Kbps] <Pop Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684704.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cynical
+02. Bored To Death
+03. She's Out Her Mind(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 01:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4D4391E9385DC7A45A8776AE3702B4BF7BAD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029060   (684047) от 25.06.2016
 
 Blink-182 - California (2016) [MP3|320 кб/с] <Pop Punk, Alternative Rock>
@@ -717,62 +775,6 @@ The Birthday Massacre - Under Your Spell (2017) [MP3|320 Kbps] <Gothic Rock, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C603382082C697E1AC08F2015448FA28F725873E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139587   (656759) от 05.06.2017
-
-Obey The Brave - Mad Season (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Thin Ice
-02. Drama
-03. On Our Own
-04. Mad Season(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D88A5F025B50C32BBA5C64EE1E463AA693AE294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515930   (653918) от 28.06.2012
-
-ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Правда
-02. НаперекорЖанр: Alternative RapcoreПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0E8FEF877FE24BD3A751502054D4CD1EE756CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

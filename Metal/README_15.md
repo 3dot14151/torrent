@@ -1,3 +1,90 @@
+###  Публикация: 985649   (933989) от 12.02.2016
+
+Beyond the Black - Lost in Forever (2016) [MP3|320 кб/с] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Forever
+02. Beautiful Lies
+03. Written in Blood
+04. Against The World(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EF6AD33F7E5121236B4BF3D1E91B4BD140A489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365072   (933690) от 05.03.2020
+
+My Dying Bride - The Ghost of Orion (2020) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Your Broken Shore
+2. To Outlive the Gods
+3. Tired of Tears
+4. The Solace(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B235D39839F91EB1BE61460BF8254C2F65A6E380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364979   (933419) от 05.03.2020
+
+Crematory - Unbroken (2020) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken
+02. Awaits Me
+03. Rise and Fall
+04. Behind the Wall(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D61C5FB970C675C183BEB794513F7D9B2E32571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861528   (932927) от 21.01.2015
 
 Blind Guardian - Beyond The Red Mirror (2015) Deluxe Edition [MP3|320 кб/с]<Power Metal>
@@ -655,93 +742,6 @@ After The Burial - Dig Deep (2016) [MP3|320 кб/с] <Progressive Metalcore, Dje
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABACA3C1B8C77C9B612897BF60D38A5C77C7859E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095708   (924309) от 21.01.2017
-
-Amon Amarth - Jomsviking (2016) Japanese Edition [MP3|320 кб/с]<Melodic Death Metal, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924309.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:22] 01. First Kill
-[04:43] 02. Wanderer
-[04:04] 03. On A Sea Of Blood
-[03:38] 04. One Against All(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC75D40A9B71EF8CEEC936100B222EF0214680B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987998   (924232) от 18.02.2016
-
-Delain - Lunar Prelude (2016) [MP3|320 кб/с] <Symphonic Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suckerpunch
-02. Turn The Lights Out
-03. Don't Let Go
-04. Lullaby (Live 2015)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic MetalПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF9631493E4BFCDD8B2AAA7BCFD2CD3914D4BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366328   (924130) от 11.03.2020
-
-Kursani - Kursani (2020) [MP3|320 Kbps] <Beatdown Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Спортзал это храм [00:02:46]
-02 - Сустанон 250 [00:01:19]
-03 - Курсани [00:02:40]
-04 - Стероидная ярость [00:02:06](   Читать дальше...   )Жанр: Beatdown HardcoreПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C8652E5DDCB2C7CD09CBE3B8284118FD647636
 ```
 
 https://mybot314.ru/tekegram_catalog/

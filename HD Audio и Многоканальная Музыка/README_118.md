@@ -1,25 +1,25 @@
-###  Публикация: 1715806   (111511) от 13.04.2024
+###  Публикация: 1719494   (110564) от 29.04.2024
 
-Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0, 96.0 kHz|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore>
+Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crawling (3:29)
-02. Faint (2:42)
-03. Numb / Encore (3:26)
-04. Papercut (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 01:07:59
+01 - Feel (00:03:30)
+02 - The Ballad Of El Goodo (00:04:18)
+03 - In The Street (00:02:53)
+04 - Thirteen (00:02:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2457AF5146E7828220272A26B645F3C71BDE0213
+magnet:?xt=urn:btih:FA1806E65C778C29DAB1A0553E6914346AB182CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,55 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715823   (111472) от 13.04.2024
+###  Публикация: 1719405   (110558) от 29.04.2024
 
-Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forever (Stay Like This) (Extended Mix) [4:12]
-02 - God Is in the Soundwaves (Extended Mix) [3:36]
-03 - Love Is a Drug (Extended Mix) [5:23]
-04 - Lose This Feeling (Extended Mix) [4:10](   Читать дальше...   )Жанр: Electronic, Techno, Progressive TranceПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EFA173BCFA654C13228FA51E406D156C6AD4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715848   (111466) от 13.04.2024
-
-S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
+The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-S-Tool (или Severing Tool) — финская хэви-метал группа, базирующаяся в Оулу/Лахти/Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
-2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
+Mayfield Four (aka MF4) - рок-группа, образованная в Спокан, штат Вашингтон, в 1996 году. Группа официально распалась в 2002 году.1998 - Fallout
+2001 - Second SkinЖанр: Hard RockПродолжительность: 01:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
+magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,26 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716016   (111450) от 13.04.2024
+###  Публикация: 1719441   (110552) от 29.04.2024
 
-Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Jazz, Cinematic, Indie>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Red Sun (6:33)
-02. Stay Free (4:30)Жанр: Hard RockПродолжительность: 00:11:03
+01. Light [00:02:51]
+02. Closer [00:03:23]
+03. Grow [00:02:45]
+04. September [00:03:37](   Читать дальше...   )Жанр: Electronic, Jazz, Cinematic, IndieПродолжительность: 00:29:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:343CFEC41204F36086AEC6AEDDF9CB8EA90DA51F
+magnet:?xt=urn:btih:375AF16A4B80D944E465EADA5AE052AEA22F74BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715784   (111440) от 13.04.2024
+###  Публикация: 1719497   (110551) от 29.04.2024
 
-Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
+Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Electronic, Techno, Progressive TranceПродолжительность: 02:30:58
+01 - O My Soul (00:05:37)
+02 - Life Is White (00:03:18)
+03 - Way Out West (00:02:50)
+04 - What's Goin Ahn (00:02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D1065ADB6E692A5666DB3857FFCD3EA6CB51DC3
+magnet:?xt=urn:btih:DC9BE6D0160BD9614BB74C5025A48342C28D2948
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,28 +112,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716009   (111430) от 13.04.2024
+###  Публикация: 1719656   (110545) от 30.04.2024
 
-Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+Deep Purple - Portable Door (2024) Single [FLAC 24/48|Lossless|WEB-DL|track] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Novocaine [4:56]
-02 - Disappear [4:03]
-03 - Hurt Reynolds [3:31]
-04 - Hopeless [3:58](   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:30:29
+01. Portable DoorЖанр: RockПродолжительность: 00:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2FA93EF3FF6579809B26F2E17DD952451FC5981
+magnet:?xt=urn:btih:644FD8011FC789180A5C6B8C4BAFB75E876C56FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,25 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715979   (111429) от 13.04.2024
+###  Публикация: 1719544   (110515) от 30.04.2024
 
-Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Heavy Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oh Well feat. Chris Stapleton (4:34)Жанр: RockПродолжительность: 00:04:33
+01. Barbarians (06:01)
+02. Eternity (03:45)
+03. Ferrell (02:37)
+04. Acid Rain (04:54)(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Heavy RockПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29CB8E75B3F037E66E7F820E2105CC771A3CCB07
+magnet:?xt=urn:btih:406C9F1B48184558C0433CBDB1D1A59845F09968
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,28 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715845   (111425) от 13.04.2024
+###  Публикация: 1719556   (110511) от 30.04.2024
 
-BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Glam Metal>
+Alborosie - Dub Pirate (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Reggae. New Age>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Overloaded [3:36]
-02 - Baby Shot Me Down [3:55]
-03 - Wild Wild Wild [3:21]
-04 - She's in Love [3:53](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Glam MetalПродолжительность: 00:37:57
+01. Kingston Dub Town - ‎ [00:03:03]
+02. Still Dubbing - ‎ [00:04:30]
+03. Rasta Dub Anthem - ‎ [00:03:02]
+04. Precious Dub - ‎ [00:03:20](   Читать дальше...   )Жанр: Reggae, New AgeПродолжительность: 00:42:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1890356E74984F0B09D5A807A2A3C7A46F04748D
+magnet:?xt=urn:btih:8F5472A55AE3D729B39201382833F2EC61E22710
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716001   (111420) от 13.04.2024
+###  Публикация: 1719651   (110508) от 30.04.2024
 
-Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Come Hell or High Water [3:50]
-02 - Desolation [4:08]
-03 - Heaven Shall Burn [4:08]
-04 - Beyond the Pale [4:14](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:52:01
+01 - Scarlet Begonias (Takes 1 and 2) (00:04:46)
+02 - Scarlet Begonias (Alternate Mix) (00:04:27)
+03 - China Doll (Acoustic Mix) (00:04:25)
+04 - Money Money (Alternate Version) (00:04:23)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:22:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD3D1CABCEF3CE29A61876C09BDBC4AB9B3F3BD0
+magnet:?xt=urn:btih:91B6926EC5790B09824132C49961F8E2CAF6CB28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,28 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716266   (111415) от 14.04.2024
+###  Публикация: 1719686   (110493) от 30.04.2024
 
-A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
+Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jimmy Gimme Reggae (Remastered) [00:03:00]
-02. When the Boys Come Home (Remastered) [00:04:05]
-03. You Get Me on the Run (Remastered) [00:03:21]
-04. Viva Torero (Remastered) [00:03:55](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 02:31:46
+01 - Hard Life Phd (00:04:19)
+02 - My, My, My (00:04:18)
+03 - It Ain't as Easy as It Looks (00:03:08)
+04 - 'Til We Meet Again (00:04:31)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
+magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,434 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716179   (111385) от 14.04.2024
+###  Публикация: 1719892   (110483) от 01.05.2024
 
-Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early (Symphonic Rehearsal Mix)(05:23)
-02. Already There (Symphonic Rehearsal Mix)(03:30)
-03. Offshore (Symphonic Rehearsal Mix)(06:27)
-04. Lost You Somewhere (Symphonic Rehearsal Mix)(04:05)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C60EA016C7C47CD3693BB9ED7DF5365A71245B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716177   (111372) от 14.04.2024
-
-Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olympia (06:25)
-02. Ethos (06:56)
-03. Too Poor for Movies, Too Tired for Love (07:23)
-04. Nobody Present Ever Stood So Still (07:47)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4590A4FF0A2A8AD3DAC03EFB44F3337B55A678F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716135   (111368) от 14.04.2024
-
-Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – FUCKING SNAKES
-02 – TEST26
-03 – TRAPPED FOR LIFE
-04 – BODY PROBE(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C44269A7C4221BCF823F4093363F0E7038DD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716334   (111360) от 15.04.2024
-
-Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Wild (5:35)
-02. Heavyweight (3:12)
-03. After The Rain (2:16)
-04. Where The Wild Things Grow (4:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BF250745EB99F1C931909500BBE77C7CC09A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716336   (111359) от 15.04.2024
-
-Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medicine (3:37)
-02. Whispers (4:58)
-03. Wild Visions (3:03)
-04. Make Believe (6:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994F79CFA5CB8F6ADD539498C1B7755D52E238B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716329   (111358) от 15.04.2024
-
-Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move On (2:54)
-02. Me And My Gin (3:42)
-03. Isolamento (3:48)
-04. Like My Desire (7:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E7057D7C92EF54F263FCA709B42F33B6830AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716326   (111357) от 15.04.2024
-
-«Float» - Skies and Highway Signs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (4:37)
-02. Walking Feet (6:51)
-03. Mathematics (3:04)
-04. Flute Intermezzo (3:51)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB457906F29E6D51F8055E61987A5ECDD1FB7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716333   (111355) от 15.04.2024
-
-Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rod Lady (3:59)
-02. Snakebite (4:57)
-03. So Long (4:28)
-04. Have Mercy (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716345   (111349) от 16.04.2024
-
-Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtracks>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (00:01:01)
-02. At The Taxi (00:01:57)
-03. Park Bench (00:00:52)
-04. Tattoo Parlour (00:01:29)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6E9706DCB61CBB413743177668258C19A9A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716342   (111329) от 16.04.2024
-
-Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - El Dia Que Tu Te Marches (00:03:28)
-02 - Ke Mas Nos Da (00:03:20)
-03 - La Rumba del Pescailla (00:02:41)
-04 - No Digo Na (00:03:17)(   Читать дальше...   )Жанр: Pop Rock, Latin PopПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21358733A2B0DCD34AB673EDCAD55DA3D822E085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716625   (111322) от 16.04.2024
-
-Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open (Meet the Families) [00:11:33]
-02. Ethelrida [00:06:18]
-03. Mayhem (Cannon) [00:05:34]
-04. Mayhem Part Deux (Fada) [00:03:52](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD6D9DD906C6B107805BCE11DDD27F670E5F4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716622   (111320) от 16.04.2024
-
-Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Who Is Dot
-02 – The Rancher
-03 – Run
-04 – Lorraine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F34D6EA4257E32974A0E3F852613111FF64D032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716677   (111317) от 16.04.2024
-
-Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warning [00:01:54]
-02. Coup De Grace [00:03:19]
-03. Voided [00:04:21]
-04. Hella [00:03:38](   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21B2BE8E9B0874977147A3F36B65A3919C9383B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716665   (111314) от 16.04.2024
-
-Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluesin' (2:57)
-02. Hauntcha (3:51)
-03. Bein' Down (Ain't No Place To Be) (3:14)
-04. Island Of Blues (7:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76392E76F3AE7556626A74610CCAF4BC15D2FAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716779   (111305) от 17.04.2024
-
-Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Heavy Power Metal>
+Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1:
-01. Heart Of Steel
-02. Garden Party
-03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
+Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
+2001 - Voimasta Ja Kunniasta
+2003 - Kivenkantaja
+2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
+magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +283,463 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716810   (111301) от 17.04.2024
+###  Публикация: 1719836   (110462) от 01.05.2024
 
-Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic Rock, Industrial Metal>
+Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. humAnIty is the new A.I. (Instrumental) [00:00:35]
-02. Diabolic (Extended) (Instrumental) [00:04:31]
-03. Resist (Extended) (Instrumental) [00:05:04]
-04. Reclaimer (Extended) (Instrumental) [00:05:16](   Читать дальше...   )Жанр: Electronic Rock, Industrial MetalПродолжительность: 2 CD, 02:29:55
+01. Dog on a Chain (3:44)
+02. If I Knew Then (3:59)
+03. Isn't It So (2:26)
+04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54360154BC4C291E766C629350D43EC27537FCD6
+magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719823   (110461) от 01.05.2024
+
+In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Electric (3:56)
+02. Contagious (4:26)
+03. Lemon Amigos (4:12)
+04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719825   (110454) от 01.05.2024
+
+U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tongue Reaper
+A2 Make The Move
+A3 Keeper Of My Soul
+A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720250   (110428) от 02.05.2024
+
+Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Inside (3:18)
+02. Live Your Imagination (3:44)
+03. A Perfect Disaster (5:42)
+04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66A94E3ADF537E26F8CA420F416C22154BA4445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720238   (110425) от 02.05.2024
+
+Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trigger [2:56]
+02 - Afterglow [3:39]
+03 - Heroes Are Calling [3:02]
+04 - Flow [3:49](   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, MetalПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11413D54FD65D08B20AB5F95F20A906C963E7A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720166   (110415) от 02.05.2024
+
+Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion And Pomegranate (3:35)
+02. Absolute Satisfaction (3:02)
+03. Morning Kiss (3:39)
+04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC410D5E4CB1DC96CF4455239276600E6A4DD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720160   (110407) от 02.05.2024
+
+Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Fall Walk (4:05)
+02. November Wind (3:17)
+03. Warm Whispers (3:26)
+04. Only Love Wins (3:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C4CDAF1E85E6D4DF507FE5F0AF1D69BE538B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720262   (110406) от 02.05.2024
+
+Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Mist (7:21)
+02. Quarantine (6:03)
+03. They (5:45)
+04. Carbon Skin (5:13)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA441A5B222090DAB101478326CFC065084D78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720249   (110392) от 02.05.2024
+
+Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pagan's Mind — прогрессив-пауэр-метал-группа из Шиена, Норвегия, образованная в 2000 году Нильсом К. Рю, Стианом Кристофферсеном и Торстейном Ааби.2000 - Infinity Divine
+2002 - Celestial Entrance
+2004 - Infinity Divine (Re-recorded, Remastered)
+2005 - Enigmatic Calling(   Читать дальше...   )Жанр: Progressive/Power MetalПродолжительность: 06:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720231   (110390) от 02.05.2024
+
+FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Blue (4:22)
+02. Don't Need Another Heartache (4:36)
+03. No Easy Way Out (3:55)
+04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6C6056BCA2D590F40F850009334BD14CD43C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720081   (110386) от 02.05.2024
+
+Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110386.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Time Of My Life (Extended Mix)
+B1 Slow Dancing
+B2 Mr.Manic And Sister Cool (Coolest Cuts)
+(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720134   (110372) от 02.05.2024
+
+Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tension (4:06)
+02. Communication (3:21)
+03. All I Want (3:18)
+04. One Monkey (5:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB476A41874BF9D9CD8BDBA10DC84AD8BD549FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720104   (110371) от 02.05.2024
+
+Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day Of the Eagle (3:58)
+02. If You Love Me Like You Say (3:02)
+03. I Can't Quit You Baby (6:37)
+04. Empty Arms (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5ABBFFDEA437CCDEDCFFF0631DE5DC09D725B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720140   (110370) от 02.05.2024
+
+Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down South Blues (4:45)
+02. Lonesome, On´ry and Mean (4:09)
+03. Walking The Streets Of Love Alone (3:02)
+04. Sugarfoot Rag (2:48)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5FAB164AFA4A2AE1584551702B273BC51EB4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720108   (110368) от 02.05.2024
+
+Jeff Pitchell - Brown Eyed Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You Know (3:24)
+02. Brown Eyed Blues (3:45)
+03. Wait (4:16)
+04. Caught Up In The Wave (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1B988925F43BDF82CE5D15F4D5E1806A00F5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720137   (110367) от 02.05.2024
+
+Jola Recchioni - Wrongtime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Her Substitute (3:55)
+02. November Leaves Song (5:08)
+03. I'm Walking Out On You Baby (5:09)
+04. I'm The Best For Your Motor (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D59D71F18FF9BFB6642F3AF2C576F9B0497426E
 ```
 
 https://mybot314.ru/tekegram_catalog/

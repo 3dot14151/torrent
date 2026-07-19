@@ -1,3 +1,174 @@
+###  Публикация: 539943   (505316) от 27.08.2012
+
+VA - Concord Jazz: SACD Sampler. volume 1 (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Beija-Flor – The Jim Hall QuartetЖанр: JazzПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D7C5C5D3E60B176A198E9E337CB63DC9E15FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933169   (505286) от 02.09.2015
+
+Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505286.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Tous Les Garcons Et Les Filles
+A2	Le Temps De L'amour
+A3	Mon Amie La Rose
+A4	Le Premier Bonheur Du Jour(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163C29272355029070F6791E9154ADFBDFC27D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931951   (505200) от 02.09.2015
+
+Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin O' My Teeth (3:15) (DR13)
+02. Symphony Of Destruction (4:03) (DR13)
+03. Architecture Of Aggression (3:34) (DR13)
+04. Foreclosure Of A Dream (4:17) (DR13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BFC1A8AA71D90EA92D989AC00A4E3ED05D69F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934232   (503192) от 04.09.2015
+
+Круиз - Круиз-1 (1986) /1988, Мелодия ТЗГ/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503192.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Intro (4:46)
+A2. Дальний свет (4:26)
+A3. Случилось (4:50)
+A4. Последний рассвет (5:44)(   Читать дальше...   )Производство: Мелодия ТЗГЖанр: Heavy MetalПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047EF3BA6AB130CAF8E8700922CA0D0C3C3F4163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935045   (500208) от 07.09.2015
+
+Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500208.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Was Made For Lovin' You (4:31)
+A2. 2,000 Man (4:54)
+A3. Sure Know Something (4:01)
+A4. Dirty Livin' (4:19)(   Читать дальше...   )Производство: Casablanca Records / Victor MusicalЖанр: Glam RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6B8E15EEBBB4778040C7F6550D6E4867E9DF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820471   (496444) от 10.09.2014
+
+Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496444.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Night Life (3:51)
+A2. Juke Box Hero (4:20)
+A3. Break it Up (4:14)
+A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935944   (496384) от 11.09.2015
 
 Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
@@ -571,180 +742,6 @@ A2 B/ Find Love(   Читать дальше...   )Жанр: Medieval, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B4CC7EF5E3F424C401BA737C8ED6F77B1A0B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319904   (477194) от 15.08.2019
-
-Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477194.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Midnight
-A2 Carribean Holiday
-A3 How Do You Know
-A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244967   (475535) от 04.09.2018
-
-Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475535.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Encounters
-A2 Seven Lives
-A3 Touchness
-A4 The Same Parents(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160621   (473898) от 25.08.2017
-
-Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473898.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Waiting on the Borderline (3:46)
-A2. How Do You Feel Now? (4:52)
-A3. Back to the Wall (5:12)
-A4. Highway For Fools (3:14)(   Читать дальше...   )Производство: Polydor - 32 992 0Жанр: Progressive RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823783   (473389) от 21.09.2014
-
-The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473389.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Hello Again (3:46)
-A2. Looking For Love (3:52)
-A3. Magic (3:57)
-A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939680   (473210) от 22.09.2015
-
-Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Viens, Viens
-Written-By – H.R. Barnes, R. Bernet, Sven-Linus
-02.	Arlequin
-Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939749   (473093) от 22.09.2015
-
-David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473093.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 5 A.M (3:04)
-A2. Rattle That Lock (4:56)
-A3. Faces Of Stones (5:32)
-A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Производство: Columbia RecordsЖанр: Progressive RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
 ```
 
 https://mybot314.ru/tekegram_catalog/

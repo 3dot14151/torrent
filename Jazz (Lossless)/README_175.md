@@ -1,119 +1,3 @@
-###  Публикация: 1567300   (474546) от 02.08.2022
-
-Herbie Mann - Verve Jazz Masters 56 (1996) PolyGram Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [4:00]
-02. Baia [2:52]
-03. Evolution of Mann [4:08]
-04. Oodles of Noodles [2:56](   Читать дальше...   )Жанр: Mainstream Jazz, Latin JazzПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823EB174A84C31DB06BE90B21ACB6A3306E15939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245236   (474218) от 05.09.2018
-
-Buddy Collette - Six Classic Albums (1957 - 1961) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474218.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cycle [2:54]
-02. Makin' Whoopee [3:38]
-03. Ruby [3:50](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 03:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A4F8AC66EECBB5F13096E6C734F833CA5969D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160545   (474154) от 25.08.2017
-
-Horace Tapscott - Aiee! The Phantom (1995) 2009, Arabesque Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Great House [07:55]
-02. The Goat and Ram Jam [08:57]
-03. aiee! The Phantom [10:34]
-04. Drunken Mary/ Mary On Sunday [09:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83411C5AD2BA3AC2317A2F662E665EEA0E4C31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245244   (474008) от 05.09.2018
-
-Madeleine Peyroux - Anthem (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On My Own
-02. Down On Me
-03. Party Tyme
-04. Anthem(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CE8017ED081EF6A3521F800AF6B86BB14CCC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939534   (473585) от 22.09.2015
 
 Mette Juul - There Is A Song(2015) - There Is A Song (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
@@ -745,6 +629,122 @@ VA - Jazz Cafe: For Lovers (1994) /Blue Bird/[FLAC|tracks+.cue]<Swing, Bop, Cool
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16C15B0117ECEFCCC17E9C58E20DAC9F2D66D891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939997   (471523) от 23.09.2015
+
+Jeff Palmer - Island Universe (1995) /Soul Note/[APE|image+.cue]<Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.All Cracked Up [06:23]
+02.Loop Hole [06:26]
+03.Spot Check [07:08]
+04.Amerigo [09:02](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E04BAF699028C482774548D0B916EFEA4A36970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057997   (471447) от 30.09.2016
+
+Orrin Evans - Liberation Blues (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Devil Eyes [09:23]
+ 02.Juanita [05:37]
+ 03.A Lil' D.A.B. a do Ya [05:49]
+ 04.A Free Man? [06:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147C6177723F8F614AC8B14FB37B85F0FECCCDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058141   (471435) от 30.09.2016
+
+Art Blakey And His Jazz Messengers - Chippin' In (1990) [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brain Stormin' [06:33]
+ 02.Byrdflight [06:19]
+ 03.Hammerhead [06:51]
+ 04.Aquarius Rising [05:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B3ADEEEA1640B519A4B9F15C345B72F8129731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939811   (471345) от 23.09.2015
+
+Lyn Stanley - Potions [from the 50s] (2014) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland
+02. Cry Me A River
+03. Fly Me To The Moon
+04. Hey There(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01064283DB0BEDE5E6361EA9861A48D5196E221
 ```
 
 https://mybot314.ru/tekegram_catalog/

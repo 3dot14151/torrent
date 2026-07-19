@@ -1,32 +1,3 @@
-###  Публикация: 1097253   (915857) от 26.01.2017
-
-VA - Se-Lek Radio Rotations Vol. 1 (2017) [MP3|320 Kbps] <Techno, Electronica>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loco & Jam - Output 909
- 02. Blue Amazon - Join in Love
- 03. Umberto Pagliaroli - Road System
- 04. Mono Dos - The Last Floor (Kiko Remix)(   Читать дальше...   )Жанр: Techno, ElectronicaПродолжительность: 03:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E59D44D975396884D5D9FB05A25A55FEF7C8A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097311   (915853) от 26.01.2017
 
 Benge - Discography 19 Releases (1996-2016) Expanding Records [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Ambient, Abstract>
@@ -734,6 +705,35 @@ Monah(308) - Приступы Ярости (2016) Авторская разда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661372DEFBB145568F3CDA3F18DC34E23347600D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989584   (915685) от 23.02.2016
+
+Techno Animal - Re-Entry (1995) Virgin [FLAC|Lossless|tracks + .cue] <Industrial, Abstract, Ambient, Dub, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Dream Machinery
+01. Flight Of The Hermaphrodite (10:56)
+02. The Mighty Atom Smasher (10:05)
+03. Mastodon Americanus (07:23)(   Читать дальше...   )Жанр: Industrial, Abstract, Ambient, Dub, ExperimentalПродолжительность: 01:11:45+01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C0132B6CCA714DB6CD4DF163B2DD5C59940E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

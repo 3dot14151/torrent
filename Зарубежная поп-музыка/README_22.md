@@ -1,3 +1,32 @@
+###  Публикация: 1124831   (773538) от 13.04.2017
+
+VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Springfield - For What It's Worth (2:39)
+02. Gordon Lightfoot - Sundown (3:34)
+03. Nilsson - Everybody's Talkin' (2:44)
+04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213044   (773354) от 15.03.2018
 
 VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
@@ -716,35 +745,6 @@ Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B14C47B35A8DB78439FD93AAE1C8B0A351EF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213862   (767344) от 18.03.2018
-
-VA - 90S Baby - Ministry Of Sound (2018) Ministry Of Sound [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc: 1
-1. Bug a Boo (H-Town Screwed Mix) - Destiny's Child
-2. Always on Time - Ja Rule feat. Ashanti
-3. If You Had My Love - Jennifer Lopez(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD47DE74E78CC129BA347D823138879F0077FA1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

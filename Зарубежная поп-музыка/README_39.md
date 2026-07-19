@@ -1,3 +1,38 @@
+###  Публикация: 527037   (595445) от 25.07.2012
+
+Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DiscoПродолжительность: 04:42:27
+
+01. A Neverending Ride
+02. A Voice In The Dark (Version 2008)
+03. Can't Help Falling In Love
+04. Changing My Ways (You Got Me)
+05. Cirque De La Lune
+06. Colours Of Life
+07. Come Back And Break My Heart
+08. D.I.S.C.O. (Lust For Life)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915086   (595197) от 04.07.2015
 
 n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Chillwave>
@@ -716,35 +751,6 @@ VA - A Trip to Greece. Best of Ancient. Greek Music (2015) [MP3|320 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3609AB7AA6D11257F93E2AC78D71908A9CCA249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917774   (589086) от 12.07.2015
-
-Betty Who - Take Me When You Go (2015) Deluxe Version [MP3|320 кб/с]<Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Me (03:39)
-02. High Society (04:01)
-03. Glory Days (04:03)
-04. Somebody Loves You (03:31)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC8AC6520CC7E1B3C71C03F2BFAC7D79ADF3E21
 ```
 
 https://mybot314.ru/tekegram_catalog/

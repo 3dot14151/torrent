@@ -1,26 +1,55 @@
 https://t.me/izofen
-###  Публикация: 1877443   (1073927) от 
+###  Публикация: 1881647   (1077043) от 
 
-Андрей Макаревич - 9 (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Гарик Сукачёв - Легенды русского рока (2025) 2026, Moroz Records [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Мы будем петь
-2. Песенка о добре и зле
-3. Диалог на фоне бесконечной ночи (Посвящение В.П.Аксёнову)
-4. Весенняя(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+01. Скорый поезд придёт ровно в 6 часов (5:05)
+ 02. Звезда микрорайона (4:11)
+ 03. Плейбой (4:51)
+ 04. Дорожная (5:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6F9868CCA85042D028D359D1AA6340083E76278
+magnet:?xt=urn:btih:82A329F359CC2C754B4A55B2BE28ADF70D781CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879757   (1075582) от 03.07.2026
+
+Урфин Джюс - Живая легенда XLV (2026) 3 x CD, Remastered, 2026, Отделение Выход [FLAC|Lossless|tracks + .cue] <Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075582.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Путешествие (1981):
+1. Пожиратель
+2. Агония
+3. Путешествие(   Читать дальше...   )Жанр: Rock, Art RockПродолжительность: 02:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBA587E3280A44EA8AFA414255CDE5B6E4C4D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,35 +195,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C028D9CFA4F310C691659CE953406A912BC377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867227   (1066782) от 24.04.2026
-
-Lumen - Любовь и Красота (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066782.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ваще
-2. Можно!
-3. Один в поле
-4. Пластилин(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90CD02EE8A37962D3AAD1113AB2714F1C1A87FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,35 +427,6 @@ Moongates Guardian - Come Shadow Of My End (2026) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A25277DCEB80C824C40F8239825EB29292F320AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857532   (1059709) от 06.03.2026
-
-Костя Кулясов & АнимациЯ - STAR'Ё (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1059709.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А он всё стоит
-2. Про_Бали
-3. Островки безопасности
-4. Иван(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4803C0D876E07243FAB69A2669A301955CE6E250
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,27 +695,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852186   (1055650) от 06.02.2026
+###  Публикация: 1850613   (1054699) от 29.01.2026
 
-Кино - 46 (1983) Reissue, Remastered, 2026, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+Мёртвая Вера - 2 Albums (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <black-metal, death-metal, doom-metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1055650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Демонстрационная запись «46»
-CD2 - Сессия в МДТ & Акустика
-CD3 - «Квартирник» у Павла КраеваЖанр: RockПродолжительность: 02:15:33
+Список альбомов:
+2025 - Запечатлённый дьявол
+2026 - Не ври мне, что всё будет хорошоЖанр: black-metal, death-metal, doom-metalПродолжительность: 2 CD, 01:08:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
+magnet:?xt=urn:btih:1B44F2BD134987795C014798D7628EF73714D4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850303   (1054212) от 27.01.2026
+
+Аквариум - А+ (2013) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054212.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Как Движется Лед 3'49
+2. Молитва И Пост 3'27
+3. Рухнул 4'47(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29A5D6B0BFA70DFE9367E0B59FEB50BE6F3C51C
 ```
 
 https://mybot314.ru/tekegram_catalog/

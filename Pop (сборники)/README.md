@@ -1,5 +1,382 @@
 https://t.me/izofen
-###  Публикация: 1878305   (1074672) от 
+###  Публикация: 1881806   (1077215) от 
+
+E-Type - Compilation (1994-2025) [MP3|320 Kbps] <Eurodance, Euro House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Crying ❂ Last Man Standing 1998
+02. Russian Lullaby ❂ Made In Sweden 1994
+03. Calling Your Name ❂ The Explorer 1996
+04. Life (& Nana Hedin) ❂ Euro IV Ever 2001(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 02:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14366C31672A126CAF14108B2066328BEA1B816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881655   (1077214) от 
+
+Madonna best (1983-2026) [MP3|320 Kbps] <pop,electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077214.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:04] . 001-Holiday
+[4:07] . 002-Stay
+[3:54] . 003-Material Girl
+[3:12] . 004-Like A Virgin(   Читать дальше...   )Жанр: pop,electronicПродолжительность: 09:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B473EBD69B328AFAB34F1B3F1A1813425D4BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881807   (1076931) от 
+
+VA - REDISCOVER The 21st Century Pop (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076931.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - Shake It Off (3:39)
+002. Beyoncé - Crazy In Love (3:56)
+003. Britney Spears - Oops!...I Did It Again (3:31)
+004. Eminem - Lose YourselfЖанр: PopПродолжительность: 09:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3B3F9E97F0F04BD26822B5EB79D3FCFFB986C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881304   (1076740) от 
+
+VA - Euro Hits 2016 vol.-1 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076740.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:35]. 001-Scooter & Maidwell - What You're Waiting For
+[3:25]. 002-Dimitri Vegas & Like Mike - Stay A While
+[2:57]. 003-Tom Boxer - U Left Me
+[4:37]. 004-LP - Lost On You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E34CBF438F26A4AD201FABD218B6E762C16D19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881231   (1076736) от 
+
+VA - Girls like Stars 2 (1985-2025) [MP3|320 Kbps] <Pop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears - (You Drive Me) Crazy
+002. Melanie C - Who I Am
+003. Jennifer Lopez - Ain't It Funny
+004. Norah Jones - All A Dream(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 07:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F489055A47E929DF8429F78414C873C4DE53E03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881224   (1076735) от 
+
+VA - Girls like Stars (1987-2026) [MP3|320 Kbps] <Pop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Selena Gomez - A Year Without Rain. mix (& Dave Aude & The Scene)
+002. Britney Spears - Alien
+003. Taylor Swift - All Too Well
+004. Suzanne Vega - Alley(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 07:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E021731DD55FE19A4BEE4C8C0C43102A73207A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880603   (1076149) от 07.07.2026
+
+VA - Свежий Русский Хит от ALEXnROCK часть 20 (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Татьяна Куртукова - Синяя вода
+002. Танцевальный Колян - Шашлычок (Dance Version)
+003. Ольга Серябкина и Dimma Urih - 8901
+004. Merab Amzoevi - Дыхание(   Читать дальше...   )Жанр: PopПродолжительность: 04:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9091D72CF9BD03165B82E502383A372E5649333F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880427   (1076142) от 07.07.2026
+
+Miley Cyrus - Compilation (2007-2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Of Fame ❂ Something Beautiful 2025
+02. Flowers ❂ Endless Summer Vacation 2023
+03. See You Again ❂ Meet Miley Cyrus 2007
+04. Night Crawling (& Billy Idol) ❂ Plastic Hearts 2020(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E145EA29B8FBEAA2537EE5C0AE758540FBA203D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880013   (1075930) от 06.07.2026
+
+VA - Euro Hits 2026 vol.-1 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075930.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:30]. 001-Dusty Strings - Cuerdas De Polvo
+[3:06]. 002-Hellberg - Bajo Loco
+[4:59]. 003-Mari Blen - River Of Fire
+[3:17]. 004-Odenn - Bones(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 05:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D8664EAB73D34ED9F822CF33B4D46634837622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878862   (1075065) от 04.07.2026
+
+VA - Лето на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANNA ASTI & Дима Билан - Эпилог (3:17)
+02. Alle Farben & Rene Miller - Body Talk (2:46)
+03. Егор Крид & ARTIK & ASTI - KARMA (2:48)
+04. Zivert - GAZ (3:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7C4A03A4760A2167BA01C9D968E16D470E1DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878578   (1074946) от 
+
+Madonna - Compilation (1983-2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hung Up ❂ Confessions On A Dance Floor 2005
+02. Like A Virgin ❂ Like A Virgin 1984
+03. La Isla Bonita ❂ True Blue 1986
+04. You'll See ❂ Something To Remember 1995(   Читать дальше...   )Жанр: PopПродолжительность: 05:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A3540215AC574104A846E913273616541CD63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878956   (1074939) от 
+
+Lady Gaga - Compilation (2008-2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Chapel ❂ Born This Way 2011
+02. Bad Romance ❂ The Fame Monster EP 2009
+03. Just Dance (& Colby O'Donis) ❂ The Fame 2008
+04. Poker Face ❂ The Fame 2008(   Читать дальше...   )Жанр: PopПродолжительность: 04:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CBE653ABB9CEEB337B32A4DE7DC2A216BDE307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878644   (1074935) от 
+
+VA - Euro Hits 2017 vol.-2 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074935.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:32]. 001-Scooter - Kill The Cat
+[3:22]. 002-Juicy M & Sophie Hintze - Spotlight
+[5:02]. 003-Dj Sava & Carine - Sea Lo Que Sea
+[3:40]. 004-Dan Balan - Hold On Love(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 07:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6A63120E7FFBAE84137C7FB84A1C9D00E2C7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878305   (1074672) от 26.06.2026
 
 VA - Italo Disco 2025 (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -364,383 +741,6 @@ Modern Talking - The Ultimate Best Of (2026) [MP3|320 Kbps] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BDCD04D9A04BED68ED24510424240D05FD691A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874925   (1072213) от 
-
-Mode-One - Collection (2026) [MP3|320 Kbps] <Italo-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Game Of Love (Extended Mix) (feat. Lian Ross) (6:02)
-02. Get The Chance (6:38)
-03. Heaven Is Waiting (5:57)
-04. I Wanna Feel You (7:24)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 04:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039C0CC14E8EA81568F10D8DDC7C623B7CBC82C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874351   (1071868) от 02.06.2026
-
-VA - Disco Fresh In Rap 2 (1999) [MP3|320 Kbps] <Dance, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan - Moscau (Dance Rap Remix Hi ’99) (4:23)
-02. Desirless - Voyage Voyage (Rap Hal 99) (4:53)
-03. Bad Boys Blue - I Totally Miss You '99 (3:52)
-04. Collage - Donna Musica '99 (3:20)(   Читать дальше...   )Жанр: Dance, RapПродолжительность: 02:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A75CB34C053A83CB9731BCACB97E8EF0B646C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874349   (1071866) от 02.06.2026
-
-VA - Disco Fresh in Rap (1999) [MP3|320 Kbps] <Dance, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - The Turbo (Megamix) (4:18)
-02. Fancy - Flames Of Love (MC's Radio MIx) (3:46)
-03. Rapublic feat. Umberto Tozzi - Ti Amo (Rap Edit) (6:19)
-04. Margarita - Show Me Emotion (3:21)(   Читать дальше...   )Жанр: Dance, RapПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E3627B0A869324E0DCA26FB823CDF969EEF968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874478   (1071858) от 03.06.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 5,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Вне Времени - А он мне нравится [03:32]
-02.Master Factory - Позади Крутой Поворот [04:22]
-03.Timurmusic - Ах какая женщина [04:38]
-04.Tabitha Kermorvant - Белая ночь [04:40](   Читать дальше...   )Жанр: PopПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0C081416005E5E0A535F044800DD614C6D6815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874481   (1071856) от 03.06.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 6,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.R.S.Productions - Ты Мне Не Снишься [03:41]
-02.VICTORIA - Чистый лист! [04:31]
-03.12Hit - Больно мне, больно [04:23]
-04.AndrewMusic - Догорает свеча [03:15](   Читать дальше...   )Жанр: PopПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D795B7809BFA694082F656D0344CBC6C980EC9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874485   (1071853) от 03.06.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 7,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Dimon - Глаза цвета виски [03:20]
-02.НЕСНЕЖОК - ЭТОТ МИР ПРИДУМАН НЕ НАМИ [02:51]
-03.EchoNova Beats - Мальчик Хочет В Тамбов [03:22]
-04.KulMuzika - На Сердце Рана У меня [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C31333D103389B3D1B78633F0D2EFB042DD72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874213   (1071805) от 31.05.2026
-
-VA - Euro Hits 2019 [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071805.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:07]. 001-Beachbag & Tonka - Set It Off
-[3:01]. 002-Bakermat - Baiana
-[2:46]. 003-Inna - Tu Manera
-[4:14]. 004-Filatov & Karas - Au Au(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 07:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCF27F8010319F14A12E44A7AC5D309F12B8BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873929   (1071575) от 31.05.2026
-
-VA - Russian Hits 2019  [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071575.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:11]. 001-Loboda - Последний герой
-[3:14]. 002-Doni & Batrai & Timran - Манила
-[3:09]. 003-Karenchik - Мадам
-[2:23]. 004-Jony - Аллея(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2151480CA0604BC1B489DE9B53F13FC14B30389B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873366   (1070973) от 28.05.2026
-
-Dave Sandler - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ballate Ancora
- 02 - Still Warm
- 03 - Neon Fade Forever
- 04 - Página Ciento Doce(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E618F25C5B3A1694BEE5976555F3F2FA5F5E9EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871630   (1070044) от 17.05.2026
-
-Arabesque best (1977-1984) [MP3|320 Kbps] <pop,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070044.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:27] . 01-Hello, Mr. Monkey
-[4:02] . 02-Someone Is Waiting For You
-[3:25] . 03-Fly High Little Butterfly
-[2:58] . 04-The Man With The Gun(   Читать дальше...   )Жанр: pop,electronicПродолжительность: 03:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01DB8625087C209F83CDA352023E464F3D36C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871590   (1069621) от 17.05.2026
-
-Dave Sandler - Favorites Collection (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Le Chiavi
- 02 - Descalza
- 03 - Glass Girl
- 04 - Ti Leggo Piano(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D04B3EAD6873FB99D3BC877CD3E954D9E341067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871195   (1069396) от 15.05.2026
-
-Aurum Project - We Still Have Dreams (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantis Is Calling (3:43)
-02. Call Me (3:29)
-03. Come Again (5:09)
-04. Do You Really Need Me? (3:46)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E32E839F8B00DEAD9822C5ED35AFCB2A641F0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871192   (1069395) от 15.05.2026
-
-Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Mystery (3:11)
-02. Baby Blue (4:14)
-03. Beautiful Madness (5:07)
-04. Don't Cry Alone (4:04)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D43F63A4A41E2860B05060618025CEEB4949476
 ```
 
 https://mybot314.ru/tekegram_catalog/

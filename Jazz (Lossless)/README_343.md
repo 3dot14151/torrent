@@ -1,134 +1,3 @@
-###  Публикация: 486594   (100337) от 23.04.2012
-
-Bob Berg - 4 альбома (1990-2000) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486740   (100317) от 23.04.2012
-
-Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Again
-02. Dedication
-03. Good Morning Love
-04. Off The Hook
-05. Saturday Night
-06. Long Walk
-07. Steppin'
-08. Whisper
-09. Somethin's Goin' On
-10. With All My Heart(   Читать дальше...   )2003Жанр: Smooth JazzПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486030   (100206) от 22.04.2012
-
-Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hole in the Map (5:21)
-02. Off the Grid Girl (6:13)
-03. Where is Everybody (4:58)
-04. The Usual Suspects (4:17)
-05. Five (4:13)
-06. Sweet Miriam (3:49)
-07. Out There (4:43)
-08. Get a Room (4:29)
-09. Cowbirds (7:01)
-10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484951   (100036) от 19.04.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Me Blues (T.Delaney) (3:51)
-02. Careless Love (traditional) (5:33)
-03. High Society (P.Sleeve) (4:07)
-04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
-05. Eh, La Bas (K.Ory) (6:01)
-06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
-07. Maryland, My Maryland (tradirional) (2:44)
-08. Bugle Call Rag (W.C.Sweatman) (3:18)
-09. 1919 Rag (traditional) (5:32)
-10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483055   (99799) от 16.04.2012
 
 Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
@@ -876,6 +745,137 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 08. Electric Red
 09. Indigo
 10. Violet1989Жанр: JazzПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461640   (95177) от 03.03.2012
+
+Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wise One (8:37)
+02. Afro Blue (4:40)
+03. Central Park West (6:06)
+04. Spiral (5:56)
+05. Naima (1:56)
+06. Song For John (7:23)
+07. Crescent (7:08)
+08. Welcome (4:15)
+09. After The Rain (4:03)
+10. Mr. Syms (5:28)(   Читать дальше...   )2007Жанр: Contemporary Jazz, GuitarПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461143   (95086) от 02.03.2012
+
+Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Found Out About Love (3:38)
+02. In Love In Vain (6:01)
+03. A Time For Love (6:26)
+04. A Crooked Road (8:49)
+05. Four (5:30)
+06. Gershwin Medley (9:36)
+07. Fire and Rain (6:10)
+08. Beautiful Love (4:43)
+09. The Storm (6:05)
+10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460019   (94950) от 29.02.2012
+
+Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Flamenco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don (3:41)
+02. Bailas (5:17)
+03. Novembre (5:03)
+04. Tirititran Catalan (4:55)
+05. Flamenquillo (5:05)
+06. Scenes d'Enfants (jeunes Filles Au Jardin) (3:12)
+07. Punt i Final (4:09)
+08. Mario (5:44)
+09. Cara Bobo (4:57)
+10. A Solas (3:35)2011Жанр: Latin Jazz, Fusion, FlamencoПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459516   (94891) от 28.02.2012
+
+George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:03
 
 ## Скачать торент
 ```bash

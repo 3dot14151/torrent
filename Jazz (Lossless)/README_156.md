@@ -1,118 +1,3 @@
-###  Публикация: 1050214   (540642) от 07.09.2016
-
-VA - Jazzy Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Lovers - Analogamente [04:29]
-02. Mediterranean Soul - Imperat [03:52]
-03. Fusion Dee - Blues In Mirror [04:19]
-04. Second Groove - Load In Repetition [04:32](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCB883715F2A85FF0FE97E68BE6AFCDEED87E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239324   (540630) от 04.08.2018
-
-Dorothy Donegan - Five Classic Albums (1942 - 1960) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540630.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. That Old Black Magic [3:43]
-02. Over The Rainbow [2:28]
-03. Sweet Georgia Brown [2:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E567C938E3D4217775E51300BC71A8E6CE4C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239335   (540629) от 04.08.2018
-
-Grant Green - The Main Attraction (1976) 2002, Epic -  EK 86145 [FLAC|Lossless|tracks + .cue] <Soul, Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Main Attraction (19:36)
-02. Future Feature (7:48)
-03. Creature (10:20)Жанр: Soul, Fusion, Smooth JazzПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F76F50A9BA2C7E7BE8E25E52FADD4AA6E236D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364977   (540296) от 21.07.2011
-
-Keiko Matsui - 24 альбома (1987 - 2007) [APE|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cтиль, в котором играет пианистка Keiko Matsui, обычно называют «современным джазом» или даже «современной музыкой для взрослых». Это отличный расслабляющий фон для любого времени суток и любой компании. При этом ее мелодии в достаточной мере оригинальны, а аранжировки с использованием большого количества инструментов (в том числе национальной японской флейты шакухачи, (   Читать дальше...   )01. Moyo (Heart And Soul) [00:03:44]
-02. A Great Romance [00:04:05]
-03. Into The Night [00:04:27]
-04. Garicias [00:05:33](   Читать дальше...   )Жанр: Jazz, Smooth Jazz |Формат: APE (image+cue)Продолжительность: 00:52:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311603   (540073) от 30.06.2019
 
 Al Foster - Inspirations & Dedications (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -755,6 +640,128 @@ Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBD3C9C46D898D53775066207EC7DD5702ADBA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366242   (537094) от 23.07.2011
+
+Shakatak - The Ultimate Collection (2008) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_537094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Start Over Again (3:43)
+02. Sunshine (3:52)
+03. Catwalk (4:24)
+04. All Because Of You (4:18)
+05. Without You (4:28)
+06. Night Moves (4:38)
+07. Day By Day (3:44)
+08. Summer Of Love (4:31)
+09. Jazz Creepin' (3:36)
+10. Steveland (4:12)(   Читать дальше...)Жанр: Jazz, Smooth JazzПродолжительность: 02:30:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050444   (536748) от 09.09.2016
+
+VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Old Black Magic [04:41]
+ 02.Johnny Come Lately [03:31]
+ 03.Tea For Two [02:53]
+ 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050760   (536746) от 09.09.2016
+
+Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.New Groove [06:47]
+ 02.The Awakening [04:27]
+ 03.White Lightnin' [05:23]
+ 04.Sultry Serenade [07:14](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFC2CF5AF12D01C04A8DA6141BF6ECA455AD159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050736   (536738) от 09.09.2016
+
+Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536738.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.All Through The Night [03:18]
+02.Anything Goes [03:23]
+03.Miss Otis Regrets [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D5187CA61F06360DF1A027D99D842390BDB84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1192755   (262807) от 18.12.2017
-
-Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tracks + .cue] <Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna [03:59]
-02. If... [02:58]
-03. La Passionaria [08:22]
-04. Snow [06:03](   Читать дальше...   )Жанр: Chamber JazzПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F058C93981AF01F0FA9C9DA40BF9F9B8CE5E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192658   (262755) от 18.12.2017
-
-Konstantin Klashtorni - Kool & Klean (Volume VII) (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Horizon (4:58)
-02. A Water's Cascade (5:11)
-03. Jazz Sunset (4:41)
-04. Echoes of You (3:58)(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F3A8EC3A880B978C44BC605B4B45DFA04C9FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341233   (262636) от 27.11.2019
-
-Milt Jackson - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover [7:52]
-02. Can't Help Lovin' Dat Man [4:41]
-03. The Lady Is A Tramp [7:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, CoolПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C86C4AFDA645FC5DCA6E114921C0C2EBDD7FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192998   (262536) от 19.12.2017
-
-Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopscotch [08:00]
-02. Monk's Dream [08:01]
-03. 310 Blues [08:09]
-04. Phoebe's Samba [05:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDA0F6D156620AE893444A051D16D549A0D4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192997   (262534) от 19.12.2017
 
 Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Christmas>
@@ -745,6 +629,128 @@ Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19CD718BE19123445BFF30C25B3EBB22D22723D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194089   (261818) от 23.12.2017
+
+Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Told You (4:02)
+02. Hills and Valleys (4:02)
+03. I Feel It Coming (4:39)
+04. Everywhere I Go (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Chillout |Продолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B08A95ADAAA319A1581A07E5FE5833BF6B2EE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193957   (261813) от 23.12.2017
+
+Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath [05:32]
+02. Requiem [07:09]
+03. Lamb of God [02:35]
+04. Martin Was a Man, a Real Man [04:16](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9635221558ECAA43C5004947B5486965B642001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193951   (261812) от 23.12.2017
+
+Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addio Fratello Crudele [07:19]
+02. Mio Caro Dottor Grasler [06:32]
+03. La Voglia Matta [04:47]
+04. Just Beyond The Horizon [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504467   (260758) от 03.06.2012
+
+Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Edge
+02. Mr. Cool
+03. McMinor
+04. Mind Over Matter
+05. Minor Matters
+06. Try Tone Today
+07. Terrabill Blues
+08. Nobody Yet To
+09. It Be FM
+10. Brasilia2005Жанр: Post-Bop, Fusion, Guitar JazzПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

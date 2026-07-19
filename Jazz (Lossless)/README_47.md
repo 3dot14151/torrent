@@ -1,32 +1,3 @@
-###  Публикация: 1104210   (880351) от 15.02.2017
-
-Jack Teagarden - At The Roundtable (1959) Remaster, 2016, Warner [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.South Rampart Street Parade [06:05]
- 02.St. James Infirmary [06:45]
- 03.Big Noise From Winetka [03:30]
- 04.When [03:21](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9507FE2F2F0B7D1FBBE33534F99CEE6879B7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104243   (880296) от 15.02.2017
 
 Mel Torme - Comin' Home Baby! (1962) Remaster, 1988, Atlantic [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -462,35 +433,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373488   (878525) от 07.04.2020
-
-Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] <Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_878525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor Verdadero
-02. Alto Songo
-03. Habana Del Este
-04. A Toda Cuba Le Gusta(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ECBE1C82BD0C31B2B5BC8C9D6596E0F4CBC971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104602   (878298) от 16.02.2017
 
 Don Cherry - Relativity Suite (1973) Trio Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -607,35 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374024   (876891) от 08.04.2020
-
-Al Jarreau - Accentuate The Positive (2004) [FLAC|Lossless|image + .cue] <Jazz, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_876891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Duck
-02. The Nearness Of You
-03. I'm Beginning To See The Light
-04. My Foolish Heart(   Читать дальше...   )Жанр: Jazz, Funk / SoulПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07C5BF5490048D6E040B94E56BF2F04547D6E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105398   (876745) от 17.02.2017
 
 Thad Jones & Mel Lewis - Quartet (1977) 1989, A&M Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -745,6 +658,93 @@ Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563895BCD9EB8417D27055F2225E8AA0EC55E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105027   (876739) от 17.02.2017
+
+Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pepper Returns [04:26]
+ 02.Broadway [05:01]
+ 03.You Go To My Head [04:19]
+ 04.Angel Wings [04:43](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1153B701FDC88A0B5EB12E9468D41238D5525BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105694   (876635) от 17.02.2017
+
+Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright With Me (8:59)
+02. Only The Lonely (7:21)
+03. Don't Interrupt The Sorrow (4:58)
+04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104894   (876415) от 17.02.2017
+
+Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Broken Beat, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Focus (4:34)
+02. Strings of Light (8:29)
+03. Remembrance (9:01)
+04. Yo Chavez (3:59)(   Читать дальше...   )Жанр: Experimental, Broken Beat, Acid JazzПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD6CF0D90C807A5701EBBB5035FBC204592FDD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

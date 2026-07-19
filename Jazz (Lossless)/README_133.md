@@ -1,119 +1,3 @@
-###  Публикация: 1038033   (610209) от 26.07.2016
-
-Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll (Mercer-Strayhorn-Ellington) - 6:24
-02. Mr. Bow-Tie (Carter) - 9:37
-03. My Funny Valentine (Rodgers-Hart) - 11:22
-04. Wave (Jobim) - 9:39(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00: 57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500AE6FA03E1493E6B7BFF943E3E04FC2AFC982D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147298   (609872) от 02.07.2017
-
-Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [FLAC|Lossless|image + .cue] <Hard Bop, Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigerian Walk [07:11]
-02. Toddler [04:43]
-03. Stranger [04:04]
-04. Afterfact [04:11](   Читать дальше...   )Жанр: Hard Bop, Latin Jazz, World FusionПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90C34BA845E6DBCEBD19AD63C3BD3D6EA0EBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147403   (609871) от 02.07.2017
-
-Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Back Room Romp [3:52]
-02 Sweet Lotus Blossom [5:30]
-03 One Sweet Letter from You [5:21]
-04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147450   (609870) от 02.07.2017
-
-The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guys and Dolls [06:18]
-02. If I Were a Bell [04:16]
-03. A Woman in Love [03:03]
-04. Luck Be a Lady [05:06](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF210576D930EA169D59A4E21DBE4906E84E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147466   (609869) от 02.07.2017
 
 George Masso Sextet - C'est Magnifique (2000) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -748,6 +632,128 @@ Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Po
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147695   (607724) от 03.07.2017
+
+Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat White Tie & Tails [04:14]
+02. Have You Met Miss Jones [04:42]
+03. I Only Have Eyes For You [04:17]
+04. Stormy Weather [04:20](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DD8949DF23A7A81D2A56FEF41F574C44A61768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525355   (607495) от 21.07.2012
+
+Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, Hard Bop, Vibraphone>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Mind Matter
+02. Little B's Poem
+03. Bouquet
+04. Getto Lights
+05. Patterns
+06. 'Til Then
+07. Dave's Chant
+08. Same Shame
+09. Ummh
+10. Houston St Thursday Afternoon(   Читать дальше...   )Жанр: Post-Bop, Hard Bop, VibraphoneПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913407   (607239) от 28.06.2015
+
+Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarante
+02. Blues Zen
+03. Il Canto di Sadone
+04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913410   (607235) от 28.06.2015
+
+Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude in E minor Op 28 No 4
+02. Prelude in D flat major Op 28 No 15
+03. Mazurek in F major Op 68 No 4
+04. Grande Valse Brillante Op 32 No 2(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD08ECCC260F0C2DC3A0B953EF831A10A8FB44C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

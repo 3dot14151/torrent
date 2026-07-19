@@ -1,3 +1,119 @@
+###  Публикация: 1556675   (558308) от 10.06.2022
+
+Abyss, Watching Me - Nix (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558308.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spiral
+2. Best Believe
+3. Losing
+4. Prisoner of Honor, Pt. 2(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3819DB183AAE576E5BC8F265DAD53906B66774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235581   (557370) от 13.07.2018
+
+Masfel - Moni (2001) Maxi-Single, Remix [FLAC|Lossless|tracks + .cue] <Experimental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angyaltojás - Angel's Egg
+2. Angyaltojás (remix) - Angel's Egg (remix)
+3. Szívlapát - Heart Shovel
+4. Szívlapát (remix) - Heart Shovel (remix)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B097DD7573C0A329057F3CCFFF6426D78C78FBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556694   (557177) от 11.06.2022
+
+Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exile the Filth
+2. Vacant Mind
+3. Deadweight
+4. Suffer(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EE8AB67BE91F94453368F9CBDFC2833DCBB5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556682   (557129) от 11.06.2022
+
+Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557129.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Connections
+2. The Cycle
+3. Ebb & Flow
+4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556698   (557127) от 11.06.2022
 
 Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
@@ -629,122 +745,6 @@ I See Stars - Treehouse (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronicore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A287D607866B2E8377720B6D6F7E4D81CD28DA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310260   (547864) от 23.06.2019
-
-Ducktails - Watercolors (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Answered in a Prayer (04:13)
-02. Watercolors (06:37)
-03. Deal with It (04:43)
-04. Blue Light (05:08)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5611315B15A7A8C5BE50EB45BACCB546745F2455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310287   (547863) от 23.06.2019
-
-Ducktails - The Flower Lane (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivy Covered House
-02. The Flower Lane
-03. Under Cover
-04. Timothy Shy(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCA17B267052402BC46AC3B7D86A094B47C0FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310322   (547861) от 23.06.2019
-
-Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Swing
-02. Hamilton Road
-03. Sprinter
-04. The Razor's Edge(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5553D1A81CECAF85A2941F6FC10C8D52216454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310325   (547858) от 23.06.2019
-
-Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disney Afternoon
-02. Headbanging In The Mirror
-03. Into The Sky
-04. Heaven’s Room(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5EF8FE6172DA8A0538DEDD3ADFDAF43529957D
 ```
 
 https://mybot314.ru/tekegram_catalog/

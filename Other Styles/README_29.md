@@ -1,3 +1,177 @@
+###  Публикация: 994398   (891606) от 07.03.2016
+
+Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Changes Key
+02. Final Words from a Best Man
+03. Song for Grey Skies
+04. Rainbow Moonstone(   Читать дальше...   )Жанр: Classical, New Age, PianoПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994376   (891577) от 07.03.2016
+
+Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Istanbul
+02. The Golden Horn
+03. Evening Prayer
+04. Orange Sky(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993009   (891529) от 07.03.2016
+
+Ветер Всем - Выдох (2015) [FLAC|tracks|Lossless]<Folk-Rock, Experimental Folk, Ambient Ethno>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891529.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:25] 01. Молодка
+[03:57] 02. Дороженька
+[02:42] 03. Калина
+[06:43] 04. По Морю(   Читать дальше...   )Жанр: Folk-Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993555   (891498) от 07.03.2016
+
+OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic, Break, BeatTrap>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аллилуйя
+02. На речке
+03. Все вместе
+04. Игорь(   Читать дальше...   )Жанр: Folk, Hip-Hop, Electronic, Break, BeatTrapПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102522   (890612) от 09.02.2017
+
+Paul Mauriat - Tout Pour la Musique & Roma Dalla Finestra (1982) Compilation, Remastered, 2013, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tout Pour La Musique (1982)
+01. Souvenirs (Memory) (Lloyd Webber; Eliot; Nunn) (3:33)
+02. Tout pour la Musique (Berger) (2:55)
+03. Staccato (Mauriat; Gambus) (2:48)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB60695DD88369EF16A698390B52F063C184DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994650   (889827) от 08.03.2016
+
+VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shara El Noras - Energy and Mood Booster
+02. Enrico Donner - Flower in the Desert (Original Mix)
+03. Hilmar Hajek & Andreas Seebeck
+04. Andrea Passarino & Roberto Alciati - Zed (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, New Age, InstrumentalПродолжительность: 03:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1008FB75798382675AFCBE853477B69C66DD21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868815   (889650) от 16.02.2015
 
 VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Soundtrack>
@@ -568,179 +742,6 @@ Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B87B9222695615BBDEE6030C569BA22D3A7202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494719   (885933) от 09.09.2021
-
-Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perseverance [02:33]
-02. When You Were Here [02:32]
-03. One Step Forward [02:14]
-04. The Sky Is Not Enough for Us [02:01](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E31E22C651BC5EA6309299348C5C605CB8F984A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494723   (885932) от 09.09.2021
-
-Atom Music Audio - Continuum (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargate [02:34]
-02. Light the Way [02:45]
-03. Cryogenesis [03:12]
-04. Another Wave [02:31](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73906DAB665BFB6764A3E2ACCD568C6077AB6531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494724   (885924) от 09.09.2021
-
-Atom Music Audio - Codebreaker (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Puzzle [02:02]
-02. Beautiful Mathematics [02:28]
-03. Frequency of the Heart [03:00]
-04. A New Theory [02:30](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E50A534C9841CA382344C3479F489CB9E4244E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103132   (885682) от 12.02.2017
-
-Forndom - 1 album, 1 EP (2015-2016) [MP3|320 Kbps] <Dark Folk, Dark Ambient, Nordic Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - Flykt (EP)
-2016 - Daudra DuraЖанр: Dark Folk, Dark Ambient, Nordic FolkПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4F7C6B160E9C1B5E7E09BE51980699FDB65688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371160   (885382) от 03.04.2020
-
-Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|tracks + .cue] <World, Tibetan Flute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagination (18:36)
-02. Faires (14:34)
-03. The Bliss (14:48)
-04. Maitighar (9:33)(   Читать дальше...   )Жанр: World, Tibetan FluteПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F706956393DBF179BC9B6B0EF512D5633BDD321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995521   (884612) от 11.03.2016
-
-Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Claddagh Legend
-02. Mystical Ireland
-03. The Hill of Tara
-04. Holy Drums(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9712E1C340CC6C8507F403F99E25D55F717BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

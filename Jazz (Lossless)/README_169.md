@@ -1,125 +1,3 @@
-###  Публикация: 936249   (496492) от 11.09.2015
-
-Art Blakey & The Jazz Messengers - Live In Zurich 1958 (2010) /Solar Records/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496492.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Now's the Time [13:18]
-02. The Theme [06:49]
-03. Moanin' [14:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC38499FE79E7CA1DC3616A46E931741406782D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242992   (496207) от 25.08.2018
-
-D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [3:18]
-02. Stomping At The Savoy [3:52]
-03. Latin Lovers [4:04]
-04. Overload [3:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257F7D2BB6E0435476D10B93DD2F4F75A7EE35B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243113   (496201) от 25.08.2018
-
-Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Swings the Blues (take 1) [8:39]
-02. Zoot Swings the Blues (take 2) [2:28]
-03. Trotting [3:48]
-04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542688   (496083) от 05.09.2012
-
-VA - Vocal Refrain (1993)  BoxSet 5CD[FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connee Boswell - Fare Thee, Honey, Fare Thee Well [03:08]
-02. Cab Calloway - The Jumpin' Five [02:51]
-03. Jimmy Rushing - Evenin' [02:43]
-04. The Andrews Sisters - Long Time, No See [03:21]
-05. Ethel Waters - Love Is the Thing [03:15]
-06. Fred Astaire - Let's Face the Music & Dance [02:29]
-07. Jack Teagarden & Johnny Mercer - Christmas Night in Harlem [03:25]
-08. Mary Ann McCall - Between 18th & 19th on Chestnut Street [02:57]
-09. Gene Austin - Sentimental Baby [03:32]
-10. Bunny Berigan - Mama, I Wanna Make Rhythm [02:51](   Читать дальше...   )Жанр: Jazz, VocalФормат: BoxSet 5CDПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543039   (495961) от 05.09.2012
 
 VA - Gold - Jazz Divas (2007) 2CD [FLAC|Lossless]<Jazz>
@@ -781,6 +659,140 @@ VA - The Rough Guide To Classic Jazz (1997) [FLAC|Lossless] <Jazz>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382702   (491773) от 02.09.2011
+
+VA - The Rough Guide To Manu Dibango (2004) [FLAC|Lossless] <Jazz, Makossa>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491773.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:58] 01.  Ngolowake
+[06:08] 02.  Miango Ma Tumba
+[06:08] 03.  Miss Cavacha
+[04:23] 04.  Nature Boy
+[05:14] 05.  Mi Niya
+[03:48] 06.  Oa Na Mba
+[05:13] 07.  Mouna Pola
+[06:58] 08.  Baobab Sunset
+[08:02] 09.  Super Kumba
+[05:43] 10.  Bayam Sellam(   Читать дальше...   )2004Жанр: Jazz, MakossaПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382729   (491768) от 02.09.2011
+
+VA - The Rough Guide To Gypsy Swing (2004) [FLAC|Lossless] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491768.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:12] 01. Romane Acoustic Quartet - Symphonie
+[03:44] 02. Fapy Lafertine Quintet & Tim Kliphouse - Fleur De Lavande
+[02:21] 03. Patrick Saussois & Alma Sinti - Rythmes Gitanes
+[01:23] 04. Moreno Trio - Du Dja Yal
+[04:05] 05. Biréli Lagrene Ensemble - Black Eyes
+[03:22] 06. Serge Desauny, J.Quézin, Jean-Philippe Viret - La Valse Des Niglos
+[03:22] 07. Les Primitifs du Futur - La Belle Et Le Manouche
+[02:57] 08. Guerino Et Son Orchestre Musette De La Boite A Matelots - Gallito
+[03:16] 09. Quintette Du Hot Club De France - Minor Swing
+[03:07] 10. Django Reinhardt, Quintette Du Hot Club De France - I'se A Muggin'(   Читать дальше...   )2004,Жанр: JazzПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382669   (491600) от 02.09.2011
+
+The Crusaders - Collection [3CD] (1996 - 2003) [FLAC|Lossless]<Jazz-Funk, Fusion,>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rural Renewal (5:25)
+02. Creepin' (6:57)
+03. Heartland (7:05)
+04. A Healing Coming On (7:20)
+05. Sing The Song (4:53)
+06. Shotgun House Groove (5:56)
+07. The Territory (6:15)
+08. Greasy Spoon (5:24)
+09. Viva De Funk (4:53)
+10. Lazy Sundays (5:32)(   Читать дальше...   )1996 - 2003Жанр: Jazz-Funk, Fusion,Продолжительность: 03:14:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404583   (491590) от 26.08.2020
+
+Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Mail Special [7:38]
+02. Soft Winds [6:13]
+03. It's Only A Paper Moon [6:52]
+04. The Way You Look Tonight [11:11]Жанр: Mainstream JazzПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110A91FB5B445B08A76E60F4983D9F18CA2D81FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

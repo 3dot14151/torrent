@@ -1,102 +1,3 @@
-###  Публикация: 931237   (512809) от 25.08.2015
-
-VA - Горячий музон. Тусим все вместе (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джиган & Юлия Савичева - Любить Больше Нечем
-02. Таша Фролова - Давай Взлетим Так Высоко
-03. Виктория Ланевская - Обнимай
-04. Charli Xcx - Breaking Up(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA4D8758F17E627B8FAC595DEF2DD02F1C2D248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375813   (512305) от 15.08.2011
-
-VA - Дискотека То, что надо ! (2011) [MP3|256 kbps]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлия Савичева - Сердцебиение
-02. Зара - Амели
-03. Enrique Iglesias with Usher feat. Lil Wayne - Dirty Dancer
-04. Dns Project Feat. Johanna - Mindful
-05. Джиган (Geegun) и Юлия Савичева - Отпусти (Yan Belli Mix)
-06. Maxima - За Сонцем
-07. Dan Balan - Freedom
-08. Ева - Не Жена
-09. Инфинити - Не Молчи
-10. Kola Project - Пусть Каждый Услышит (Extended Mix)(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 06:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B3CDD5E1F1C0AD9DC61AF0A49929138C74739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375756   (512300) от 15.08.2011
-
-VA - XXXL Полный нокаут! 5 50/50 (2011) [MP3|256-320 kbps]<Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512300.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 DBN pres. Tom Shark feat. Shena - Le Freak (Original Mix)
-002 Dj Amor & Dj Vitalio & Катя Ирис - Summer Miracle (Saint Killer Remix)
-003 TyDi - Sex, Lies & Still Obvious
-004 DJ Slon & Katya - Я Не Дам (DJ Dima Love Remix)
-005 Alcazar feat. Dream Beats - Feel 4 You (Afm Remix Short)
-006 Оксана Почепа и 140 Ударов В Минуту - Гол! Это Наш Футбол (Raduga Remix)
-007 Arsenie - Bang Bang (Dj Miv Electro Full Remix)
-008 Вельвет - Нанолюбовь (LaTrack Poppi Radio Mix 2011)
-009 Infernal - From Paris To Berlin (Vova Baggage & Kirillich Remix Radio)
-011 Сплин - Гандбол (Dj Timur Kastrov Radio Remix)(   Читать дальше...   )2011Жанр: ClubПродолжительность: 07:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3A209E014372282D808A21998A11693A26C236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 375820   (512268) от 15.08.2011
 
 VA - Русская ДискотЭка Арлекина Часть 4 (2011) [MP3|256 kbps]<Pop, Dance>
@@ -824,6 +725,105 @@ VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541473   (501318) от 31.08.2012
+
+VA - Радио Новинки Проверенные Качеством 50/50 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элина - Ты Не Мой (Версия 2012)
+02. Pusha T &amp; Kanye West - New God Flow
+03. 3XL PRO - В Объятья Лета
+04. DJ Caren feat. Violet - I Say (La La La) (Radio Edit)
+05. Maga X feat. MiKKi - Этим Летом
+06. Emin - I Should've Known Better
+07. Алексей Матиас - Горянка
+08. Eric feat. K-Brown - Amor (Radio Edit)
+09. Дмитрий Нестеров - Беспосадочный Перелет
+10. Eva - Get Away (French Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAA9009799EA1A4B5A8E421BF281558CACCFCE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541460   (501306) от 31.08.2012
+
+VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жанна Фриске - Навсегда
+002. Анна Семенович - Июльское Лето
+003. Artik pres. Asti - Облака
+004. Paradox Factory - Te Quiero (Русская Версия)
+005. Анна Седокова - Что Я Наделала
+006. All Давай feat. DJ Ihlas - Москва-Дубай
+007. Катя Баженова - Все О Чем Мечтаю
+008. Отпетые Мошенники - Руссо Туристо
+009. Ева Польна - Весь Мир На Ладони
+010. Parfenov &amp; Balkov - Вселенная моя (City Zen 80's old school mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85981C9A7F4AB2BABC7B5FBFA682DBFB8EB9B63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564389   (500587) от 18.07.2022
+
+Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Waiting For?
+02. Silver Spoon
+03. Absolutely Nothing
+04. Friday Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
 ```
 
 https://mybot314.ru/tekegram_catalog/

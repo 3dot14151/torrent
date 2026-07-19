@@ -1,32 +1,3 @@
-###  Публикация: 1424245   (229106) от 16.11.2020
-
-db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromosome (12:11)
- 02. Hypnagogia (05:33)
- 03. Pareidolia (09:33)
- 04. Flote (08:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A30F347A38D8FA9D87716D90D382DF1F99AEF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649750   (228347) от 29.07.2023
 
 Eguana - Night Ambient Vol​.​2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -734,6 +705,35 @@ The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3D991F7C7036A0AD0231CC38024E36BEBE5652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344008   (214951) от 08.12.2019
+
+Aksemetrix - Aqua Perception (2018) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Perception (03:58)
+ 02. Star Shepherd (04:16)
+ 03. Slow Motion (02:34)
+ 04. Light In The Sky (03:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2820FACA62E8875EB56D7134B0B1D65C20870F
 ```
 
 https://mybot314.ru/tekegram_catalog/

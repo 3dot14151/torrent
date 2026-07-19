@@ -1,3 +1,90 @@
+###  Публикация: 1351933   (1001650) от 12.01.2020
+
+Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - True [5:02]
+ 2 - Let Them Rest in Peace [4:31]
+ 3 - Chasing the Twilight Zone [4:30]
+ 4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C1728A7F6CED264296A8F13F729CA0EC387213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351899   (1001639) от 12.01.2020
+
+Brothers of Metal - Emblas Saga (2020) [MP3|320 Kbps] <Folk Metal, Viking Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Brood of the Trickster [1:56]
+ 2 - Powersnake [3:44]
+ 3 - Hel [4:40]
+ 4 - Chain Breaker [3:53](   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Power MetalПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89113AADF7A1E74E862EF0A416D5E02396FCE887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488869   (1001463) от 13.08.2021
+
+Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие трэш-метал ветераны Destruction выпустили свой новый концертный Blu-ray и CD "Live Attack" 13 августа этого года на лейбле Napalm Records. Он стал следующим релизом после "Born To Perish", напоминая о почти двухчасовой трэш-атаке в прямом эфире, которую группа устроила в январе этого года.CD - 1:
+ 01. Born to Perish (Live) (06:36)
+ 02. Death Trap (Live) (05:54)
+ 03. Nailed to the Cross (Live) (03:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488771   (1001417) от 13.08.2021
 
 Sepultura - Sepulquarta (2021) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
@@ -750,105 +837,6 @@ Infant Annihilator - The Palpable Leprosy of Pollution (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1DA7862BC9026B72665E75B6B00133DE14A671B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608748   (992818) от 26.01.2013
-
-Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	 Unbreakable	(04:37)
-02.	 Falling Star	(04:31)
-03.	 The Game Never Ends	(03:48)
-04.	 Freedom	(05:03)(   Читать дальше...   )Жанр: Melodic Power Metal |Продолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9D8E25B195D267A1E03E5F2C08837792B5541E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609174   (992370) от 27.01.2013
-
-Emergency Gate - You (2013) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992370.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mindfuck
- 2. Force United
- 3. Moshpit
- 4. Feeling Inside
- 5. Liar's Truth
- 6. Breathless
- 7. Revolution
- 8. You
- 9. Lean on Words
- 10. Regret(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66927673D44D0434712674EA858AA7803419CEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605298   (990953) от 28.01.2013
-
-Helloween - Straight Out Of Hell (Japanese Limited Edition) (2013) [MP3|320 kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nabataea (07:03)
-02. World Of War (04:58)
-03. Live Now! (03:11)
-04. Far From The Stars (04:44)
-05. Burning Sun (05:35)
-06. Waiting For The Thunder (03:55)
-07. Hold Me In Your Arms (05:12)
-08. Wanna Be God (02:02)
-09. Straight Out Of Hell (04:35)
-10. Asshole (04:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC7C707D685722E9E047A3D32C734B4641FEF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

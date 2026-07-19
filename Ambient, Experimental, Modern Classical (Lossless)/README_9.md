@@ -1,32 +1,3 @@
-###  Публикация: 999662   (705206) от 06.03.2019
-
-Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Shades (08:01)
- 02. Outside Is Light (07:42)
- 03. Vocation In Motion (07:02)
- 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220792   (700651) от 21.04.2018
 
 Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (2012) Ghostly International [FLAC|Lossless|tracks+.cue] <Ambient>
@@ -744,6 +715,35 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC640FCFC0CB7D94374A9B4F16DFA3C8C52C43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293219   (639195) от 02.04.2019
+
+Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Room (12:30)
+ 02. Rainfall (12:00)
+ 03. Agora (12:09)
+ 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
 ```
 
 https://mybot314.ru/tekegram_catalog/

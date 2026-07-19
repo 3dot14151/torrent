@@ -1,32 +1,3 @@
-###  Публикация: 1257954   (341065) от 28.10.2018
-
-VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momento - Forever (Short Remix)
-02. Naomi - Domani (Tomorrow) (Short Mix)
-03. Solitario - Leave Me Alone (Short Fly Mix)
-04. Momento - Never Too Late (Short Remix)(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180364   (340278) от 04.11.2017
 
 VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
@@ -744,6 +715,41 @@ Carol Jiani - Hit 'N Run Lover (1994) CD, Compilation [MP3|320 Kbps] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FEFADC49853FA14161A9FED49CC06B3D5429F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581628   (322079) от 28.11.2012
+
+Syndicate - The Best Disco 80 (1980) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Billy Ocean - Stay the night
+02  La Flavour – Mandalay
+03  Lipps Inc. - Funky Town
+04  Ottawan - Youre O.K
+05  Roberta Kelly - Kabaka Shaka
+06  Massara – Margherita
+07  Spargo - You and Me
+08  T.H.P. - Good to Me
+09  Gilla - Tom Cat
+10  Gepy and Gepy - Body to Body(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD89CF6FDCC0480FD5B6CF6C120B3821F7AC3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

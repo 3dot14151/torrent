@@ -1,3 +1,32 @@
+###  Публикация: 1458201   (235697) от 28.03.2021
+
+Meri D. - Follow Me (1985) CD [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me (4:03)
+02. We Stand Alone (3:34)
+03. Tried To Be A Man (4:26)
+04. Haunt You (4:20)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DAFB9AF5194C5EDDA02F9BEA88CD13AD9BCCCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642739   (235144) от 29.06.2023
 
 VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
@@ -737,35 +766,6 @@ VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:311851DD068CE8AE5E0711454752D6AA59A19480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584138   (226477) от 17.10.2022
-
-Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Love Is King
-02. Hang On To Your Love
-03. Smooth Operator
-04. Jezebel(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

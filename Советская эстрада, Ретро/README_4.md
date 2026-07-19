@@ -1,3 +1,37 @@
+###  Публикация: 583331   (312666) от 02.12.2012
+
+Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch My Soul (To Sai Baba) 7:31
+02. Avedana (Instrumental) 4:20
+03. Life Will Go On 4:12
+04. He Came From Space 4:29
+05. And At The End Of Every Street 4:02
+06. Children Of Our Time 4:15
+07. And One Day 5:05
+08. Closer To Heaven 5:13
+09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582527   (312448) от 02.12.2012
 
 VA-Александра Пахмутова - любимые песни (1975) [MP3|320 кб/с]<Retro>
@@ -729,35 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:974F3230A4C16A88889BDEDBAD3A6C48C1D84EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617775   (201614) от 08.03.2023
-
-VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олег Кацура - Большая медведица
-02. виа Лейся, песня! - Где же ты была
-03. виа Самоцветы - Чернобровая дивчина
-04. виа Лейся, песня! - Песенка про сапожника(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAE44DE0324A4AF72146FFB5F60A9013409B163
 ```
 
 https://mybot314.ru/tekegram_catalog/

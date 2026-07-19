@@ -1,32 +1,3 @@
-###  Публикация: 1139696   (658216) от 04.06.2017
-
-Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbps] <Rock, Psychedelic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Together
-02. I Don't Beleive
-03. Tell Him No
-04. Who Do You Love(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4615EA7B0B1ABF5307166CD80F340E5DBCB216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139847   (658212) от 04.06.2017
 
 The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
@@ -753,6 +724,35 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905090   (651931) от 05.06.2015
+
+The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Number One (3:11)
+2. Blacked Out Windows (2:28)
+3. Keys to the Kingdom (3:41)
+4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

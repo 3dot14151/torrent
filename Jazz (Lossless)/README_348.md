@@ -1,119 +1,3 @@
-###  Публикация: 1777264   (71065) от 05.02.2025
-
-Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down and Dirty [3:29]
-02. Alone Together [3:50]
-03. Criss Cross [5:46]
-04. Gone with the Wind [5:24](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A44D7A3F26BADC20265B88D72559AD9DBF39737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777267   (71064) от 05.02.2025
-
-Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990) DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Road [7:21]
-02. Japanese Dream [11:40]
-03. I Mean You [6:03]
-04. For My Nephews [8:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7920612BFBDBD29C53B6B7C120CC740CAD64400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777265   (71063) от 05.02.2025
-
-Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Idrees [8:43]
-02. U.A.I. (You Are Invited) [15:39]
-03. These Foolish Things [5:17]
-04. A Theme for Ahmad [10:04](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C70F77B10C8EFC1ACE4486D059595BBFFD37E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777270   (71062) от 05.02.2025
-
-Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Day Sucker [6:55]
-02. Tommy Medley [12:29]
-03. On Broadway [3:54]
-04. Pieces of Dreams [4:36](   Читать дальше...   )Жанр: Jazz-Funk, Big BandПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777455   (70993) от 06.02.2025
 
 Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -745,6 +629,120 @@ VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101B88AE5C28BC55533EDA61C05C33E5DF6F8A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778957   (70773) от 10.02.2025
+
+VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - Colour (Remix) (5:47)
+02.  Dj Ebreo - Boliban (5:19)
+03.  Belladonna - Tangent (4:05)
+04.  Bantukemistry - Zoma (3:49)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C402DE95F964CA677AB9BD678A436449BE9E5CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778975   (70771) от 10.02.2025
+
+VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Papik, The Soultrend Orchestra & Anna Fondi - Summer Madness (5:01)
+02.  Montefroid - The Way You DoЖанр: Smooth JazzПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778981   (70770) от 10.02.2025
+
+VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Curtis Mayfield - Move On Up (2:46)
+02.  The Spinners - Working My Way Back to You (4:03)
+03.  CHIC - Good Times (8:15)
+04.  George Benson - Give Me the Night (3:43)(   Читать дальше...   )Жанр: Jazz, Soul, R&B, FunkПродолжительность: 03:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778876   (70765) от 10.02.2025
+
+Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Around [4:55]
+02. Pusherman/Superfly [7:16]
+03. Wichita Lineman [6:04]
+04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1404945   (489757) от 27.08.2020
+
+Callejon - Metropolis (2020) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis [00:04:43]
+02. Gottficker [00:03:53]
+03. Blut [00:04:17]
+04. Die Krähe mit dem Schädelbauch [00:04:27](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A112743DB1FB6DE0AF09B9C6106FB40F8E79CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404982   (489741) от 27.08.2020
+
+Crafting the Conspiracy - The Cosmic Key, Pt. II (2020) [MP3|320 Kbps] <Deathcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (feat. Berry) (2:12)
+02. Autonomy of Ascension (feat. Michael Alvarez & Jamie Hanks) (3:47)
+03. Serenisis (3:43)
+04. Equilibrium (Earthbound II) (feat. Christina Rotondo) (4:29)(   Читать дальше...   )Жанр: Deathcore, Melodic Death MetalПродолжительность: 00:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0FCE870127AA9E94D42FAC5B1D15F40EE33E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404864   (489405) от 27.08.2020
 
 Seether - Si Vis Pacem, Para Bellum (2020) [MP3|320 Kbps] <Post-Grunge>
@@ -695,70 +753,6 @@ Yellowcard - десятый и последний студийный альбо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6091799F934AEDF411578C2982253C8AAB7CA4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940094   (471324) от 23.09.2015
-
-Modern Day Babylon - The Ocean Atlas (2015) EP [MP3|320 кб/с]<Progressive Metal, Djent, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wings (3:23)
-02. Water drops (feat.Plini) (4:21)
-03. Illusion (3:41)
-04. Falls (3:44)(   Читать дальше...   )Жанр: Progressive Metal, Djent, InstrumentalПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FF005A2A31F3F724FDADE70247836677A46BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548155   (469750) от 17.09.2012
-
-Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Suck At Love (03:11)
-02. Can’t Keep My Hands Off You (Feat. Rivers Cuomo) (03:20)
-03. Jet Lag (Feat. Natasha Bedingfield) (03:23)
-04. Astronaut (Feat. Jim Irvin & Julian Emery) (03:40)
-05. Loser Of The Year (Feat. Claude Kelly) (03:26)
-06. Anywhere Else But Here (03:43)
-07. Freaking Me Out (Feat. Alex Gaskarth) (03:06)
-08. Summer Paradise (Feat. K’naan) (03:55)
-09. Gone Too Soon (03:15)
-10. Last One Standing (03:27)(   Читать дальше...   )Жанр: Pop-Punk / Punk RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B7723474B2801E669106B24948D39228624862
 ```
 
 https://mybot314.ru/tekegram_catalog/

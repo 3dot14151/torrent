@@ -1,32 +1,3 @@
-###  Публикация: 1253030   (387697) от 07.10.2018
-
-Robert Parker - End of the Night (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of the Night (feat. Doubleboy) (3:56)
- 02. Rock n Roll (3:58)
- 03. Make Love (feat. Miss K) (5:10)
- 04. Maximum Strength (4:29)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BABF8978F0FF84FF7BA8254A82EF2903ECE4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253048   (387613) от 07.10.2018
 
 Neon Nox - Syndicate Shadow (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
@@ -751,6 +722,35 @@ Beborn Beton - A Worthy Compensation (2015) [FLAC|image+.cue]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E429C245FE0FA22C04C79137C45AD72C75CB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417263   (360579) от 19.10.2020
+
+Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
+02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
+03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
+04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

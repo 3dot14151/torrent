@@ -1,32 +1,3 @@
-###  Публикация: 1505717   (802940) от 28.10.2021
-
-Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Of Death And The Holy Rose (4:05)
-02. Sin In Me (7:09)
-03. Jetpack (6:27)
-04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120662   (802007) от 31.03.2017
 
 Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electronic>
@@ -746,6 +717,35 @@ Debbie Tebbs - Chrome (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92581903EAAE2E75E4E48E0FBC507E26A24F6DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210710   (778514) от 04.03.2018
+
+HollySiz - Rather Than Talking (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unlimited (02:51)
+02. Rather Than Talking (04:16)
+03. Karma (02:46)
+04. Love is a Temple (03:24)(   Читать дальше...   )Жанр: Indie Pop, Synth-PopПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD84A1ACA596CAE119BE1D17E4BDFA6E0A3F353
 ```
 
 https://mybot314.ru/tekegram_catalog/

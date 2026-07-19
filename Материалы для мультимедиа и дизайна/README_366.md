@@ -1,22 +1,23 @@
-###  Публикация: 1787331   (68776) от 25.03.2025
+###  Публикация: 1785450   (69265) от 16.03.2025
 
-Растровый клипарт - Dealjumbo.com - Deeezy - Wooden Deco Wall - Free 3D Alphabet - 96825 [PNG]
+Шрифты - Oleh Lishchuk - Behance - Geraldton typeface - 91865391 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный алфавит-латиница в нескольких вариациях.Формат: PNGРазрешение файлов: 3000 x 3000
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
+magnet:?xt=urn:btih:E200F314A0302289157F69B737B797AAFD583DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787424   (68774) от 25.03.2025
+###  Публикация: 1785448   (69263) от 16.03.2025
 
-Шрифты - Font Brothers - Fondamento Pro [OTF, TTF]
+Шрифты - Oleh Lishchuk - Behance - Vin Slab Pro - 65431501 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fondamento и Fondamento Italic — это каллиграфические стили письма, основанные на традиционном Foundational Hand, базовом стиле обучения, созданном Эдвардом Джонстоном в начале 20-го века.
-
-Кириллица не поддерживается.Формат: OTF, TTF
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:396A2EC6CA6DDBE18DFD5227FFDB364DC193678A
+magnet:?xt=urn:btih:DC0EDA60700241C9FF5B3E74BCA7763B09D62B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,27 +52,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787362   (68773) от 25.03.2025
+###  Публикация: 1785451   (69258) от 16.03.2025
 
-Шрифты - MyFonts - PODIUM Sharp [OTF]
+Шрифты - Oleh Lishchuk - Behance - Spaceland typeface - 87146835 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PODIUM Sharp — это расширенная версия шрифта DUDU, разработанная в 2012 году. После многих лет я решил перестроить и развить этот шрифт, добавив новые основные и насыщенные начертания. Наконец, PODIUM Sharp состоит из 234 стилей: от ультрасжатого волосяного до экстрарасширенного тяжелого.
+Шрифт c кириллицей 22 стиля.
+Разработчик: Oleh LishchukФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785446   (69257) от 16.03.2025
+
+Шрифты - Oleh Lishchuk - Behance - Vin Mono Pro - 65431645 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822F83D02AA596331A52021666F74CF3FFE5E003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785453   (69256) от 16.03.2025
+
+Шрифты - Oleh Lishchuk - Behance - Mantonico typeface - 94624233 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D4456D81395FBB3B8C719B4353DBF740808104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785484   (69247) от 16.03.2025
+
+Шрифты - Ditatype - Alderlite [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alderlite — элегантный шрифт-кисть. С классическим стилем он создает красивый и шикарный шрифт.
 
 Кириллица не поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A3003B601789B9A3236BA11352E2565389843D1
+magnet:?xt=urn:btih:3DF165243A349756516DACD05429C7E87DCF4119
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,251 +161,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787591   (68764) от 26.03.2025
+###  Публикация: 1785602   (69246) от 16.03.2025
 
-Шрифты - MyFonts - Fliper [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fliper — это дружелюбный шрифт без засечек, который одновременно имеет геометрическое ядро ​​и гуманистические детали.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3970591C09B0B4E41F984B4E97EBD7176FDA956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787584   (68761) от 26.03.2025
-
-Шрифты - MyFonts - Mosir [OTF, TTF]
+Шрифты - Creative Market - Rustlime Brush Font - 290846451 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейство шрифтов отличается модульным дизайном с закругленными деталями, которые выглядят либо полностью современными, либо полностью старомодными, в зависимости от компании.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666DB9830C6206D3F734BD4480BA98C7B3936275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787579   (68743) от 26.03.2025
-
-Шрифты - MyFonts - Realise Slab [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Realise Slab — семейство шрифтов с засечками, которое по духу относится к эстетике шотландского модерна в решительно современной и брутальной форме. Острые детали встречаются с высокой контрастностью и экспериментальными деталями в миниатюре.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787560   (68741) от 26.03.2025
-
-Шрифты - MyFonts - Minati [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт является очень гибким выбором и может использоваться в различных дизайнерских контекстах.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787630   (68736) от 26.03.2025
-
-Шрифты - MyFonts - Mathieu Sans [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mathieu вдохновлялся пропорциями, текстурой и элегантностью шрифтов эпохи Возрождения, а также работами голландских типографов, в которых я всегда ценил баланс между традиционным подходом и экспериментом.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C11A39D975A9C7E6A97F548FFF9FD69F8D8FF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787566   (68734) от 26.03.2025
-
-Шрифты - MyFonts - Adhd Sans [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adhd Sans — это визуальный эксперимент, который исследует возможности вариативных шрифтов и динамической сетки, вдохновленный исследованиями Армина Хоффмана. Вся семья основана на 4 совместимых мастерах, с геометрическим и модульным шрифтом в качестве их основы.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA51E54C24ED45D2D28F0C9AFD290ED39C58B12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787643   (68733) от 26.03.2025
-
-Шрифты - MyFonts - Magiore VF [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magiore — шрифт без засечек с дружелюбным характером и явно итальянским происхождением.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4136FA0E19F3F298F3E91BB5BA91FE14A9A0123C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787703   (68732) от 26.03.2025
-
-Шрифты - Creative Market - Gemuf - Branding Logo Font - 286251785 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Gemuf Font предлагает прекрасную типографическую гармонию для разнообразных дизайн-проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408D9B6039614DC4EF51481E2D69B00272162474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787696   (68731) от 26.03.2025
-
-Шрифты - Creative Market - Kotaru - 3 Modern Japanese Font - 290922668 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Kotaru, современный шрифт в японском стиле, который сочетает в себе гладкий современный дизайн с традиционной японской эстетикой.
+Rustlime Brush — смелый и энергичный шрифт-кисть, который добавит вашим дизайнам сырой, художественный вид.
 
 Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
+magnet:?xt=urn:btih:B08A85EFA9BF944F9E841EBEFDF35F5C2DC32C15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,79 +189,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787807   (68703) от 27.03.2025
+###  Публикация: 1785476   (69229) от 16.03.2025
 
-Пресеты - REFINED Co - KT Merry [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта эксклюзивная линейка пресетов привносит ее классическую, живописную эстетику в ваши фотографии. Разработанные специально для гибридных фотографов, эти 14 тщательно созданных пресетов усиливают вневременную красоту как цифровой, так и пленочной работы.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EED2189A317FF0FBCA069A3A8F8F0A8493138D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787777   (68702) от 27.03.2025
-
-Пресеты - The Portrait Masters - Love Color Collection - Vol I, Vol II, Vol III, B&W [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная коллекция содержит все цветные пресеты Love в томах I, II и III (всего 66), а также полный пакет Love B&W (10), что в общей сложности составляет 76 пресетов, разработанных для портретной и свадебной фотографии.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1689DB989D4F41C24A580BA2A88F35C17D7C02B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787853   (68692) от 27.03.2025
-
-Шрифты - Creative Market - Tomato Drunk - Groovy Round Retro - 290924307 [OTF, TTF]
+Шрифты - Creative Market - Heritage Angles - 290913390 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tomato Drunk — смелый ретро-шрифт с засечками с закругленными краями, игривым очарованием и заводным стилем.
+Heritage Angles — это округлые шрифты без засечек с очаровательной альтернативной аркой.
 
 Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD09A1015133DA3F8F8359EF23229598E98F44F
+magnet:?xt=urn:btih:047601BD7F04D76714CEA22D43F2AA8E9014DB45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,27 +217,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787804   (68691) от 27.03.2025
+###  Публикация: 1785598   (69226) от 16.03.2025
 
-Шрифты - Creative Market - Inline Heritage - Art Deco Font - 290914001 [OTF, TTF]
+Шрифты - Creative Market - Trapix - A Unique Pixel-Style Serif - 290890009 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шагните в золотую эру дизайна с Inline Heritage, роскошным шрифтом в стиле ар-деко, который сочетает в себе элегантность, геометрию и винтажное очарование.
+Trapix — это шрифт с засечками с уникальным пиксельным характером.
 
 Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75D5E9A03091A945171D0B9810578E7A53307E7A
+magnet:?xt=urn:btih:C93E9F8D7C6D8E98546C7FF69A62B9BD268F6EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,27 +245,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787776   (68690) от 27.03.2025
+###  Публикация: 1785550   (69225) от 16.03.2025
 
-Шрифты - Creative Market - Artlab - Variable Sans Serif - 290923743 [OTF, TTF]
+Шрифты - Creative Market - CS Violeta 3D - 290819910 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем новый фирменный шрифт Artlab — это современный вариативный шрифт без засечек, известный своим чистым и визуально привлекательным дизайном.
+Классический шрифт без засечек с ретро-вдохновением 90-х CS Violeta 3D — смелый классический шрифт без засечек, который передает энергию и стиль 90-х, привнося ностальгическую, но современную нотку в ваши проекты.
 
 Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A515D91B81398188DD6C7BD84900B4CAB45E62FE
+magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,55 +273,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787808   (68688) от 27.03.2025
+###  Публикация: 1785545   (69215) от 16.03.2025
 
-Шрифты - Creative Market - Archine Eamore | Fancy Classic Serif - 290922277 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archine Eamore | Fancy Classic Serif от Denustudios интересный шрифт подходящий для любых проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B27A86D42B5F910412941642870FF274BB71817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787779   (68686) от 27.03.2025
-
-Шрифты - Creative Market - Gatsby Gilmour - Art Deco Font - 290806347 [OTF, TTF, WOFF, WOFF2]
+Шрифты - Creative Market - Coretan Komedi Fun Brush Comic Font - 290848899 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Gatsby Gilmour — изысканный шрифт в стиле ар-деко, воплощающий в себе вневременной гламур и смелую эстетику 1920-х годов.
+Coretan Komedi — игривый и смелый шрифт-кисть, который идеально подходит для добавления юмора и энергии в ваши проекты.
 
 Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:159329F6184D82939A64774864462E0C7DD8E092
+magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,27 +301,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787945   (68676) от 28.03.2025
+###  Публикация: 1785760   (69205) от 17.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Xarrovv [TTF, OTF, WOFF2]
+Шрифты - Patrick Griffin - MyFonts - Marvin [TTF, WOFF, WOFF2, EOT]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: TTF, OTF, WOFF2
+Шрифт c кириллицей.
+Разработчик: Patrick GriffinФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76BBF91DFAC54C69955A61850DDCB4BC9B05D6C3
+magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,28 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787937   (68674) от 28.03.2025
+###  Публикация: 1785805   (69204) от 17.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - DiTulum [OTF, WOFF, WOFF2]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Крыжовник - 115156561 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
 
-В добавленных файлах "DiTulum3 By He Rez AD" от "He Rez AD" расширена кириллица - добавлена Украинская и Молдавская, им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE3506F375C0492CD952D4D213F193F64C99389
+magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,25 +357,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788039   (68673) от 28.03.2025
+###  Публикация: 1785808   (69203) от 17.03.2025
 
-Пресеты - KB Presets: Like Yesterday Collection [XMP]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Брусника - 98633367 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785731   (69201) от 17.03.2025
+
+Пресеты - G-Presets - Photobug Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 цветных и 4 черно-белых пресетов, начиная от мягкой, чистой основы для фотографий в помещении и заканчивая матовым 35-миллиметровым видом и мечтательным финишем с теплыми полутонами, идеально подходящим для золотого часа. Также есть 3 предустановки, предназначенные для имитации Polaroid для забавного редактирования, когда вы забываете взять с собой Instax!Формат: XMP
+Это сотрудничество с Photobug представляло собой уникальную задачу: как создать одинаково универсальные пресеты для сообщества художников, которые разделяют среду, но сильно различаются по стилю и методу. Непростая задача, скажу я вам. Поэтому мы собрали наши лучшие идеи и переработали их в великолепную коллекцию пресетов, которые закреплены в чистой и вневременной (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
+magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787949   (68671) от 28.03.2025
+###  Публикация: 1785806   (69200) от 17.03.2025
 
-Шрифты - Maxim Raikov - Behance - VLASHU Free Font - 112107257 [TTF, OTF]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Клюква - 145290893 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Maxim Raikov
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
 
-Материал раздается с официальной документацией.Формат: TTF, OTF
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490AA3D016D04F7A47DEAA7D01086C3D683A2431
+magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,27 +441,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787948   (68664) от 28.03.2025
+###  Публикация: 1785809   (69197) от 17.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Mescalito [OTF, WOFF2]
+Шрифты - Ivan Lisichkin - Behance - Font Stoneberry - 221080219 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: OTF, WOFF2
+Бесплатный шрифт - Костяника с кириллицей для персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A0434C1F4B4F759F23D4105D2344C05F01E9325
+magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,26 +470,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787941   (68654) от 28.03.2025
+###  Публикация: 1785775   (69191) от 17.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Wimzik [OTF]
+Шрифты - Creative Market - Belitha - Script Handwritten - 290852197 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri ZdorovФормат: OTF
+Belitha — очаровательный рукописный шрифт, который излучает элегантность и теплоту своими плавными, естественными штрихами. Каждый символ тщательно разработан для создания плавного и связного стиля, что делает его идеальным для создания сложных и личных дизайнов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B02085B4DF752365802A437C5BA532CCAB084C
+magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,26 +498,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787944   (68650) от 28.03.2025
+###  Публикация: 1785738   (69182) от 17.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - HG2G [OTF]
+Шрифты - Andriy Dykun - MyFonts - Asterlight [TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri ZdorovФормат: OTF
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5D24E6FC2009DC724E93ACFA56D16CFA2F7F081
+magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785746   (69180) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Voguer Sans [ TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785754   (69179) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Gunhill [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785696   (69170) от 17.03.2025
+
+Шрифты - Creative Market - Rodiks Collor - Display Font - 290887832 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Rodiks Collor, классный и элегантный дисплейный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785705   (69163) от 17.03.2025
+
+Шрифты - Envato - Dandy Jokes - Fuente Sans Serif para comics de dibujos animados - 5HWRYYU [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Dandy Jokes был выпущен для тех из вас, кто ищет ретро-хипстерский шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C391CB350BD886C34F8400E64ED7FFD884FB7D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785636   (69162) от 17.03.2025
+
+Шрифты - Creative Market - Cavero - Vintage Heavy Logo Font - 290893690 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cavero — смелый и яркий современный ретро-шрифт без засечек, который идеально балансирует контраст между толстыми и тонкими штрихами.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A4EFC0F3291AEF051EF9840A7B016EABFFAE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785811   (69158) от 17.03.2025
+
+Шрифты - Creative Market - Dizzy Font - 282733182 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселый, беззаботный и причудливый дизайн. Общий эффект — дружелюбие и доступность, что делает его идеальным для проектов, ориентированных на детей, неформальных обстановок или всего, что призвано вызывать чувство радости и веселья.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C64CBF984E03355F1238CAE633DC8D6B102364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785734   (69156) от 17.03.2025
+
+Шрифты - Creative Market - CS Wilona Drawn - 290798539 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это современный шрифт с засечками, который может похвастаться минималистскими буквенными формами с чистыми, острыми краями. Этот гладкий дизайн передает ощущение изысканности и эстетической привлекательности, что делает его идеальным выбором для высококлассных и профессиональных проектов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C071C015D98D938B155D00E80BAA0C2D407213B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

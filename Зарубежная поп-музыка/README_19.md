@@ -1,3 +1,32 @@
+###  Публикация: 1204000   (785422) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
+02. Deep In The Dark 3:51
+03. Close Enough 3:42
+04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204014   (785421) от 04.02.2018
 
 Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
@@ -713,35 +742,6 @@ VA - 100 Greatest 60s: Golden Oldies From The Sixtie (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9C698A853AE59792799C7B0F482D0CF63EE7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206079   (782961) от 12.02.2018
-
-Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Singing This Song For You (3:12)
-02. Ne Me Regarde Pas (4:11)
-03. If (3:36)
-04. Tu Sais Je T'Aime (You Know I Love You) (3:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

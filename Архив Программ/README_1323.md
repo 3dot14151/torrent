@@ -1,3 +1,29 @@
+###  Публикация: 1575482   (376930) от 09.09.2022
+
+EZ CD Audio Converter 10.2.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376930.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A1445BDCD68998D28CE7BC1A5CB0FB3A9AA99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253988   (376928) от 12.10.2018
 
 NVIDIA GeForce Desktop 416.34 WHQL + For Notebooks [Multi/Ru]
@@ -646,32 +672,6 @@ Icecream Video Editor - простая и бесплатная программ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1D23B916BAA93A571A3DD738A2DE5951B5905F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415649   (376546) от 12.10.2020
-
-Icecream Slideshow Maker PRO 4.04 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе Ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DE6E43E657CDC26423A1FE46BC7A87B8F26523
 ```
 
 https://mybot314.ru/tekegram_catalog/

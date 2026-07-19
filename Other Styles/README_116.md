@@ -1,3 +1,177 @@
+###  Публикация: 944948   (438318) от 08.10.2015
+
+Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Spirit Invocation [00:18:10]
+02. Riding the Storm [00:10:32]
+03. The Shaman's Gift [00:10:10]
+04. River Song [00:10:43]Жанр: New Age, World, MeditativeПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323308   (437870) от 03.09.2019
+
+David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437870.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Always
+  2. I Remember You
+  3. Paris Rain
+  4. Night Sky of Orion (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707538   (437591) от 05.10.2013
+
+Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Native american>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437591.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:52) 01. Closer To You
+(6:01) 02. All Good Medicine
+(3:48) 03. Allaluia
+(3:50) 04. Mojava Morning(   Читать дальше...   )Жанр: Instrumental, New age, Native americanПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396399   (437174) от 03.09.2019
+
+Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] <Instrumental | Easy Listening>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернер Беккер (таково настоящее имя Энтони Вентуры) родился в Германии 4 декабря 1943 года. Музыка всегда была его главным увлечением, и тогда, когда он был учеником наборщика в типографии, и позднее, когда он стал работать художником-оформителем. В 1965 году он бросает все занятия и начинает карьеру музыканта. Долгое время Вернер выступал с различными ансамблями (   Читать дальше...   )01. Ne me quitte pas (3:32)
+02. La mer (2:18)
+03. Je l'aime a mourir - Les feuilles mortes (5:05)
+04. J'ai oublie de vivre - La maladie d'amour (5:29)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, Hammond OrganФормат: FLAC (image + cue)Продолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767C8424EBE3154DECCC8FB7F55B004C9BCF949C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062942   (436935) от 15.10.2016
+
+Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maybe Pain Can Save Us (03:03)
+02. Cerca Trova (03:18)
+03. I'm Feeling A Tad Vulnerable (02:09)
+04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2964D54A43DAD3E9B01D83AE4560B9EF69BD01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062938   (436793) от 15.10.2016
+
+Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Pain Can Save Us (03:03)
+02. Cerca Trova (03:18)
+03. I'm Feeling A Tad Vulnerable (02:09)
+04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554754   (436250) от 01.10.2012
 
 Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, New Age>
@@ -577,180 +751,6 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063653   (432387) от 17.10.2016
-
-Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meeting an Old Friend (02:35)
-02. Campus (02:26)
-03. Suite for Time and Machines (06:23)
-04. Don't Stand In My Way (01:43)(   Читать дальше...   )Жанр: Soundtrack, Score, Ambient, ElectronicaПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217D787FF96746824DC833449A6A1C1353C7C179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063385   (432379) от 17.10.2016
-
-Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forbidden Dance (4:01)
-02 - Tragic Dream (3:59)
-03 - Black Wedding (3:53)
-04 - Mischief (2:09)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0CE0CC760C523610346F54074B02B68FB7F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063651   (432155) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72CF5E974B6CF60E30035D3DB92D18C5FFC8DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063650   (432072) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA2E7D42BFD050A560B1A6ADAE9D5F7DBDB6795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410790   (431825) от 23.09.2020
-
-Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneback (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие под морем: приключенческие звуки Маттиаса Анебека. Присоединяйтесь к нему в фантастическом экзотическом подводном приключении со звуком! Плывите в открытое море, исследуйте его глубины, восхищайтесь их странными и красочными обитателями. Под волнами и в глубинах ждут забытые миры. Вас ждут биолюминесцентные существа, которые никогда не видели дневного (   Читать дальше...   )01. Triton, God of the Sea (05:32)
-02. Silent World (05:15)
-03. Voyage Beneath the Sea (07:43)
-04. Starfish (02:58)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBC9F5845FEDF466D09978D6A814938E64F9BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571633   (431765) от 22.08.2022
-
-Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way I Feel Inside (2:44)
-02. Hypnotized (4:04)
-03. Pitseleh (3:41)
-04. Thanks A Lot (3:03)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF8852BB70719048A3DC427C09053279EF8DE22
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1042929   (576716) от 14.08.2016
-
-Paulinho da Viola - Samba E Choro Negro (1993) [APE|Lossless|tracks + .cue] <Brazilian Jazz, Samba Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576716.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Onde A Dor Não Tem Razão 2:31
-2. Coração Leviano 3:08
-3. Rumo Dos Ventos 2:37
-4. Recado - Argumento - Guardei Minha Viola 5:18(   Читать дальше...   )Жанр: Brazilian Jazz, Samba Jazz, Bossa NovaПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2096A714172A51B4694EA5D12B6EA33F1B92DFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811899   (576700) от 11.08.2014
-
-Count Basie - Classic Jazz Archive (2004) 2CD [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD1 - One O'Clock Jump (01:09:03)
-CD2 - Rhythm Man (01:19:47)
-Трeклист CD1:(   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 02:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FE3A2069C31E14EEEFC24E04B8761090FCC82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042760   (576652) от 14.08.2016
-
-Joscho Stephan Trio meets Matthias Strucken - Gypsy Vibes (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean A Thing
-02. Things Are Getting Better
-03. Linea Blanca
-04. Seul Ce Soir(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26FABD9342905C0672FC34524D1F4FA7BB04755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151061   (576368) от 17.07.2017
-
-Max Roach - Long as You're Living (1960) 1990, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotus Blossom [07:34]
-02. Drum Conversation [06:56]
-03. The Villa [07:39]
-04. Long as You're Living [10:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC566AE244E6D8A022113C873F49C3C4E76C2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151090   (576367) от 17.07.2017
 
 Anita O'Day - Live in Tokyo '63 (2007) Kayo [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE0CA2F6B1801A1633A82459ED0D06966FF0C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151552   (573073) от 19.07.2017
+
+Taylor Eigsti - Let It Come To You (2008) Concord [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [04:27]
+02. Timeline [08:29]
+03. Not Ready Yet [05:00]
+04. Caravan [09:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50EBA10C019F3D9F1795C0DD104C6AFFFFC5980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151662   (573066) от 19.07.2017
+
+Attila Zoller - Gypsy Cry (1969) 2001, Collectables Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Wild Wes [02:43]
+02. Another Kind Of Love [04:09]
+03. Horns [04:01]
+04. Meet In Berlin [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDB7D6271989A0886B0C161F5130B3DDD5C79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151539   (573057) от 19.07.2017
+
+Cal Tjader - Agua Dulce (1971) 2011, BGP Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Dulce (Cool-Ade) [04:08]
+02. Curacao [05:38]
+03. Somewhere in the Night [04:26]
+04. Gimme Shelter [02:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13412DF23DBBB098BA1387027B184A96894E625D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151661   (573049) от 19.07.2017
+
+Horace Tapscott - The Dark Tree (1989) 2CD, 2009, hatOLOGY [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Dark Tree [20:57]
+02. Sketches of Drunken Mary [11:33]
+03. Lino's Pad [16:46](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BA03BD87590E77A6ABF98482680A61B79151E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

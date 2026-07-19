@@ -1,119 +1,3 @@
-###  Публикация: 1074436   (243943) от 19.11.2016
-
-Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cap De Creus
-02. Full House
-03. My Baby Is Coming
-04. Vortex(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Future JazzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA7A43B55FD9C792C23128A9B505C48CA9360C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611333   (243937) от 11.02.2023
-
-Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Sessions (1946 - 1966) 7CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243937.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Long Long Journey [4:33]
-02. Snafu [4:14]
-03. Linger in My Arms a Little Longer [2:59](   Читать дальше...   )Жанр: Swing, Dixieland, New Orleans JazzПродолжительность: 09:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632683   (243935) от 11.05.2023
-
-Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mas (One More Time) [15:19]
-02. Straight Ahead [8:59]
-03. Sao Paulo [7:20]
-04. If Ever I Would Leave You [5:08]Жанр: Hard BopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3067D1EB6D974BD2BAE56C513C8930E8F00FA713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074455   (243907) от 19.11.2016
-
-Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Fair
-02. Hymn
-03. Straw Hat
-04. Split(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C5D41E0871CE06A519C41728BD0464939C0200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611557   (243841) от 12.02.2023
 
 Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 1997) 2000, Nascente [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion, Piano Jazz>
@@ -745,6 +629,122 @@ National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F07E8FFD82C568AF1E4F15A3BB8A677980ADDDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077581   (243458) от 01.12.2016
+
+Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.We Three [07:58]
+ 02.Tombo in 7/4 [10:26]
+ 03.Las Olas [05:58]
+ 04.(Used to Be a) Cha-Cha [12:17](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456051   (243451) от 21.03.2021
+
+Peggy Lee - The Lost '40s & '50s Capitol Masters (1944 - 1952) 2CD, 2008, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243451.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ain't Goin' No Place (with The Capitol Jazzmen) [3:03]
+02. A Cottage for Sale [2:56]
+03. Don't Be So Mean to Baby (alternate take) [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BEB1C72A36EF46461A4D4811D8C7942262F1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456114   (243436) от 21.03.2021
+
+Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Bitter Earth
+02. How Lovely to Be a Woman
+03. You've Got to Be Carefully Taught
+04. Getting to Know You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC784E91AF00513C9F6FA2C406CA3E9B17CBD1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340291   (243434) от 23.11.2019
+
+VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243434.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coleman Hawkins - Body and Soul [5:54]
+02. Coleman Hawkins - Basin Street Blues [5:54]
+03. Coleman Hawkins - Lazy Butterfly [1:05](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 06:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
 ```
 
 https://mybot314.ru/tekegram_catalog/

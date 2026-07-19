@@ -1,3 +1,90 @@
+###  Публикация: 1095708   (924309) от 21.01.2017
+
+Amon Amarth - Jomsviking (2016) Japanese Edition [MP3|320 кб/с]<Melodic Death Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924309.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:22] 01. First Kill
+[04:43] 02. Wanderer
+[04:04] 03. On A Sea Of Blood
+[03:38] 04. One Against All(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC75D40A9B71EF8CEEC936100B222EF0214680B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987998   (924232) от 18.02.2016
+
+Delain - Lunar Prelude (2016) [MP3|320 кб/с] <Symphonic Metal, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suckerpunch
+02. Turn The Lights Out
+03. Don't Let Go
+04. Lullaby (Live 2015)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic MetalПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF9631493E4BFCDD8B2AAA7BCFD2CD3914D4BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366328   (924130) от 11.03.2020
+
+Kursani - Kursani (2020) [MP3|320 Kbps] <Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Спортзал это храм [00:02:46]
+02 - Сустанон 250 [00:01:19]
+03 - Курсани [00:02:40]
+04 - Стероидная ярость [00:02:06](   Читать дальше...   )Жанр: Beatdown HardcoreПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C8652E5DDCB2C7CD09CBE3B8284118FD647636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489740   (924002) от 17.08.2021
 
 Liberate - Roma Aeterna (2021) [MP3|320 Kbps] <Melodic Power Metal>
@@ -674,93 +761,6 @@ Blaine Rohmer - 2 albums, 1 single (2015-2016) [MP3|320 Kbps] <Atmospheric Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEC0E2674B211A4EF062B998C1B67DEC923351D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490608   (917606) от 21.08.2021
-
-Vlad - Me Devoré A Sus Hijos (2021) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tung Kwang [00:07:55]
-02. Distopia [00:05:48]
-03. Despertar [00:07:38]
-04. Holocausto [00:07:04](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE912FDD82CF9214E9941E17317A011A17872D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490730   (917588) от 21.08.2021
-
-Orange Goblin - Healing Through Fire (2021) Deluxe Edition [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live) [00:00:52]
-02. Some You Win, Some You Lose (Live) [00:03:31]
-03. Quincy The Pig Boy (Live) [00:04:06]
-04. Getting High On The Bad Times (Live) [00:04:17](   Читать дальше...   )Жанр: Stoner-Metal, Doom-MetalПродолжительность: 2CD, 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C740BDA8B065416F976F7F76F0F125E0D237232E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989526   (917334) от 22.02.2016
-
-When Nothing Remains - In Memoriam (2016) [MP3|320 кб/с] <Doom Metal,Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reunited In The Grave
-02. Drowning In Sorrows
-03. In Memoriam
-04. Ghost Story(   Читать дальше...   )Жанр: Doom Metal,Death MetalПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129BE9E0070D557CF8009C36F663F8FF7E4EF2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

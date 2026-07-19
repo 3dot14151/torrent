@@ -1,3 +1,174 @@
+###  Публикация: 1284049   (731000) от 19.02.2019
+
+John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Halloween Theme
+3. Laurie’s Theme
+4. Prison Montage(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127618   (730981) от 22.04.2017
+
+VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troilo y su orquesta - Inspiracion
+02. Charlo - Las cuarente
+03. Jorge Vidal - Tres esperanzas
+04. Demare y su orquesta (canta Horacio Quintana) - Manana zarpa un barco(   Читать дальше...   )Жанр: TangoПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79532E43745F432E3CA02F0AEFCF903A4FAEA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021993   (730976) от 31.05.2016
+
+Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta DawnЖанр: CountryПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFE25CEBDF059E380D7985EDB1672A406322ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021847   (730969) от 31.05.2016
+
+Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, Soft Rock>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Africa    03:26
+02. Livin' On A Prayer    03:48
+03. Nights In White Satin    03:09
+04. Little Lies    03:17(   Читать дальше...   )Жанр: Instrumental, Electronic, Soft RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7605EBB949CF4B673882967E07FBD6E1E74C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283780   (730946) от 19.02.2019
+
+VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Jazz, Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camels Pick-Nick
+02. Linger A While
+03. Concerto D'Aranjuez
+04. Plaisir D'Amour(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31678EAE6D17502EBD2926752D2D62584AF40E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283858   (730742) от 19.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
+02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
+03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
+04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181879192174FD9CD2A8CA09379D73B36B01C049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021371   (730681) от 31.05.2016
 
 Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, Rautalanka, Surf>
@@ -571,185 +742,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB681101B5EFC53B7DFC1FCA7AA8264BFF50438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022626   (728585) от 02.06.2016
-
-Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Needed Me (R. Goodrun) [00:03:58]
-02. Unforgettable (N.Cole/N.K. Cole/T. Gordon) [00:04:05]
-03. I Do It For You (B. Adams/R.G. Lange/M. Kamen) [00:04:08]
-04. La Colegiala (Leon) [00:03:31](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324223   (728137) от 19.04.2011
-
-Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Academy  (4:04)
-02. Academy Hallways (4:15)
-03. Wolvercote Catacombs  (5:00)
-04. Dragon Graveyard (4:01)
-05. Crystal Caverns (4:30)
-06. Crypt Of The Damned(3:38)
-07. Forsaken Dungeons  (4:05)
-08. Throne Of The Lost King (4:36)
-09. Fangle Forest  (4:19) (   Читать дальше...   )Жанр: OSTПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284587   (727747) от 22.02.2019
-
-Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ocean Moon
-02 Break Of Dawn
-03 Rising Tide
-04 Ocean Haze(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77E2E0E28B4694E7AA390A20E39C81DF04507D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022698   (727585) от 03.06.2016
-
-Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedicatoria (from Cuentos para la juventud) [00:01:48]
-02. Larghetto [00:04:45]
-03. Sempre espressive [00:02:20]
-04. Pavane pour une infante defunte [00:06:49](   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A15ECC45CB43DFE7F089DBC6758D4737E0740E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128441   (727550) от 25.04.2017
-
-VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Great Meditation Guru - New Age Deep Meditation
-02. Mindfulness Meditation Unit - Sun Salutation
-03. Sounds of Nature Kingdom - Cleansing Rain
-04. Sauna & Massage Academy - Serenity Falls(   Читать дальше...   )Жанр: New Age, Downtempo, ChilloutПродолжительность: 03:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A9165245911C081C82BD71C552B21D6E4E59CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128474   (727435) от 25.04.2017
-
-Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  - On To Something Good (3:48)
-02  - I Buried Your Love Alive (3:14)
-03  - Bombshell (3:17)
-04  - Weight Of The Load (3:59)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27C5C25A3DBBB7990CB4D73CB2228AF8A27A7EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

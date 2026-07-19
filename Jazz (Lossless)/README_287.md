@@ -1,119 +1,3 @@
-###  Публикация: 1432794   (162237) от 19.12.2020
-
-Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [5:25]
-02. Between The Devil And The Deep Blue Sea [5:02]
-03. I Could Have Danced All Night [2:46]
-04. Just One Of Those Things [2:30](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438B9FFE1C3AB0A0026C64FB05F6F8F17ED6BC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598683   (162181) от 20.12.2022
-
-Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Vingt six [2:30]
-02. How High the Moon [2:37]
-03. Lover Man [3:20]
-04. Blue Lou [2:23](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D423F8E58609C0F3301D33B4F22AC9C11A44FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433005   (161866) от 19.12.2020
-
-Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|image + .cue]<Vocal Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Off the Search (3:25)
- 02. Crawling Up a Hill (3:25)
- 03. The Closest Thing to Crazy (4:12)
- 04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333BB49EF3CBDCEB148991EC5A6BD2BDBE111CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517823   (161738) от 17.12.2021
-
-Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erroll-A-Garner [2:40]
-02. Stars Fell On Alabama [2:25]
-03. Laura [2:48]
-04. Lavande (Little Girl) [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517827   (161698) от 17.12.2021
 
 Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 1941) 1993, Musical Heritage Society [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -746,6 +630,122 @@ Jeremy Pelt - Live In Paris: Noir en Rouge (2018) HighNote Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128D75473B63DA4841046B158088CB351FA8661B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675478   (159908) от 10.11.2023
+
+Randy Crawford - Through The Eyes Of Love (1992) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Crying Now (4:33)
+02. It's Raining (5:09)
+03. When Love Is New (4:40)
+04. If I Were (In Your Shoes) (3:52)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5537F29F4E0E9B84E3D8383808C2FD8241CB188A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599402   (159874) от 23.12.2022
+
+Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh Start [7:19]
+02. Budelli Island [11:11]
+03. In These Hallways [7:34]
+04. Movement at the Coral Reef [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39072495B6EE5FDD6DBD3129AB214BEEBE99CFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599698   (159663) от 24.12.2022
+
+Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Come Eleven [2:48]
+02. Wholly Cats [3:05]
+03. Good Enough to Keep (Air Mail Special) (first version - alternate take) [2:57]
+04. Flying Home (alternate take) [3:17](   Читать дальше...   )Жанр: Swing, Bop, Guitar JazzПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE52CE632A9AF6DAD5FD48DE39234B7A48948B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599405   (159662) от 24.12.2022
+
+Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Tho't You Ought to Know [2:55]
+02. It Only Happens Once [2:57]
+03. Black Market Stuff [2:46]
+04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

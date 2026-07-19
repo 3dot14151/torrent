@@ -1,3 +1,148 @@
+###  Публикация: 1372248   (242074) от 03.04.2020
+
+Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Cha
+02. Quédate
+03. Y Quién Eres Tú
+04. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625532   (241576) от 10.04.2023
+
+P!nk (Pink) - TRUSTFALL (2023) Japan [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Get There
+02. TRUSTFALL
+03. Turbulence
+04. Long Way to Go (feat. The Lumineers)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7127C936B87E0ADF526B10B93B8F6C7B6520F41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625730   (241517) от 11.04.2023
+
+Ellie Goulding - Higher Than Heaven (2023) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Dreams (03:12)
+02. Cure For Love (02:57)
+03. By The End Of The Night (03:08)
+04. Like A Saviour (03:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B210575377F1F55FF84739CEB23B214233897590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625687   (241459) от 11.04.2023
+
+VA - Soul Hit Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Taylor - How Sweet It Is (To Be Loved By You)  [03:35]
+02. Otis Redding - Shake  [02:40]
+03. Talking Heads - Take Me to the River (2005 Remaster)  [05:03]
+04. Rod Stewart - It Takes Two (2008 Remaster)  [04:14](   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9A3F9508EF7192D203830CD64D4CB45513FB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618741   (241315) от 12.03.2023
+
+Gwen Stefani - Love.Angel.Music.Baby. (2004) 15th Anniversary Edition, 2020, Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Waiting For?                    [03:41]
+02. Rich Girl                                [03:56]
+03. Hollaback Girl                           [03:19]
+04. Cool                                     [03:09](   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50061CA8ABCCC9051BFD9A0C287066F3E075C109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618583   (241307) от 12.03.2023
 
 VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,151 +745,6 @@ Moby - Resound NYC (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8C8C863739149B60BD75432E82ECE6E6FE2DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633549   (234250) от 15.05.2023
-
-Sandra - 18 Greatest Hits (1992) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena
-02. In The Heat Of The Night
-03. Little Girl
-04. Innocent Love(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93D30331DD49CB92A61258FF8FDEA5D0E8C1272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633843   (233874) от 17.05.2023
-
-Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Again
-02. I'll Be
-03. Waiting on You
-04. Love of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634210   (233658) от 19.05.2023
-
-Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something To Believe In
-02. Eat The Acid
-03. Living In My Head
-04. Fine Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C60AA8F31734C4827D2FD2FEFCFEEDF177E78C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634259   (233516) от 19.05.2023
-
-VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Boy - Forget You (2:27)
-02. Felix Jaehn - Call It Love (2:34)
-03. Glockenbach - YEAH (2:38)
-04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634234   (233427) от 20.05.2023
-
-Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Disaster [00:03:26]
-02. Can't Hold Back [00:02:50]
-03. Better Boyfriend [00:03:19]
-04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

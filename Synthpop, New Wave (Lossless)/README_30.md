@@ -1,32 +1,3 @@
-###  Публикация: 1780925   (70361) от 20.02.2025
-
-VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galaxion - Embryo Zero (5:08)
-02. Phobotrax - A Better Place (5:29)
-03. Dreamtime - Before The Dawn (6:31)
-04. Staffan Ohman - Point Of No Return (6:39)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7D9E3F96299517F093E946D8D0B200CDCB0A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781546   (70198) от 23.02.2025
 
 Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Space-Dance>
@@ -745,6 +716,35 @@ Ward White - Here Come The Dowsers (2024) [FLAC|Lossless|WEB-DL|tracks] <Power P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B42D9ECD5A7ACAD6FB2ABC7ABBDADCF52F30BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740185   (48175) от 01.08.2024
+
+Kazaky - Like It (Part I) (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Electro House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Secret Mission	2:48
+02		Crazy Law	3:51
+03		Doesn't Matter	3:41
+04		Touch Me	3:21(   Читать дальше...   )Жанр: Synth-pop, Electro HouseПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759B3DE0EC7E94A61E5E66C104536176FAEC408A
 ```
 
 https://mybot314.ru/tekegram_catalog/

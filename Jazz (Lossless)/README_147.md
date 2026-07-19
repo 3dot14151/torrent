@@ -1,125 +1,3 @@
-###  Публикация: 1303878   (569496) от 23.05.2019
-
-Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crave [3:05]
-02. The Naked Dance [2:51]
-03. Mister Joe [2:49]
-04. King Porter Stomp [2:50](   Читать дальше...   )Жанр: New Orleans Jazz, StrideПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBE475AD2286568BEDF8CF7F46A0DAA79E4820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527714   (569493) от 30.07.2012
-
-Boris Frumkin & Sergei Zhilin - Solo In Four Hands (2003) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa (George and Ira Gershvin)
-02. Young & Foolish (Albert Hague)
-03. Wave (Antonio Carlos Jobim)
-04. Groove Merchant (Jerome Richardson)Жанр: Smooth JazzПродолжительность: 00:17:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303976   (569429) от 23.05.2019
-
-Jeremy Pelt - Jeremy Pelt The Artist (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rodin Suite Part One: L'Appel Aux Armes (6:54)
- 02. The Rodin Suite Part Two: Dignity and Despair (Burghers of Calais) (1:59)
- 03. The Rodin Suite Part Three: I Sol Tace (Gates of Hell) (5:59)
- 04. The Rodin Suite Part Four: Camille Claudel (L'Eternel Printemps) (2:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBF69F4B97ABE9BC22F8D6ACCAA9A9D5AF8202C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527744   (569370) от 30.07.2012
-
-Brad Rambur - Can't Put It Down (2010) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm
-02. Chasing The Sun
-03. Pinnacle
-04. Aruba
-05. Sidesteppin'
-06. Danielle
-07. Into The Blue
-08. This Masquerade
-09. Shufflicious
-10. Chitlins Con CarneЖанр: Smooth JazzПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234580   (569324) от 06.07.2018
 
 Steve Gadd - Band (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Crossover Jazz>
@@ -769,6 +647,122 @@ Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152247   (567503) от 22.07.2017
+
+Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Seven [06:51]
+02. How Sweet [07:40]
+03. Don't Worry 'Bout it Baby, Here I Am [06:46]
+04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555661   (567491) от 05.06.2022
+
+Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. And We Listened [5:45]
+02. The Fugue [3:28]
+03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304051   (567452) от 24.05.2019
+
+Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections (1:10)
+02. The Odyssey (6:03)
+03. The Peacemaker (0:38)
+04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304107   (567446) от 24.05.2019
+
+Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567446.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Home Cookin':
+01. See See Rider [6:36]
+02. Sugar Hill [5:20]
+03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

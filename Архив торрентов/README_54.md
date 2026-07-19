@@ -1,3 +1,32 @@
+###  Публикация: 1440474   (1038769) от 17.01.2021
+
+VA - Armin Van Buuren & Ruben De Ronde - A State Of Trance 999 (Classic Special) (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAIA – J’ai Envie de Toi
+02. Shogun – Skyfire
+03. MaRLo – Visions
+04. Markus Schulz – The New World(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134D23EF646DB94B57D2D1B3BA050BFACF1BEEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440362   (1038764) от 17.01.2021
 
 SlimBrowser 14.0.1.0 + Portable [Multi/Ru]
@@ -650,33 +679,6 @@ MassTube Plus — очень простая в использовании про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6DA0E5502C388278680246820CEA0876ABF5D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614461   (1038588) от 22.02.2023
-
-Perfectly Clear WorkBench 4.3.0.2425 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D6959D25BF3D1D73A7E952CE6D2EE2673768C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1490608   (917606) от 21.08.2021
+
+Vlad - Me Devoré A Sus Hijos (2021) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tung Kwang [00:07:55]
+02. Distopia [00:05:48]
+03. Despertar [00:07:38]
+04. Holocausto [00:07:04](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE912FDD82CF9214E9941E17317A011A17872D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490730   (917588) от 21.08.2021
+
+Orange Goblin - Healing Through Fire (2021) Deluxe Edition [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live) [00:00:52]
+02. Some You Win, Some You Lose (Live) [00:03:31]
+03. Quincy The Pig Boy (Live) [00:04:06]
+04. Getting High On The Bad Times (Live) [00:04:17](   Читать дальше...   )Жанр: Stoner-Metal, Doom-MetalПродолжительность: 2CD, 01:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C740BDA8B065416F976F7F76F0F125E0D237232E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989526   (917334) от 22.02.2016
+
+When Nothing Remains - In Memoriam (2016) [MP3|320 кб/с] <Doom Metal,Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reunited In The Grave
+02. Drowning In Sorrows
+03. In Memoriam
+04. Ghost Story(   Читать дальше...   )Жанр: Doom Metal,Death MetalПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129BE9E0070D557CF8009C36F663F8FF7E4EF2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097279   (916015) от 26.01.2017
 
 National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
@@ -658,93 +745,6 @@ Tenside - Convergence (2017) [MP3|320 Kbps] <Thrash, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D00A16F5B5CCA14DDB51D3E470FDFC4C5C66E14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098141   (910777) от 29.01.2017
-
-Vörtex (Vortex) - Architects of Misfortune (2017) [MP3|320 Kbps] <Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910777.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. XI
-2. Dear Animal
-3. Breaking Bones
-4. All My Needs(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DABE376858CF107325CB1D55AFCC85FA4F13741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098002   (910755) от 29.01.2017
-
-Touch Of Eternity - 1 album, 2 singles, 1 EP (2011-2013) [MP3|192-320 Kbps] <Melodic Death Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2011. Lay Me Down (single)
-2011. Time's Fleeing Days (EP)
-2012. Lily Of The Valley (single)(   Читать дальше...   )Жанр: Melodic Death Doom MetalПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E529143FA6A50B6E09E94547E7B69DCF1240AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098152   (910753) от 29.01.2017
-
-Morver - Staying in the Abyss (2017) [MP3|320 Kbps] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910753.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sempiterno (01:30)
-2. Encrypted (05:55)
-3. Nompuehuenu (06:43)
-4. Alumine (06:27)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E481861D2C5A5E744B29DEE67AF81B96FBB7DC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

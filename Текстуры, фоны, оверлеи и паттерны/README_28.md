@@ -1,3 +1,421 @@
+###  Публикация: 1795842   (66901) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Stained Glass Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображением витражных стёкол.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C5A3B15D3BFBFA5CCB19DD3D7F63AFEDDDFA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795840   (66893) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Watercolor Lighthouse Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные фоны с изображением маяка.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795839   (66890) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Tropical Bloom Burst Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с тропическими цветами.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70C1CE34EFCF75520E71E8A56F9D76024EBAA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795843   (66880) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Soft Blue Vine Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нежно-голубые фоны с виноградной лозой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39574B1F3CD17C7A2C884A215E5FACAF1BB782A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795845   (66878) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Skyscrapers and Neon Lights Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображением небоскрёбов и неоновых огней.Формат: PNGРазрешение файлов: 3604 x 3604
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26DAE3FFF58D099ED6727AAED4384CEA9B8BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796030   (66877) от 13.05.2025
+
+Паттерны - Free PSD Templates - Floral Patterns [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные узоры в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B9748660C19D9392A08EF85D472D420B137CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795846   (66861) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Pink Plaid Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны сделанные в клеточку, под розовый плед.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FE905A257BB1A4DC7AE1E0BB85A2DB5347C9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796551   (66694) от 19.05.2025
+
+Фоны - Dealjumbo.com - Deeezy - Creative Backgrounds - 61364 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные, красочные, художественные и градиентные фоны.
+Материал раздаётся с официальной документацией.Формат: PNG, JPGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165EC97842BC43E594858D2398588DFE739332BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796349   (66692) от 19.05.2025
+
+Текстуры - Ivan Slavchev - Behance - Liquid Gold Texture Pack - 193234859 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные жидкостные текстуры под золото.Формат: PNGРазрешение файлов: 2688 x 1792 - 3762 x 2508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489C246727F0E7B439630A27386C850CD7F71581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796644   (66685) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Moonlit Winter Landscape Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с зимними пейзажами под лунным светом.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DAA13989E80897434B8E2B68E4C68A646C2D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796342   (66681) от 19.05.2025
+
+Паттерны - Free PSD Templates - Christmas Patterns Set [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественские орнаменты в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 8334 x 8334
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E75652AD19D1314898028B7E9FA695266E0A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796650   (66672) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Butterfly Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F21D6CF54EEBB485EABB9FAD91FF1F966CA503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796539   (66670) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Musical Love Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны на тему любви и музыки.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD46479272E460B7CCC27C6E0A9773A6E9FEA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796339   (66669) от 19.05.2025
+
+Фоны - Monika Ratan - Behance - Liquid Marble Gold Backgrounds - 192068387 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66669.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесплатных фонов под  мрамор и золото.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 1024 x 1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD49800CBF7B8D035E4882ABE4C26816A898466D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796538   (66668) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Purple Blue Butterfly Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7414E5E655F53006FBECB627F24CB041B898CAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796655   (66665) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Retro Geometric Swirls Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с геометрическими завитками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797FA42462B068C0A33BE66514EFD3D8FDCC88C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797112   (66584) от 24.05.2025
 
 Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
@@ -253,422 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD18EE1F8209D9545165517B28537899993AB9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798717   (66500) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-4 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798721   (66497) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-6 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3737DFC34A37BADDE7BE107ECE3337EAB8CC792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798712   (66495) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799302   (66480) от 27.05.2025
-
-Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799301   (66476) от 27.05.2025
-
-Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зернистые текстуры под бумагу в пастельных тонах.Формат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800090   (66339) от 31.05.2025
-
-Фоны - sugamiart - Creative Fabrica - Blue Christmas Glitter Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных разноцветных блестящих фонов.Формат: JPGРазрешение файлов: 1000 x 1000 - 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D83AD8946708E321A958B16374C4E6E859697B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802723   (65994) от 19.06.2025
-
-Фоны - FreezeronMedia - Envato - Halftone Red Silk Backgrounds - BT7TLXW [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с красным шелком.Формат: JPGРазрешение файлов: 5000 x 3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFEF5591A5B414FB21E7D10EE95C490798722DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802728   (65993) от 19.06.2025
-
-Фоны - kaleriia - Envato - White Plush Backgrounds - 8SYQAU7 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65993.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 белых плюшевых фонов.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA87C9384BCDEFAC775FC36D9504CF5CB460ACE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802716   (65989) от 19.06.2025
-
-Текстуры - CCpreset - Envato - 20 Table Texture HQ - SZSMB4X [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6300 x 4200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E152B06B915D99B4376D62DF4F5C39521DCA004A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802726   (65988) от 19.06.2025
-
-Текстуры - NassyArt - Envato - 20 White Marble Gold Textures - JWSSV6B [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор мраморных текстур с золотыми прожилками.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B764DE60EDD5626D8FD6EBD00750CBF2124B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802718   (65987) от 19.06.2025
-
-Фоны - FadeLine_Std - Envato - Old Steel Gradient Texture Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с градиентной текстурой старой (ржавой) стали.Формат: JPGРазрешение файлов: 6400 x 4400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F99EEAD8F65CEC05E63BB1083695E654AD3EB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802715   (65985) от 19.06.2025
-
-Текстуры - CCpreset - Envato - 20 Wood Texture HQ - W7DN6RG [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EB86DCCF210BA8C7E3F090F16B8F41B0967BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802871   (65960) от 20.06.2025
-
-Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65960.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802872   (65954) от 20.06.2025
-
-Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65954.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803238   (65892) от 22.06.2025
-
-Фоны - Julia_Dreams - Envato - Texturica Papers Textures Textured Backgrounds - L6DTK6J [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный набор фонов с разнообразной текстурой.Формат: JPGРазрешение файлов: 1994 x 2973 - 3381 x 2959
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D41D86E819152B331057159A0013897700F00F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803237   (65885) от 22.06.2025
-
-Текстуры - CCpreset - Envato - 30 Grass Texture HQ - 5VDJAWT [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 30 текстур с изображением травы.Формат: JPGРазрешение файлов: 6300 x 4200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
 ```
 
 https://mybot314.ru/tekegram_catalog/

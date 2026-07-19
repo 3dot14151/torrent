@@ -1,3 +1,29 @@
+###  Публикация: 1486897   (1004343) от 02.08.2021
+
+LibreOffice 7.1.5.2 Stable Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004343.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC968D37218DC8BE2FA6C1B3D51D2AD2672A035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486906   (1004334) от 02.08.2021
 
 Brave Browser 1.27.109 Portable by Cento8 [Ru/En]
@@ -661,32 +687,6 @@ Sublime Merge - клиент системы контроля версий, ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49D33088347D0FBFCD63B43B77983C195B9AA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487049   (1004145) от 03.08.2021
-
-Bandizip: Archiver 7.09 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandizip - мощный архиватор для пользователей macOS с множеством удобных функций.Тип издания: macOS SoftwareРелиз состоялся: 15.06.2021Разработчик: BandisoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9923DABFD0615FF6BAD5E1079D8918EC608FE529
 ```
 
 https://mybot314.ru/tekegram_catalog/

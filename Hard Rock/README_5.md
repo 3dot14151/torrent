@@ -1,3 +1,61 @@
+###  Публикация: 1102176   (892669) от 08.02.2017
+
+Deep Purple - Time For Bedlam (2017) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam
+02. Paradise Bar (Non Album Track)
+03. Uncommon Man (Previously Unreleased Instrumental Version)
+04. Hip Boots (Rehearsal, Ian Paice's Recording)Жанр: Hard RockПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D302A2AC637C593510DBBAB389D3F29360DC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371536   (890007) от 31.03.2020
+
+Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Joker [1:29]
+ 2. Gotta Get Away [5:30]
+ 3. The Devil Made Me Do It [3:36]
+ 4. Ride The Blade [4:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102511   (889459) от 10.02.2017
 
 Ballbreaker - 3 альбома (2000-2009) [MP3|128-320 Kbps] <Hard Rock>
@@ -696,64 +754,6 @@ Toad - B.U.F.O. (Blues United Fighting Organization) (1970) Akarma, 2003 [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80918610DDB4D0DB79DA8CDAD91949A3AE60EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110367   (853777) от 02.03.2017
-
-Van Rockman - The Lost Tapes (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harley To The Party (04:16)
-02. Which Way Does The River Flow (02:49)
-03. Ricky On The Bridge (03:35)
-04. Rock Me Crazy (03:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F76CB4406AEEA607842ECF87EE9BD22E779165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499849   (846044) от 03.10.2021
-
-Black Sabbath - Technical Ecstasy (1976) Box Set, Deluxe Edition, 4xCD, Reissue, Remastered, 2021,  Rhino Records [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Technical Ecstasy:
- 01 - Back Street Kids (Remastered) (03:47)
- 02 - You Won’t Change Me (Remastered) (06:36)
- 03 - It’s Alright (Remastered) (03:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD831C2DFBBD9F7B457775E873892C2156ADCDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

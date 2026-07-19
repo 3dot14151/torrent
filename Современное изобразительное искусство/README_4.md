@@ -1,29 +1,3 @@
-###  Публикация: 518809   (637214) от 06.07.2012
-
-[Графика] Коллекция работ американского художника Jamie Tyndall
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция работ американского художника Jamie Tyndall
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD21396F624EFDAC6ACF7FF00A814DE8059B310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518821   (637051) от 06.07.2012
 
 [Графика] Художник - иллюстратор Mabel Rollins Harris
@@ -669,6 +643,33 @@ Artworks by Laurent Logicfun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F36C42E59661DC39065AEDD094E4F26EAC6194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533443   (532307) от 10.08.2012
+
+[Art] Rodney Matthews
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика Art.
+Автор обложек для Thin Lizzy, Tygers of Pan Tang (Crazy Nights), Diamond Head (Am I Evil) (Borrowed Time), Praying Mantis (Time Tells No Lies, Predator In Disguise), Nazareth (No Mean City), Scorpions (Lonesome Crow), and Eloy (Metromania and the picture disc for Time to Turn).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622C6C9538CFD7D0025D2539F40CE72B1B525F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

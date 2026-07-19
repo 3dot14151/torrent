@@ -1,3 +1,29 @@
+###  Публикация: 1701510   (116357) от 21.02.2024
+
+YT Downloader 9.6.6 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116357.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC1CF06AA8E1735B4FCBC2CA71689B93B1419A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701547   (116354) от 21.02.2024
 
 doPDF 11.9.440 Free [Multi/Ru]
@@ -649,33 +675,6 @@ Image Uploader - бесплатная программа для Windows c отк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71AE4792F4031631AB427C7E290C7085F871E8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701730   (116199) от 22.02.2024
-
-TweakNow WinSecret Plus! 5.2.0 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116199.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
-Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F322784FFD592F38BDCB5373AD411B49FC0B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

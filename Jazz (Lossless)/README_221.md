@@ -1,119 +1,3 @@
-###  Публикация: 960138   (310422) от 27.11.2015
-
-Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.One's Native Place [06:19]
- 02.Gee Gee [05:47]
- 03.Mr. Jones [07:38]
- 04.What's Up - That's It [05:42](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260676   (310123) от 08.11.2018
-
-Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2003) Sirocco [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Dark [4:49]
-02. A Brother's Gift [4:09]
-03. Dance Me Delirious [7:49]
-04. Honu [6:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960170   (310094) от 27.11.2015
-
-Stacey Kent - Tenderly (2015) [FLAC|Tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Trust Your Heart
- 02. Tangerine
- 03. The Very Thought Of You
- 04. Embraceable You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278534E2DB4BD3E7EC369244F26C5DF56FA1DE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183384   (309944) от 13.11.2017
-
-Shirley Scott - Latin Shadows (1966) 1995, MCA Records [WavPack|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Shadows [03:14]
-02. Downtown [03:20]
-03. Who Can I Turn To? [02:39]
-04. Can't Get Over the Bossa Nova [02:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E07E1A61DA634E397303714A4A117B50D165BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332911   (309878) от 22.10.2019
 
 Alan Broadbent & Gary Foster - Recorded Live At Maybeck Recital Hall (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
@@ -751,6 +635,122 @@ Benny Carter - The Best of Benny Carter (1980) 1987, Pablo Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462FD013C7923F3E3F50D1A82AFCF4176ED2C355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333051   (307659) от 23.10.2019
+
+Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [9:59]
+02. The Doodle King [9:07]
+03. Medley: Smile/La Violettera [3:56]
+04. Think [9:37](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF9C9290CD61528455228088EC52D71BB5B2AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333048   (307657) от 23.10.2019
+
+Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Eden River Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Developing Story: Movement 1 [9:49]
+02. Developing Story: Movement 2 [7:12]
+03. Developing Story: Movement 3 [9:19]
+04. If You Could See Me Now [6:36](   Читать дальше...   )Жанр: Post-Bop, Third Stream, Piano JazzПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E72E9295A15F47977DEFF640103276628D76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333052   (307656) от 23.10.2019
+
+Ruby Braff & Ellis Larkins - The Grand Reunion (1972) 1999, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fine and Dandy [3:39]
+02. I Want a Little Girl [6:39]
+03. Skylark [4:50]
+04. The Very Thought of You [2:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C57EABC9B883CEFB37683DDA5BBD65E1004DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333055   (307654) от 23.10.2019
+
+Ruby Braff & Ellis Larkins - Two By Two: Ruby And Ellis Play Rodgers And Hart (1955) 1993, Vanguard Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [5:38]
+02. Mountain Greenery [3:18]
+03. Where or When [4:59]
+04. I Didn't Know What Time It Was [4:21](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5A0F0DC78A8C7BB8A2093F729D7BBC4331B8C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

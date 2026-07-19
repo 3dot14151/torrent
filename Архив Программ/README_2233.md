@@ -1,3 +1,29 @@
+###  Публикация: 1746002   (45400) от 28.08.2024
+
+AIMP 5.30 Build 2563 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45400.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1129F4FB284E3D0A2B5BCCC4BEFA6B5E8A6436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745919   (45397) от 28.08.2024
 
 AnyDesk 8.0.14 + Portable [Multi/Ru]
@@ -642,32 +668,6 @@ Wondershare PDFelement - программа для общего редактир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3553A5961F04EEDAA7FEEAE3A1377D1A74C8FFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746104   (45298) от 29.08.2024
-
-Capture One 23 Enterprise 16.4.5.2312 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B937639B55786A0DCA9265D93564C99CBEF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

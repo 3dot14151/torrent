@@ -1,3 +1,61 @@
+###  Публикация: 1442208   (1036896) от 24.01.2021
+
+VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Lasting Lover (Fitness Version) (04:37)
+02. DJ Kee - Kickin Hard (Fitness Version) (04:50)
+03. DJ Space'c - Holiday (Fitness Version) (04:35)
+04. Th Express - My Head And My Heart (Fitness Version) (04:24)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616239   (1036716) от 01.03.2023
+
+VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-mase & Sharliz - Sky (06:25)
+02. Mant Deep - Don't Fool Me (06:09)
+03. Abee Sash - Ain't nobody (Gus One Remix) (02:38)
+04. Baccij - Only One (02:33)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655E10275BE12ED593C7DFFD50E020CD0AF9B19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616420   (1036443) от 02.03.2023
 
 VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -687,70 +745,6 @@ VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09F596B5D2769215F762F5E8C053CF131187844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349946   (1003797) от 04.01.2020
-
-VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sassari - Put A Record On (Extended Mix) 5:19
-02. Sneaky Sound System - We Belong (Extended Mix) 5:11
-03. Roger That (Uk) - How Does It Feel (Endor Remix - Extended Mix) 5:46
-04. Robbie Doherty - Pour The Milk (Matt Sassari Remix - Extended Mix) 5:42(   Читать дальше...   )Жанр: Minimal, Tech House, FunkyПродолжительность: 05:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597321   (999165) от 07.01.2013
-
-VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excelsior Groove - Honey - Excellence in Rhythms Mix
-02. Stardeep - Slow Food - House Sonique Deep Mix
-03. FG 2 - New York Sensations
-04. Deep Lovers - Mouse Music - Manhattan Deep Mix
-05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
-06. Modell & Mercier - Prisoner - Love On Love Mix
-07. 2W - Light
-08. Alexander Prince - The Prince of the River - Ultradeep Mix
-09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
-10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1799375   (16661) от 27.05.2025
-
-Растровый клипарт - SapphireDreamscape - Creative Fabrica - Nautical Collection PNG Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на морскую тему.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E182DB5ABB3A66AB369219538DA254706C304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800918   (15357) от 07.06.2025
 
 Растровый клипарт - Rose Art - Creative Fabrica - New Year Masquerade Mask Clipart [PNG]

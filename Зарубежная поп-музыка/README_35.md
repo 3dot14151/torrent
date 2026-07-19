@@ -1,3 +1,33 @@
+###  Публикация: 1229021   (632203) от 03.06.2018
+
+Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632203.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы желаем Вам космического Рождества" - таков слоган у этой пластинки. Вас ждут волшебные мгновения при прослушивании "Ave Maria" Шуберта, "Gloria" Генделя или всенародной "Jingle Bells" в стиле космик. И праздник в доме будет не только в предновогоднее время, а всегда!
+Philippe Renaux -  продюсер, автор и аранжировщик работавший (   Читать дальше...   )01.  Ave Maria De Schubert (5:21)
+02.  Noel Blanc (White Xmas) (3:21)
+03.  Il Est Ne Le Divin Enfant (3:11)
+04.  Anges Dans Nos Campagnes - Gloria De Haendel (2:57)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Easy ListeningПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143930   (631630) от 20.06.2017
 
 Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
@@ -722,36 +752,6 @@ Veorra - Official Discography (2015-2016) 4EP [MP3|320 Kbps] <EDM, Bass, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F1039B9AA57F30AC977B2CF0E69129B75588D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036732   (619094) от 21.07.2016
-
-Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в Западной Германии дуэт, который состоял из британцев Брюса Хаммонда  и Дугласа Уилгроува.
-Наиболее известен по своей песне 1986 гола «Geil» (англ.), которая в Германии мгновенно стала хитом, проведя 4 недели на 1 месте. Немецкое слово «geil» в данном контексте имеет значение «крутой» или «классный» (на молодёжном (   Читать дальше...   )01. Intro (0:30)
-02. Geil (Edited Mix) (5:37)
-03. Monkey Dance (4:22)
-04. Fussganger (5:00)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

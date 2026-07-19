@@ -1,3 +1,29 @@
+###  Публикация: 1586122   (204814) от 25.10.2022
+
+EZ CD Audio Converter 10.2.1.1 (25.10.2022) RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204814.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48855B662D02A8A64EF6D9A63070BB05BDAF8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654947   (204795) от 23.08.2023
 
 Google Chrome 116.0.5845.111 Portable by Cento8 [Ru/En]
@@ -654,32 +680,6 @@ Opera One 102.0.4880.16 Portable by Cento8 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009777D896EB1F8A7B770C93E9BFAFBAEAA0A658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602011   (204544) от 03.01.2023
-
-Quick CPU 4.5.2.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick CPU — это приложение, разработанное для точной настройки и мониторинга производительности процессора, параметров питания и напряжения, таких как: парковка ядер, масштабирование частоты, Turbo Boost, C-States, Speed ​​Shift и FIVR Контроль, а также некоторые другие возможности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBBEF327B8C3C6497DEDC70FE7F869CB6D78BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

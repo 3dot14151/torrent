@@ -1,3 +1,177 @@
+###  Публикация: 1300921   (587304) от 09.05.2019
+
+Emmanuel - Stamina EP (2019) ARTS / Darkmatter Inc. [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Only (05:39)
+ 02. Confession (06:43)
+ 03. Once In A Lifetime (04:59)
+ 04. Stamina (05:02)Жанр: TechnoПродолжительность: 00:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC85DD75348924DB96D55917C5820A6CD8894DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301107   (587301) от 09.05.2019
+
+9beats - The Dark Side Of Nature (2019) Annulled [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Vent (06:32)
+ 02. Equilibrium (08:35)
+ 03. Matter Creation (06:40)
+ 04. Phreatic Eruption (08:08)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2498D25A900AEE6761DE3F85AC72DD9718C086D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918238   (586907) от 15.07.2015
+
+DJ Mixx - Check It Out (Euphoria Of Sound Guest Mix) (2012) [FLAC+cue|Lossless] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Moony - Acrobats (Looking For Balance) (T&F Vs. Moltosugo Club Mix) (2002)
+02-Bel Amour - Bel Amour (Milk And Sugar Club Mix) (2001)
+03-Kluster - I Feel Love (Original Club Mix) (2002)
+04-DJ Chus & David Penn Feat. Concha Buika - Will I (Discover Love) (Mediterranean Vocal Mix) (2004)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39A51B7B27EB815BFE8BA0EA3B678AE5A0D4572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040580   (586492) от 05.08.2016
+
+VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
+02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
+03. Third Son - Atonal Impression (original mix) [06:11]
+04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918781   (586008) от 16.07.2015
+
+Cio D'Or - All In All (2015) [FLAC|Lossless|WEB-DL]<Techno, Ambient, Experimental, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After And Before (01:20)
+02. Tomorrow Was Yesterday (07:07)
+03. Now And Then (02:43)
+04. Now Is Ever (05:56)(   Читать дальше...   )Жанр: Techno, Ambient, Experimental, MinimalПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBF6BB2B676A2C7D52889D6649FF03A938A181C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552901   (584751) от 23.05.2022
+
+VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584751.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:56] 01. Tinlicker - You Take My Hand
+[5:25] 02. Luccio - Try
+[3:29] 03. Rodg - Sola
+[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919580   (583009) от 19.07.2015
 
 VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
@@ -573,186 +747,6 @@ VA - Pure Salinas Vol.7 ( Mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:710B0A35B8771C40400DC025924D71DA059A2D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233888   (575898) от 02.07.2018
-
-U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Angels (feat Terri B!)
-03. F......Camera
-04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554698   (575678) от 31.05.2022
-
-VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
-02. Seleck - Blows My Mind (Original Mix) 06:55
-03. Ric Niels - Sabeht (Original Mix) 07:01
-04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234161   (574698) от 03.07.2018
-
-VA - Madre Natura, Vol. 32 (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darius Syrossian - Andranik (06:38)
-2. Anna - Leave House (08:16)
-3. Paul C & Paolo Martini - Tears For Fears (Joyce Muniz remix) (06:30)
-4. Viktor Talking Machine - Abby (07:33)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BD0A4C2299D02312DC70733BE0D85A68D567BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362363   (573101) от 12.07.2011
-
-OceanLab - Sirens of the Sea (2008) [FLAC|Lossless]<Progressive House, Trance, Downtempo, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_573101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Just Listen
- 2. Sirens of the Sea
- 3. If I Could Fly
- 4. Breaking Ties
- 5. Miracle
- 6. Come Home
- 7. On a Good Day
- 8. Ashes
- 9. I Am What I Am
- 10. Lonely Girl(   Читать дальше...)Жанр: Progressive House, Trance, Downtempo, ProgressiveПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151410   (572742) от 19.07.2017
-
-New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, New Wave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tutti Frutti (Takkyu Ishino Remix) (7:55)
- 02. The Game (Mark Reeder Spielt Mit Version) (6:48)
- 03. Academic (Mark Reeder's Akademix) (7:23)
- 04. People on the High Line (Purple Disco Machine Remix) (7:05)(   Читать дальше...   )Жанр: House, Downtempo, New WaveПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555111   (572218) от 02.06.2022
-
-VA - Digital Emotions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redspace - Zest (Original Mix) 6:42
-02. Fabri Lopez - Abstract Idea (Original Mix) 7:57
-03. MONNER - Katarsis (Original Mix) 7:20
-04. Proluction - Neon Dance (Original Mix) 6:02(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47347F591CA3A9FC70EAF1C52F5D1B658C67EC6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

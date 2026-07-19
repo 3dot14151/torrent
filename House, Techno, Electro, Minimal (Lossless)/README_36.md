@@ -1,3 +1,173 @@
+###  Публикация: 1296622   (610323) от 18.04.2019
+
+Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Truth (Progressive 2019 Remake Mix)
+02.The Truth (Headstrong & Aurosonic 2019 Rework)
+03.The Truth (Skipper Ibiza Chillout Remix 2019)
+04.The Truth (Progressive Edit 2018 Remake)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB75B1EA33AE324116B236C2CA1E5C3437278F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037982   (610311) от 26.07.2016
+
+VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
+02. Soundsome - Intentional Delay (Original Mix) [07:38]
+03. Die Hoehenregler - Lust (Original Mix) [07:25]
+04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037960   (610108) от 26.07.2016
+
+VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & Third Party - Lions in the wild (03:30)
+02. Otto Knows & Avicii - Back where I belong (02:53)
+03. Lucas & Steve - Can't get enough (02:36)
+04. Sam Feldt, Wulf, Lucas & Steve - Summer on you (02:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147273   (609720) от 02.07.2017
+
+VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296966   (608650) от 19.04.2019
+
+Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live. Love. Create (Protoculture Remix) (07:20)
+02. Live. Love. Create (Austin Leeds remix) (09:09)
+03. Live. Love. Create (09:04)Жанр: Progressive House, Techno, PsytechПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26628391573A6F6F16C789B11C8820E7728FBE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912864   (607090) от 28.06.2015
+
+VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Tech House, Deep House, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noir - "Around" (feat Hayze - album version)
+02. Little By Little - "Bang The Box"
+03. Gotsome - "Heart Starts" (Phil Weeks remix)
+04. Dale Howard - "Intervention"(   Читать дальше...   )Жанр: Tech House, Deep House, Minimal, TechnoПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038604   (606730) от 28.07.2016
 
 Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -589,175 +759,6 @@ Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232191   (602781) от 22.06.2018
-
-VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.Laoss - Grinding Noise (07:40)
- 02. Dublicator - Dawn (Sleepy Dub) (08:57)
- 03. img_02 - Grey Pattern (06:03)
- 04. Federsen - OSC2 (08:39)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31A1E02A1D806ADD6F8A9A0BBFE788A3D0FFA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298002   (602678) от 25.04.2019
-
-Hieronymus - Liquid Sky (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Sky (06:48)
- 02. Foundation (06:27)
- 03. Lock (07:03)
- 04. Skin (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434277AC0F51613EB4CEE57C0C82872D2729BA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298005   (602660) от 25.04.2019
-
-Aura Minimum - Dual Aura (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Structural Lines (07:30)
- 02. Structural LinesЖанр: Dub Techno, AmbientПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B78B4C0EE83495323BC26986DE85B244DF3C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298038   (602646) от 25.04.2019
-
-Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Jackets (6:27)
- 02. Got To Be Love (4:42)
- 03. Hollywood (7:14)
- 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232284   (602331) от 23.06.2018
-
-Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesmerize Me (4:30)
- 02. Flight Flow (4:34)
- 03. Velotrip (4:30)
- 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914287   (600280) от 01.07.2015
-
-Robin Schulz - Headlights (The Remixes) (2015) [FLAC|Lossless|WEB-DL]<House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headlights (feat. Ilsey)Жанр: House, Progressive HouseПродолжительность: 00:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E9EBFE8EB8B6349C3A5976D954750DDC4BA96F
 ```
 
 https://mybot314.ru/tekegram_catalog/

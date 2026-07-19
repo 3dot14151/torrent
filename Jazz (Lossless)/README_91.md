@@ -1,119 +1,3 @@
-###  Публикация: 1395563   (753828) от 11.07.2020
-
-Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't This a Lovely Day [3:19]
-02. I Cover the Waterfront [6:53]
-03. Gee Baby, Ain't I Good to You [2:32]
-04. Cold Cold Feeling [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2229FE548B95FBF94D436DC0CBDBF3E1C1F30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281323   (753597) от 07.02.2019
-
-VA - Jazz In Texas 1924-1930 (1997) Timeless [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milenberg Joys (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:58)
-02. Clarinet Marmalade (Blues) (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:55)
-03. Mama Will Be Gone (Jimmy Joy's St. Anthony's Hotel Orchestra) (3:19)
-04. You'll Want Me Back Some Day (Lloyd Finlay And His Orchestra) (2:59)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C818AE69E5FDB09051AEFDAEFDEA070E73D228B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281398   (753596) от 07.02.2019
-
-Chris Gall - Room of Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind the Curtain
-02. Room of Silence
-03. It Never Entered My Mind
-04. Interlude I(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091CFB2E3DFF232E6B2873E27691F72B69AFFD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888736   (753459) от 15.04.2015
-
-Cesaria Evora - Greatest Hits (2015) [FLAC|Lossless]<Ethnic, Jazz, Morna>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sodade (Version Piano Bar)
-02. Mae Carinhosa
-03. Mar De Canal
-04. Ligereza(   Читать дальше...   )Жанр: Ethnic, Jazz, MornaПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155F477FC278FE32446472B695186E530114E2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523083   (753390) от 10.01.2022
 
 George Braith - The Complete Blue Note Sessions (1963) 2CD, 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -743,6 +627,122 @@ Phil Woods & Gene Quill Sextet - Phil And Quill (1956) Remaster, 2014, Sony Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CC45F29EB7D64AA35351A811FA49856D50414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019772   (748651) от 24.05.2016
+
+Ameen Saleem - The Groove Lab (2015) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Korinthis (Saleem) - 06:47
+02. Epiphany (Saleem) - 04:48
+03. Don't Walk Away (Saleem-Dunlap) - 05:01
+04. I.L.Y.T. (Saleem) - 07:16(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B118704F9BB1DABCDC4D977890A57782DE9A45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019701   (748637) от 24.05.2016
+
+The Billy Cobham & George Duke Band - "Live" - On Tour In Europe (1976) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hip Pockets
+02. Ivory Tattoo
+03. Space Lady
+04. Almustafa The Beloved(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBE8B77B3966700DD597630F77672A0A7261202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281985   (748516) от 10.02.2019
+
+Brad Wheeler - The Future Was Yesterday (2005) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Vision [5:20]
+02. When One Has Peace [8:44]
+03. Journey After Hours [8:32]
+04. Foreign Affair [7:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182505D398B1AEE8CF286B0DF02BE52CFF700C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523760   (748219) от 13.01.2022
+
+VA - Jazz At The Philharmonic (1944 - 1953) 2009, 10CD, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748219.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - JATP All Stars Feat. J.J.Johnson:
+01. Lester Leaps In [9:11]
+02. Tea For Two [12:39]
+03. The Blues [10:36](   Читать дальше...   )Жанр: Swing, Bop, Vocal JazzПродолжительность: 09:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315DDA33795E8C0BB5B14F45D3D7AFFD39D8484E
 ```
 
 https://mybot314.ru/tekegram_catalog/

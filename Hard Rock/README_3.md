@@ -1,3 +1,61 @@
+###  Публикация: 1361468   (955641) от 19.02.2020
+
+Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireline (3:51)
+02. Too Much Is Not Enough (3:42)
+03. A Roll Of The Dice (4:26)
+04. Mad World (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980744   (954641) от 30.01.2016
+
+Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture
+02. Walk Away
+03. My Story
+04. For Always(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12D387AD68E4423FCE97F12DFB153F0F369E538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089162   (953663) от 02.01.2017
 
 Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
@@ -683,63 +741,6 @@ Virginia Wolf - 2 альбома (1986-1987) [MP3|320 Kbps] <Melodic Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:491574FD8EB70EB997D2EB2EBB8C78473FF32164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366348   (923996) от 11.03.2020
-
-Chasing Violets - 2 альбома (2012-2013) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Outside Heaven
-2013 - Jade HeartsЖанр: Melodic Rock, AORПродолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629A946AE01B29622E3B96C86718F2C37973AF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988056   (922664) от 19.02.2016
-
-Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love That You Give
-02. Victorious
-03. Baroness
-04. Pretty Peggy(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41194D30FAF76C15B81870E8FE8E9A368DD5C2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

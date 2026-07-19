@@ -1,3 +1,177 @@
+###  Публикация: 1047068   (550938) от 28.08.2016
+
+Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala (3:04)
+02. Yeka Yeka (3:21)
+03. Samana (5:44)
+04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237750   (550552) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:26)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237756   (550380) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:25)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AEFF98B64521A3EEBA49BEC6C952C488284CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047221   (550094) от 29.08.2016
+
+Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550094.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Swing (4:09)
+2 - Weightless (3:20)
+3 - Say Anything You Want (3:05)
+4 - Rescue My Heart (3:11)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047215   (550029) от 29.08.2016
+
+Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rookie Dreaming (3:28)
+02 - Not the End (2:27)
+03 - Irene (3:47)
+04 - How Quickly Your Heart Mends (3:46)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047219   (550013) от 29.08.2016
+
+Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (5:43)
+02. Back to the Past (6:44)
+03. Awakening (5:49)
+04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237888   (549729) от 26.07.2018
 
 Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
@@ -574,196 +748,6 @@ Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB7FAA0D64E031E54E6FA027DE6507C56E81610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365652   (543044) от 20.07.2011
-
-Ensemble Morkos - Cedre (1999) [MP3|~200 kbps]<arabo-andalusian ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543044.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:54] 01.  Bashraf "Bulbul al-Afrah"
-[01:38] 02.  Jalla Manqad Sagha Badran
-[01:40] 03.  Tarraza R-Rayhanu Hullata L-Wardi
-[02:14] 04.  Taqsim Sur Le Ud
-[02:48] 05.  Qatili Bi-Ghunji L-Kahali
-[02:48] 06.  Sama I Iskandar Shalfun
-[05:09] 07.  Ya Maliha L-Lama Wa-Hula T-Tathanni
-[01:54] 08.  Rashiqa Lqaddi
-[02:59] 09.  Taqsim Sur Le Violon
-[02:38] 10.  Li Habibun Maqamuhu Fawqa Ra'si(   Читать дальше...)Жанр: arabo-andalusian ethnic musicПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E995769479E50490BE372E779B993FC12A787F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365676   (543042) от 20.07.2011
-
-Khan El Khalil - Oriental Music (2002) [MP3|320 kbps]<arabian ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543042.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:36] 01.  Rakset El Gazia
-[06:47] 02.  Rakset El Topa
-[06:11] 03.  Rakset El Mambatia
-[04:19] 04.  Aale Men Eniy
-[02:29] 05.  Khan El Khalily
-[06:06] 06.  Kasr El Showk
-[09:00] 07.  Slamat Ya Eniya
-[05:34] 08.  Plad El MahpopЖанр: arabian ethnic musicПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A49835F9E2D67ECBFB7BDD550222051C47F801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365559   (543038) от 20.07.2011
-
-Shankar -  Sitar Concertos & other works (2005) [MP3|320 kbps]<arabian ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543038.jpg" />
-</div>
-
-
-###  Подробнее
-
-[12:12] 01.  Morning Love
-[14:40] 02.  Raga Piloo
-[04:11] 03.  Prabhati
-[14:20] 04.  Concerto for Sitar & Orchestra, Part 1: Raga Khamaj
-[06:11] 05.  Concerto for Sitar & Orchestra, Part 2: Raga Sindhi Bhairavi
-[03:30] 06.  Concerto for Sitar & Orchestra, Part 3: Raga Adana
-[15:33] 07.  Concerto for Sitar & Orchestra, Part 4: Raga Manj Khamaj
-[11:46] 08.  Raga: Purlya Kalyan
-[08:47] 09.  Swara-Kakali
-[16:34] 10.  Raga Mala - A Garland of Ragas (I. Lalit (Presto))(   Читать дальше...)Жанр: arabian ethnic musicПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E97DF22E699AC4DF94FBAF305E58A4BE263EC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365365   (543031) от 20.07.2011
-
-Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horovel
-02. Duanmerez
-03. Oror
-04. Rast(   Читать дальше...   )Жанр: Instrumental, DudukПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153969   (542654) от 29.07.2017
-
-Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mummy (4:30)
-02. The Secret of the Mummy (4:42)
-03. Nick's Theme (2:04)
-04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154063   (542653) от 29.07.2017
-
-Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляпота
-02. Тюря
-03. Чучело
-04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

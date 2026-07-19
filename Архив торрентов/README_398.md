@@ -1,3 +1,37 @@
+###  Публикация: 616000   (976016) от 09.02.2013
+
+Boney M. - Take The Heat Off Me (1976) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Daddy Cool [03:30]
+A2. Take The Heat Off Me [04:51]
+A3. Sunny [04:03]
+A4. Help, Help [06:13]
+B1. No Woman, No Cry [05:02]
+B2. Fever [04:03]
+B3. Got a Man On My Mind [03:30]
+B4. Lovin' Or Leavin' [04:42]
+B5. Baby Do You Wanna Bump (Bonus track) [06:54]Жанр: Pop, DiscoПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838EC7DDBD1A8A9378CFCEA08E8377090D32C9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166684   (975983) от 15.01.2010
 
 AVG Internet Security 9.0.730 Build 1834 ML / Multi
@@ -692,32 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C99FD9BA1341BBD9369C87090350CAD6B321532A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974750   (975807) от 12.01.2016
-
-Mozilla Firefox 44.0 beta 8 (x86/x64) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532F308ECDBBB36634751C02DDD5F06C96F67FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

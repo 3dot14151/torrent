@@ -1,3 +1,32 @@
+###  Публикация: 1442147   (1036904) от 24.01.2021
+
+Wolftron - Love Is Deathless (2021) [MP3|320 Kbps] <Darksynth, Synthwave, Cyberwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow (5:24)
+02. New Breed (3:42)
+03. Ragenator (3:36)
+04. Mania (4:05)(   Читать дальше...   )Жанр: Darksynth, Synthwave, CyberwaveПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6DBFA7CF20F54F7DB785AE8571F5332BDAFCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442324   (1036903) от 24.01.2021
 
 Rhys Fulber - Live Dystopia (2020) [MP3|320 Kbps] <EBM, Techno, Industrial, Electro>
@@ -651,35 +680,6 @@ Airmail – это почтовый клиент для операционной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4FF7549297C40F62DCB045710FD295B507202A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442447   (1036615) от 25.01.2021
-
-The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Ground (Shake The Memory)
-02. Like No Other (Bassline)
-03. Come Alive
-04. Bustle and Flow(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B28335F801D5E1D43D988099556F753A6B6448
 ```
 
 https://mybot314.ru/tekegram_catalog/

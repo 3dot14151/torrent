@@ -1,3 +1,32 @@
+###  Публикация: 1291641   (668805) от 25.03.2019
+
+VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days 3:32
+002. Jess Glynne - Hold My Hand 3:47
+003. Clean Bandit feat. Anne-Marie & Sean Paul - Rockabye 4:10
+004. Panic! At The Disco - High Hopes 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB09DBFEEFCB2A8BF1D162527F5D19BA2D1A722E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031380   (668773) от 03.07.2016
 
 Omer Ozgur - As Is (2009) Reissue, 2016 [MP3|320 Kbps] <Pop, Rock>
@@ -722,35 +751,6 @@ Cigarettes After Sex - Cigarettes After Sex (2017) [MP3|320 Kbps] <Indie Pop, Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDB2539EC68BEC9C7B813CCC1D7A5C07CDC1723B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140012   (658140) от 04.06.2017
-
-Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comete (3:43)
-02. Voices Of Paradise (3:28)
-03. The Last Day (5:08)
-04. Eire (3:24)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BD69C2BFB8F33BBE83579514B4770B30FA9F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

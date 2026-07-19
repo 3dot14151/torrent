@@ -1,264 +1,3 @@
-###  Публикация: 1622358   (1030294) от 28.03.2023
-
-Было Небо - Над нами (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выжженный свет [00:01:52]
-02. Стoй и смотри [00:02:49]
-03. Вниз головой [00:02:37]
-04. В тишине [00:03:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD269127B9CAB6D2BE2FD84F16E5259D7EB3191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628258   (1030083) от 20.02.2021
-
-ЧайФ - 20 альбомов + 2 Single + 7 Live's + 10 Compination (1987-2021) 81CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чайф (первоначально Чай-Ф, также встречаются написания ЧАЙФ и ЧайФ) — советская и российская рок-группа, образованная Владимиром Шахриным, Владимиром Бегуновым и Олегом Решетниковым в 1985 году. История группы начинается ещё с 1983 года, когда Владимир Шахрин, Олег Решетников и Вадим Кукушкин начали репетиции в Свердловске1987 - Дерьмонтин (1997)
-1987 - Дуля с маком
-1989 - Не беда (1994)
-1990 - Давай вернёмся (2000)Жанр: Rock |Продолжительность: 70:30:26 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E55BF6700FE28918C6F4127C034372F1D12A659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622452   (1030052) от 29.03.2023
-
-Selfportrait - Солнце (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не важно [00:03:14]
-02. Кофе и сигареты [00:02:12]
-03. Корабли [00:03:55]
-04. Где моё лето? [00:02:54](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31336F981174B3B3D8D4498BE95B2C36421DE928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622604   (1030046) от 29.03.2023
-
-8семь - Флэшбэки (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От улыбки до слёз [00:03:21]
-02. Без сна [00:03:41]
-03. Метель [00:03:36]
-04. Мёртвая осень [00:03:26](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D82F9FBB104385292C1F8D7FD7A150564E9AD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622300   (1030037) от 29.03.2023
-
-Ярик Бро (Ярослав Сафронов) - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девочка с улыбкой на лице (Акустика) [00:02:26]
-02. В Питере дождь (Акустика) [00:03:00]
-03. Закрой глаза (Акустика) [00:02:25]
-04. Когда погаснут огни (Акустика) [00:02:09](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F1258D0A6E3A481E4610E175E541191F5B6C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622436   (1029622) от 31.03.2023
-
-20x07 - Твои слезы меняют закат (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock,Pop Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слишком поздно [00:02:46]
-02. Она сама [00:02:19]
-03. Не звони [00:01:56]
-04. Тебя нет [00:02:46](   Читать дальше...   )Жанр: Pop Rock, Pop Punk, Alternative RockПродолжительность: 00:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4C7DD3EB523629BF6C9F74727212CBEC47BF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623024   (1029609) от 31.03.2023
-
-Мураками - В песнях навсегда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1029609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Везувий
-2. За стеной
-3. В горы
-4. Пошуршали листьями(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23FF5B803DD82CC202D66F34B90B14878F7A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623461   (1029238) от 02.04.2023
-
-Автоматические удовлетворители - Любимые песни мамы (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1029238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ерунда [00:02:38]
-02. Буржуи [00:03:14]
-03. Юнкера [00:04:37]
-04. Крюк [00:04:37](   Читать дальше...   )Жанр: Funeral Punk RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA99D534758B4B518C37AE8D88B7009A6282F8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450284   (1029011) от 26.02.2021
-
-Слот - Инстинкт выживания (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Introduction [00:01:17]
-02 Инстинкт выживания [00:03:57]
-03 Норма [00:04:30]
-04 17 лет [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD106563FC850D51C8FB11CEA9015D38462CADA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450363   (1028962) от 26.02.2021
 
 Земфира - бордерлайн (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -745,6 +484,267 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD198816F71E4B76FACC4D9A70971438EBAE9B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457643   (1024441) от 26.03.2021
+
+Банда четырех - Смерть в июне (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Резервация здесь [00:03:27]
+02. Ночью через лес [00:03:43]
+03. Дисциплина [00:04:39]
+04. Плохая репутация [00:04:46](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26EDB52ABA29EF4E41D13E3FD1115C92F604A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457526   (1024407) от 26.03.2021
+
+Северный Флот - 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024407.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пританцовывай
+2. Чёрное солнце
+3. Ветер ходит налегке
+4. Мне так скверно(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F3719C3A176F4174F7392305D6EFDFD5094F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459375   (1023265) от 01.04.2021
+
+Александр Пушной - Каверы Пушного (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023265.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Трава у дома (cover version)
+2. От винта! (cover version)
+3. 6 кадров (cover version)
+4. День рожденья (cover version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C92728C7972B4D534CB470A169085DA82EE3AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532301   (1022665) от 04.04.2021
+
+VA - НАШЕствие (01-19 шаги) 19CD (1999-2007) [ APE, FLAC|Lossless|image + .cue, tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022665.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Нашествие» — один из крупнейших в СНГ фестивалей мультиформатной-музыки отечественной сцены под открытым небом. Организатором фестиваля выступает московская радиостанция «Наше радио» и компания «С.А.Т.».01. Гришковец,Ренарс и Бигуди - На заре (04:37)
+02. Ю-Питер - Скажи мне птица (03:38)
+03. Бригадный подряд - Рив гош (03:11)
+04. Ляпис Трубецкой - Керчь2 (03:23)(   Читать дальше...   )Жанр: RockПродолжительность: 20:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228C6B9F16864A4BA19C6362305E3E4DA10E836C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461457   (1021957) от 09.04.2021
+
+KAUAN - Ice Fleet (2021) [FLAC|Lossless|Web-DL|tracks] <Ambient, Post Rock, Folk Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enne (4:24)
+02. Taistelu (5:10)
+03. Maanpako (5:47)
+04. Kutsu (5:13)(   Читать дальше...   )Производство: Artoffact Records - 628070638697Жанр: Ambient, Post Rock, Folk Doom MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DE97F9AA81D61BDEAA194CB8939E87A48B648A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461483   (1021815) от 10.04.2021
+
+Собаки Качалова - Испытание на прочность (2020) [FLAC|Lossless|image + .cue] <Rock, Garage Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увольнение е работы (Всё будет рок-н-ролл)
+02. Думаю о тебе
+03. Поезд (Предчувствие катастроф)
+04. Распад СССР(   Читать дальше...   )Жанр: Rock, Garage Rock, PunkПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB92C36CB7049993A1CD44840243E2C311A0A842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461520   (1021755) от 10.04.2021
+
+Аракс - Колокол Тревоги (1980) Reissue, 2014, Мелодия [FLAC|Lossless|tracks + .cue] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колокол Тревоги (4:49)
+Lyrics by – И. Кохановский/ Music by – Ю. Антонов
+02. Земляничная Поляна (2:53)
+Lyrics by – В. Дюнин/ Music by – Ю. Антонов(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, Art Rock, Prog Rock, New WaveПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD21AFAE3591B1246A2699D4760482A16054F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412282   (1020801) от 16.04.2021
+
+КерамикА - 5 EP / 2 Single (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020801.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Zaprava (EP)
+2019 - Калейдоскоп любви (EP)
+2019 - Три в одном (EP)
+2020 - Люберцы (Single)Жанр: RockПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109236FB0B1795F68982628B6B150CF0AD6C01C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462912   (1020796) от 16.04.2021
+
+LOUNA - Обратная сторона (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Путь к себе
+2. Искусство
+3. Сигнал в пустоте
+4. Штурмуя небеса(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B993A6C488E396FE63FE15581C9B4B7A3709335
 ```
 
 https://mybot314.ru/tekegram_catalog/

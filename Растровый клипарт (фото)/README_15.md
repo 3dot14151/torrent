@@ -1,29 +1,3 @@
-###  Публикация: 1433888   (154645) от 22.12.2020
-
-Растровый клипарт - Fast food and beer stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фастфуд и пиво, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x6000-6555x6555
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C5714735221614A611F17AE75C61A9508B2A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433904   (154638) от 22.12.2020
 
 Растровый клипарт - Girl in white shirt stock photo [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6887FC32B23CBA64DD97CBFA022EB3ADAA7A947A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195377   (143525) от 28.12.2017
+
+Растровый клипарт - Fotolia - Sensual attractive lady posing in studio [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3920x5792-8688x5792
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B94F60FA6F2CBF63DCFBF8B2FEE209DF2BDB253
 ```
 
 https://mybot314.ru/tekegram_catalog/

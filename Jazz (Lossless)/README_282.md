@@ -1,119 +1,3 @@
-###  Публикация: 1671294   (171429) от 24.10.2023
-
-VA - 30 Midnight Love Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Kiss & Dance (4:44)
-02. eJazz Artistry - I Can't Stop Loving You (4:22)
-03. Love Suggestions - Clarity (4:36)
-04. Chillaxonic - Serenity (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950C8C2CEF30C7E7304E3EDAF464AC31B98D4E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671296   (171418) от 24.10.2023
-
-VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
-02. Kool&Klean - I Can Only Imagine (4:55)
-03. Chillaxonic - Oasis (4:58)
-04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671377   (171407) от 24.10.2023
-
-Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greatest Part of You
-02. Montecarlo
-03. My Love Is True
-04. I'm Letting Go (Tenderly)(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91E12C3BFE2C0DADCF8F94795CD9C07622C8920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671561   (171271) от 25.10.2023
-
-Sonny Clark - Quintets (1957, 1958) 2000, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Flush [9:03]
-02. Lover [7:02]
-03. Minor Meeting [6:53]
-04. Eastern Incident [8:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB860253F746F1F398370EC8897CAC2D337599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671550   (171270) от 25.10.2023
 
 The Clare Fischer Latin Jazz Big Band - Ritmo! (2012) Clavo Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Big Band>
@@ -745,6 +629,122 @@ CD01 -  The Modern Jazz Quartet 1953 & Concorde:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CACE0D4E3E8AB7024585B51815A93F92173D501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430719   (169998) от 11.12.2020
+
+Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Jam Session:
+01. Jam Blues [14:45]
+02. What Is This Thing Called Love? [15:54]
+03. Ballad Medley [17:26](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 03:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430843   (169984) от 11.12.2020
+
+Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) (2018) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 My Funny Valentine 6:37
+2 Bye Bye Blackbird 5:50
+3 For Once In My Life 6:15
+4 'S Wonderful 3:33(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3BDE591AD204EA03C0EBAB0894F2B9B8382359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596433   (169890) от 10.12.2022
+
+Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169890.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Complete Communion [20:41]
+02. Elephantasy [19:39]
+03. Symphony for Improvisers [19:44]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D4E3EC592D265B6D1A5A132DE3CD6F058D23CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344551   (169881) от 11.12.2019
+
+John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India [7:25]
+02. 96th Street Sonata: Casilda [4:40]
+03. 96th Street Sonata: Mellow Max [1:53]
+04. 96th Street Sonata: King Bert [3:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048BEC0E7927544099E2912D5188057A8114DB19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 219439   (718734) от 05.08.2020
+
+VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Valee De Mai    		(08:12)
+02. Dansing Fantasy - Nautilus    	(04:22)
+03. Venja - Eliah`s Ascension    	(04:14)
+04. Software - Island Sunrise    	(02:51)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327808   (718731) от 05.08.2020
+
+Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter 		 - Vivaldi	(05:25)
+02. Sarabande         	 - Handel	(04:36)
+03. Ave Maria 		 - Caccini	(05:16)
+04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892940   (717091) от 27.04.2015
+
+V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717091.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
+01. Seal - Dont Cry
+02. Chicago - Hard to Say Im Sorry
+03. Percy Sledge - When A Man Lovers A Woman(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 03:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285613   (714825) от 01.03.2019
 
 Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
@@ -743,105 +830,6 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519899   (635350) от 07.07.2012
-
-Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
-</div>
-
-
-###  Подробнее
-
-JOAQUIN RODRIGO
-
-   Concierto de Aranjuez
-01. Allegro con spirito	   5:46
-02. Adagio	 10:35
-03. Allegro gentile	   4:55
-
-   Tres piezas espanolas
-04. Fandango	[04:06]
-05. Passacaglia	[07:20](   Читать дальше...   )Жанр: Classical GuitarФормат: 6 x CDПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520920   (630865) от 09.07.2012
-
-Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
-02. A.M. Radio :: 02:46
-03. Blair Mountain :: 03:34
-04. Angel Dust :: 03:00
-05. Olden Days :: 04:43
-06. Maud Only Knows :: 03:03
-07. Penny Arcade :: 03:41
-08. Silver Fiddle :: 03:21
-09. Radiation Blues :: 03:25
-10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037277   (613768) от 24.07.2016
-
-VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moonlighters / Right On [0:02:09.49]
-02. Willie K / Holoholo Ka'a [0:02:14.32]
-03. Ehukai / Moloka'i Slide [0:03:54.11]
-04. Teresa Bright / The Cockeyed Mayor of Kaunakakai [0:02:06.66](   Читать дальше...   )Жанр: WorldПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1464386   (1019742) от 22.04.2021
+
+StartIsBack++ 2.9.10 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019742.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartIsBack++ возвращает в операционные системы Windows 8.1 и Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. StartIsBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6A7419655BAF0B2C4E83C077C37671E9BDD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464401   (1019741) от 22.04.2021
 
 Topaz Gigapixel AI 5.5.0 RePack (& Portable) by TryRooM [En]
@@ -651,32 +677,6 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F01C6C4046D161B73D0CB10853CAB5F130CD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464666   (1019639) от 23.04.2021
-
-Easy Data Transform 1.15.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 07.04.2021Разработчик: Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F307A1BF12C41A13B1B5323746F22257833A1937
 ```
 
 https://mybot314.ru/tekegram_catalog/

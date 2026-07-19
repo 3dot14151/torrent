@@ -1,3 +1,90 @@
+###  Публикация: 1393377   (767701) от 30.06.2020
+
+VA - Birds In The Windows (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shitkid - Poobrain
+002. Lewis Capaldi - Lost On You
+003. Alev Lenz - Laura
+004. Baxter Dury - Saliva Hog(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3646FEBB6CC66E8B1A20C12E156D07B79B7A257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278764   (767667) от 27.01.2019
+
+VA - Wonderful Life: Real Rock (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anathema - Anathema
+002. Oakman - Clear Enough
+003. Redwood - In Your Arms
+004. Tantric - Down And Out(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C60891DDF3A9CB3799E4A619A4CE256127CA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393378   (767633) от 30.06.2020
+
+VA - Music for You vol.9 (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caligula's Horse  - Valkyrie (05:06)
+ 02. Deceptic - Ocean (04:36)
+ 03. Lost in Thought - Seek to Find (05:15)
+ 04. Pyramaze - Disciples of the Sun (04:12)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84140C18B9B2A66474DEDA7DB57ECF733840FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393819   (766356) от 02.07.2020
 
 VA - Chasing Sunrise: Heroes Of Modern Rock Vol.01 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
@@ -658,93 +745,6 @@ VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280581   (760427) от 03.02.2019
-
-VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast In Black - Beast In Black (2017) (4:29)
-02. Excalion - Divergent Falling (2017) (5:18)
-03. Visions of Atlantis - Seven Seas (2016) (4:11)
-04. Nocturnal Rites - Before We Waste Away (2017) (4:46)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB70195E327A5C82F5FDE0001956DC99B969678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215317   (759609) от 25.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
-122 Ozzy Osbourne - Zombie Stomp
-123 3 Doors Down - Kryptonite
-124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215165   (759463) от 25.03.2018
-
-VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Северный Флот  -  Революция на вылет  4:10
-002.  Вячеслав Бутусов  -  Бедная птица  4:06
-003.  Северный флот  -  Время любить  4:15
-004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 923772   (561045) от 02.08.2015
-
-OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non C'e Niente Da Lavare
-02. S'Ou Abbattadu
-03. Nochdenada
-04. Destiny Sneezed(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180B107583BC26D069E9B6133E90107A01A5D7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924052   (561044) от 02.08.2015
-
-Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Might As Well Be Spring [05:47]
-02. You Stepped Out Of A Dream [06:10]
-03. Softly As In A Morning Sunrise [03:11]
-04. Lover Man [04:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC284870256F1A523E1098C7546A7996715CDC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923899   (561043) от 02.08.2015
-
-Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolivia [10:11]
-02. Naima [08:39]
-03. 5/4 Thing [07:55]
-04. Bittersweet [06:55](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2DDD0A92FBEE665E71FD598BA2779CA3542E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364932   (560958) от 18.07.2011
-
-Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, Neoclassical, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кетил Бьорнстад (Ketil Bjørnstad) уже в течении 30 лет работает в импровизационной музыке. Получив классическое музыкальное образование (в Осло, Лондоне и Париже), Бьорнстад в 1969 году стал солистом Филармонического оркестра Осло. Однако, познакомившись с альбомом Майлса Дэвиса (Miles Davis) In A Silent Way, пианист обратил свои музыкальные устремления в сторону (   Читать дальше...   )Список альбомов:
-1990 - The Shadow
-1993 - Water Stories
-1995 - The Sea (with David Darling, Terje Rypdal, Jon Christensen)(   Читать дальше...   )Жанр: Contemporary Jazz, Neoclassical, PianoПродолжительность: 22:26:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235415   (560517) от 11.07.2018
 
 Hadley Caliman - Hadley Caliman (1971) 2014, Boplicity Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
@@ -751,6 +635,122 @@ Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C64DB72CEFCE8B2F18C7E82D9D3B63305D43D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153584   (558255) от 27.07.2017
+
+Miles Davis - Tutu (1986) [FLAC|Lossless|image + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutu (5:15)
+02. Tomaas (5:32)
+03. Portia (6:18)
+04. Splatch (4:45)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0820F2497800A71BA23A3AE8B1F54A9D606960CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153582   (558204) от 27.07.2017
+
+Miles Davis - Seven Steps to Heaven (1992) [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basin Street Blues (10:28)
+02. Seven Steps To Heaven (6:22)
+03. I Fall In Love Too Easily (6:45)
+04. So Near, So Far (6:58)(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4129406AEF491231B7E4A78AF1D2A11959761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153590   (558190) от 27.07.2017
+
+Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy Of Life (4:19)
+02. Forever In Love (4:58)
+03. In The Rain (4:59)
+04. Sentimental (6:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045639   (558165) от 24.08.2016
+
+Franco Cerri - Chitarra (1964) 2008, DIW Records[FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chit-Car [02:57]
+ 02.Blues For Jo [03:36]
+ 03.Polka Dots And Moonbeams [02:55]
+ 04.Bassezza [04:57](   Читать дальше...   )Жанр: BopПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13FB9B3B56C6D61CD60BC1031737FD28A1D6468
 ```
 
 https://mybot314.ru/tekegram_catalog/

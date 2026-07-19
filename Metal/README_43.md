@@ -1,3 +1,90 @@
+###  Публикация: 1030220   (676674) от 29.06.2016
+
+Circle Of Contempt - Structures For Creation (2016) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inception (02:01)
+02. Filth (03:11)
+03. Ascend From Disruption (02:57)
+04. Structures For Creation (03:21)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4675531F6442DA63B6603FD087F07019E86D4BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290798   (676586) от 21.03.2019
+
+Stahlmann - Kinder der Sehnsucht (2019) [MP3|320 Kbps] <Neue Deutsche Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vom Himmel verloren
+02. Wahrheit oder Pflicht
+03. Die Besten
+04. Mein Leben fällt(   Читать дальше...   )Жанр: Neue Deutsche HarteПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDC5EB74CC9B384B9C2D137665760144B545C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290804   (676323) от 21.03.2019
+
+Battle Beast - No More Hollywood Endings (2019) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken
+02. No More Hollywood Endings
+03. Eden
+04. Unfairy Tales(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AA47F91C98F72486A35E4C3CAE51DF9E112C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290801   (676193) от 21.03.2019
 
 Motley Crue - The Dirt Soundtrack (2019) [MP3|320 Kbps] <Glam Metal, Hard Rock>
@@ -676,93 +763,6 @@ SAINT VITUS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E4E5D114BFA328DF1CF9EAC4B337752A5AD1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224529   (666009) от 10.05.2018
-
-Lords of Black - Icons of the New Days (2018) 2CD, Japan, Limited Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Gone Mad
-I - History Of Gods
-II - The Slaughter Of Innocence
-III - World Gone Mad(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503A924413E3970EB10A9E3E32E98938B586933D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137850   (664263) от 29.05.2017
-
-Apocalypse Orchestra - The End Is Nigh (2017) [MP3|320 Kbps] <Doom Metal, Folk Metal, Medieval>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Garden Of Earthly Delights
-2. Pyre
-3. Flagellants' Song
-4. Exhale(   Читать дальше...   )Жанр: Doom Metal, Folk Metal, MedievalПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E6B1BA597030CB1B83A6ACF389DA88A3BFB47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137880   (664200) от 29.05.2017
-
-Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Evil
-02. Antidote
-03. Sin City
-04. Creature of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4ADECA0062B7495A8CDFB0C84DBE46C801DB5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

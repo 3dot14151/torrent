@@ -1,3 +1,32 @@
+###  Публикация: 917774   (589086) от 12.07.2015
+
+Betty Who - Take Me When You Go (2015) Deluxe Version [MP3|320 кб/с]<Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Me (03:39)
+02. High Society (04:01)
+03. Glory Days (04:03)
+04. Somebody Loves You (03:31)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC8AC6520CC7E1B3C71C03F2BFAC7D79ADF3E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551769   (588992) от 18.05.2022
 
 VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
@@ -714,41 +743,6 @@ VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E9D8B5D92FBCCE6CC144FE71AAF4AC4F6CD3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527323   (576212) от 26.07.2012
-
-Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: pop, poprock, disco, blue-eyedsoul, softrockПродолжительность: 00:52:29
-
- 01. This Is Where I Came In 04:56
- 02. She Keeps On Coming 03:57
- 03. Sacred Trust 04:53
- 04. Wedding Day 04:43
- 05. Man In The Middle 04:21
- 06. Deja Vu 04:19
- 07. Technicolor Dreams 03:04
- 08. Walking On Air 04:05(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1778565   (28275) от 08.02.2025
+
+Media Player Classic Home Cinema (MPC-HC) 2.4.0.0 + Portable (unofficial) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8DBAE9F67E8C94FE6BE6141653C6D46C75D933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778370   (28272) от 08.02.2025
 
 CyberLink PowerDirector 2025 Ultimate 23.1.1322.0 (x64) Portable by 7997 [Multi]
@@ -649,32 +675,6 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1242E79BB10C8E8BC523F110AC9753C655585A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778978   (28071) от 10.02.2025
-
-StartAllBack 3.9.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28071.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3FD4D38FF53900780C367271ECAFFE98974CAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

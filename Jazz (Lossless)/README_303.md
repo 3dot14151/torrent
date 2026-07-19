@@ -1,119 +1,3 @@
-###  Публикация: 1683750   (128208) от 12.12.2023
-
-VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Holiday - I'll Never Smile Again (3:26)
-02. Ella Fitzgerald - Get Out Of Town (3:23)
-03. Chet Baker - I Fall In Love Too Easily (3:20)
-04. Tord Gustavsen Trio - Vær sterk, min sjel (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0410E2EFA3DC9BCF66A3399E47B553BF77D70F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683973   (128127) от 13.12.2023
-
-Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chant
-02. Monterey
-03. Between the Sheets
-04. Li'l Darlin'(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5CFD278A6F01113AD2ECFCB7B3CEDCAC2A6C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683866   (128099) от 13.12.2023
-
-VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Beyond the Horizon (4:58)
-02. Chillaxing Jazz Kollektion - It Dews (5:02)
-03. Chillaxonic - Oasis (4:58)
-04. Kool&Klean - Bound by You (3:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683917   (128086) от 13.12.2023
-
-Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limehouse Blues [8:04]
-02. Sweet and Lovely [10:54]
-03. Lew Blew [5:36]
-04. Petite Chanson [9:48](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683916   (128085) от 13.12.2023
 
 Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -745,6 +629,122 @@ VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B596CA476C958532E8CE3473BB21A03DB2FB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685289   (127224) от 18.12.2023
+
+Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:25]
+02. Santa Claus Is Coming to Town [2:21]
+03. Have Yourself a Merry Little Christmas [2:58]
+04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685292   (127223) от 18.12.2023
+
+Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love? [6:22]
+02. La Bonita [5:32]
+03. Seven Steps to Heaven [5:50]
+04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685322   (127221) от 18.12.2023
+
+VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj X-perience - Best Life (7:39)
+02. DOUT.D - Strolling (2:23)
+03. The Last Minister - Tribute To J.B. Family (6:20)
+04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685287   (127212) от 18.12.2023
+
+Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night [3:29]
+02. Christmas Waltz [3:22]
+03. Everything's Not Lost [4:09]
+04. Someday at Christmas [2:55](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB83819CE144E6E24E364436DF44AE4235328589
 ```
 
 https://mybot314.ru/tekegram_catalog/

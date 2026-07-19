@@ -1,90 +1,3 @@
-###  Публикация: 1333462   (303291) от 25.10.2019
-
-VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franz Matthews - Tutan Jamon
-002. Boogie Freaks - What's Up (Original Mix)
-003. Hot Streak - Body Work (Vocal Mix)
-004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261539   (303101) от 11.11.2018
-
-VA - MuviDance Russian Party Vol.2 (2018) [MP3|320 Kbps] <Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русский Размер - Было и прошло (04:49)
-02. Александр Каштанов - Нет не верю я (03:22)
-03. Анжела Бабич - Свет в окне (Remix) (04:04)
-04. Вояж - Ты для него (уже не значишь ничего) (04:20)(   Читать дальше...   )Жанр: Dance, Euro House, Disco, PopПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2071B15003EA8F22EB0E9B71AD388D33D5C06B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333445   (302579) от 25.10.2019
-
-VA - Club Night Rider (2019) [MP3|320 Kbps] <Dance, Pop, Electro, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Sinclar - Love Is The Answer
-002. Iag & Omoc - True Lie
-003. Alec Fury - Masterpiece Of Deception
-004. Fungist - Hello(   Читать дальше...   )Жанр: Dance, Pop, Electro, DiscoПродолжительность: 12:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D45B40B691055668A64B02AE54C0A28542D936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078054   (300517) от 01.12.2016
 
 VA - November Planet Pop (2016) [MP3|192~320 Kbps] <Pop>
@@ -739,6 +652,93 @@ VA - Новая Русская Дискотека - 6 (2016) [MP3|256-320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9CE1765701F2D6D75B7C3BC83E86DDE0480A821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962464   (292838) от 05.12.2015
+
+VA - Автозвук. Отборный зимний хит (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292838.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MC Doni feat. Kristina Si - Султан
+002. Bridge - Временно Твоя
+003. Фьёрди Feat. Эрнест - Через Года
+004. Prides - Out Of The Blue(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF4AA1AC7EC5E90504D5DECDBB1575D1C1C95F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962600   (292770) от 05.12.2015
+
+VA - Звёздная Дискотека (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vache (Delta Pro) Feat. Alina - Без Ума
+02. Snoop Dogg & Tha Dogg Pound - Bodyguard Hard
+03. The Pierces - Confidence In Love
+04. Время И Стекло - Останься В Моих Снах(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D28F72DE7B953B31A88BAB96F713F8B9AEF883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079305   (292212) от 05.12.2016
+
+VA - Хит-Парад. Взрывной 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292212.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Мулат - Моя Самая Дюбимая 3:45
+002.Nik Turmalin - Tell Me No 3:28
+003.Алсу - Тепло От Любви 3:44
+004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDCAE1CD0DB57F63A7B55FCF85EE5D673F34D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

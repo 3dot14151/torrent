@@ -1,5 +1,92 @@
 https://t.me/izofen
-###  Публикация: 1878148   (1074653) от 
+###  Публикация: 1881661   (1077273) от 
+
+Marie Fredriksson, Roxette - Best of (1986-2013) Compilation Album [MP3|320 Kbps] <Pop Rock, Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Fredriksson - Dar isen ar som tunnast
+02. Marie Fredriksson - Den standiga resan
+03. Marie Fredriksson - Det regnar igen
+04. Marie Fredriksson - Ett enda liv(   Читать дальше...   )Жанр: Pop Rock, BalladПродолжительность: 01:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188E1BBBF7942CF75B3B0751CE627B8044C4E9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881329   (1076774) от 
+
+VA - AIternative Rock RU (2026) [MP3|320 Kbps] <AIternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Хинков - Никто (01:34)
+ 002. Шкед - Банкрот (03:02)
+ 003. Bluntyboi - Рокнролл (04:01)
+ 004. Эвелина Пташинская - Dragon's Tears (04:10)(   Читать дальше...   )Жанр: AIternative RockПродолжительность: 12:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89005501F43821813B14AFB581B12640BA70BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880376   (1075871) от 06.07.2026
+
+Madrugada - Best of (1999-2011) [MP3|320 Kbps] <Soft Rock, Alternative Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4-Track Country Songs part II
+02. Big Sleep
+03. Blood Shot Adult Commitment
+04. Come on Home to Me (feat. Neil McNasty)(   Читать дальше...   )Жанр: Soft Rock, Alternative Rock, Blues RockПродолжительность: 01:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D301B3367B33C88F6038D3FA693A47EA133227BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878148   (1074653) от 26.06.2026
 
 VA - Сказочный том III (2008-2026) [MP3|192 Kbps] <Folk rock, Post punk>
 
@@ -28,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1878157   (1074652) от 
+###  Публикация: 1878157   (1074652) от 26.06.2026
 
 VA - Сказочный том IV (2026) [MP3|192 Kbps] <Folk rock, Post punk>
 
@@ -657,93 +744,6 @@ Daniele Gazzarin - Favorites Collection Part 7 (2026) [MP3|320 Kbps] <Country, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E19A280FC910D41F6FCE772AC431997314345D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865099   (1065649) от 16.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 5 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wrong Souls
-02 - Heart to Lose
-03 - Train to Nowhere
-04 - The Vortex(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1020B2E6AACDFBD76C3CC19C29DF3EF7D4388397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865261   (1065318) от 14.04.2026
-
-VA - Russian Rock 2015-2016  [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065318.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:08]. 001-Алиса - Новый мир
-[4:17]. 002-Мумий Тролль - Кто будет спасать рок-н-ролл
-[3:40]. 003-Сплин - Герой рабочего класса (cover John Lennon)
-[3:51]. 004-Ленинград - Экспонат(   Читать дальше...   )Жанр: rockПродолжительность: 09:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538C1F3517E3C909B59F2B16FB62D64FFA64085F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865322   (1065277) от 15.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Cry
-02 - The Tormented Memory
-03 - Without End
-04 - The Regret(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B7EFD00C017B5D2F33477C27A8268141290F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

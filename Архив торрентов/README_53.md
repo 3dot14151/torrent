@@ -1,3 +1,32 @@
+###  Публикация: 1440493   (1038853) от 17.01.2021
+
+VA - Coldharbour Reflections (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & HALIENE - Tidal Wave (Extended Mix)
+02. Daxson - While We Wait (Extended Mix)
+03. Arkham Knights - Closing In (Extended Mix)
+04. DJ T.H. & Jan Johnston - Stealing Time (Markus Schulz In Search Of Sunrise Extended Rework)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457D6C2BF8D7DEF35F0D9DAA6875C8D481B25D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440383   (1038850) от 17.01.2021
 
 VisualDiffer 1.8.1 [En]
@@ -666,35 +695,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D537A69354B01D8B30F1160AC79046D02FE2C300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440474   (1038769) от 17.01.2021
-
-VA - Armin Van Buuren & Ruben De Ronde - A State Of Trance 999 (Classic Special) (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAIA – J’ai Envie de Toi
-02. Shogun – Skyfire
-03. MaRLo – Visions
-04. Markus Schulz – The New World(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134D23EF646DB94B57D2D1B3BA050BFACF1BEEBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,263 @@
+###  Публикация: 962944   (290424) от 06.12.2015
+
+VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Sugar (feat. Francesco Yates) 03:40
+02. Deorro & Chris Brown - Five More Hours (Radio Edit) 03:33
+03. Tiesto & KSHMR - Secrets (feat. Vassy)Жанр: Dance, Club, HouseПродолжительность: 05:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080107   (290418) от 06.12.2016
+
+VA - Ultimate Songs Pop Essentials (2016) [MP3|195-320 Kbps] <Hip-Hop, Ethnic, Soul, R&B, Folk, Indie>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Carl Blank - Fate 03:46
+02. Oj Da Juiceman - Kyle Kover 03:52
+03. Sync Diversity - Let's Dance 03:22
+04. Paper Route - Pretend 03:40(   Читать дальше...   )Жанр: Hip-Hop, Ethnic, Soul, R&B, Folk, IndieПродолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C597F283E7E4AF27C01E675A6839003952395A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263117   (289769) от 18.11.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 16.11.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Sam Smith  -  Promises
+02.  KAZKA  -  Плакала
+03.  David Guetta feat. Sia  -  Flames
+04.  Loud Luxury feat. Brando  -  Body(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7B19266C2E3A91E23753DC11C79AAD36458A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335272   (289582) от 01.11.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 01.11.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones And I - Dance Monkey 3:30
+02. Shawn Mendes & Camila Cabello - Senorita 3:11
+03. FILV & Edmofo feat. Emma Peters - Clandestina 2:29
+04. Pade & Murat Salman - Time Flies 2:59(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9269C36F51EEF3ABC331A0055056BCEEF00C3488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186077   (289497) от 23.11.2017
+
+VA - По волне моей памяти 2: Том2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Лейся песня  -  Все не так 3:34
+02.  Машина времени  -  Скажи, мой друг 3:22
+03.  Ансамбль 'Фестиваль'  -  Городские цветы 4:28
+04.  Крис Кельми  -  Замыкая круг 5:05(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29189500C6839F43B999D6EB85FD30D7D44976D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335271   (289429) от 01.11.2019
+
+VA - Новинки С Разных Популярных MP3 Сайтов ver.89 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+1.B.o.B Ft. Hayley Williams - Airplanes (Arefiev Remix) (3:00)
+2.Cacciola - My Body (Milk Bar Remix) (4:56)
+3.Curbi - Too Much (Extended Mix) (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59521A82F6B0B55D3E01C81390E373A5071D320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186023   (289133) от 23.11.2017
+
+VA - По волне моей памяти 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Владислав Андрианов  -  По волне моей памяти 3:44
+02.  Машина времени  -  За тех, кто в море 3:47
+03.  Пламя  -  Не надо печалиться 2:54
+04.  Синяя птица  -  Берегите женщин 4:31(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8996E4EAAD0A69B6C4381094DC36558A64650322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080637   (288469) от 07.12.2016
+
+VA - Hits Disco and Pop Dance - Part VIII (2016) [MP3|256 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj. Bobo - Deep In The Jungle
+02. Gilla - Tomcat
+03. Los Del Rio - Macarena
+04. Billy Joel - My Life(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999FF7C2023F37159E1B5DEF9EE6779B20282B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186167   (288103) от 24.11.2017
+
+VA - По волне моей памяти 2: Том4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Земляне  -  Поверь в мечту 4:40
+02.  Машина времени  -  Скворец 3:55
+03.  Группа Стаса Намина 'Цветы'  -  Пусть будет так 3:28
+04.  Круг  -  Ты Сказала Поверь 5:21(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D43921D0048B5BBB0774ED614E86E9C756C575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186139   (288100) от 24.11.2017
 
 VA - По волне моей памяти 2: Том3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
@@ -481,264 +741,6 @@ VA - Зайцев нет. Лучшие новинки декабря (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5EE39F6134021041969A4C6FF32AF9225FA6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186724   (284415) от 26.11.2017
-
-VA - The Official UK Top 40 Singles Chart 24.11.2017 [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camila Cabello - Havana (Feat Young Thug)
-02. Rita Ora - Anywhere
-03. Marshmello - Silence (Feat Khalid)
-04. Ed Sheeran - Perfect(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E9E7AEC222E4E6A155CEC4DF353AAA93460432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335276   (284404) от 04.11.2019
-
-VA - не Громкие новинки недели 41 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Сюзанна - По Тебе Скучать (4:41)
-2.Рита Дакота - Застрелить (4:20)
-3.Наталья Штерн - Береги Любовь (4:19)
-4.CYGO & Любовь Успенская - Чёрная Роза (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF19636C53263FCF6DCB769BE62FA7F267BB168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186708   (284250) от 26.11.2017
-
-VA - По волне моей памяти 2: Том12 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Самоцветы  -  Вся жизнь впереди 3:14
-02.  Машина времени  -  Однажды мир прогнется под нас 3:16
-03.  Альфа  -  Жить не могу без тебя 4:26
-04.  Рондо  -  Я буду помнить 5:52(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A761BF59E724F693B8DFF4CDA9CD477B11E5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186758   (284046) от 26.11.2017
-
-VA - По волне моей памяти 2: Том13 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина времени  -  Он был старшее её 3:38
-02.  Альфа  -  Звезды нам светят 4:37
-03.  Воскресенье  -  Один взгляд назад 3:51
-04.  Лейся песня  -  Как мы любили 4:01(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA325078B7553C4696B73FE2BB532224C633E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964027   (283944) от 10.12.2015
-
-VA - Revolution Nu-disco (2015) [MP3|320 кб/с]<House, Disco,Indie Dance,Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michiel van Zundert - Bite (04:13)
-02. Al Music - The Dancefloor (feat. Ali) (03:20)
-03. Jive Ass Sleepers - Come Closer (Vocal Mix) (02:27)
-04. Michiel van Zundert - Floating By (05:01)(   Читать дальше...   )Жанр: House, Disco,Indie Dance,Nu-DiscoПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07A622860DF1A666C0E3F6FEFC838559B9C4AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335639   (283479) от 04.11.2019
-
-VA - Кроссфит (2019) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.55 Escape - Forever (3:08)
-2.About:blanK - Haters Gonna Hate Us (3:42)
-3.Battle Beast - Out Of Control (3:47)
-4.Big Gigantic - Get On Up (Original Mix) (5:35)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 04:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A058D785D8D542EB36CF54247946557E8C41D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166081   (283376) от 26.11.2017
-
-VA - Back To The Past To Listen To Italo-Disco From Ovvod7 vol.1-20 (2017) [MP3|320 Kbps]<Pop, Disco, Italo disco> Обновляемая
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo discoПродолжительность: ~26:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A58EC292678C6A6AB34CBE5783E0779C7797BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981084   (283357) от 26.11.2017
-
-DJ Ikonnikov - Любовь-Морковь Min Mix 1-7 (2015-2017) [MP3|320 кб/с] <EuroDisco, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самира - Южная кровь
-02. Авет Маркарян - Гуляли с тобой и были вдвоем
-03. Пропаганда & Tres - Я Ухожу От Тебя
-04. Сергей Филиппов - Мечты сбываются(   Читать дальше...   )Жанр: EuroDisco, Pop, DanceПродолжительность: 04:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B7791C52CE7446B535B65BFBDC40DC03DA228F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081580   (282807) от 10.12.2016
-
-VA - The Best Of Italo Disco (2016) [MP3|192-320 Kbps] <Italo Disco, Synth-pop, Hi NRG, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Mark - Disco Club (Disco Club Mix)
-02. Radiorama - Abcd (Italy Remix)
-03. Battery Operated Orchestra - Tin Can Telephone
-04. Therr Maitz - Found U (Random Unit Remix)(   Читать дальше...   )Жанр: Italo Disco, Synth-pop, Hi NRG, ElectroПродолжительность: 09:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7EB59FFF8A1E90EDD2E627F7FF68A4D89D6A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

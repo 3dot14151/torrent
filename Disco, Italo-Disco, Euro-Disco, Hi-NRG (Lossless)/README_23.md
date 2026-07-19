@@ -1,3 +1,90 @@
+###  Публикация: 1345429   (167024) от 14.12.2019
+
+Modern Talking - Maxi & Singles Collection (2019) 3CD, Dieter Bohlen Edition [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. You're My Heart, You're My Soul (12' Version)
+02. Lucky Guy (Ryan Simmons, Special-DJ-Mix)
+03. You Can Win If You Want (Special Dance Version)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco |Продолжительность: 04:02:32 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F57C330EA155400FA3452ED54CFB3D2B692819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673506   (165091) от 01.11.2023
+
+MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SEX
+2. Шишки (Колбасный Цех 3)
+3. Колбасный Цех 2
+4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598217   (163934) от 17.12.2022
+
+Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder'ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами, (   Читать дальше...   )1. If You Feel It (4:40)
+2. Floating (6:34)
+3. Love & Passion (6:02)
+4. feat. Jeanie Tracy - Low Down Dirty Rhythm (7:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433441   (160958) от 20.12.2020
 
 Mirko Hirsch - Return To Instrumentals (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -672,93 +759,6 @@ Giorgio Moroder - The Best Of (2001) [FLAC|Lossless]<Pop, Disco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682982   (129875) от 09.12.2023
-
-AlimkhanOV A. - Way to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way To You
-02. Heart To Heart
-03. Lady Delight
-04. My Wonder Island(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683336   (128705) от 10.12.2023
-
-Kelvin Momo - Kurhula (2023) [FLAC|Lossless|WEB-DL|tracks] <Afrobeats, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kurhula [00:04:35]
-02. Uthando [00:07:24]
-03. Wa Nsiya [00:08:12]
-04. Uku Khanya [00:06:31](   Читать дальше...   )Жанр: Afrobeats, DanceПродолжительность: 03:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52ED0E38B7AE88431AEC3E4645B19BBEA0AF3961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683943   (128146) от 13.12.2023
-
-Eddy Huntington - Bang Bang Baby (1989) Reissue, 2023, ZYX Music (2) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Señorita 3:49
-02. Physical Attraction 4:21
-03. God Is Love 4:25
-04. Meet My Friend 3:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70598A9CA9794C50BF9205AE51756231E8424F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

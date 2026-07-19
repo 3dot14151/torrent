@@ -1,3 +1,148 @@
+###  Публикация: 1365394   (930809) от 07.03.2020
+
+Destroyer - Have We Met (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Tide (06:09)
+02. Kinda Dark (03:25)
+03. It Just Doesn’t Happen (05:01)
+04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786E66C5F324012EB42D66DA3167D59876BEDC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365427   (930799) от 07.03.2020
+
+Wyldest - Redream Chaos (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headrush (Redream) (03:49)
+02. Rolling Waves (Redream) (03:25)
+03. Mind over Body / Slowdance (Redream) (04:56)
+04. Reverse Tide (Redream) (04:21)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF46609F98554C0A79C74564980EAC319E1ED7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365413   (930790) от 07.03.2020
+
+U.S. Girls - Heavy Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 American Dollars [05:42]
+02. Overtime [02:54]
+03. IOU [04:42]
+04. Advice To Teenage Self [00:50](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEF0D83ADAEE92AE5F3DDD9E8D7E946EF774929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365397   (930684) от 07.03.2020
+
+Phantogram - Ceremony (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Trip-Hop, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear God (03:27)
+02. In a Spiral (03:23)
+003. Into Happiness (03:21)
+04. Pedestal (03:11)(   Читать дальше...   )Жанр: Indie Rock, Trip-Hop, ExperimentalПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B384F41AB6FB87566C4A022CF77D51EDF7E0845C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986375   (930442) от 14.02.2016
+
+The Cure - Greatest Hits (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Don't Cry
+02. A Forest
+03. Let's Go To Bed
+04. The Walk(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99C2139BA2649F8A2E7DDA444D711204CBB0972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986891   (929154) от 15.02.2016
 
 The Cure - Kiss Me Kiss Me Kiss Me (1987) Reissue, 2008, Universal/Fiction [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -491,35 +636,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 862388   (916389) от 31.01.2015
-
-Papa Roach - F.E.A.R. (2015) [FLAC|Lossless]<Alternative Rock, Modern Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_916389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Everything And Rise
-02. Skeletons
-03. Broken As Me
-04. Falling Apart(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E4052BA9C6E3ECAAAC629E0B07F84FBD70EE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097080   (915937) от 26.01.2017
 
 Anti-Flag - American Spring (2015) [FLAC|Lossless|tracks + .cue] <Punk-Rock>
@@ -629,122 +745,6 @@ Vaux - 2 Albums (2003, 2006) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443A20043F962A1E8F5D037377E7C5CBD52C183C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758081   (914327) от 18.02.2014
-
-Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fluid
-02. Charm
-03. Buried
-04. Nightmare (falling in love)(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A83A613154513DF0078F15AD956046A3E62ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368023   (913921) от 17.03.2020
-
-Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Moon Rising (03:43)
-02. Wandering Star (03:38)
-03. Come On Outside (04:11)
-04. Blue Moon Rising (The Reflex Revision) (07:39)(   Читать дальше...   )Жанр: Indie Rock, Brit PopПродолжительность: 00:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E087E702156B5718497970215CB568DFD8195F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368796   (907504) от 21.03.2020
-
-Worriers - You or Someone You Know (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - End of the World
-02 - PWR CPLE
-03 - Big Feelings
-04 - Terrible Boyfriend(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE79EAB26E3B65792883EED5FD6F1A9E1829A008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099077   (907192) от 31.01.2017
-
-Sundara Karma - Youth Is Only Ever Fun In Retrospect (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Young Understanding (4:04)
-02. Loveblood (3:48)
-03. Olympia (4:12)
-04. Happy Family (6:02)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E840DFA28D8AFCB521D44956A366EB5234AB9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

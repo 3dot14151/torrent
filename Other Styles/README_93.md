@@ -1,3 +1,199 @@
+###  Публикация: 1303459   (570187) от 22.05.2019
+
+Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (From Game Of Thrones: Season 8) (01:52)
+02. The Rains of Castamere (03:44)
+03. Arrival at Winterfell (03:44)
+04. Flight of Dragons  (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAAEB3E9129D16814E9250102FF6826B60ADEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303546   (570180) от 22.05.2019
+
+Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (Collection Music from the HBO Series) (2011-2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maren Morris - Kingdom of One (03:36)
+02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
+03. The Lumineers - Nightshade (03:01)
+04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 11:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FE723375E976B262D49ACE38CEAEDFA5E1567C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922026   (569802) от 28.07.2015
+
+Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]<Electronic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene Part 5 (1:16)
+02. Ethnicolor (9:39)
+03. Magnetic Fields Part 1 (4:35)
+04. Souvenir Of China (3:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528069   (569357) от 30.07.2012
+
+Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (3:48)
+02. More... (4:32)
+03. Area 51 (9:12)
+04. Dream Is Real (5:07)
+05. Fishing (5:31)
+06. The Tower Of Babel (4:50)
+07. Give Me A Chance (7:27)
+08. Don't Hold Back (6:04)
+09. Navigator (4:28)
+10. Out Of This World (4:14)Жанр: New age,EnigmaticПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFDFC63864EEF328D8606DC33132D9E6649BF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528653   (568839) от 30.07.2012
+
+Erotic Moods - Эротические настроения (2004) [MP3|256 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacifica (3:34)
+02. Sahara Sun (4:28)
+03. Midnight Clear (6:07)
+04. The Yeart Given (4:48)
+05. Hush (5:18)
+06. Tha Awakening (4:58)
+07. Tranquil Shelter (5:09)
+08. Spring Song (4:34)
+09. The Sound Of Love (5:12)
+10. In Your Arms (5:06)(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AC90EA649453CB4EE6595A916CB69FD3E415C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529103   (568809) от 30.07.2012
+
+101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568809.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 Strings Orchestra - Оркестр 101-ой Скрипки
+Этот оркестр почти неизвестен в нашей стране. В отличие от часто звучащих оркестров Поля Мориа и Джеймса Ласта услышать его можно было только в передаче "Поющие меридианы", которую вел В.Сиверов.
+По данным Wikipedia оркестр был создан Дэвидом Миллером на основе Гамбургского оркестра Германского радио. В 1957 году выпустил свой первый альбом.
+101 Скрипка - это рекламная фишка. Реально музыкантов было больше.
+По своему составу это был, наверно, самый большой оркестр исполнявший музыку easy listening. Большое количество струнных создавало очень плотный приятный звук. Оркестр исполнял музыку в различной аранжировке, но, как правило, это была спокойная музыка.1. Quando, Quando, Quando (2:53)
+ 2. Besame Mucho (3:53)
+ 3. Fly Me To The Moon (3:42)
+ 4. The Blue Danube (2:16)
+ 5. Piano Sonata No. 8 (2:42)
+ 6. Andante From Violin Concerto In E Minor (3:06)
+ 7. Serenade (3:30)
+ 8. Chopin's Nocturne (4:46)
+ 9. Brahms' Lullaby (3:58)
+ 10. Nocturne in E Flat Major, Op. 9, No. 2 (4:07)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554691   (568748) от 04.06.2022
 
 Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
@@ -585,199 +781,6 @@ Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152193   (563145) от 24.07.2017
-
-Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure (1:41)
-02. Cosmic Rhythms (6:00)
-03. Redshift (3:40)
-04. Dawn Of Time (5:47)(   Читать дальше...   )Жанр: Electronic, New Age, Downtempo |Продолжительность: 01:50:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141217946456D8B3CF30A13D064CB06BD2051F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528328   (562951) от 02.08.2012
-
-David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Native American, Spiritual, Healing, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562951.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunrise Ritual
-2. Calling The Sacred Beat
-3. Shaman's Dance
-4. Path With A Heart
-5. Within The Cloud Lodge
-6. Spirit Vision
-7. Mother Earth, Father Sky
-8. Gift Of The Eagle
-9. Flowering Tree
-10. Rainbow HoopЖанр: New Age, Native American, Spiritual, Healing, NatureПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C56A2BBF02EF28B63AB47D237DD49CD9B374FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529933   (562947) от 02.08.2012
-
-Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kubrick) (1962) [MP3|320 кб/с]<OST Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Harris - Lolita Main Title (2:00)
- 2. Nelson Riddle - Quilty (Quilty's Theme) (2:55)
- 3. James Mason, Peter Sellers - Dialogue: Quilty As Charged (0:51)
- 4. Nelson Riddle - Ramsdale (Arrival In Town) (0:47)
- 5. Shelley Winters, James Mason - Dialogue: Cherry Pies (0:30)
- 6. Nelson Riddle - Lolita Ya Ya (3:26)
- 7. Sue Lyon, Shelley Winters - Dialogue: Hula Hoop (0:12)
- 8. Nelson Riddle - Quilty's Caper (School Dance) (1:52)
- 9. Peter Sellers, Shelley Winters - Dialogue: A Lovely, Lyrical, Lilting Name (0:25)
- 10. Paul Mann & Steohen Weis - Put Your Dreams Away (for Another Day) (3:03)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E58585C16733D801484100295AD87D8E44CB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530348   (562681) от 02.08.2012
-
-Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<Latin, Pop / Tango, Vocal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balada Para Mi Muerte - Angela Denia Tarenzi, Astor Piazzolla, Horacio Ferrer [04:53]
-02. Los Pajaros Perdidos - Astor Piazzolla, Michele Trejo [04:06]
-03. Decarisimo - Astor Piazzolla [02:50]
-04. Années De Solitude (Anni De Solitudine) - Angela Denia Tarenzi, Astor Piazzolla, Maxime Le Forestier, Simonluca [03:47]
-05. Balada Para Un Loco - Astor Piazzolla, Horacio Ferrer [05:49]
-06. Vamos Nina - Astor Piazzolla, Horacio Ferrer [04:27]
-07. Oblivion (J'Oublie) - Angela Denia Tarenzi, Astor Piazzolla, David McNeil, Simonluca [04:28]
-08. Che Tango Che - Angela Denia Tarenzi, Astor Piazzolla, Jean-Claude Carrière, Simonluca [03:49]
-09. Rinascerò (Preludio Para El Año 3001) - Angela Denia Tarenzi, Astor Piazzolla, Horacio Ferrer [04:21]
-10. Entre Brecht Et Brel (Finale) - Angela Denia Tarenzi, Astor Piazzolla, Claude Lemesle, Simonluca [05:16]Жанр: Latin, Tango, VocalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280516   (562526) от 01.08.2015
-
-Win Kowa - 6 альбомов (1992 - 2000) [MP3|192, 320 кб,]<New age, Relax, Electronic, Rock, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win Kowa - довольно известный немецкий композитор, музыкант, поэт-песенник, продюсер. Обладатель многих наград за музыку к художественным и телевизионным фильмам, радиопередачам.
-Широк диапазон стилей создаваемой им интереснейшей музыки!Список альбомов:
-1992 - Discovery Drive
-1993 - Touchdown
-1995 - Imagination(   Читать дальше...   )Жанр: New age, Relax, Electronic, Rock, EthnicПродолжительность: 05:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A1D05CF8BA5CBB2B81843079C9BEBB6EC12F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304603   (561847) от 27.05.2019
-
-Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godzilla (feat. Serj Tankian) (03:10)
-02. Godzilla Main Title (02:35)
-03. Memories of San Francisco (02:11)
-04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
 ```
 
 https://mybot314.ru/tekegram_catalog/

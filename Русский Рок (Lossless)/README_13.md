@@ -1,260 +1,3 @@
-###  Публикация: 998525   (870309) от 19.03.2016
-
-Маврин - Альтаир (2016) Maxi-Single [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альтаир
-02. Звёздная пыль
-03. Безвременье
-04. Le heros de l'Asphalte (bonus track)Жанр: Heavy MetalПродолжительность: 00:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAA04ED112BE4B2B5A907E88EF6FE701ACA08C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998058   (869821) от 19.03.2016
-
-Гарик Сукачев - Избранное (1994-2002) 2CD, 2002 Пролог Мьюзик [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оглянись (если лают собаки) (5:50)
-02. Белый колпак (5:29)
-03. 10.000 км (5:24)
-04. Это был ангел (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4493028972671C896D8D6FBB5E8FB314C2271E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998140   (869803) от 19.03.2016
-
-Аквариум и Борис Гребенщиков - Песни нелюбимых (2016) EP [FLAC|Lossless|tracks] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песни нелюбимых (03:38)
-02. Собачий вальс (04:17)
-03. Пыль (03:50)
-04. Собачий вальс (Euroversion) (04:08)Жанр: РокПродолжительность: 00:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C413400C5827BDBEDE039927292796702CFEB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188747   (867812) от 02.04.2010
-
-Эдуард Артемьев - Преступление и наказание (2007) [FLAC|Lossless]<Рок Опера>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рок Опера, Полустилистика :)Продолжительность: 02:26:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998063   (867798) от 20.03.2016
-
-Виктор Зинчук - Триумф гитары (2015) Compilation [FLAC|Lossless|image + .cue] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Попурри на темы В.А. Моцарта и Л.В. Бетховена (03:18)
-02. Итальянская полька (С. Рахманинов) (03:09)
-03. Марш Радецкого (И. Штраус) (03:56)
-04. Полька (М. Глинка) (03:26)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999646   (864625) от 22.03.2016
-
-Ольга Арефьева и Ковчег - Джейн (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клоун Зло
-02. Алабама
-03. Женщина с синей рукой
-04. Домик красных фонарей(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9796C42AAD5F4A78CE37E064237BDCF0573A66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999181   (864080) от 22.03.2016
-
-Би-2 - Би-2 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полковнику никто не пишет (4:54)
-02. Варвара (5:00)
-03. Никто не придёт (5:14)
-04. Мой друг (4:50)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D02FA77C052345BA8D7295727E5CB44BC95DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999928   (862548) от 23.03.2016
-
-Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой друг лучше всех играет блюз
-02. Шанхай-блюз
-03. Дороги наши разошлись
-04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376048   (862172) от 16.04.2020
-
-Ауткаст - 3 Singles (2019-2020) [FLAC|Lossless|tracks] <Alternative, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862172.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2019) Пустота (Single)
-(2019) Феникс (Single)
-(2020) Один из нас (Single)Жанр: Alternative, Nu-MetalПродолжительность: 00:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7375B4FD102FE2A1D1E43C4E5156079AC60F5F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376008   (862039) от 16.04.2020
 
 Мастер - Мастер Времени (2020) [FLAC|Lossless|image + .cue] <Heavy/Thrash Metal>
@@ -740,6 +483,267 @@ Louna - Песни о мире (С симфоническим оркестром
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF830D79864747E8FA115BA18EAEC0B318A5CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377749   (850160) от 23.04.2020
+
+BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase I (2:35)
+02. Voskhod - 2 (10:10)
+03. Phase II (2:15)
+04. Apollo 11 (5:15)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic Rock, Stoner RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001697   (850134) от 30.03.2016
+
+Земфира - Прости Меня Моя Любовь (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шкалят датчики (3:37)
+02. Zero (2:46)
+03. Созрела (3:33)
+04. Хочешь? (3:17)(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE4032706964A9AC02886CFFFCA3B44B38C5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001705   (848541) от 31.03.2016
+
+Мумий Тролль - Шамора. Правда О Мумиях И Троллях 1983-1990. Часть 1 (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алло, Попс! (2:19)
+02. Ультиматум (3:44)
+03. Новая Луна Апреля (3:01)
+04. Кассетный Мальчик (3:54)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FEA51A0AF0023C675E8B10CBE8829F93DE25AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002153   (848535) от 31.03.2016
+
+Пилот - Кукушка (2016) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Безвозврат
+02. Светлого пути
+03. Проводник и стюардесса
+04. Оттепель(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1B448502313660B6A3748D9A7CE8A497A29AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111293   (848161) от 05.03.2017
+
+Чайф - Теория струн (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой блюз (5:13)
+02. Время не ждет (4:39)
+03. Четверо парней (3:40)
+04. Ковбои (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9D34B5EECB612EB791855E7CC28298ABBA66DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499530   (847685) от 02.10.2021
+
+Tequilajazzz - Камни (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847685.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В тёмную воду. Intro
+2. Никого не останется
+3. Вьюгина ты дочь
+4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A82DC739CA4B9B1566D5207D8B8875CC54C123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378052   (847667) от 24.04.2020
+
+АукцЫон - Мечты (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Догоняя волны
+02. Сердце
+03. Мечты
+04. Очень белые глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73781D6E2BC16DA71E98B01AD627B73B905BA10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499533   (847596) от 02.10.2021
+
+Сурганова и Оркестр - Завтра (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шила осень
+2. Трюкачи (feat. Настя Полева)
+3. Кольчуга
+4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499826   (844297) от 04.10.2021
+
+Х*й Забей - Хуямбрь подкрался (1989) [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апч-хуй
+02. Хуямбрь
+03. Ссылка
+04. Пиздык(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D6315FCD2421A776DF0BBDAF2AB14059BC1900
 ```
 
 https://mybot314.ru/tekegram_catalog/

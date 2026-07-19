@@ -1,3 +1,32 @@
+###  Публикация: 1274045   (795048) от 05.01.2019
+
+VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
+02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
+03. DJ Apres Ski Hits - Johnny Däpp
+04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200823   (794917) от 22.01.2018
 
 Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
@@ -714,35 +743,6 @@ VA - Dance Club 2019.01 [Explicit] (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE335BA35142923F5A802C0CF5FB9C67F6D408F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276039   (789045) от 14.01.2019
-
-VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Krebbs - The Gym (Funkblaster Radio Mix)
-02. Bob Cruise - We Like to Funk (Radio Edit)
-03. DOUBLE U - Free Again
-04. Nightwatchers - Insomnia (Radio Edit) (Remastered)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A5680273630C83B1C28090F03CC55538A61006
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1290796   (675953) от 21.03.2019
+
+UFO - Will the Last Man Standing (Turn Out the Light): The Best of UFO (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor Doctor
+02. Rock Bottom
+03. Shoot Shoot
+04. Too Hot to Handle(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC57D1FAFCC2E4A01463EF81F459B36985D0E336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290968   (674191) от 22.03.2019
+
+Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Gambler (US Mix, 2019 Remaster) (3:57)
+ 2 - Slide It In (US Mix, 2019 Remaster) (3:19)
+ 3 - Slow An' Easy (US Mix, 2019 Remaster) (6:01)
+ 4 - Love Ain't No Stranger (US Mix, 2019 Remaster) (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12FDF4254F8C6431A304307235C38DCB8CEC70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536328   (672781) от 13.03.2022
 
 Voltrider - Weapon Of Choice (2022) [MP3|320 Kbps] <Hard Rock>
@@ -685,64 +743,6 @@ Greg Golden Band - Greg Golden Band (2015) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27FAF6C8B9E76EF10EE45A712114142D85040419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905044   (651733) от 05.06.2015
-
-Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' To The Edge Of The Night
-02. Crash That Party
-03. Not Like All The Rest
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E90557B4B31B3893391D8FA44D33D977614B87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905245   (651731) от 05.06.2015
-
-V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harden The Fuck Up
-02. Oh, What A Jerk He Is
-03. Go Fast Or Go Home
-04. Every Man A Tiger(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608C88692B81E2BDB903957437219630CE1AA81
 ```
 
 https://mybot314.ru/tekegram_catalog/

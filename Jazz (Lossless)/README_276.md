@@ -1,119 +1,3 @@
-###  Публикация: 1664498   (184944) от 27.09.2023
-
-James Moody - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura (3:21)
-02. Car Rider (3:01)
-03. Three Bop Mice - Parts 1 & 2 (5:44)
-04. I'm in the Mood for Groovin' (2:42)(   Читать дальше...   )Жанр: BopПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE1E35B46B86E1F8074DBCE892700588C565B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664656   (184938) от 27.09.2023
-
-Robert Lakatos Trio - So In Love (2005) Atelier Sawano [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So in Love [4:51]
-02. Like Someone in Love [3:54]
-03. Allemande [4:22]
-04. Zingaro (Retrato em Branco e Preto) [4:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFA3D3D9E83ED1D3AE33F74D33E66BE9FDCE395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664506   (184914) от 27.09.2023
-
-James Moody - Moody And The Brass Figures (1966) 2004, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smack-A-Mac [3:39]
-02. Bess, You Is My Woman Now [4:02]
-03. Cherokee [3:50]
-04. Love, Where Are You? [3:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE061B92DB51043A49A1C01BD382CC162F7E4E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664653   (184844) от 27.09.2023
-
-Maya - Love Potion No. 9 (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue ~ It Don't Mean a Thing [0:44]
-02. Shiny Stockings [2:48]
-03. Natsu wo Akiramete (Verao Triste) [3:59]
-04. Do Nothing Till You Hear from Me [4:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4296707F55176D815162EE1D1491C32E283A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664558   (184789) от 27.09.2023
 
 Maya - Kiss of Fire (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -746,6 +630,122 @@ Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA8D530A9694858A36E2A0C42865053241F5278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592821   (181966) от 25.11.2022
+
+Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Green [6:09]
+02. Shug [4:24]
+03. Till Then [4:30]
+04. 9th Round [4:58](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593179   (181787) от 25.11.2022
+
+Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say It (feat. Alan Scaffardi)
+02. Enjoy The Ride (feat. Walter Ricci)
+03. La Vita E' Piu' Bella Cosi' (feat. Rosalia De Souza)
+04. Adventure Of A Lifetime (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593102   (181728) от 25.11.2022
+
+Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Your Angels Go
+02. From the Edge of Time
+03. Is It Right or is It Wrong
+04. Destination (Slow Mix)(   Читать дальше...   )Жанр: Nu-Jazz, Acid JazzПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D504DB1AFEC7912DBF72724425397455F9A7ED8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665615   (181645) от 01.10.2023
+
+Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Moe & Joe [6:53]
+02. Falling in Love with Love [5:29]
+03. Bags' Groove [6:01]
+04. Double Exposure [7:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC608462E74DEEAC0EDFA48A44FDCB5A34E845D
 ```
 
 https://mybot314.ru/tekegram_catalog/

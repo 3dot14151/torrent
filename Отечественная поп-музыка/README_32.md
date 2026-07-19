@@ -1,32 +1,3 @@
-###  Публикация: 1787457   (68795) от 25.03.2025
-
-Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo (2:55)
-02. Mamma Mia (3:36)
-03. Knowing Me, Knowing You (3:40)
-04. I Have a Dream (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA872A5E9AB9928BE4304A74364E62BB96391900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787973   (68644) от 28.03.2025
 
 Dabro - Дальше - больше (2025) [MP3|320 Kbps] <Pop>
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226AC29CA732585D4E05F338E200E414E91FA27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708770   (62125) от 22.03.2024
+
+Юлия Савичева - Под кожей (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Разбитые зеркала
+2. Любовь оставляет шрамы
+3. Осколки
+4. Девочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8575204DBB39FA68503AB0B937E3BE744FF1E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

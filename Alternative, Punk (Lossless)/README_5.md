@@ -1,3 +1,155 @@
+###  Публикация: 1354813   (986166) от 24.01.2020
+
+Andy Shauf - The Neon Skyline (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Skyline (03:38)
+02. Where Are You Judy (03:21)
+03. Clove Cigarette (02:55)
+04. Thirteen Hours (02:58)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8334A1E4623A544F27809C0B2B3F3E0C6EDE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971363   (985768) от 03.01.2016
+
+Tupelo Honey - Brave New World (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадская рок группа, основанная в St. Albert, Канада в феврале 2003 года.
+Они играли с многочисленными хедлайнерами такими, как Bon Jovi, Default, Theory of a Deadman, Bif Naked, Three Days Grace, Thornley, The Trews, Billy Talent и Sam Roberts
+Члены Tupelo Honey познакомились во время поступления в музыкальную программу Grant MacEwan колледжа, Edmonton, Alberta, (   Читать дальше...   )01. Nothing Left To Lose
+02. Halo
+03. Dancing With Your Ghost
+04. These Walls(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87816A910055FAE1C6E4AF6EA1612BC6C79D109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355382   (983620) от 26.01.2020
+
+Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandoz
+02. Positive Drug Test
+03. John Balance Enters Valhalla
+04. John Valour(   Читать дальше...   )Жанр: Krautrock, Alternative Rock, ExperimentalПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EB2E544CC1E226140197E16DE30B0134B0DE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614272   (981019) от 05.02.2013
+
+Nick Cave & The Bad Seeds - Push The Sky Away (2013) /WEB/ [FLAC (tracks)|Lossless]<Post-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We No Who U R
+02. Wide Lovely Eyes
+03. Water's Edge
+04. Jubilee Street
+05. Mermaids
+06. We Real Cool
+07. Finishing Jubilee Street
+08. Higgs Boson Blues
+09. Push The Sky AwayЖанр: Post-Punk, Alternative RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355995   (980568) от 29.01.2020
+
+We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Killer B-Side Music (04:05)
+02 - Song in My Head (02:57)
+03 - Night Guest (03:07)
+04 - Obviously (04:27)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD839E77BE42B31E8B090DAA275A11BB3ED4D589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356013   (980563) от 29.01.2020
 
 TORRES - Silver Tongue (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -606,157 +758,6 @@ Best Coast - Always Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D560341909C9D2685526576246F1F65DA1EBB525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623741   (953508) от 27.02.2013
-
-Republica - 3 Albums + 7 Singles + 1 Compilation (1994-2002) [FLAC, APE, WavPack|Lossless] <Dance-Punk, Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance-Punk, Alternative Rock, Pop-Rock |Продолжительность: 01:10:46
-
-01 | Ready to Go | 05:02
-02 | Drop Dead Gorgeous | 04:30(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749228   (952616) от 26.01.2014
-
-Eskimo Callboy - 3 альбома (2010-2014) Дискография [FLAC|Lossless]<Post-Hardcore / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - CSTRP  01:17
-02 - We Are The Mess  03:11
-03 - Party At The Horror House  03:34
-04 - Blood Red Lips  03:36
-05 - Never Let You Know  03:20
-06 - #elchtransformer  01:22
-07 - Jagger Swagger (Feat. Deuce & BastiBasti Of Callejon)  03:21
-08 - Ghosts Of The Night  03:28
-09 - Final Dance  03:25
-10 - Voodoo Circus  03:14(   Читать дальше...   )Жанр: Post-Hardcore / ElectronicПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A21D3CDA330DF4F29C45BBB294E8241BF36DD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361740   (952197) от 21.02.2020
-
-Agnes Obel - Myopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camera's Rolling (04:43)
-02. Broken Sleep (04:55)
-03. Island Of Doom (05:29)
-04. Roscian (02:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FBB986E668F184947DEAACBBAA4B7E08F4FB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362474   (949585) от 23.02.2020
-
-The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Coffin (01:55)
-02.All My Friends Are Dead (03:48)
-03.Soak Me In Bleach (03:46)
-04.All I Do Is Sink (03:34)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1FFA0CC9449E41BE731411E0D91745A0C2210F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362571   (948505) от 24.02.2020
-
-Indoor Pets - Be Content (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi (03:12)
-02. Teriyaki (02:13)
-03. Thick (03:26)
-04. Spill (My Guts) (03:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B530ED3A07AAE61006B7A91ACB23660EE8A2A56
 ```
 
 https://mybot314.ru/tekegram_catalog/

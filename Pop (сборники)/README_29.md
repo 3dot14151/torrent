@@ -1,3 +1,32 @@
+###  Публикация: 1383146   (813749) от 14.05.2020
+
+VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Udo Jürgens - Mit 66 Jahren 03:39
+02. Connie Francis - Schöner fremder Mann 02:41
+03. Jürgen Marcus - Eine neue Liebe ist wie ein neues Leben 03:46
+04. Juliane Werding - Am Tag als Conny Kramer starb 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383074   (813738) от 14.05.2020
 
 VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Весенняя сотка популярных треков (2017) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8199222E4BDD750E5B7BBEE967B44D9BBB1DE703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198694   (806054) от 12.01.2018
-
-Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Etait Une Fois Nous Deux (3:58)
-02. L'ete Indien (4:33)
-03. Et Si Tu N'existais Pas (3:30)
-04. Cote Banjo Cote Violon (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

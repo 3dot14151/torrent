@@ -1,3 +1,38 @@
+###  Публикация: 618503   (969857) от 14.02.2013
+
+Heartbreak Radio - On Air  (2013) [FLAC|Lossless]<Westcaost/AOR>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love On Fire
+2. Angelina
+3. You Are Love
+4. Turn On Love
+5. I Will Love You
+6. Live Out Of Love
+7. All Over The World
+8. My Heart's Just Missing You
+9. Keep Kickin' It Back Again
+10. You Don't Love Me AnymoreЖанр: Westcaost/AORПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976141   (969847) от 17.01.2016
 
 Футбол. Чемпионат Франции 2015-2016. 21 тур. Тулуза - ПСЖ (16.01.2016) HDTVRip [H.264/720p-LQ]
@@ -678,33 +713,6 @@ Any Burn - небольшая бесплатная утилита для раб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213730F2FC1BD04FA7EA757A3A85944E96C140F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358309   (969694) от 07.02.2020
-
-Mirillis Action! 4.1.0 [Multi/Ru] RePack (& Portable) by KpoJIuK
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
-Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FD3261C17BE69ABC7C3573DB773BFE13B8B7BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1215697   (756214) от 27.03.2018
+
+VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditative>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aithra - Shadow Play
+002. Gilberto Medda - Flying High in the Sky
+003. Howe Gelb - Terribly So
+004. Narcotic Chill - On The Last(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 09:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018295   (755683) от 20.05.2016
 
 VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -716,32 +745,6 @@ VA - Face of Wisdom (2018) [MP3|~190-320 Kbps (V2)VBR, CBR] <Native american, Et
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B816BA5C2C84A52395F3C492E4C67F2B1ECC2659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359875   (724717) от 02.08.2020
-
-VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
 ```
 
 https://mybot314.ru/tekegram_catalog/

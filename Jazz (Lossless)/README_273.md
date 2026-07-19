@@ -1,118 +1,3 @@
-###  Публикация: 1657507   (192460) от 04.09.2023
-
-Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Parker's Last Supper [7:14]
-02. Hymn from the Inferno [12:03]
-03. What It Is [17:59]Жанр: Hard Bop, Post-BopПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3441770B435BFBEDE69E8EF0960CD9AA96DC4191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657616   (192456) от 04.09.2023
-
-Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lighea [5:15]
-02. Never Before Never Again [4:12]
-03. Filigrane [5:20]
-04. What Is This Thing Called Love [5:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587734   (192398) от 01.11.2022
-
-Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192398.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Just You, Just Me [1:27]
-02. Don't Take Your Love from Me [3:03]
-03. I Guess I'll Have to Change My Plan [2:41](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 04:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ADE174527A83E66EBA88422A8D639D8576ED88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587920   (192122) от 02.11.2022
-
-Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Oh, What a Beautiful Mornin' [6:18]
-02. The Surrey With The Fringe On Top [2:52]
-03. Kansas City [2:58](   Читать дальше...   )Жанр: Easy Listening, Big Band, SwingПродолжительность: 04:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214BED981C3B7C5623024A6C571C7B1F0EF8D23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657845   (191946) от 06.09.2023
 
 Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -744,6 +629,122 @@ McCoy Tyner - The Best Of: The Blue Note Years (1967 - 1995) 1996, Blue Note [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F87404C063816A19BD5F2D4678A3419D0A7FBFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660299   (189817) от 12.09.2023
+
+Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ntyilo, Ntyilo [4:28]
+02. Nature Boy [5:04]
+03. My Ship [4:12]
+04. The Very Thought of You [5:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589826   (189778) от 11.11.2022
+
+John Sneider - The Scrapper (2020) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Scrapper [6:37]
+02. Critterbug [6:51]
+03. When Light Breaks [6:01]
+04. Mindfield [7:17](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0914A60C8DC643364178D5F69B5C0EEC3D531DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590065   (189475) от 12.11.2022
+
+Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [6:27]
+02. Philadelphia Creamer [6:00]
+03. Wee [5:47]
+04. I Can't Get Started [6:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589961   (189471) от 12.11.2022
+
+Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porto Alegre [5:20]
+02. Second Thoughts [5:51]
+03. Without Deception [6:35]
+04. Until Then [6:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

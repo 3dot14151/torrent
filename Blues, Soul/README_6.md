@@ -1,3 +1,61 @@
+###  Публикация: 530844   (820812) от 18.10.2021
+
+Нино Катамадзе & Insight - Дискография (2003-2011) 7 Альбомов [MP3|320 кб/с]<World Music, Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нино Катамадзе - одна из значимых фигур в жанре, определяемом как world-music. Как известно, к этому направлению принято относить исполнителей, чье творчество не укладывается в рамки стилевой сетки, но несет в себе национальные элементы страны, родом из которой музыканты. Нино оттуда, где песни не просто поют, ими живут.01. I Came :: 04:44
+02. I Will Come as a Snow :: 05:19
+03. Uto :: 04:27
+04. Lip :: 04:35(   Читать дальше...   )Жанр: World Music, Jazz, LoungeПродолжительность: 05:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9468120CB344F5B8C1B509FA9CC00377FCC4C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007724   (819813) от 16.04.2016
+
+Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Can't Forget You (04:24)
+02. Big Jake (04:19)
+03. The Message (03:45)
+04. Mercury Blues (06:06)(   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121631F155569B578F35443FEDA5F7B90913D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007727   (819808) от 16.04.2016
 
 Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
@@ -687,64 +745,6 @@ Carolyn Gaines - Beware Of My Dog (2018) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F0AFBF36857C08413100663BBB2488E3288621F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011575   (796404) от 28.04.2016
-
-The Naughty Blokes - We Rise (2016) [MP3|320 кб/с] <British Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Attack (03:41)
-02. Move You (03:30)
-03. Tenderly Loved Woman (05:31)
-04. Constantly (04:02)(   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEB78E6D31B962AFC342C0C0718ED070A139E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011833   (795632) от 29.04.2016
-
-Troy Brooks - All I Need (2013) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally Found the One (03:40)
-02. Dirty Weather (02:59)
-03. All I Need (03:34)
-04. Country Songs (02:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E606A7C2F7932D57666C270D9E8CB44E2B44A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

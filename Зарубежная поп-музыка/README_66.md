@@ -1,3 +1,32 @@
+###  Публикация: 1338352   (269306) от 15.11.2019
+
+VA - 110 Hits 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269306.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dadju - Ma Vie 3:27
+02. Maroon 5 - Memories 3:10
+03. Angèle - Flou 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658634F4D20CCC4D60D960969AE6CEB9A992F988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338756   (269006) от 16.11.2019
 
 VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
@@ -716,35 +745,6 @@ VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5F84E29502D37B03F3D100E4D871A654F13669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341445   (262301) от 28.11.2019
-
-Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shameless
-02. Living Proof
-03. Should've Said it
-04. Senorita (Feat. Shawn Mendes)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD211283596BA79C83642EB45CA0DB2C66FD6B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

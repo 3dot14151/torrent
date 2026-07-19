@@ -1,32 +1,3 @@
-###  Публикация: 1227598   (644737) от 27.05.2018
-
-M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One
-02. Same but Different
-03. Meormy
-04. Undone(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03722D32D74F28402E23EA3BCDE2E289E3F3844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541825   (642842) от 04.04.2022
 
 Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -740,6 +711,35 @@ VA - Blank & Jones Present: So80s (Soeighties) 10 (2016) [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC8C05DA862F11A345E955DE838AC0DF0B618C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545313   (614690) от 19.04.2022
+
+Давид Тухманов, Электроклуб - Тёмная лошадка (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нервы, нервы...
+02. Воздушные замки
+03. Чистые пруды
+04. Но всё-таки лето(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

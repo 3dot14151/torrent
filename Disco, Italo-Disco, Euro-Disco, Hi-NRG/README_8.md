@@ -1,32 +1,3 @@
-###  Публикация: 1121888   (799638) от 03.04.2017
-
-VA - Italo Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ventura – Another Time (05:11)
-2. Love Kills – I Want To Become (06:19)
-3. G & M – Don't Let You Down (06:15)
-4. Christal – Fire Lady (06:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7F433C825C3069AFC346311CED41BD2127BA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121795   (799636) от 03.04.2017
 
 VA - Italo Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -744,6 +715,35 @@ VA - Euro Disco: The Lost Legends Vol. 15 (2017) [MP3|320 Kbps] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727831BA9F814C84ADA53374E5AE831E540C609D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200650   (794842) от 22.01.2018
+
+VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue System - My Bed Is Too Big (3:16)
+02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
+03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
+04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B137AAD42A0977493FE25F14B5B5F1DCA57B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

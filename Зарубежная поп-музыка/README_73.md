@@ -1,3 +1,32 @@
+###  Публикация: 1084656   (220983) от 18.12.2016
+
+VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Black Or White (3:19)
+02. Roxette - It Must Have Been Love (4:19)
+03. Take That - How Deep Is Your Love (3:42)
+04. Backstreet Boys - Quit Playing Games (With My Heart) (3:54)(   Читать дальше...   )Производство: Sony Music MediaЖанр: PopПродолжительность: 02:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084177   (220934) от 18.12.2016
 
 Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, Experimental>
@@ -734,35 +763,6 @@ Peggy March - The Very Best Of Little Peggy March (1997) The Essential Singles C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96C249F81D145E0410E260264C1F0284B68D05DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586002   (217672) от 25.10.2022
-
-Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lavender Haze (03:22)
-2. Maroon (03:38)
-3. Anti-Hero (03:20)
-4. Snow On The Beach (feat. Lana Del Rey) (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A895C4614AC780EFFF5BE5BFAC28D9671556549
 ```
 
 https://mybot314.ru/tekegram_catalog/

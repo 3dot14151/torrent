@@ -1,119 +1,3 @@
-###  Публикация: 1497418   (864867) от 22.09.2021
-
-Art Blakey & The Jazz Messengers - Vol. 2: Mission Eternal (1973) 1995, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gertrude's Bounce [4:47]
-02. Siempre Mi Amor [4:55]
-03. Mission Eternal [12:12]
-04. Moanin' [5:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801D9BB5A2D09D7AA188349FCF07C96F2A097105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108188   (864843) от 24.02.2017
-
-Eddie "Lockjaw" Davis - Quartet (1985) 2000, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Just Friends [06:55]
- 02.Out of Nowhere [08:47]
- 03.Take the 'A' Train [07:30]
- 04.S 'Wonderful [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FFC3BF5B474E6E665A91F64AE0A0538F856606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108125   (864841) от 24.02.2017
-
-John Hicks - Something To Live For: A Billy Strayhorn Songbook (1998) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Something to Live For [05:47]
- 02.Daydream [06:45]
- 03.Medley: Lotus, Blossom [04:12]
- 04.Blood Count [07:05](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F84EEB8837B0345E235A6C0F6A6B14FB5074827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108231   (864840) от 24.02.2017
-
-Michael Dease - All These Hands (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creole Country
-02. Delta City Crossroads
-03. Good & Terrible
-04. Territory Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:65:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F165ED67FDAE4E81FF486E9435A0E0C637FD4EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108122   (864839) от 24.02.2017
 
 John Hicks - Nightwind: An Erroll Garner Songbook (1999) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999849   (863147) от 23.03.2016
+
+Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aquarian Moon [07:46]
+ 02.Bouquet [08:11]
+ 03.Rojo [06:04]
+ 04.Maiden Voyage [05:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADCA8BB0395EAF447E99212F0B1F2531259DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999501   (863145) от 23.03.2016
+
+Grant Green - Talkin' About (1964) 1999, Blue Note Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Talkin' About J.C. [11:45]
+ 02.People [07:29]
+ 03.Luny Tune [07:44]
+ 04.You Don't Know What Love Is [07:39](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5EA1C882C71F3E6CE9EAC8F48995C2D817C0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999508   (863051) от 23.03.2016
+
+Coleman Hawkins - At the Golden Circle, Stockholm 1963 (2001) Dragon Records[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [00:40]
+ 02.Oh Lady Be Good [08:38]
+ 03.If I Had You [10:38]
+ 04.Bean and the Boys [09:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5699F5BAB3BB9544E13BAA67701FF49A0B074AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375975   (862364) от 16.04.2020
+
+Olaf Polziehn Trio featuring Harry Allen - American Songbook, Vol. 2 (2003) Satin Doll Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Or Leave Me [6:01]
+02. Ballad Of The Sad Young Men [6:05]
+03. Jubilee [4:31]
+04. Call Me Darling, Call Me Sweetheart, Call Me Dear [7:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F0B075DB2D738713010C529882472BD1C9093E
 ```
 
 https://mybot314.ru/tekegram_catalog/

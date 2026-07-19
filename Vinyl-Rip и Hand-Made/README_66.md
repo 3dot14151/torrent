@@ -1,25 +1,25 @@
-###  Публикация: 1696409   (119624) от 02.02.2024
+###  Публикация: 1703666   (114791) от 01.03.2024
 
-Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chinese Democracy
-02. Shackler's Revenge
-03. Better
-04. Street of Dreams(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:36
+01. My Blue Moon (Larsson–Hjalmarsson)
+02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
+03. Dance, Dance (Larsson–Hjalmarsson)
+04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
+magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696398   (119623) от 02.02.2024
+###  Публикация: 1703916   (114698) от 02.03.2024
 
-Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Grunge, Punk Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Since I Don't Have You
-02. New Rose
-03. Down On The Farm
-04. Human Being(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:08
+Nirvana — американская рок-группа, созданная вокалистом и гитаристом Куртом Кобейном и басистом Кристом Новоселичем в Абердине, штат Вашингтон, в 1987 году. В составе коллектива сменились несколько барабанщиков; дольше всех с группой играл ударник Дэйв Грол, присоединившийся к Кобейну и Новоселичу в 1990 году.1989 - Bleach
+1991 - Nevermind
+1992 - Incesticide
+1993 - In Utero(   Читать дальше...   )Жанр: Grunge, Punk RockПродолжительность: 04:15:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
+magnet:?xt=urn:btih:B0A87467B8D4A96BE9606020ADC1F5EF02C25CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696327   (119620) от 02.02.2024
+###  Публикация: 1703828   (114681) от 02.03.2024
 
-Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Right Next Door To Hell
-02. Dust N' Bones
-03. Live And Let Die
-04. Don't Cry (Original)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:02
+01. Riff Raff
+02. Hell Ain't A Bad Place To Be
+03. Bad Boy Boogie
+04. The Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00Ж52Ж48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
+magnet:?xt=urn:btih:A5DBA3E47F0A8CACA268CD1A66D0A30400877F92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696329   (119615) от 02.02.2024
+###  Публикация: 1703998   (114665) от 02.03.2024
 
-Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
+Аркадий Хоралов - Бесконечность. Поёт Аркадий Хоралов (1986) [FLAC 24/96|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Civil War
-02. 14 Years
-03. Yesterdays
-04. Knockin' On Heaven's Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
+Сторона 1:
+01. Гавань моей любви
+02. Бесконечность
+03. Чужой телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31BB76F9211DE5B98D4792B7E949E952FD25CD1B
+magnet:?xt=urn:btih:3DB0C737ADDE994DF09A34B8DD4899AAC245CD3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696713   (119474) от 03.02.2024
+###  Публикация: 1703915   (114663) от 02.03.2024
 
-Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Progressive Power Metal>
+VA - Андрей Петров - Музыка из к/ф "Жестокий романс" (1985) [FLAC 24/192|Lossless|tracks] <Soundtrack, Folk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Serenity — австрийская группа, исполняющая музыку в стиле мелодик пауэр-метал с влияниями прогрессивного и симфонического метала.2007 - Words Untold & Dreams Unlived
-2008 - Fallen Sanctuary
-2011 - Death & Legacy
-2013 - War of AgesЖанр: Symphonic/Progressive Power MetalПродолжительность: 07:47:28
+Сторона 1:
+01. Романс о романсе (Б. Ахмадулина) - Валентина Пономарева
+02. Вальс - Оркестр Госкино СССР
+03. Снегурочка (Б. Ахмадулина) - Валентина Пономарева(   Читать дальше...   )Жанр: Soundtrack, FolkПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B147A7C1CD655A21F2FFA5D8E88F8FE20389CE1
+magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,26 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696883   (119305) от 04.02.2024
+###  Публикация: 1704067   (114657) от 02.03.2024
 
-Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Аркадий Хоралов - Где я и ты (1990) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shadow - Мелодик-дэт-метал группа из города Осака, Япония.2001 - Shadow
-2008 - Forever ChaosЖанр: Melodic Death MetalПродолжительность: 01:31:20
+Сторона 1.
+01-Где я и ты (А.Хоралов - В.Сауткин)
+02-А снег рисует (А.Хоралов, А.Кондратьев - В.Попов)
+03-Убежать бы (А.Хоралов, А.Кондратьев - С.Лазо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
+magnet:?xt=urn:btih:BBF5602CD802393F9BC8BCD3CEF36F5DCE507ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,27 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696910   (119107) от 05.02.2024
+###  Публикация: 1704069   (114632) от 02.03.2024
 
-Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
+Аркадий Хоралов - Странный Мир (1988) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
-2021 - Entropy
-.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
+Сторона 1
+01.Лишний билет
+2.Странный Мир
+3.Эдельвейс(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
+magnet:?xt=urn:btih:C2C4F37F605D7F87275569B1B3A0E190BDD6F72D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697195   (119082) от 05.02.2024
+###  Публикация: 1703937   (114610) от 02.03.2024
 
-Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ravnens Banner
-A2 Frosne Vind
-A3 Må Du Brænde I Helvede
-B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
+Сторона 1.
+01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
+02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
+03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
+magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,27 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696947   (119079) от 05.02.2024
+###  Публикация: 1541548   (114406) от 04.03.2024
 
-Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner/Sludge Metal/Metalcore>
+R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-URNE - британская рок-группа. Сложно определить звучание группы в каком-то одном стиле... Все сводится к одному: тяжести.2018 - The Mountain of Gold
-2021 - Serpent & Spirit
-2023 - A Feast On SorrowЖанр: Stoner/Sludge Metal/MetalcoreПродолжительность: 02:08:59
+R.E.M. — американская рок-группа, сформированная в городе Атенс (штат Джорджия) в 1980 году музыкантами Майклом Стайпом (вокал), Питером Баком (гитара), Майком Миллзом (бас-гитара) и Биллом Берри (ударные и перкуссия). Один из наиболее важных и авторитетных коллективов, оказавших влияние на альтернативный рок.1991 - Out Of Time
+1992 - Automatic for the People
+1994 - Monster
+1996 - New Adventures in Hi-FiЖанр: Alternative RockПродолжительность: 08:28:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
+magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697352   (118941) от 06.02.2024
+###  Публикация: 1704416   (114372) от 04.03.2024
 
-Леонид Череповский - Цыганские Песни И Романсы (1990) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Folk, Gypsy>
+Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дороже золота) (1982) 1987 [FLAC 24/192|Lossless|tracks] <Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Былое
-A2 По Невскому
-A3 Кони Юности
-Orchestra – Эстрадный Оркестр П/у Ю. Силантьева(   Читать дальше...   )Жанр: Folk, GypsyПродолжительность: 00:35:48
+Сторона 1.
+01 - Telegraph Road. Телеграф.
+02 - Private Investigations. Поиски истины.
+Сторона 2.(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
+magnet:?xt=urn:btih:D7FB71AD21295D625C353F6AC2B144102B8ED9EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697481   (118923) от 06.02.2024
+###  Публикация: 1704372   (114368) от 04.03.2024
 
-Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+София Ротару - Коллекция Винила (1973-1984) [FLAC 1.0/2.0|24/96|image + .cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Mareridt
-A2 Maneblot
-A3 The Serpent
-A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
+01:14:33
+
+Песни Из К.Ф. «Где Ты, Любовь»
+A1 Красная Стрела(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
+magnet:?xt=urn:btih:9202D179DFE1B0A29B53B2E56224393935B38D54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,27 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
+###  Публикация: 1704402   (114361) от 04.03.2024
 
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+Deep Purple - Дым над водой. Архив популярной музыки 8 (1987) [FLAC 24/192|Lossless|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
+Сторона 1
+01. Black Night
+02. Fireball
+03. Space Truckin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
+magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697367   (118905) от 06.02.2024
+###  Публикация: 1704215   (114350) от 04.03.2024
 
-Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Skøgen Skulle Dø
-A2 Hævnen
-A3 Onde Børn
-A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+Side 1
+01 - Hole In The Sky.
+02 - Don't Start (Too Late).
+03 - Meglomania.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697414   (118903) от 06.02.2024
+###  Публикация: 1704306   (114347) от 04.03.2024
 
-Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Creedence Clearwater Revival - Бродячий оркестр. Архив популярной музыки 3 (1988) [FLAC 24/96|Lossless|tracks] <Blues-Rock, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Vølvens Spådom
-A2 Jeg Er Guden, I Er Tjenerne
-A3 Skøgen Skulle Dø
-A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
+Сторона 1.
+01 - На углу. - Down On The Corner. (J.C.Fogerty). Запись 1969 г.
+02 - Хлопковые поля. - Cotton Fields. (H.Ledbetter). Запись 1969 г.
+03 - Счастливый наследник. - Fortunate Son. (J.C.Fogerty) Запись 1969 г.(   Читать дальше...   )Жанр: Blues-Rock, Classic RockПродолжительность: 00:38:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
+magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697486   (118898) от 06.02.2024
+###  Публикация: 1704412   (114345) от 04.03.2024
 
-Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ella
-A2 Fager Som En Ros
-A3 Leaves Of Yggdrasil
-A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
+Side A.
+01 - Once Upon A Time In The West
+02 - News
+03 - Where Do You Think You're Going?(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
+magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698572   (118414) от 09.02.2024
+###  Публикация: 1704406   (114335) от 04.03.2024
 
-Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Century Media – 19075971571>
+Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Circle
-A2 - Stately Lover
-A3 - Honeymoon Suite
-A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
+Сторона 1.
+01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
+02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
+03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
+magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698554   (118409) от 09.02.2024
+###  Публикация: 1704212   (114316) от 04.03.2024
 
-XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Xentrix — британская трэш-метал-группа из Престона. Группа была образована в 1984 году под названием Sweet Vengeance. Они изменили своё название на Xentrix в 1988 году.1989 - Shattered Existence
-1990 - For Whose Advantage
-1992 - Kin
-1996 - ScourgeЖанр: Thrash MetalПродолжительность: 05:19:41
+Side 1
+01. Sabbath Bloody Sabbath
+02. A National Acrobat
+03. Fluff(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
+magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698598   (118395) от 09.02.2024
+###  Публикация: 1704178   (114299) от 04.03.2024
 
-Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
+AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Fragile
-A2 To The Edge
-A3 Our Truth
-A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:25
+01. Rock 'n' Roll Damnation
+02. Down Payment Blues
+03. Gimme a Bullet
+04. Riff Raff(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
+magnet:?xt=urn:btih:CA1900260B7544077A876F8BDC733B2192B28E76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698686   (118311) от 10.02.2024
+###  Публикация: 1704427   (114297) от 04.03.2024
 
-Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
+Бонни Дзякс (Япония) - Квартет "Бонни Дзякс" (1982) [FLAC 24/96|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fragile
-02. To The Edge
-03. Our Truth
-04. Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:44
+Side A
+01 - Море В Чашке Кофе
+02 - Ресторан Для Птиц
+03 - Продаются Золотые Рыбки(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
+magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698704   (118295) от 10.02.2024
+###  Публикация: 1704448   (114295) от 04.03.2024
 
-VA - Песни И Романсы. Поют В. Трошин, З. Невская, И. Кобзон, Э. Хиль, Е. Беляев, Н. Исакова и др. (1972) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Romances>
+Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Песни
-A1 В. Трошин – Снегириная Заря
-(Б.Терентьев – А.Поперечный)
-A2 З. Невская – Дни Проходят(   Читать дальше...   )Жанр: Pop, RomancesПродолжительность: 00:50:26
+01 - Intro
+02 - Euthanasia
+03 - Illusions of life
+04 - Hangman's confession(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBA01373695CCE41022568A170CF85B733F267CE
+magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,27 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698857   (118252) от 10.02.2024
+###  Публикация: 1704591   (114235) от 05.03.2024
 
-Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Enemy of Reality - симфоник-метал группа из Афин, Греция. Образована в 2013 году.2014 - Rejected Gods
-2016 - Arakhne
-2023 - Where Truth May LieЖанр: Symphonic MetalПродолжительность: 02:22:36
+01. "Rising Power"
+02. "This House Is on Fire"
+03. "Flick of the Switch"
+04. "Nervous Shakedown"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44C2D68CFBBF7A88BB661F9E0A0AB01F5028DDAE
+magnet:?xt=urn:btih:948933FC27F32699A1A98FAC5D46B3BFFEF95CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698754   (118250) от 10.02.2024
+###  Публикация: 1704665   (114232) от 05.03.2024
 
-Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
+AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Anima Nera (Prologue)
-A2 Sword Of Anger
-A3 Reckless
-A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
+01. "Fly on the Wall"
+02. "Shake Your Foundations"
+03. "First Blood"
+04. "Danger"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
+magnet:?xt=urn:btih:50F5858B3C4CD2E6CE89C410C576A028F85C5136
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698749   (118231) от 10.02.2024
+###  Публикация: 1704596   (114200) от 05.03.2024
 
-Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
+Московский камерный оркестр, Р. Баршай - J.S.Bach - Brandenburgische Konzerte BWV 1048, 1049 (И. С. Бах - Бранденбургские концерты №3, 4) (1958) [FLAC 24/96|Lossless|tracks] <Classical, Concerto ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The House Of Shame
-A2 Broken Things
-A3 Delirium
-A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:44:55
+сторона 1
+Бранденбургский концерт № 3, соль мажор
+01. Часть: Аллегро
+02. Часть: Аллегро(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:30:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
+magnet:?xt=urn:btih:F7A388896F1208DC7B6D063A92FB140D23AA9D05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517531   (118070) от 12.02.2024
+###  Публикация: 1704530   (114158) от 05.03.2024
 
-Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
+AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nickelback — канадская рок-группа, основанная в 1995 году в городе Ханна. Группа состоит из гитариста и вокалиста Чеда Крюгера; гитариста, клавишника и бэк-вокалиста Райана Пика; басиста Майка Крюгера и барабанщика Дэниеля Адэра. Название группы образовано от англ. Here’s your nickel back. — «Вот ваша сдача». Или дословно: «Вот ваши пять центов сдачи». Никель (англ. (   Читать дальше...   )1996 - Curb
-1999 - The State
-2001 - Silver Side Up
-2003 - The Long RoadЖанр: Post-Grunge, Hard RockПродолжительность: 10:25:33
+01. "For Those About to Rock (We Salute You)"
+02. "I Put the Finger on You"
+03. "Let's Get It Up"
+04. "Inject the Venom"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
+magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +694,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670202   (117984) от 12.02.2024
+###  Публикация: 1704602   (114155) от 05.03.2024
 
-Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal, Progressive Rock>
+VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|tracks] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Anathema — британская рок-группа, образованная в Ливерпуле в 1990 году. Стиль группы постепенно перешёл от дэт-дум-метала до прогрессивного рока. Вместе с Paradise Lost и My Dying Bride, Anathema считаются одними из основоположников стиля дэт-дум-метал.1992 - The Crestfallen
-1993 - Serenades
-1995 - Pentecost III
-1995 - The Silent EnigmaЖанр: Doom/Death Metal, Progressive/Atmospheric RockПродолжительность: 14:22:37
+Сторона 1
+01. Людвиг Ван Бетховен - Соната №14. Часть 1 - Adagio sostenuto (Генрих Нейгауз, ф-но)Жанр: ClassicalПродолжительность: 00:49:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
+magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527908   (117589) от 10.10.2025
+###  Публикация: 1704593   (114153) от 05.03.2024
 
-Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Гос. симф. оркестр СССР, Л. Гинзбург - J.S.Bach - Die Brandenburgische Konzerte BWV 1046 (И. С. Бах - Бранденбургский концерт №1) (1955) [FLAC 24/96|Lossless|tracks] <Classical, Concerto>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
-1988 - The New Order
-1989 - Practice What You Preach
-1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 11:39:58
+Сторона 1:
+01.  I. Адажио
+02.  II. Адажио
+Сторона 2:(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:25:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
+magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

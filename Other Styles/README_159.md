@@ -1,3 +1,177 @@
+###  Публикация: 170420   (198046) от 22.05.2023
+
+Ry Cooder - Crossroads (1986) [FLAC|Lossless|image + .cue] <Blues, OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossroads (4:25)
+02. Down In Mississippi (4:26)
+03. Cotton Needs Pickin' (2:59)
+04. Viola Lee Blues (3:12)(   Читать дальше...   )Жанр: Blues, OSTПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03E39E0473545B7358EB2D7FF74A96CD8F50D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079610   (197688) от 30.05.2023
+
+Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygène, Pt. 1 (7:39)
+02. Oxygène, Pt. 2 (7:47)
+03. Oxygène, Pt. 3 (3:15)
+04. Oxygène, Pt. 4 (4:06)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9608D0F67DA7502765692DAE71D60862A3057976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637015   (197641) от 02.06.2023
+
+VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Kollektiv
+2. VOV-А6/CH
+3. Lullaby
+4. A Fridge Called Nora(   Читать дальше...   )Жанр: OSTПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637028   (197632) от 02.06.2023
+
+VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogrov, Atomic Heart - Welcome to Kollektiv (03:54)
+02. Boogrov, Atomic Heart - VOV-А6/CH (02:26)
+03. Palina, Atomic Heart - Lullaby (02:28)
+04. Mick Gordon, Palina, Atomic Heart - A Fridge Called Nora (04:11)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 21723   (197027) от 14.06.2023
+
+ДАЖЕ НЕ ДУМАЙ 2 - Официальный саундтрек (2004)
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Даже не думай дважды - Master Spensor
+2. Я не люблю - 63 Регион
+3. Марат - Не замужем
+4. Pizness - Децл feat. M.C. Молодой(   Читать дальше...   )Жанр: OSTПродолжительность: 57:26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29DBDDD2BC9603B7BF6E6409B93C7C52D952043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 205605   (195141) от 26.07.2023
+
+Олег Анофриев - Между прошлым и будущим... (2007) [FLAC|Lossless]<Саундтрек>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_195141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Есть только миг 3.42
+2. Песня о друге 3.27
+3. Песенка почтальона 2.59
+4. Все скорее 3.00(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC45DC60FB632396562AFB84FD0D772AF40521F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650832   (194852) от 03.08.2023
 
 VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
@@ -567,180 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4E09451D2FD088FE1437231D57DA479C21AD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659014   (190524) от 10.09.2023
-
-Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Title Sequence [00:00:55]
-02. The Coming Race [00:03:34]
-03. Neomenia Moon Base [00:02:01]
-04. Walküre Lands [00:01:53](   Читать дальше...   )Жанр: OST, Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DBD59FADC28A70FF0ADF8C44372DAE9B16004B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658533   (190357) от 10.09.2023
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastered, 2016, Polydor [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) [00:10:28]
-02. Age Of Loneliness (Enigmatic Club Mix) [00:06:15]
-03. Push The Limits (ATB Remix) [00:07:51]
-04. Gravity Of Love (Judgement Day Club Mix) [00:05:59](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAFBCC78E106DE596BC1FDB673259766EC611ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659767   (189242) от 13.09.2023
-
-Stephen Parsons & Francis Haines - Считанные секунды / Split Second (1992) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Second Theme
-02. Chasing Stone
-03. Shes's Really Something (performed by Playground)
-04. "I'm Back"(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589624   (189133) от 13.11.2022
-
-Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kongurei [00:04:02]
-02. Joker's Song [00:03:48]
-03. Show Me The Way [00:05:28]
-04. Message [00:03:51](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589511   (189002) от 13.11.2022
-
-Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Choir>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (Pure Version) (2:45)
-02. Winter Light (3:18)
-03. Greensleeves (Pure Version) (3:19)
-04. Jesu, Joy of Man's Desiring (Pure Version) (3:16)(   Читать дальше...   )Жанр: New Age, Ambient, ChoirПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC6DF126F401814A8B3E30E84E2A2E462030EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825257   (188762) от 22.10.2025
-
-Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24/96|Lossless|WEB-DL|tracks] <Score, Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightcall – Kavinsky & Lovefoxxx
-02. Under Your Spell - Desire
-03. A Real Hero - College feat. Electric Youth
-04. Oh My Love - Riz Ortolani feat. Katyna Ranieri(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E583AC922663CEB8771458702EB4A95E10CD73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1016163   (771734) от 13.05.2016
-
-John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love Me Or Leave Me [08:24]
- 02.I Can't Get Started [03:36]
- 03.Easy Living [04:20]
- 04.2 Degrees East - 3 Degrees West [06:13](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Third StreamПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1252EBA28A6184A421EC7D08613315BF916165F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016268   (771728) от 13.05.2016
-
-Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Starts Are In Your Eyes [06:29]
- 02.Lover Man [06:12]
- 03.Brandnew World / Breaking A New Day [09:24]
- 04.Margy Pargy [05:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62D9430C9FB370990136805967AC0C6B6B60B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391793   (771640) от 22.06.2020
-
-The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Did I Fall In Love [4:33]
-02. Little Tin Box [4:14]
-03. Home Again [3:03]
-04. Till Tomorrow [2:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016223   (771592) от 13.05.2016
-
-Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaco Smiled
-02. One Night In Mumbai
-03. Unbreakable Heart
-04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761446   (771422) от 07.04.2015
 
 George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy Listening>
@@ -746,6 +630,122 @@ Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0977963561599042202E0E5F00E2AA0D8971BAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393411   (767772) от 30.06.2020
+
+Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Es geht los [6:27]
+02. Westwind [7:41]
+03. ICE [7:02]
+04. Sternklar war die Nacht [7:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C9BE85F16404FD824084A7103A5942D33B8A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278866   (767743) от 27.01.2019
+
+Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Don't Be So) Marxist in Bed [5:07]
+02. Where's the Hook [7:08]
+03. Don't Touch My Moustache [5:20]
+04. What Came Before [5:46](   Читать дальше...   )Жанр: Jazz Fusion, Smooth JazzПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A1352B983AD050DFAD562EC5E878A593824C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493592   (767676) от 27.01.2019
+
+Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, Traditional Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait for You (Je Ne Pourrai Jamais Vivre Sans Toi) (Jacques Demy, Norman Gimbel, Michel Legrand) (3:48)
+02. I Got a Name (Charles Fox, Gimbel) (3:52)
+03. Nobody Knows (Alan Bergman, Marilyn Bergman, Legrand) (3:39)
+04. Being a Woman (Larry Grossman, Hal Hackaday) (3:22)(   Читать дальше...   )Жанр: Vocal Jazz, Traditional PopПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212393   (767669) от 27.01.2019
+
+Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .cue] <Jazz, Pop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Windmills Of Your Mind (3:35)
+02. The Summer Of 42 (2:44)
+03. I Still See You (2:49)
+04. Sea And Sky (vocal by Dusty Springfield) (2:15)(   Читать дальше...   )Жанр: Jazz, Pop, Big BandПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

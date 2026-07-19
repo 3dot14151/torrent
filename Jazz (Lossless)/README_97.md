@@ -1,119 +1,3 @@
-###  Публикация: 1127772   (731157) от 22.04.2017
-
-Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modus Operandi [09:38]
-02. Come Sunday [05:28]
-03. Gap Sealer [05:48]
-04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127655   (731155) от 22.04.2017
-
-Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valery Ponomarev [01:14]
-02. Feelin's (I) [04:35]
-03. Cat Dancing on the Piano [04:53]
-04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127600   (731154) от 22.04.2017
-
-Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731154.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sambao (6:21)
-2. Yalelel (5:51)
-3. Bacchanal (6:38)
-4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127673   (731153) от 22.04.2017
-
-Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ka-Real (Take 2) [12:39]
-02. Africanos / Latinos [09:53]
-03. Miles' Mode [07:22]
-04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284021   (731104) от 19.02.2019
 
 Pat Flowers - 1945 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -744,6 +628,122 @@ The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022798   (727856) от 03.06.2016
+
+Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confessin' The Blues [04:46]
+ 02.'Tain't Nobody's Bizness If I Do [07:03]
+ 03.Hootie Blues [04:33]
+ 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022786   (727855) от 03.06.2016
+
+Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Workout [10:01]
+ 02.Uh Huh [10:44]
+ 03.Smokin' [07:31]
+ 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284708   (727846) от 22.02.2019
+
+Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Mornin' (3:13)
+ 02. Santa Gotta Choo Choo (3:29)
+ 03. Somebody Stole My Santa Claus Suit (4:44)
+ 04. Carol of the Bells (3:08)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284705   (727837) от 22.02.2019
+
+Vangelis Katsoulis - Pictures From Inside (2011) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Universe Clockwork (8:29)
+ 02. Snapshots of a Lost World (16:26)
+ 03. Filinks (7:42)
+ 04. I Died for Beauty (4:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38A62B3275F388C836310821D93D966C1BAF5D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

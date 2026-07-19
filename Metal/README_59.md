@@ -1,3 +1,90 @@
+###  Публикация: 1557149   (542829) от 14.06.2022
+
+Maylene and the Sons of Disaster (Dallas Taylor, vox ex-Underoath) - 7 Releases (2005-2011) [MP3|320 Kbps/282 kbps VBR ] <Southern Rock, Christian Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Dead We Dream [00:03:16]
+02. Save Me [00:04:00]
+03. Faith Healer (Bring Me Down) [00:03:37]
+04. Open Your Eyes [00:03:15](   Читать дальше...   )Жанр: Southern Rock, Christian MetalПродолжительность: 7CD, 02:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04198C8270C3F22192A79DF848A2A552AB740B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557101   (542826) от 14.06.2022
+
+Stygian Oath - Midnight Flames (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raging Skies [00:04:37]
+02 - Finger on The Trigger [00:03:53]
+03 - Beyond the Grave [00:05:49]
+04 - Broken Mirror [00:05:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBDC49288A888660590E44A42B0F40546450DCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557214   (542819) от 14.06.2022
+
+Sorrowful Winds - Deny Reality (2022) [MP3|235-244 kbps VBR (V0)] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deny Reality [00:05:16]
+02. Silence In The Morning [00:04:37]
+03. Time Pills [00:06:04]
+04. To Slay The Last One [00:06:30](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C05D41BF24D31A60D007341AEC57D6CC2473A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049698   (542355) от 06.09.2016
 
 Eye Of Solitude - Cenotaph (2016) [MP3|320 Kbps] <Funeral Doom Metal>
@@ -651,93 +738,6 @@ Clawfinger неожиданно вышли из затишья и презент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71147D967F0E5F03FB3A3B65FF9ECCAC7622D67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927547   (528691) от 13.08.2015
-
-Soulfly - Savages (2013) Japanese Edition [MP3|320 кб/с]<Groove / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodshed (feat. Igor Cavalera Jr.) (6:55)
-02. Cannibal Holocaust (3:29)
-03. Fallen (feat. Jamie Hanks from 'I Declare War') (5:55)
-04. Ayatollah Of Rock 'N' Rolla (feat. Neil Fallon from 'Clutch') (7:29)(   Читать дальше...   )Жанр: Groove / Thrash MetalПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C14C15BE167191610DCD52B5B554A6034AF283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156044   (528499) от 06.08.2017
-
-Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fixated on Devastation
-02. Panic Amongst the Herd
-03. Die with Integrity
-04. Reveling in the Abyss(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A380180C75C6C8231E4CA66E2B4287AE83905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156524   (527656) от 07.08.2017
-
-Pentakill - II: Grasp of the Undying (2017) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Cull (5:13)
- 2 - Mortal Reminder (4:04)
- 3 - Tear of the Goddess (3:55)
- 4 - Infinity Edge (3:52)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7362987DD95BDF56D5322ABE2868143AE546F9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

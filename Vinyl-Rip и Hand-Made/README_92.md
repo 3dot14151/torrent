@@ -1,25 +1,25 @@
-###  Публикация: 1807957   (65088) от 21.07.2025
+###  Публикация: 1673285   (52084) от 02.10.2025
 
-Паранойя (Paranoia) - Месть Зла (Evil's Revenge) (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Power, Speed Metal>
+Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Повелитель Снов
-A2 - Месть Зла
-A3 - Слуги Дьявола
-A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:37:01
+Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
+2011 - Time Is Up
+2013 - Unnatural Selection
+2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
+magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808074   (65035) от 22.07.2025
+###  Публикация: 1568153   (52083) от 02.10.2025
 
-VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Jazz, Pop>
+Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Rudolf Cortés - Tiše Den Zhasíná
-A2 Jana Beláková - Lampy Už Dávno Zhasly
-A3 Jiří Popper - Bílou Tmou
-A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:28:5
+Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )1997 - Enter
+1998 - The Dance (EP)
+2001 - Mother Earth
+2004 - The Silent ForceЖанр: Symphonic MetalПродолжительность: 10:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
+magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808052   (65031) от 22.07.2025
+###  Публикация: 1732015   (51921) от 26.06.2024
 
-Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+Любовь Орлова - Актёр и Песня (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Soundtrack>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Wild One
-A2. Born On The Sun
-A3. Hey Angel
-B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
+Сторона А:
+01. Песня Анюты из к/ф ''Веселые ребята''
+02. Марш веселых ребят из к/ф ''Веселые ребята''
+03. Сердце из к/ф ''Веселые ребята''(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:39:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
+magnet:?xt=urn:btih:0E3A3510C47386AE919C71AB09C915C8164A07AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809037   (64770) от 28.07.2025
+###  Публикация: 1590988   (51693) от 28.06.2024
 
-Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
+Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Deja Vu (Night Tempo Showa Groove Mix)
-A2 Nice-catch! (Night Tempo Showa Groove Mix)
-A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
+Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
+2000 - New American Gospel
+2003 - As The Palaces Burn
+2004 - Ashes of the WakeЖанр: Groove Metal/MetalcoreПродолжительность: 10:16:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
+magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809797   (64655) от 01.08.2025
+###  Публикация: 1733489   (51618) от 29.06.2024
 
-Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
+Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Body To Body
-A2 Lonely Night
-A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave, City PopПродолжительность: 00:45:57
+Rhapsody или Rhapsody of Fire — итальянская метал-группа, исполняющая музыку в стиле симфонический пауэр-метал. Коллектив был основан под названием Thundercross, но с 1995 года назывался Rhapsody и под таким названием стал широко известен. В 2006 году из-за проблем с правами группа дополнила название словами «of Fire».1997 - Legendary Tales
+1998 - Symphony Of Enchanted Lands
+2000 - Dawn Of Victory
+2001 - Rain Of A Thousand FlamesЖанр: Symphonic Power MetalПродолжительность: 17:23:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
+magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810070   (64614) от 02.08.2025
+###  Публикация: 1733609   (51584) от 29.06.2024
 
-The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Rock>
+Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Alan Parsons Project — рок-группа из Великобритании, творившая с 1975 по 1990 годы в стилях арт-рок, симфонический рок и прогрессивный рок. Основана Аланом Парсонсом (Alan Parsons) и Эриком Вульфсоном (Eric Woolfson). После 1990 года группа официально не существует, но Алан Парсонс и Эрик Вульфсон продолжали выпускать сольные альбомы, близкие к творчеству группы. (   Читать дальше...   )1976 Tales Of Mystery And Imagination (UK, Charisma – CDS 4003 LP)
-1977 - I Robot (Japan, Arista – IES-80885 LP)
-1978 Pyramid (UK, Arista – SPART 1054 LP)
-1979 - Eve (Japan, Arista – 20RS-36 LP)Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:39:45
+A1 Hotel California
+A2 Heartache Tonight
+A3 I Can't Tell You Why
+B1 The Long Run(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
+magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821665   (63877) от 03.10.2025
+###  Публикация: 1731477   (51396) от 01.07.2024
 
-VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <Pop Rock, Psychedelic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
-A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
-A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
-A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
+A1 Lovin' Things
+A2 The River Is Wide
+A3 (You Gotta) Live For Love
+A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 00:31:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
+magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763031   (63850) от 03.10.2025
+###  Публикация: 1736369   (50260) от 12.07.2024
 
-Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal; Metalcore>
+Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bloodred Hourglass - мелодик-дэт/трэш-метал группа из г. Миккели, Финляндия.2012 - Lifebound
-2015 - Where The Oceans Burn
-2017 - Heal
-2019 - GodsendЖанр: Melodic Death/Thrash Metal; MetalcoreПродолжительность: 05:50:32
+Жанр: Pop, Pop Rock, DiscoПродолжительность: 02:36:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
+magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +227,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705130   (63706) от 07.03.2024
+###  Публикация: 1736660   (50117) от 13.07.2024
 
-ВИА «Ариэль» - Ариэль (1975) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50117.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:06] 01. Вступление + Золотые Купола (Techno Vers)
+[2:32] 02. Белый теплоход (Rock vers)
+[2:53] 03. Владимирский Централ (Vers.1)
+[4:28] 04. Баллада об уходе в рай(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548750   (49139) от 23.07.2024
+
+Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
+1987 - The House of Blue Light
+1990 - Slaves and Masters
+1993 - The Battle Rages On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC58E5ED6B97AF7519F75D3798FD6D805E6255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738710   (48971) от 24.07.2024
+
+Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года, играющая в жанрах глэм-рок и хард-рок. Широко известна развитием направления шок-рок, сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.1992 - Revenge
+1997 - Carnival Of Souls: The Final Sessions
+1998 - Psycho Circus
+2009 - Sonic Boom(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 05:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B0AE4571FBE4AFBF873A19A576B501E69A5561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624880   (48884) от 25.07.2024
+
+Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagine Dragons — американская поп-рок-группа, образованная в 2008 году в городе Лас-Вегас, США.2012 - Night Visions
+2015 - Smoke + Mirrors
+2017 - Evolve
+2018 - OriginsЖанр: Alternative & IndieПродолжительность: 07:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41718B91F055A9695DD40813888981042C8145E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627141   (48685) от 27.07.2024
+
+Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Powerwolf — пауэр-хеви-метал-группа из Германии. Основана в 2003 году в городе Саарбрюккен. Творчество коллектива базируется на сочетании христианских мотивов с мрачными хоровыми вставками и органными партиями.2005 - Return in Bloodred
+2007 - Lupus Dei
+2009 - Bible Of The Beast
+2011 - Blood of the SaintsЖанр: Power MetalПродолжительность: 11:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEB2F41F5279C603CB80E89D91FD5F79535A847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716987   (48429) от 30.07.2024
+
+Форум - Белая Ночь (1987) [FLAC 2.0  24/192|Image (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48429.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01. Зимы и весны (музыка и слова В. Ярушина)
-02. Где ждет любовь (музыка и слова А. Богословского)
-03. Старая пластинка (Н Богословский — Я. Родионов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:51
+A1. Белая ночь (С. Романов) 4:19
+A2. Какая нелепость... (Л. Дербенев) 3:52
+A3. Беда (С. Романов) 3:10(   Читать дальше...   )Жанр: PopФормат: Vinyl, LP, AlbumПродолжительность: 00:37:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F530D53B5C3ED438FB08183E4BB596948282DED6
+magnet:?xt=urn:btih:AAA2EA8063865892E3AA860E5878E7F7A98F8F48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705090   (63701) от 07.03.2024
+###  Публикация: 1659835   (48267) от 31.07.2024
 
-Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
+Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 сторона.
-01 - Если бы тебя не было. Et Si Tu N'existais Pas
-02 - Альбатрос. L'Albatros.
-03 - Моя музыка. Ma Musique.(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:43:20
+Iced Earth — американская хэви-метал-группа. Основана ритм-гитаристом и композитором Джоном Шаффером в 1985 году.1990 (2020) - Iced Earth (30th Anniversary Edition)
+1991 - Night Of The Stormrider
+1995 - Burnt Offerings
+1996 - The Dark SagaЖанр: Power/Thrash MetalПродолжительность: 15:46:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
+magnet:?xt=urn:btih:9902A330F57B822CA44017B4021754B2ACD58542
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705451   (63580) от 08.03.2024
+###  Публикация: 1739702   (47898) от 04.08.2024
 
-AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+VA - Остров Сокровищ. По Другому! от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who Made Who
-02. You Shook Me All Night Long
-03. D.T.
-04. Sink The Pink(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:50
+[1:04] 01. Предисловие
+[3:58] 02. Вступление (1 часть)
+[3:33] 03. Трагическая и поучительная история о мальчике Бобби
+[3:21] 04. 15 человек на сундук мертвеца(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 00:38:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A43B5A18B2B72D0E640E1718A2FF66D3C1407EC
+magnet:?xt=urn:btih:E8150643928E958009D3B75148F29D9509AA504D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705526   (63579) от 08.03.2024
+###  Публикация: 1741743   (47438) от 08.08.2024
 
-AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. "Heatseeker"
-02. "That's the Way I Wanna Rock 'n' Roll"
-03. "Meanstreak"
-04. "Go Zone"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+The Winery Dogs — американская хард-рок-супергруппа, образованная в 2012 году Майком Портным, Билли Шиэном и Ричи Коценом.2014 - The Winery Dogs
+2015 - Hot Streak
+2017 - Dog Years (EP)
+2023 - IIIЖанр: Hard RockПродолжительность: 03:22:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:075C705BCA2F3F6C13764D529768BD184C40549E
+magnet:?xt=urn:btih:C4FB08828BE13BFB36DA2B8173639076EBF14096
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +488,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705635   (63528) от 09.03.2024
+###  Публикация: 1741968   (47335) от 09.08.2024
 
-AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock Or Bust
-02. Play Ball
-03. Rock The Blues Away
-04. Miss Adventure(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:00
+Social Distortion — американская панк-рок-группа, созданная в 1978 году в Фуллертоне, Калифорния.1996 - White Light  White Heat  White Trash
+2004 - Sex, Love, and Rock n' Roll
+2011 - Hard Times And Nursery RhymesЖанр: Punk RockПродолжительность: 02:11:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32AF562F344693E295A567B0F9FBC6CCF73E2ED9
+magnet:?xt=urn:btih:AD23AA59969216C808171FA595F3D34FF2BAF0C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +516,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705601   (63496) от 09.03.2024
+###  Публикация: 1740755   (46712) от 15.08.2024
 
-Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|tracks] <Progressive Rock>
+VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack, Theme, Ballad>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye stranger (R.Davies, R.Hodson)
-02. The logical song (R.Davies, R.Hodson)
-03. Bloody well right (R.Davies, R.Hodson)
-04. Breakfast in America (R.Davies, R.Hodson)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:36
+"Одинокий пастух" в исполнении оркестра Джеймса Ласта и флейтиста Замфира прочно занимает место в топе инструментальной музыки XX века. Но кто её написал? Как выясняется, на этот счёт существует множество мнений, причём довольно экзотических! В общем, возникает путаница. Если верить официальным данным, Джеймс Ласт является автором "Одинокого пастуха", (   Читать дальше...   )Жанр: Soundtrack, Theme, BalladПродолжительность: 01:59:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:472DAAD91B14667DFB7D10F2546CFED2FD43B79B
+magnet:?xt=urn:btih:23AA3AE43B2068EF2E15091B503AF72A0D0A8A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +542,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705609   (63484) от 09.03.2024
+###  Публикация: 1743696   (46488) от 17.08.2024
 
-ВИА «Веселые ребята» - Музыкальный глобус (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Никогда не поверю (Ф. Фариан – русский текст В. Лугового)
-В оригинале «Never Change Lovers In the Middle of the Night» (Fred Jay / Keith Forsey / Mats Bjorklund) — Boney M 1978
-02. Мона Лиза (музыка и слова Д. Бове)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:09
+Side A:
+01. Take That - Sure
+02. M. Carey & L. Vandross - Endless Love
+03. Shampoo - Trouble(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:807CF8D9699648BADB857FBDF5AD7DA266F559E4
+magnet:?xt=urn:btih:0CBBFF1DF2226D9BD4C4E391E558EF9C44227A34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +571,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705939   (63391) от 10.03.2024
+###  Публикация: 1655777   (46196) от 20.08.2024
 
-Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tracks] <Classic Rock, Glam>
+Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Как ты едешь? How D'You Ride. (Holder - Lea)
-02 - Весь мир сошел с ума. The Whole World's Goin Crazy. (Holder)
-03 - Взгляни в эту ночь. Look At Last Nite. (Holder - Lea)(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:34:16
+Dark the Suns — коллектив из Финляндии исполняет, по заявлению самих музыкантов, мелодичный и атмосферный gothic metal в комбинации с мощным звучанием гитарных партий и гроул-вокалом в духе melodic death metal.2007 - In Darkness Comes Beauty
+2009 - All Ends in Silence
+2010 - Sleepwalking in a Nightmare
+2021 - Suru Raivosi Sydameni PimeydessaЖанр: Melodic Death/Gothic MetalПродолжительность: 04:05:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74673024E815EDA53779C925FA16DB1C7A8723D4
+magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +600,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705941   (63388) от 10.03.2024
+###  Публикация: 1744260   (46183) от 20.08.2024
 
-ВИА «Самоцветы» - Самоцветы (1973) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Песня моя, песня (О. Иванов – П. Леонидов)
-02. Горлица (О. Иванов – С. Кирсанов)
-03. За того парня (М. Фрадкин – Р. Рождественский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:42:51
+Revolution Renaissance — пауэр-метал группа, основанная гитаристом Тимо Толкки.2008 - New Era
+2009 - Age Of Aquarius
+2010 - TrinityЖанр: Power MetalПродолжительность: 02:34:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BD50B9F13F874F309E03542A7DDDB4E2C5BD439
+magnet:?xt=urn:btih:B89BBE53737A60FB92DE5BCAFD2DE45BACAB6C95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +628,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548753   (63237) от 12.03.2024
+###  Публикация: 1744250   (46176) от 20.08.2024
 
-Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Modern Metal, Power Metal>
+Timo Tolkki's Avalon - Studio Albums (4 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amaranthe — шведско-датская метал-группа, основанная в 2008 году Джейком Е. Лундбергом (Dreamland, Dream Evil) и Олафом Мёрком (Dragonland, Nightrage). Проект начал складываться, когда к группе присоединились вокалисты Элиз Рид и Энди Сульвестрём, а также ударник Мортен Лёве. После выхода первого демо-альбома состав коллектива пополнил басист Юхан Андреассен2011 - Amaranthe
-2013 - The Nexus
-2014 - Massive Addictive
-2016 - MaximalismЖанр: Melodic Modern Metal, Power Metal, Pop MetalПродолжительность: 06:23:30
+Timo Tolkki's Avalon (a.k.a. «Avalon») — финский метал-опера проект, созданный Тимо Толкки в 2013 году.2013 - The Land Of New Hope
+2014 - Angels Of The Apocalypse
+2019 - Return To Eden
+2021 - The Enigma BirthЖанр: Symphonic Power MetalПродолжительность: 03:51:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
+magnet:?xt=urn:btih:FEB79C698F24747D622268B9E4A85E8441857C57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +657,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706162   (63201) от 12.03.2024
+###  Публикация: 1744366   (46076) от 21.08.2024
 
-Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
+Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, Funk, Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Итальянец (L’Italiano) (Salvatore Cutugno - Cristiano Minellono)
-02. Только мы (Solo noi) (S.Cutugno - C.Minellono)
-03. Одни (Soli) (S.Cutugno - C.Minellono)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:35
+A1 Jump Street
+A2 Illusions
+A3 R.R. Express
+B1 Famous Last Words(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E026C8B93E41F2DD454D0DDC1584FC59C8A71824
+magnet:?xt=urn:btih:B4D775DAD19BCFE67295A9254C1554AFDBC690AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706241   (63184) от 12.03.2024
+###  Публикация: 1744342   (46070) от 21.08.2024
 
-Ласковый Май - Белые Розы (1989) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Electronic, Pop, Disco>
+Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Jazz, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Белые Розы
-B Седая Ночь
-
-Pressed By – Ленинградский Завод Грампластинок(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:13:08
+A1 Draama • Драма
+A2 Elukuunal • Свеча жизни
+A3 Uneta Oo • Бессонная ночь
+A4 Kutse Tantsule • Популярный танец(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:36:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:126B3A68B60E3F18C3C0765E9D2D8A07736271F3
+magnet:?xt=urn:btih:2A0BE810D56ADA08238F37E9107503F8EC4F6CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,173 +715,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706052   (63180) от 12.03.2024
+###  Публикация: 1746043   (45242) от 29.08.2024
 
-ВИА «Синяя птица» - От сердца к сердцу (1978) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63180.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01. От сердца к сердцу (В. Лозовой — И. Машбаш, перевод В. Твороговой)
-02. Это ошибка (Я. Френкель — И. Шаферан)
-03. Не обещай меня любить (А. Днепров — В. Харитонов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C0376F5D25C7D3478792AEC8F4716AB4E6C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706048   (63173) от 12.03.2024
-
-The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Rock>
+The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Venus
-02. Shocking You
-03. Send Me A Postcard
-04. Long & Lonesome RoadЖанр: Classic RockПродолжительность: 00:38:29
+The Dark Element - шведско-финская симфо-метал группа, созданная бывшей вокалисткой Nightwish Анетт Олзон и бывшим гитаристом Sonata Arctica Яни Лииматайнен.2017 - The Dark Element
+2019 - Songs The Night Sings
+Jani Liimatainen - 2022 - My Father's SonЖанр: Symphonic/Power MetalПродолжительность: 02:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706042   (63162) от 12.03.2024
-
-The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таинственное путешествие, Желтая субмарина) (1967, 1969) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное таинственное путешествие.
-Сторона 1.
-01 - Волшебное таинственное путешествие. (Джон Леннон - Пол МакКартни)
-02 - Дурак на холме. ( Джон Леннон - Пол МакКартни)(   Читать дальше...   )Жанр: Classic Rock, SoundtrackПродолжительность: 00:36:35, 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706308   (63159) от 12.03.2024
-
-VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01. Кружатся диски (5.18) Д. Тухманов — И. Кохановский
-Валерий Леонтьев
-02. Эти летние дожди (4.10) М. Минков — С. Кирсанов(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648172   (63055) от 13.03.2024
-
-Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
-2000 - Stronger Than Death
-2002 - 1919 Eternal
-2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706802   (62971) от 14.03.2024
-
-VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62971.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона
-1. Так не должно быть (Л. Дербенев)
-М. Боярский и О. Зарубина
-Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
+magnet:?xt=urn:btih:17C84E35F459D6CBE74AA77DC64E4DA661623C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1712371   (112043) от 04.04.2024
+
+The Veronicas - Gothic Summer (2024) [MP3|320 Kbps] <pop-rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Perfect [00:02:33]
+02 - Detox [00:03:00]
+03 - Here To Dance [00:02:05]
+04 - Savage (feat. Kerser) [00:03:13](   Читать дальше...   )Жанр: pop-rockПродолжительность: 00:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A7DF8D15F42A47B4E7C2FA2AA03C6C3516418B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713138   (111915) от 05.04.2024
 
 Apollo 100 (Featuring Tom Parker) - Joy (1972) LP [MP3|320 Kbps] <Pop, Neo-Classical>
@@ -716,35 +745,6 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D327CDF68408E5E2C8AEC596A809AF03D8B1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729106   (108146) от 10.06.2024
-
-VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Trance & Richardo Da Force - Stayin' Alive
-02. Masterboy - Feel The Fire
-03. DJ Bobo - Everything Has Changed
-04. The Outhere Brothers - La La La Hey Hey(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95594B6A2E55A1A4AF2E2B43F1279102024B2414
 ```
 
 https://mybot314.ru/tekegram_catalog/

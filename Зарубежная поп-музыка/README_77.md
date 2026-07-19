@@ -1,3 +1,32 @@
+###  Публикация: 1595994   (174011) от 08.12.2022
+
+VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Dance, Nu-Disco, Progressive, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174011.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. A1 & J1 & Tion Wayne - Night Away (Dance) (Clean)
+02. Alok Ella Eyre & Kenny Dope Fe. Never Dull - Deep Down (Radio)
+03. Atb & Topic & A7s - Your Love (9pm) (Clean)(   Читать дальше...   )Жанр: Dance, Nu-Disco, Progressive, Synth-popПродолжительность: 01:19:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595997   (174007) от 08.12.2022
 
 VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|320 Kbps] <Dance, Disco, Synthpop, R&B>
@@ -715,35 +744,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:933C6FC7B7E4401715E71B743588E4825C8F0E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432785   (161991) от 19.12.2020
-
-VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - I Want To Know What Love Is 4:58
-02. Roxette - It Must Have Been Love (Edit) 4:19
-03. All-4-One - I Swear 4:20
-04. Percy Sledge - When A Man Loves A Woman 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 ```
 
 https://mybot314.ru/tekegram_catalog/

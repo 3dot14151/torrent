@@ -1,119 +1,3 @@
-###  Публикация: 1554093   (39354) от 24.10.2024
-
-Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One of Those Things [3:00]
-02. Fly Me to the Moon [4:46]
-03. Announcement Sarah Vaughan [1:32]
-04. Love Finds a Way [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DDEDD06F7B9C962326EA7366541CE64E5427E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554831   (39352) от 24.10.2024
-
-Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedicated to You [2:48]
-02. My Funny Valentine [3:01]
-03. Shulie a Bop [2:42]
-04. Lover Man [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757102   (39285) от 25.10.2024
-
-Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's New [10:37]
-02. My Melancoly Baby [9:06]
-03. Easy Living [4:16]
-04. All The Things You Are [8:24](   Читать дальше...   )Жанр: CoolПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757202   (39179) от 26.10.2024
-
-Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby I'm A Fool (3:32)
-02. If The Stars Were Mine (2:50)
-03. C’est Magnifique (4:52)
-04. Morning Sun (5:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6285C537ED9BB9519792E1285FABB1DD75A1D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757445   (39071) от 27.10.2024
 
 Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) Deluxe Edition / 2024 Mix [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Big Band>
@@ -745,6 +629,122 @@ Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8ADDD47F88CFED213A9FAA6E3AD255344FF7FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761914   (36486) от 22.11.2024
+
+Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Parade
+02. Small Changes
+03. One And Only
+04. Rebel Soul(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D438E646ECAAAFEDE715E741B1F62E56FA30BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762393   (36146) от 25.11.2024
+
+The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin’! The Fats Waller Broadway Musical (1996) [FLAC|Lossless|tracks+.cue] <Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (4:22)
+02. Ain't Nobody's Bizness If I Do (1:42)
+03. Honeysuckle Rose (4:15)
+04. Squeeze Me (3:28)(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C93070B3256C4332156ED67A32DD674CC3531C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762606   (36045) от 26.11.2024
+
+V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Missing
+02. Neja - All That She Wants
+03. Ely Bruna - Take On Me
+04. Banda Brasileira - As It Was (Bossa Version)(   Читать дальше...   )Жанр: Pop Jazz, Bossa NovaПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402A9669A61453DA592A924B05652F27B127B1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763715   (35441) от 02.12.2024
+
+Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion and Attraction (4:06)
+02. Burning Desires (4:39)
+03. Kissing in the Rain (4:39)
+04. Let Me Love You (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF958E65394AAAE70835918FE55195E7E5CBCAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

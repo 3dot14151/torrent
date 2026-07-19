@@ -1,22 +1,25 @@
-###  Публикация: 1069448   (372698) от 04.11.2016
+###  Публикация: 833899   (382195) от 23.10.2014
 
-Проекты - VideoHive - News Plus - Complete Broadcast Package - 13696387 [AEP]
+VideoHive - Fashion Promo 2 - 105206 [AEP]
 
 >>Проекты
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-News Plus - Complete Broadcast Package - пакет графики для новостных и других вещательных каналов.Формат: AEP
+Проект для презентации. 11 мест для видео и более 15 для текста.
+Легко настроить. Пререндеренная версия включена, для неё плагины не требуются. Футажи от Digital Juice.
+Превью, видеоурок и муз. трек - в раздаче.
+(   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:844F1F8CD265E1CEE561920D912485C53EB02A84
+magnet:?xt=urn:btih:CAE87E17C17E74DE6E6231C694823BAA8D18818B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,476 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254467   (372408) от 14.10.2018
+###  Публикация: 833753   (382192) от 23.10.2014
 
-Проекты - VideoHive - Photo Gallery A Perfect Day - 7812358 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Gallery A Perfect Day - Это элегантная и современная фотогалерея может быть использована для видео-галереи любого типа (свадьба, отпуск, выпускной, день рождения, портфолио, семейный альбом и т. д.).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A941BC35D50AA1341EB8D8959BFDAFD363C1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254664   (372243) от 14.10.2018
-
-Проекты - VideoHive - Freeze Frames: Pop Dreams Pack - 12329678 [AEP]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pop Dreams - это современный, свежий и красочный пакет анимации, пригодный для детских видео роликов, слайд-шоу, интро каналов, поздравительных открыток, свадебных видео роликов или подобных проектов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565A707F5E5E1026109B5A26037D1683516A6D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950069   (372216) от 25.10.2015
-
-Проекты - VideoHive - Particles Logo Reveal Toolkit [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький шаблон для создания стильного логотипа-заставки. Есть пререндеренная версия, для которой плагины не требуются. Превью и видеоурок имеются.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B005A5AF263168BB0938F62055DF2C96FBC7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950263   (372194) от 25.10.2015
-
-Проекты - VideoHive - Wonderland - 118176 [AEP]
+Revostock - Wedding Pop Up Book - 135575 [AEP]
 
 >>Проекты
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания видео альбома.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35E8E8C618B2689B9EF9F8EF1A053AE41B51D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949981   (372078) от 25.10.2015
-
-Проекты - VideoHive - Viral Video Lower Thirds Template [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с универсальным дизайном который может быть использован от широковещательных пакетов, корпоративного видео, YouTube видео роликов, титры и многое другое.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1561EDC5116FC92F7C2F7477CB5DD5521D5C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950279   (372044) от 25.10.2015
-
-Проекты - FASHION MODELS for Sony Vegas [VEG]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в SVP Pro 11,12,13.Формат: VEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518743FCF205D532FE0BC13EE5BFF20278FE93C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327758   (371988) от 26.09.2019
-
-VideoHive - Motorcycle Reveal - 24634902 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный проект для демонстрации вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1588310D5FBE78DFC4C7C90DADBAD7E3E1E7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327698   (371877) от 26.09.2019
-
-VideoHive - New Year Countdown 2019 - 20837919 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371877.jpg" />
-</div>
-
-
-###  Подробнее
-
-New Year Countdown 2019 - это 60 секунд обратного отсчета перед Новым годом.
-Проект хорошо подходит для ваших вечеринок, веб-сайтов, событий и праздников.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB100B5933F1900A5C10DEA85EDE45270921F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327726   (371874) от 26.09.2019
-
-ProShow Producer - Happy Fall Y'all [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайдшоу на осеннюю тематику... Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A25089CFDFA5F8317F0AB3D8896A306CA91204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327625   (371873) от 26.09.2019
-
-VideoHive - Photographer Portfolio - 20571400 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photographer Portfolio - это динамичный, стильный и профессиональный проект, который превосходно подойдет для демонстрации портфолио.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4449B37D44A217300B5F3FDCA27E4EE4BA93CC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327728   (371871) от 26.09.2019
-
-VideoHive - Animated Party Flyers 2.0 - 24684641 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для различных презентаций. Отлично подойдет для каналов в Instagram, Twitter и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4132F14E32788FE7F6CFB57547DF5922C5C265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327559   (371866) от 26.09.2019
-
-VideoHive - 4TV Broadcast Package - 5869372 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный и профессиональный проект на основе стильной типографики, наполненный новыми идеями. Использован современный дизайн из треугольников для фона и современный минималистичный стиль для текстов. Этот уникальный и стильный дизайн может быть использован для официальных каналов, для интернет-рекламы, независимо от вашей сферы деятельности.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF877F89D55A2300598D910F1FD719CD0A467BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327577   (371864) от 26.09.2019
-
-VideoHive - Solid Sport Trophy Intro (Opener) - 22280742 [AEP]
-
->>Проекты
->>Спортивные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект идеален, если вы хотите показать трофей или кубок своей спортивной лиги. Используйте его для трансляции. Если вам нужно вступление к баскетбольной игре, футбольному матчу, матчу американского футбола. Это быстрое, динамичное и интересное вступление.
-Удивительно разработанный шаблон даст вам возможность произвести впечатление на зрителя.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23533CD8F0847B92DEA21488FE38A51394C7544D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327627   (371748) от 26.09.2019
-
-VideoHive - Photographers Eye Logo - 7293615 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371748.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Photographer's Eye Logo» - это промо-заставка для ваших фотоуслуг или веб-сайта. Независимо от того, есть ли у вас логотип или нет, теперь вы можете иметь видео-подпись для своего фото/видео портфолио в социальных сетях.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90F37755FBE65DDC30E6CBB9C2D34B390AB66BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327633   (371743) от 26.09.2019
-
-VideoHive - Animated Ink Font - 12001699 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот анимированный шрифт был написан настоящими чернилами на бумаге для подлинного вида. Файл проекта включает в себя: Латинские буквы от A до Z в верхнем и нижнем регистре. Числа 1-9. 25 знаков препинания/символы.
-В видео для предварительного просмотра использована предустановка покачивания. Видео-руководство поможет вам разобраться, как работать с данным шаблоном.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDB306DBFE6D0CB5B89F012BD2C86306080ADBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322487   (371741) от 26.09.2019
-
-VideoHive - Liquid Gold Logo - 10914676 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект визуализации Вашего логотипа... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71889BFFF64F07A0D77630641C1D6809FBED485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176151   (371246) от 21.10.2017
-
-Проекты - VideoHive - Gallery of Flying Photos - 9768290 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gallery of Flying Photos - Любой проект может выглядеть лучше, если вы добавите к нему хорошую презентацию. Используйте этот шаблон для свадьбы, юбилея, презентации своих фотографий или сделайте подарок, используя свои любимые фотографии и видео. Применяйте этот проект по своему усмотрению.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AE66E6CEB8E898C099ABEB6D3686D6E32196E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835497   (371052) от 28.10.2014
-
-VideoHive - Eclipse V2 - CS3 Project File - 82525 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славное солнечное затмение из цикла "Любовь неземная". Две версии: пререндеренная и требующая плагин Red Giant Knoll Light Factory.
-Превью и файл инструкции - в раздаче.
+5 страниц свадебного альбома для 18 фото и текста.
+Плагины не требуются. Превью - в раздаче.
 
-От автора проекта: Glorious solar eclipse for you to use as your opening and/or closing sequence.(   Читать дальше...   )Формат: AEP
+От переводчика Яндекс: Покажите миру свою любовь этим 5 стр свадьбы Pop Up Book с 18 места для изображений и многие ares для текста. Включает в себя настраиваемые передние и задняя крышка.(   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D05A5A18014DC435A2E775E57C0592BA496AF1B
+magnet:?xt=urn:btih:B382451F8B72A8565162821C468B9F2A6317C20A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,80 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069797   (370864) от 05.11.2016
+###  Публикация: 1068416   (382073) от 31.10.2016
 
-Проекты - Motion Array - Document Opener - 17547 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Document Opener - проект с участием 19 заполнителей изображений и 23 текстовых заполнителей. Отлично подходит для привлекательного трейлера фильма, интро для боевика и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8C02A0B07306736A11739DBA7443BB846029F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835358   (370784) от 28.10.2014
-
-VideoHive - Rainy Photo Slideshow - 45181 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарная анимация в стиле "Не плачь, беби". Плагины не требуются.
-9 заполнителей для медиа, фото и видео.
-Превью, видеоурок и файл инструкции - в раздаче.
-(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A1516FFF5F1F412EE7A94818D85EF02E361E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069986   (370765) от 05.11.2016
-
-Проекты - VideoHive - Golden Hour Logo - 179769 [AEP]
+Проекты - VideoHive - Stroke Metal Reflection Logo - 6163882 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для стильной и элегантной демонстрации логотипа.Формат: AEP
+Проект для демонстрации логотипа.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84CDF43F28C18AC9308CF50D1C05FFC2EDADAC7F
+magnet:?xt=urn:btih:09F140557A295A6BB72B458B156367B305AC95DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,52 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070049   (370764) от 05.11.2016
+###  Публикация: 833613   (382054) от 23.10.2014
 
-Проекты - VideoHive - Clouds Logo - 590485 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа или слогана в кинематографическом стиле.
-Также шаблон имеет 2 версии Утро и Ночь.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DFEF9F6D5D1DE0A6581F0CB02D2B617AA2EF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070048   (370753) от 05.11.2016
-
-Проекты - VideoHive - Collection of Sticker labels & Price tags (AE CS4) - 130713 [AEP]
+VideoHive - Infographic Illustrations - 6386216 [AEP]
 
 >>Проекты
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет для создания меток цен со скидкой на объявлениях ваших товаров. Все ценники имеют настройки цвета, масштаб или положение, а на некоторых из них можно демонстрировать логотипы.Формат: AEP
+38 анимированных иллюстраций. Все с альфа-каналом. Цвета редактируемые.
+Плагины не требуются.
+Превью и файл помощи - в раздаче.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:904DB21089ADB55666E0F4F335B4BF6925E30139
+magnet:?xt=urn:btih:93BEA737FA96989E586F9224A9A1B074FFAF079C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 834948   (370643) от 28.10.2014
+###  Публикация: 1068412   (381961) от 31.10.2016
 
-Revostock - Wedding Short Intro - 392757 [AEP]
+Проекты - VideoHive - Modern Titles 2 - 15878055 [AEP]
 
 >>Проекты
->>Свадебные и романтические (проекты)
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Revostock - Wedding Short Intro проект для создания слайд шоу вступление к свадебному фильмуФормат: AEP
+Проект для создания современных титров к вашему видео проекту.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D80AB3E921AD9B553D8A7667D62BA22D412F1B65
+magnet:?xt=urn:btih:1D685D583608BFDD4CDA48B79D19C5EE6945F23F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,26 +136,561 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327908   (369959) от 27.09.2019
+###  Публикация: 1068238   (381957) от 31.10.2016
 
-VideoHive - Christmas On The Gates - 24673648 [AEP]
+VideoHive - Popular Phones Mock-up Kit - 13642951 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Popular Phones Mock-up Kit - презентационный набор из 15 видео-макетов популярных сотовых телефонов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AFCFDF1DFBB59C0573D0DDB40456281B7EC4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068227   (381953) от 31.10.2016
+
+Проекты - VideoHive - Cinematic Teaser - 18446270 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Teaser - кинематографический тизер.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E6BC785C4593078DB24C04FAC0774978CC2E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253491   (381143) от 10.10.2018
+
+Проекты - Проект ProShow Producer - Cinematic Newspaper [PSH]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от Proshow Template. Трейлер, просто трейлер. Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества.
+Очень простой в редактировании, обычная замена файлов. Все текстовые блоки редактируются в ПроШоу, за исключением заголовка, который нужно править в фотошопе. Редакция, включающая в себя пересохранение файла (   Читать дальше...   )Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B7C220BB877C40CC7E82AF0E61644865789F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574919   (380953) от 07.09.2022
+
+Проекты - VideoHive - Kid Astronaut Adventure - 39547020 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Jungle Kids Slideshow» - стильный элегантный проект для создания яркого, красочного слайд шоу на детскую тематику.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC51FE8DB1A2ACBC01A74AB68DA0D8DCD85878E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326845   (380645) от 22.09.2019
+
+Motion Array - Grid Tech Slideshow - 259409 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон AE с привлекательным дизайном, современной текстовой анимацией и переходами... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C19E29C2B0013B9247B59E06BCEECB64DB9B3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326925   (380644) от 22.09.2019
+
+VideoHive - Inspiring Frames - 18335750 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inspiring Frames - это вдохновляющий шаблон с модульной структурой для создания слайд-шоу с реалистичными огненными кадрами, эффектом параллакса, мрачным современным визуальным стилем для вашего вдохновляющего кинематографический вступления, презентации, трейлера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC57C91865F1AC1BF6CF453EC7082F318BDAE09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327003   (380632) от 22.09.2019
+
+VideoHive - Ramadan Broadcast Ident Package V2 - 21616361 [AEP]
 
 >>Проекты
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Christmas On The Gates - сказочная Новогодняя видео-заставка.
-Просто добавьте свой логотип и текст, и все готово к визуализации.Формат: AEP
+Вещательный пакет для оформления видео с праздника Рамадан.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28CE4CFB8A023C727515CC1C1E9D40E7A321D419
+magnet:?xt=urn:btih:98EAD7C4A8928F0DA04FE8C2C4E39FF10DE8B620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326920   (380506) от 22.09.2019
+
+VideoHive - News - Package - 19761693 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380506.jpg" />
+</div>
+
+
+###  Подробнее
+
+"News - Package" - пакет для оформления виртуальной новостной студии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54DF3B486EA6A025D678C89BC42733383B0FBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326865   (380502) от 22.09.2019
+
+ProShow Producer - Through the Frame [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380502.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Своеобразное" и в тоже время простое слайдшоу ... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C74684BA8A327B7C8C2C0BE1258105BD828A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834303   (380387) от 24.10.2014
+
+VideoHive - Renaissance - 111382 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для начала фильма или презентации логотипа в стиле "триллер". Плагины не требуются. Превью и видеоурок - в раздаче.
+
+От автора проекта: Proudly presenting this short and cinematic video, based on typography and on an epic renaissance style. It’s a sure choice for DVD menus, impressive titles and any kind of intro you can think about.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7BE5760DEC72EE11A828B42216B2FAB6AB30C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834222   (380087) от 24.10.2014
+
+VideoHive - AE CS3 Useful Particle project - 27660 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с разлетающимися частицами для презентации вашей компании. Плагины не требуются. Превью и файл помощи - в раздаче.
+
+От автора проекта: So Native resolution is HD 1080 (1920?1080). Video Clip runs for 26 sec. Everything is fully editable from animation to colors, text, Shapes, length, anything you want to change, you can. Project is well organized with coloured (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05A9A5C6C446606394634AE1C16AD24B6DE2076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834010   (380081) от 24.10.2014
+
+Revostock - Text on Real Fire - 82521 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текст в огне. 7 видео, 26 букв. С альфа.
+Требуется плагин Red Giant Trapcode Particular. Превью - в раздаче.
+Есть пререндеренная версия.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A2845E20EB99B2B4E63AFBADAEF2DC78090DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834108   (380076) от 24.10.2014
+
+VideoHive - Showtime (fashion) - 8628186 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Showtime (fashion) создание слайд шоуФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61A99035FB6D938970A40A42B383C3037898F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834248   (380071) от 24.10.2014
+
+VideoHive - Particle Logo Revealer - 93632 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации логотипа. Есть пререндеренная версия, для которой плагины не требуются. Превью и файл помощи - в раздаче.
+
+От автора проекта: You need stylish logo revealer – you’ve got it! All you need to do is to type your text or import your logo and render the composition. The flares comes from Videocopilot’s Optical flares but I included the pre-rendered (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AED9FEAF7FBDC1CC13BA8BE3626E33B4B84F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834240   (380069) от 24.10.2014
+
+VideoHive - Fashion Glamour - 7512428 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Glamour создание слайд шоу, презентацииФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D5D429C8CC85830BF7113E0117211B8A108A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834245   (379941) от 24.10.2014
+
+VideoHive - Broadcast Design Channel Ident - 8862205 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broadcast Design Channel Ident создание презентацииФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA3E9FA622B3447C0FC483F7B1CB08056221537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834317   (379938) от 24.10.2014
+
+Проекты - VideoHive - The Secret - 113201 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект в динамичном стиле.
+В раздаче две версии проекта.  Для пререндеренной плагины не требуются. Для другой нужен плагин Optical flares.
+Превью и видеоурок - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFF760460D8CC4FAA852B8BDD52E2250488B0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949058   (379151) от 22.10.2015
+
+Проекты - VideoHive - Winter Logo Pack [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, содержащий 3 варианта эффектного представления логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D3F23138CDF1D64FF22188E46185DB54F4E713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949054   (379004) от 22.10.2015
+
+Проекты - VideoHive - Big Typo Parallax Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36617133CFDCDE1F5E0015B66D392F782958496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948931   (378988) от 22.10.2015
+
+Проекты - VideoHive - Painted Photo Review - 2400541 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный и очень забавный детский проект с незатейливой анимацией.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA145751B7BFE23AEF1AF580DEF027EA605F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948970   (378861) от 22.10.2015
+
+Проекты - Проект ProShow Producer - Crimson Film [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Презентация широкого применения, создана в романтическом жанре с применением гранжевых масок. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью и аудио трек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD0639184DF551D0BADA7527BED0221BBA3EC4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

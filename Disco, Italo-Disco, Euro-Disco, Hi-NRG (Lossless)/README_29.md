@@ -1,3 +1,90 @@
+###  Публикация: 1795405   (19348) от 04.05.2025
+
+Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shanghai (Extended Version) (feat. Daria)
+02. Ride
+03. Let's Dance Tonight
+04. Burning Heart (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Euro-DiscoПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CBA012AC1C85043C77D9E7B7F68211E6B57A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810676   (17058) от 05.08.2025
+
+Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make a Memory (4:40)
+02. You and Me (3:23)
+03. Lonely Rebel (3:58)
+04. All That I Need (4:09)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800084   (16085) от 31.05.2025
+
+Mflex Sounds - Robot Eléctrico (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robot Electrico (5:06)
+02. Omega (Remix) (6:37)
+03. Hurts My Life (Remix) (5:44)
+04. Broken Man (5:18)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F759119009FE4BEF79EB0309841481FD6076418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800087   (16080) от 31.05.2025
 
 Joe Yellow - Greatest Hits & Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat, Hi-NRG>

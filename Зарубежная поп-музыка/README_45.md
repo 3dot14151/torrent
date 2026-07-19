@@ -1,3 +1,32 @@
+###  Публикация: 1050932   (532577) от 11.09.2016
+
+VA - Ministry of Sound - Good Vibes (2016) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532577.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1. Kungs & Cookin’ On 3 Burners – This Girl
+2. The Chainsmokers Feat. Daya – Don’t Let Me Down
+3. Sia Feat. Sean Paul – Cheap Thrills(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1343C1ED5E9A9D7B8E95BCA64D748D69C5FD6BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926803   (531722) от 11.08.2015
 
 Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
@@ -720,35 +749,6 @@ Ariana Grande - Sweetener (2018) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39F722AED986E98F0D7BBCAE1AA47F68090665D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928993   (519544) от 19.08.2015
-
-VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Give Me A Reason (P!nk Ft. Nate Ruess) [04:04]
-02. Beneath Your Beautiful (Labrinth Ft. Emeli Sande) [03:58]
-03. Impossible (James Arthur) [03:29]
-04. Who You Are (Jessie J) [03:51](   Читать дальше...   )Жанр: PopПродолжительность: 03:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B2E574F60EB5EA29A9A8B5A7F2E92F30551B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

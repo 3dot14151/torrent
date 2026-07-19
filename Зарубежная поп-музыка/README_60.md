@@ -1,3 +1,32 @@
+###  Публикация: 1582046   (325509) от 07.10.2022
+
+Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Lune
+02. Winter In July
+03. Scarborough Fair
+04. Figlio Perduto(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582248   (324599) от 08.10.2022
 
 Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
@@ -734,35 +763,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534C1432BD4E373059375EB75E322EB976C65EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331936   (318360) от 18.10.2019
-
-VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pogues, Kirsty Maccoll - Fairytale Of New York (Feat. Kirsty Maccoll) 4:32
-02. Chris Rea - Driving Home For Christmas 3:59
-03. Wizzard - I Wish It Could Be Christmas Everyday (2006 Remaster) 4:50
-04. Kylie Minogue - At Christmas 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

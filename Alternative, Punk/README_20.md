@@ -1,3 +1,61 @@
+###  Публикация: 929580   (518488) от 20.08.2015
+
+King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 кб/с]<Alternative, Psychedelic Rock, Garage Soul, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In Your Mind
+02. I'm Not In Your Mind
+03. Cellophane
+04. I'm In Your Mind Fuzz(   Читать дальше...   )Жанр: Alternative, Psychedelic Rock, Garage Soul, SurfПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929711   (518398) от 20.08.2015
+
+P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Am I Awake
+ 02. This Goes Out To You
+ 03. Rise Of NWO
+ 04. Criminal Conversations (Feat. Maria Brink)(   Читать дальше...   )Жанр: Rap Metal, Nu MetalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929569   (518194) от 20.08.2015
 
 King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alternative, Psychedelic Rock, Lo-Fi, Garage Soul>
@@ -700,64 +758,6 @@ P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3DE88D994AA7BA851AE86E10B4EA8A8E1C234C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932399   (509358) от 29.08.2015
-
-Headcrash - 6 альбомов (1993-2006) [MP3|160-320 кб/с]<Industrial Rap-Core>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный тип музыки, комбинирующий два вокала в стиле rap с мозголомными гитарами и музыкой индустриального типа. Он превосходен и легко запоминается, что происходит благодаря умело расположенному и острому тексту, отлично напетому. Песни в основном ориентированы на политику, охватывают много тем, вроде подмены моральных ценностей, или американского стиля жизни, (   Читать дальше...   )1993 - Scapegoat
-1994 - Direction Of Correctness
-1995 - Overdose On Tradition
-1996 - The Overdose Remixes(   Читать дальше...   )Жанр: Industrial Rap-CoreПродолжительность: 05:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC459261FA24501F2693D53EAE0506A1FB47EBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562080   (509037) от 09.07.2022
-
-Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Rock, Alt.Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opinions [00:03:07]
-02 - Dark Side [00:02:57]
-03 - Don't Fix Me [00:02:53]
-04 - Bad Idea [00:03:12](   Читать дальше...   )Жанр: Rap Rock, Alt.Rock, ElectronicПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F265B3AEAF8358DDF2244D44EC2C0327626B6291
 ```
 
 https://mybot314.ru/tekegram_catalog/

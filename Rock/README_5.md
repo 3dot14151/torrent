@@ -1,32 +1,3 @@
-###  Публикация: 1454108   (1026438) от 14.03.2021
-
-Toby Jepson - Viewfinder (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Better off Dead [00:03:35]
-02 - Unwind [00:03:45]
-03 - Back in the Day [00:03:35]
-04 - Dear Mama [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FB283D85370807E1BAA351941C9CDF3BBAFD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454513   (1026230) от 15.03.2021
 
 King Kong - King Kong (1981) LP [MP3|320 Kbps] <Electronic, Blues Rock, Krautrock, New Wave, Disco>
@@ -745,6 +716,35 @@ Jeffrey Erik Mack - The Forgotten Earth (2021) Scarlet Hollow [MP3|320 Kbps] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC6311FAFE255A0EB9BA117BA4F1AA9169577CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215379   (1021408) от 12.04.2021
+
+ДМЦ (Дороги Меняют Цвет) - 6 Альбомов, 11 Синглов (2005-2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украинская рок-группа. Образована в 2002 году в Полтаве. Группа начиналась с творческого дуэта Андрея Гречаника и Сергея Старостенко. В 2002 году на Черкасском фестивале авторской музыки музыканты получили приз зрительских симпатий, что сильно укрепило веру молодых людей в успех. Тогда к группе присоединяются Артем Гулий (гитара) и Богдан Петрушко (духовые и этно- (   Читать дальше...   )2005 - Там, где за ветхою избой...
+2009 - Все по...
+2012 - Весна мозга
+2013 - МаскарадЖанр: RockПродолжительность: 05:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2E760F967A200DB0F1E8D9F0270744B18456B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

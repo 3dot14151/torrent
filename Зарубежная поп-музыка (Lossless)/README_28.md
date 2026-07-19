@@ -1,3 +1,206 @@
+###  Публикация: 1385925   (795277) от 28.05.2020
+
+Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through Water (03:01)
+02. My Love Was Like the Rain (04:12)
+03. First (03:20)
+04. Ligne 3 (04:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274103   (795046) от 05.01.2019
+
+Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The National Manthem
+02. Woman Like Me (Feat. Nicki Minaj)
+03. Think About Us
+04. Strip (Feat. Sharaya J)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200907   (794915) от 22.01.2018
+
+Тина Кароль - Полюс притяжения (2007) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полюс притяжения
+02. Белое небо
+03. Люблю его
+04. Ни к чему(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4EA0FA12BC153A32956C541516962305F68F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386415   (794391) от 29.05.2020
+
+Lady Gaga - Chromatica (2020) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromatica I (01:00)
+02. Alice (02:57)
+03. Stupid Love (03:13)
+04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C5B40D6907CF59E65561A32134FB747E68A21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509495   (794029) от 13.11.2021
+
+Kylie Minogue - DISCO (2021) Guest List Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic [00:04:10]
+02. Miss A Thing [00:03:56]
+03. Real Groove [00:03:14]
+04. Monday Blues [00:03:09](   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A554A8019A6659A34AF83879194ADBA9BD47A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200999   (793802) от 23.01.2018
+
+Julio Iglesias - Se Tornassi... All The Hits (2013) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Manuela
+02. Un Giorno Tu Un Giorno Io
+03. Quando Si Ama Davvero(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012370   (793583) от 01.05.2016
+
+Demis Roussos - Mon Île (Ile) (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Folk, World & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mon Ile
+02. Je Te Donnerai Ma Vie
+03. Dinata
+04. Elle Attend(   Читать дальше...   )Жанр: Pop, Folk, World & CountryПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA14CF475DA749F1927E830AD39CB745AA198ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011775   (793563) от 01.05.2016
 
 Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] <Pop>
@@ -541,210 +744,6 @@ VA - Top Of The Pops '1981 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3F6C67E425F239535F6A810686A82B3B4DC3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510895   (789714) от 19.11.2021
-
-Donna Summer - I'm a Rainbow: Recovered & Recoloured (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm a Rainbow (4:15)
-02. I Believe (In You) (4:47)
-03. Back Where You Belong (4:21)
-04. You to Me (3:38)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1D2846EE07BCA1BCD97E9364D741D0A765CB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511007   (789708) от 19.11.2021
-
-VA - NOW That's What I Call Music! 80 (2021) USA version [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний такой сборник был на трекере под номером 73, так что больше чем за год вышло в USA 7 таких сборников. Очередной сборник новинок из топов США (и немножко Великобритании) получился очень разнохарактерным по сравнению с общим тоном предыдущих выпусков. Интересна композиция Dua Lipa - Love Again, где в самом начале и по ходу трека повторяется тема из ELO.
-Официальные (   Читать дальше...   )01. Olivia Rodrigo - good 4 u  (2:57)
-02. Doja Cat & The Weeknd - You Right  (3:02)
-03. Dua Lipa - Love Again  (4:14)
-04. Shawn Mendes & Tainy - Summer Of Love  (3:00)(   Читать дальше...   )Тип издания: Singl CD, AlbumРелиз состоялся: 21 октября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84702A581C13A8DE05CDE1B850296199A36130A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511015   (789653) от 19.11.2021
-
-VA - NOW That's What I Call Music! 110 (2021) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу перепрыгнули на трекере со 106 выпуска на полный свежачок - 110-й. Это сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Тут тряхнул стариной Elton John в компании с Dua Lipa (   Читать дальше...   )CD1:
-01. Ed Sheeran  - Bad Habits  (3:52)
-02. Elton John & Dua Lipa  - Cold Heart (PNAU Remix)  (3:23)
-03. Coldplay X BTS  - My Universe  (3:49)(   Читать дальше...   )Тип издания: 2 CD, Box SetРелиз состоялся: 19 ноября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05774348A42EBAF88D156CB4625405E7BE8F941B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511051   (789638) от 19.11.2021
-
-James Blunt - The Stars Beneath My Feet (2004-2021) (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft Rock, Indie Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Under Pressure (2:45)
- 02. 1973 (4:40)
- 03. Wisemen (3:43)
- 04. Same Mistake (4:58)(   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, Indie Rock, BalladПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D50E0479F6464CCA1A55B5C9C6BEB09EB16E5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438549   (789628) от 12.01.2019
-
-Supermax - Greatest Hits (2012) [FLAC|Lossless] <Rock, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bango Bongo (5:44)
-02. Lovemachine (7:42)
-03. Be What You Are (2:54)
-04. It Ain't Easy (4:18)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 02:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275858   (789440) от 13.01.2019
-
-Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away Away Away (0:52)
- 02. In Control (4:25)
- 03. LaLaLove (3:24)
- 04. Down By The Riverside (3:13)(   Читать дальше...   )Жанр: Electronic, Pop, Dance, HouseПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275911   (789391) от 13.01.2019
-
-Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Reggae, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Baby (3:40)
- 02. Reggae Master | feat. Roussinoff (3:46)
- 03. Rhodopi Mountain (4:16)
- 04. Stormy Weather (4:34)(   Читать дальше...   )Жанр: Pop Rock, Reggae, Soul, BluesПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944D88EB4B0193F2EE72C4A135EC54F7C85472BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1470029   (1015793) от 16.05.2021
+
+Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Era de la Bestia [00:04:02]
+02 - Legion [00:03:54]
+03 - No Memories [00:03:46]
+04 - Hope [00:04:29](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086474   (1015388) от 18.05.2021
 
 ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Tribal, Ambient>
@@ -711,32 +740,6 @@ Igorrr - Spirituality and Distortion (2020) Metal Blade Records [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E247B81CA3FE6D32B9E4AC3B41562AA8D9ACFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371753   (888584) от 01.04.2020
-
-:10: - Collection 5 Releases (2009-2020) CRL Studios [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Abstract, Breakbeat, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low On Life (04:04)Тип издания: WebЖанр: Industrial/IDM/DowntempoПродолжительность: 02:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

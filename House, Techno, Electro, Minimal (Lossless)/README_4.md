@@ -1,3 +1,177 @@
+###  Публикация: 1443175   (1035705) от 28.01.2021
+
+VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Semmy Satch - Feel Alive (3:44)
+02. Ray Abegg - Surrender (4:34)
+03. PINKY - Lary Challenge (4:13)
+04. Nos Rider, Nat - When the Day Is Done (4:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723A79608F9D1BA282230CF945835D4F43EAB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099327   (1035659) от 28.01.2021
+
+SNTS - Discography 17 Releases (2012-2020) [FLAC|Lossless|tracks] <Techno, Industrial, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Era Of Absurdity (01:43)
+ 02. Bacchanalia (05:24)
+ 03. Temporary Pleasure (05:05)
+ 04. Defence Mechanisms (05:23)(   Читать дальше...   )Тип издания: Web, Vinyl •Жанр: TechnoПродолжительность: 08:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19934BAC7F4967DFDA97B0E63F3E8610A5530F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443258   (1035470) от 29.01.2021
+
+VA - Fitness Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas - Pump It (03:33)
+02. Avicii - Levels (Original Version) (05:38)
+03. Jennifer Lopez - On The Floor (Radio Edit) (03:50)
+04. Major Lazer - Watch Out For This (Bumaye) (04:29)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86440EC9BC298412BD3D3F792F6888B18763A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443684   (1035148) от 30.01.2021
+
+Martin Gore (from Depeche Mode) - The Third Chimpanzee E.P. (2021) [FLAC|Lossless|Web-DL|tracks] <Electro, Dub Techno, Experimental, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howler (4:53)
+02. Mandrill (3:59)
+03. Capuchin (3:51)
+04. Vervet (8:28)(   Читать дальше...   )Производство: Mute/Grabbing HandsЖанр: Electro, Dub Techno, Experimental, Leftfield, Modular SynthПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250450A8381CD61AD651D96AE99534D3206C982E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252375   (1035106) от 30.01.2021
+
+VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Husa & Mustafa Ismaeel - Young, Wild And Free (08:08)
+ 02. Reboq - Aftermath (07:09)
+ 03. Monarke - Magenta (06:43)
+ 04. Dominik Gehringer - Natural Way (06:20)(   Читать дальше...   )Жанр: Tech House/Deep House/Progressive HouseПродолжительность: 02:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BE7F79C22080C3C09352961E4A8149AFBF3A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618168   (1034363) от 10.03.2023
+
+Wolfgang Flur - Magazine 1 (2022) [FLAC|Lossless|image + .cue] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольфганг Флюр — единственный оставшийся в живых участник классического состава Kraftwerk, который в настоящее время пишет и выпускает новую музыку! Полностью новый электронный альбом «Magazine 1», который был создан Вольфгангом Флюром вместе с некоторыми самых известных имен синти-попа и электронного танца прошлого и настоящего. С участием Мидж Юр (Ultravox), Питера (   Читать дальше...   )01. Magazine (feat. Ramón Amezcua)
+02. Zukunftsmusik (feat. U96)
+03. Best Buy (feat. U96)
+04. Das Beat (feat. Midge Ure)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CEEE54BC0D342F0BC1F0DCDD3C892D2E2C62C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318373   (1033943) от 04.02.2021
 
 Datawave | Aquatronics - Discography 16 Releases (2017-2020) [FLAC|Lossless|tracks] <Electro, Ambient, Acid, Techno>
@@ -564,180 +738,6 @@ Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Relea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49CF38A657B15DFB372ACFEBBB6899AF0DFDE0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210196   (1028451) от 01.03.2021
-
-VA - Heavy Dub Vol. 1-6 (2016-2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giriu Dvasios feat. Aistė Motiejūnaitė - Nepasakyta (05:28)
- 02. Herman Crantz - Steppelands Dub (06:44)
- 03. joergmueller - St. Pancras (05:01)
- 04. Occult - Axum (04:52)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Dub, Ambient •Продолжительность: 04:33:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746397213E02431DABB749847305ABDF688B204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451619   (1028235) от 03.03.2021
-
-Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Experimental, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A1 (05:00)
- 02. A2 (05:00)
- 03. A3 (05:00)
- 04. A4 (05:00)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Experimental, Dub, Ambient •Продолжительность: 08:19:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E5F6DEB5BFD88CA9B9CA19ADF84D6F4D99F21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188374   (1027820) от 05.03.2021
-
-Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Octal 6 (B1) “Part 9” (03:54)
- 02. Octal 6 (B1) “Part 4” (07:29)
- 03. Octal 6 (B1) “Part 3” (09:18)
- 04. Octal 6 (B1) “Part 7” (04:48)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Techno, Experimental •Продолжительность: 70:06:45 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452452   (1027758) от 06.03.2021
-
-Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade, Ella Vos - Miles To Go (03:18)
-02. Kaskade, Will K - Flip Reset (03:08)
-03. Kaskade - Closer (04:41)
-04. Kaskade - Solid Ground (03:20)Жанр: House, Progressive Trance, Progressive HouseПродолжительность: 00:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D88379D0C9A4874ED4718DB78293F659865040D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453199   (1027247) от 09.03.2021
-
-VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adhémar - Deep Blue Morning (07:07)
- 02. Javier Marimon & Oslon - T'alch'um 탈춤 (06:30)
- 03. Elle - Where Is Elle (06:25)
- 04. Bumho - Gong (05:59)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C57829AA5D01B142C82E77083DB1751202BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232828   (1027018) от 10.03.2021
-
-Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Techno, Leftfield, IDM, Ambient, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanxenxo (07:26)
- 02. Kanyon (09:15)
- 03. Vanavond (09:15)
- 04. Memory Hole (02:03)(   Читать дальше...   )Тип издания: CD, WebЖанр: Leftfield/HouseПродолжительность: 12:12:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B95DBC0368ECCEB5398573820DB8A46BB4139CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

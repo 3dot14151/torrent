@@ -1,3 +1,32 @@
+###  Публикация: 1357327   (970644) от 06.02.2020
+
+Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Oak Wood
+02. Jade
+03. I Love The Rain
+04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357704   (970632) от 06.02.2020
 
 Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
@@ -716,35 +745,6 @@ Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093767   (932365) от 16.01.2017
-
-Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridrik Karlsson - Island er land pitt [00:05:38]
-02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
-03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
-04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
 ```
 
 https://mybot314.ru/tekegram_catalog/

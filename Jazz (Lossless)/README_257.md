@@ -1,119 +1,3 @@
-###  Публикация: 1613228   (236010) от 18.02.2023
-
-Greg Cohen - Way Low (1996) DIW [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Low [7:43]
-02. B & W [3:13]
-03. Salta Montes [6:27]
-04. Lazurite [8:35](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A87753528A80C41D71B77D569A10B834C1E65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640846   (235964) от 19.06.2023
-
-Scott Bradlee's Postmodern Jukebox - The Fourth Tuning (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing, Vintage>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Up That Hill (A Deal With God) (feat. Sweet Megg)
-02. Man! I Feel Like A Woman!
-03. The Power Of Love (feat. Sarah Potenza)
-04. I Was Made For Lovin' You (feat. Effie Passero)(   Читать дальше...   )Жанр: Jazz, Swing, VintageПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC435639FD29352CEBAD95A1F3A35323D07BF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457813   (235955) от 27.03.2021
-
-Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ruby and the Pearl [5:38]
-02. When Lights Are Low [8:54]
-03. Detour Ahead [11:01]
-04. I Fall in Love Too Easily [7:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6769D08ECCA5C9A3622122468EFFF5710E09E510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631742   (235932) от 08.05.2023
-
-Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scrapple from the Apple [7:23]
-02. Willow Weep for Me [8:49]
-03. Broadway [6:46]
-04. Stairway to the Stars [6:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D49E959C19A93AD321C23951A5CFA432B24133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615237   (235892) от 25.02.2023
 
 Chico Hamilton - Three Classic Albums Plus (1953 - 1956) 2CD, 2008, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, Hard Bop>
@@ -745,6 +629,122 @@ Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90AE128F6849A50A0013D165B572C4C5321C5296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641373   (235427) от 22.06.2023
+
+Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [7:41]
+02. Bopping with Bud [7:32]
+03. Agnieszka [9:33]
+04. Tip Top and Tickety Boo [4:36](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AF77EB955BC15CDF2A9B5007EE22A405C5D430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641369   (235419) от 22.06.2023
+
+Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plain Jane [9:58]
+02. You Stepped Out of a Dream [6:24]
+03. Reflections [7:03]
+04. Sonnymoon for Two [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53647442D9353467C2C80C6857F12854683911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618595   (235399) от 12.03.2023
+
+Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [7:35]
+02. Russian Melody [6:17]
+03. I Thought About You [9:41]
+04. Snake Out [7:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879E787E5DC4BCF8FCB69E62187AB2E4E31C09B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530683   (235398) от 12.02.2022
+
+Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindiff [3:11]
+02. Trieste My Love [1:56]
+03. Nisa [2:25]
+04. Blue Bolero [2:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D371D16F9BEDEB46E7DF8FFE334E39264191F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,350 @@
+###  Публикация: 1504057   (815384) от 21.10.2021
+
+Microsoft Windows 11 Insider Preview [10.0.22483.1000], Version Dev - Оригинальные образы от Microsoft [Ru]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 11 Build 22483.1000.
+Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F324C1B7E1BCE0985563B28D0437EA70585448D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503649   (815231) от 21.10.2021
+
+Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1288.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D567D40EB579C8C6E8F608CEE899D228708F44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503651   (815230) от 21.10.2021
+
+Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 11 Build 22000.258.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2C8704AA282D23EAD3B5583DFE0BA387FFEF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382855   (814804) от 13.05.2020
+
+Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.208.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A3E2EA946720222CEF94046513E96085C9E441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504055   (813536) от 22.10.2021
+
+Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Оригинальные образы от Microsoft [Ru]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 10 Version 21H2 Build 19044.1288.
+Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0BC350B5C77EA442CA0ABB22FF56DCB5531D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383173   (812830) от 14.05.2020
+
+Windows 10 (60in2) Sergei Strelec x86/x64 1909 (build 18363.836) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ Windows 10 с интегрированными обновлениями по 14.05.2020
+Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA049137B690BA77F40D15C0144D4D598E47279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382986   (812829) от 14.05.2020
+
+Языковые пакеты (Language packs) для Windows 10 10.0.19041.208 Version 2004 x86-x64 [Multi/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор языковых пакетов для Windows 10 10.0.19041.208 Version 2004 для интеграции с помощью утилиты DISM (ADK).Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7682D32143702CF5E4D71EC825E8CD245B136286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382858   (812824) от 14.05.2020
+
+Windows Server, Version 2004 (10.0.19041.208) - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7095A0C80D1A13AAB3D292BD87E36C9D06290CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382856   (812810) от 14.05.2020
+
+Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.208.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504436   (811525) от 23.10.2021
+
+Microsoft Windows 11 x64 Release by StartSoft 03-2021 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры Windows 11 с архитектурой разрядности x64 bit. В ее состав входит загрузочный образ ISO который предназначен для записи на флешку размером от 32 Гигабайт и выше. Загрузочная флешка, созданная на его базе, поддерживает установку операционной системы с компонентами офисного пакета Microsoft Office 2021 Standart с русскоязычным, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9DCD2789E97E406B3F670A3ED8BC046F071764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503653   (805699) от 26.10.2021
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.288 (Updated October 2021) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBA72CB9618F77ADF0A83C63380F69785301ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384807   (801485) от 21.05.2020
+
+Microsoft Windows 10.0.17763.1217 Version 1809 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1217.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10356DF3F8D6099EB0201A1CAA1152DA47FE5640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384812   (801479) от 21.05.2020
+
+Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.836.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9DCAFBA96897231EE92915F20DEAD0A9B3A37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384813   (801371) от 21.05.2020
 
 Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -342,359 +689,6 @@ Windows 10 May 2020 Update (также известное как версия 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F338E5946215268F5B50BB3BF8BF9531520A70D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510542   (790742) от 17.11.2021
-
-Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1348.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C0C7DCD72DA4BCB0A4FD0A115C9681989ED299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510541   (790733) от 17.11.2021
-
-Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 October 2020 Update (под кодовым названием "20H2") является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1348.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFD696B0219E20F14C4B4794329E323B235F11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510549   (790730) от 17.11.2021
-
-Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A18EF3BF8B3FAF979880A6996B11F6F07836E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510539   (790729) от 17.11.2021
-
-Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2020 Update (также известное как версия 2004 и кодовое название "20H1") является девятым крупным обновлением Windows 10. Он имеет номер сборки 10.0.19041.
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1348.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E764DD3E1486C3CB772A9114F671FD1BCB4B1145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510544   (790718) от 17.11.2021
-
-Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD452B94B2B48B8A13326E132C13B67B452A0224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510550   (790716) от 17.11.2021
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1C21FBD6C7CCE9C1BC867C6C49127467C0AC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510546   (790705) от 17.11.2021
-
-Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Enterprise - это полная версия Windows 10, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 10 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 10 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3A0618E1CDF4BCF1147B6F62950FA8C9F5E4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510548   (790699) от 17.11.2021
-
-Microsoft Windows 11 IoT Enterprise [10.0.22000.318] (Updated November 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41904BC0B3288162184E9844AA4019BB1063927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510543   (790697) от 17.11.2021
-
-Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1348.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8AD47F4E814442D2698C031F09F92229922C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510545   (790693) от 17.11.2021
-
-Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38EBD7A563937EBE123EB7D8720B52F7E95A001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510547   (790689) от 17.11.2021
-
-Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2 (выпущена в ноябре 2021 года), добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций (включая крупные академические учреждения), такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E10FD1688E053AA6A311C31847503BA730772E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510492   (790106) от 18.11.2021
-
-Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44DD87F15E2C6D916B3AD65DB4AE672AD1B4495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277154   (786921) от 19.01.2019
-
-Microsoft Windows 10.0.17763.253 Version 1809 (January 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.253 (January 2019 Update).
-Оригинальные образы business_edition и consumer_edition.
-RTM Build 17763.1.rs5_release.180914-1434 + Cumulative Update KB4480116 = OS Build 17763.253.rs5_release_svc_prod1.181231-1749Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3906EFF036625DE5E2C96F85F6BD0A15679E04
 ```
 
 https://mybot314.ru/tekegram_catalog/

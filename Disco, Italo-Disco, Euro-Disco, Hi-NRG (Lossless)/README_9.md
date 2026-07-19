@@ -1,3 +1,90 @@
+###  Публикация: 1396719   (745440) от 16.07.2020
+
+Piano Fantasia - Best of Collector: Piano Fantasia (Le meilleur des annees 80) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Denise (3:12)
+02. Walkman (4:26)
+03. Playing (4:19)
+04. Sidewalk (5:02)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6627A7D3D712079DA2F73DC55007AD076172B329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020494   (745223) от 26.05.2016
+
+VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745223.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Eros Ramazzotti – Il Tempo Non Sente Ragioni 4:04
+02. Malika Ayane – Senza Fare Sul Serio 3:34(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB44E93F8EE604E868B0745977C144126B328A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527784   (736402) от 29.01.2022
+
+Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel My Fire /feat.Stylove/ (Extended Mix) 06:44
+02. Heart & Soul /duet with Rachel Santos/ (Extended Mix) 06:13
+03. Tick Tock Baby (Extended Mix) 06:32
+04. Kiss Me (Extended Mix) 05:38(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529168   (733087) от 05.02.2022
 
 Savage - Love And Rain (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -655,99 +742,6 @@ Boney M. - Диско 80-х (2008) [FLAC|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F055032C25C3D46EA0E03497C45DEDE3A59088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288775   (691961) от 13.03.2019
-
-VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleph - I'm on Fire (7:29)
-02. Robert Camero - Welcome Back (7:13)
-03. Max System - You Bring the Sun (6:04)
-04. Ryan Paris - Buona Sera Dolce Vita (feat. Mauro) (7:22)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRGПродолжительность: 02:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288996   (689937) от 14.03.2019
-
-Blue System - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version)
-02. My Bed Is Too Big
-03. Laila (Maxi Version)
-04. Under My Skin (Radio Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506253   (687621) от 06.06.2012
-
-Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gloria (Version 2001)
-02.Tu (Version 2001)
-03.Te Amo
-04.Yo Caminare
-05.Claridad
-06.De Que Me Sirven Estas Manos
-07.Noche Rota
-08.Olvidate, Olvidate
-09.Dime Que No
-10.Donna Amante Mia(   Читать дальше...   )2001Жанр: Italo-popПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

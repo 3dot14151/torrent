@@ -1,3 +1,119 @@
+###  Публикация: 1277462   (784959) от 21.01.2019
+
+MØ - Forever Neverland (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:45)
+02. Way Down (03:08)
+03. I Want You (03:16)
+04. Blur (03:04)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D64F390184EB0FF4E2570272EB640085EE4233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389220   (784581) от 10.06.2020
+
+The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of An Animal (04:53)
+02. I Know What You're Thinking And It's Awful (03:50)
+03. Instant Nightmare! (03:38)
+04. Is This What You Really Want? (03:30)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26154DE220634DF3BA8B40059A41CB3BD005217C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204808   (784345) от 07.02.2018
+
+Radiohead - Amnesiac (2001) Limited Edition, Book [FLAC|Lossless|tracks + .cue] <Alternative Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Packt Like Sardines In A Crushd Tin Box (04:00)
+02. Pyramid Song (04:49)
+03. Pulk/Pull Revolving Doors (04:07)
+04. You And Whose Army? (03:11)(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FCEE84C578D58C82205B79238E3355E1AAFA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388724   (784246) от 11.06.2020
+
+Wilco - 14 Альбомов (1995-2019) 16-CD [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wilco — американская группа, играющая альтернативный рок. Она была образована в Чикаго в 1994 году участниками Uncle Tupelo, оставшимися после ухода вокалиста Джея Фаррара. Состав коллектива часто изменялся, и только вокалист Джефф Туиди и басист Джон Стирратт остаются постоянными участниками. Кроме них, с 2004 года в состав входят гитарист Нельс Клайн, мультиинструменталисты (   Читать дальше...   )01. Bright Leaves (4:11)
+02. Before Us (3:22)
+03. One and a Half Stars (3:43)
+04. Quiet Amplifier (5:50)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6DF86EE11C4D290D956F87814F53A03F035C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205014   (784059) от 08.02.2018
 
 Franz Ferdinand - Always Ascending (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative>
@@ -629,122 +745,6 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278364   (771827) от 25.01.2019
-
-Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Learn to Live (03:56)
-02. 2 Kids (03:31)
-03. No Roots (03:57)
-04. Funny Business (03:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5222F3ACD1F563A121EB512478E6919E98F1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015749   (771256) от 13.05.2016
-
-The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Alternative rock, Indie pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771256.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1.	"Hand in Glove" (7" version) – 3:17
-2.	"This Charming Man" – 2:43
-3.	"What Difference Does It Make?" (Peel Session) – 3:13(   Читать дальше...   )Жанр: New wave, Alternative rock, Indie popПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016448   (770274) от 14.05.2016
-
-Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borders & Fences
-02. Times Of Our Lives
-03. A Million Good Reasons
-04. Here I Am(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB75DF0E0B2E288BEC2504AC7563E1B98F6FF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392141   (769875) от 24.06.2020
-
-Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves (05:31)
-02. In the Den (06:45)
-03. Desert Rambler (09:02)
-04. Step Into You (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC6CC5BD69B06118168DF674CBAD73D8072923A
 ```
 
 https://mybot314.ru/tekegram_catalog/

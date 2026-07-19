@@ -1,3 +1,177 @@
+###  Публикация: 241967   (218549) от 15.12.2018
+
+VA - Александр Зацепин Золотая коллекция (2003) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Этот мир придуман не нами [02:38]
+02. Всё было [03:19]
+03. Помоги мне [04:38]
+04. Одиссей [02:38](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084587   (218480) от 19.12.2016
+
+VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
+02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
+03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
+04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737323   (218456) от 22.12.2013
+
+David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origins (4:15)
+02. The Forbidden Sea (5:09)
+03. Lumaria (4:06)
+04. Sessa Nulma (4:12)(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC91A6CAD61A7D7168069B2F1C2AD8A5DF34A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084331   (218426) от 19.12.2016
+
+VA - Великие и неповторимые. Звезды советского кино (1930-1950) (2001) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из х/ф ПУТЕВКА В ЖИЗНЬ (1931 г.)
+01. Щи горячие. Голова ль, моя головушка. Отчего да почему. Гаврила - Михаил Жаров, Рина Зеленая
+
+Из х/ф ВЕСЕЛЫЕ РЕБЯТА (1934 г.)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80317B591BE11B22215DBF107343B3BFB9E48702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084586   (218418) от 19.12.2016
+
+VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
+02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
+03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
+04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966405   (218179) от 18.12.2015
+
+Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Celts (02:57)
+02. Aldebaran (03:06)
+03. I Want Tomorrow (04:02)
+04. March Of The Celts (03:17)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337BFED10803B3E3FB11A469F1569A74D50B9C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343156   (217956) от 06.12.2019
 
 Бамблби / Bumblebee (2018) [MP3|320 Kbps] <OST, Soundtrack>
@@ -573,180 +747,6 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E7EDE2B66A69CBCF11D7598310ACAE59392FFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586962   (214647) от 28.10.2022
-
-Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy Yoga (03:55)
-02. Music for Spa Asian Relaxation (04:30)
-03. Music for Massage Breathe (02:55)
-04. Relaxing Meditation (02:15)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61968ABA954ADC455F650B6EB68A888B8BE1B16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085243   (214501) от 21.12.2016
-
-Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quickening [00:02:28]
-02. A Passing Storm [00:02:47]
-03. Good News [00:02:11]
-04. Rainfall Early Evening [00:02:45](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCDF8703705808D3DADA103E16F0402E0EB1C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085189   (214324) от 21.12.2016
-
-VA - Guitar Heroes (1997) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadows - (Lordan) - Apache - 2:54
-02. The Ventures - (M.Stevens) - Hawaii Five-O - 1:52
-03. Bert Weedon - (Smith) - Guitar Boogie Shuffle - 2:15
-04. The Tornados - (J.Meek) - Telstar - 3:20(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA420663C157BF2D2D4F3BD6B7294F9108A41C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469949   (214135) от 24.11.2020
-
-Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amethystium - Nightfall (4:24)
-02. Solace (4:40)
-03. Faraway (5:36)
-04. Outro (6:05)Жанр: New Age, AmbientПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4E016ADE73AEEBC1FDE0AA5903A0978241243C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193712   (213996) от 23.12.2017
-
-VA - Latin Dance Aerobic Workout 2018 (2017) [MP3|320 Kbps] <Bachata, Merengue, Dancehall>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva – Summertime (Stephan F Remix) 4:19
-02. Danilo Orsini – Con To’ (Extended Mix) (Feat. Shainy El Brillante) 5:22
-03. Latin Workout – Chica Bella (Workout Mix) 3:03
-04. Dj Tao – Ona-Nana (Original Mix) 2:26(   Читать дальше...   )Жанр: Bachata, Merengue, DancehallПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BAAC5C8F2922CFC027B1E3C79EAD8C613AFF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831253   (212459) от 28.10.2025
-
-Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Choir, Ethnic>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212459.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Masters of Chant (25th Anniversary Tour Version Live)
-02. Scarborough Fair (25th Anniversary Tour Version Live)
-03. Hymn (25th Anniversary Tour Version Live)(   Читать дальше...   )Жанр: Choir, Ethnic |Продолжительность: 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76765DB4638853443BBCDE5F6A2DCD133417198B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1625705   (244381) от 11.04.2023
-
-McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sama Layuca [8:38]
-02. Above the Rainbow [3:03]
-03. La Cubana [10:27]
-04. Desert Cry [4:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17ED47254D1211043B80D7D1AC5D332AD9B81B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072290   (244361) от 12.11.2016
-
-Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute To Midnight (Intro) [1:07]
-02. The New Wave [6:15]
-03. Twitch [6:35]
-04. Casionometry [7:10](   Читать дальше...   )Жанр: FusionПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFDA8DFA187C13FF98BCACC0E423D980A6DC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072170   (244337) от 12.11.2016
-
-Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Claude Sait [01:40]
- 02.C.H.W [08:16]
- 03.South Ferry [06:22]
- 04.Toulouse [05:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1479FDF9D676D65400BC9BF455AB2BA3B232ABA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294560   (244336) от 08.04.2019
-
-Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [6:43]
-02. Off Minor (take 5) [5:10]
-03. Jackie-ing [6:09]
-04. Well, You Needn't [11:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF87B471D89333E8DDFE569CFD9E594E06E8EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072089   (244330) от 12.11.2016
 
 The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|image + .cue] <Post-Bop>
@@ -745,6 +629,122 @@ Bella Wolf - Bella Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A28C40FB27746FD3A3A9A1D7F765306466129F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074436   (243943) от 19.11.2016
+
+Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cap De Creus
+02. Full House
+03. My Baby Is Coming
+04. Vortex(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Future JazzПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA7A43B55FD9C792C23128A9B505C48CA9360C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611333   (243937) от 11.02.2023
+
+Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Sessions (1946 - 1966) 7CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243937.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Long Long Journey [4:33]
+02. Snafu [4:14]
+03. Linger in My Arms a Little Longer [2:59](   Читать дальше...   )Жанр: Swing, Dixieland, New Orleans JazzПродолжительность: 09:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632683   (243935) от 11.05.2023
+
+Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Mas (One More Time) [15:19]
+02. Straight Ahead [8:59]
+03. Sao Paulo [7:20]
+04. If Ever I Would Leave You [5:08]Жанр: Hard BopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3067D1EB6D974BD2BAE56C513C8930E8F00FA713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074455   (243907) от 19.11.2016
+
+Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Fair
+02. Hymn
+03. Straw Hat
+04. Split(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C5D41E0871CE06A519C41728BD0464939C0200
 ```
 
 https://mybot314.ru/tekegram_catalog/

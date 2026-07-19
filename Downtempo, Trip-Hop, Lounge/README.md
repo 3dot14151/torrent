@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1880401   (1076073) от 06.07.2026
+
+VA - Buddha-Bar - Summer Sessions Ibiza (2026) [MP3|320 Kbps] <Chillout, Lounge, Deep-House, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISQUE 1 - Summer Sessions Ibiza
+DISQUE 2 - Summer Sessions IbizaЖанр: Chillout, Lounge, Deep-House, DowntempoПродолжительность: 2 CD, 02:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BEC945DD6C2736EA57D89B6C155153FAC3F7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869520   (1068328) от 07.05.2026
 
 Frontmusic - Deep Chill Lounge (2026) [MP3|320 Kbps] <Chillout, Lounge>
@@ -717,35 +745,6 @@ Blank & Jones - The Best Of Relax // 20 Years // 2003 - 2023 (2023) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3723A747B249B28441C6EE4D04AC3C998C62EF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652752   (206469) от 13.08.2023
-
-VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Wait for Me [03:33]
-02. TAWO - Had Love [03:15]
-03. MILA - The Sounds of Night (Snare Mix) [05:47]
-04. Dreamhunter - Kadinsky [05:10](   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

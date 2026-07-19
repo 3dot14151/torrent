@@ -1,119 +1,3 @@
-###  Публикация: 1285921   (716809) от 28.02.2019
-
-Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway
-02. It Had To Be You
-03. Over The Rainbow
-04. The Way You Look Tonight feat. Mervyn Warren(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C20B43A71DBAE1C5BE2F9518DB71D4865294D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130244   (716799) от 01.05.2017
-
-Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newport Up [05:44]
-02. I Got It Bad And That Ain't Good [02:24]
-03. Tulip Or Turnip [03:00]
-04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532137   (716767) от 18.02.2022
-
-Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicken Shack Boogie [3:19]
-02. New Central Avenue Breakdown [3:12]
-03. Benson's Boogie [3:21]
-04. Hamp's Boogie Number 2 [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1200D6B29C80496B3F7D61BA8A60667CEAC28E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531943   (716763) от 18.02.2022
-
-Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Recordings [FLAC|Lossless|tracks + .cue] <Big Band, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales from the Jacquard, Part 1 [7:03]
-02. Tales from the Jacquard, Part 2 [6:31]
-03. Tales from the Jacquard, Part 3 [17:47]
-04. Blues [7:52](   Читать дальше...   )Жанр: Big Band, Contemporary Jazz, Post-BopПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14922B8B833BD5AFE819E1EC96632B103A1CBFAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130312   (716659) от 01.05.2017
 
 Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue] <Jazz, Soul, Funk, Big Band>
@@ -748,6 +632,122 @@ Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286434   (713204) от 02.03.2019
+
+Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Rumba [8:12]
+02. Visa fran Utanmyra/Ganglek fran Alvdalen [8:31]
+03. Blues for Lange [5:38]
+04. Sommar adjo [2:57](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28C15B61743BC92A91C5EDB3107C41038DD7B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286226   (713197) от 02.03.2019
+
+Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Depend on Me [3:28]
+02. My Shining Hour [5:32]
+03. Home with You [4:25]
+04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286431   (713191) от 02.03.2019
+
+Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Almoravid [7:56]
+02. Early Minor [6:53]
+03. Gazelle Suite [3:40]
+04. Catta [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B367B22C5469CA9CD50C12218F65BB9777DBB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286423   (713182) от 02.03.2019
+
+Michel Petrucciani - Blue Note Jazz Inspiration (2011) Blue Note Jazz Inspiration [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Tune [7:03]
+02. Limbo (Live) [8:01]
+03. She Did It Again [4:03]
+04. One For Us [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC82B4F50FFFB68B05830EC0216D749B0B41816
 ```
 
 https://mybot314.ru/tekegram_catalog/

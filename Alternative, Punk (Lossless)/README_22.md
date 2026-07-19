@@ -1,3 +1,119 @@
+###  Публикация: 1132219   (700980) от 09.05.2017
+
+Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 30000 Megatons (04:02)
+2. Sweep Me Off My Feet (03:29)
+3. Paint Me Silver (03:44)
+4. Colder Than Ice (03:10)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131972   (700844) от 09.05.2017
+
+Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let It Rain (03:07)
+2. Come Undone (feat. Patty Walters) (03:30)
+3. Slipping Away (03:34)
+4. Atlantic (03:53)(   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026899   (700196) от 17.06.2016
+
+The 1975 - I Like It When You Sleep, for You Are So Beautiful Yet So Unaware of It (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Indie rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700196.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The 1975 (1:23)
+2. Love Me (3:42)
+3. UGH! (3:00)
+4. A Change of Heart (4:43)(   Читать дальше...   )Жанр: Alternative rock, Indie rock, AmbientПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9511BB49F040E89A9E1F3F95F41A7031EE04F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027111   (699961) от 17.06.2016
+
+Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn The Witch (3:40)
+02. Daydreaming (6:24)
+03. Decks Dark (4:41)
+04. Desert Island Disk (3:44)(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D3B6BF5F1FFF5D1E4A10356DAFF9061972D201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026932   (699598) от 17.06.2016
 
 Red Hot Chili Peppers - The Getaway (2016) [FLAC|Lossless|tracks + .cue] <Alternative rock>
@@ -629,122 +745,6 @@ Dreamcar - Dreamcar (2017) [FLAC|Lossless|tracks] <Alternative Rock, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328748956EECBFEEC9E596738CCAC1ACECCC974A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403723   (688561) от 21.08.2020
-
-The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday's Gone
-02. Beekeeper's Daughter
-03. Fast And Slow
-04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403642   (688449) от 21.08.2020
-
-The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Soul’s Warning (04:34)
-02. Blowback (03:59)
-03. Dying Breed (04:06)
-04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289284   (686756) от 16.03.2019
-
-Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corner Painter
-02. Counterfeit
-03. Hard To Be Alone
-04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289324   (686749) от 16.03.2019
-
-Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year of the Tiger (3:41)
-02. The Great Beyond (4:50)
-03. Blind Faith (4:29)
-04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD9211D31FED457534B77350323C50844D045EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1161837   (463239) от 30.08.2017
+
+Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
+Релиз от1. Intro
+2. Starlight
+3. Living For Tonite
+4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530D454C20E2B25ED4B69AF37C37E58BF9D2680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941267   (462045) от 27.09.2015
 
 Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
@@ -696,41 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73004D1BA18B9BEF4546F77457B0729DA2B5333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554069   (438150) от 30.09.2012
-
-Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ричи Блэкмор (Ritchie Blackmore) и его жена Кэндис Найт (Candice Night), выпускает концертник "A Knight In York" на Blu-ray. Когда 30 сентября прошлого года BLACKMORE'S NIGHT приехали в Йорк, жар глодал средневековые улицы и стены старого города купались в лучах солнца. А в Grand Opera House Ричи Блэкмор, Кэндис Найт и их группа разожгли свой огонь, уведя преданных поклонников в музыкальное путешествие сквозь века, исполняя песни с двух своих последних альбомов "Secret Voyage" и "Autumn Sky", такие как "Locked Within The Crystal Ball", "Darkness" и новую версию "First Of May" — редко исполняемой баллады, написанной BEE GEES. Для общего эффекта в котел были брошены песни с ранних альбомов, — особого упоминания заслуживает классическая "Fires At Midnight". Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Grand Opera House 30 сентября 2011 года. (   Читать дальше...   )01 Locked Within The Crystal Ball
-02 Guilded Cage
-03 The Circle
-04 Journeyman
-05 World Of Stone
-06 The Peasant's Promise
-07 Toast To Tomorrow
-08 Fire's At Midnight
-09 Barbara Allen
-10 Darkness(   Читать дальше...   )Жанр: Концерт, rock, folk rockПеревод: отсутствуетПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

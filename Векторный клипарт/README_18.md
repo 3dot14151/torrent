@@ -1,115 +1,3 @@
-###  Публикация: 1218185   (725100) от 08.04.2018
-
-Векторный клипарт - Spring Sale Backgrounds 9 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Весенние фоны
-5 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56CCD8E9A265BA96209684015D9E5FAB664A11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218550   (723292) от 09.04.2018
-
-Векторный клипарт - Animals on the Farm 22 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Животные на ферме
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF531DAF32FA060AEA9F4119463BF63AAC74170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218556   (721640) от 10.04.2018
-
-Векторный клипарт - Vector Berry Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Ягоды
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEE8F42A135C830EC482F8CA7C502D4A8330D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218553   (721545) от 10.04.2018
-
-Векторный клипарт - Isometric Transport Set [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Изометрический транспортный набор
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF586D6EBCD9803582657CBD511DE649A710FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218554   (721538) от 10.04.2018
 
 Векторный клипарт - Vector Landscapes Nature Collection #2 [AI]
@@ -719,6 +607,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A683ABEAE09FAD6DACDA0C2D10CCE0BB93B275DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219822   (709858) от 16.04.2018
+
+Векторный клипарт - Волк (подборка векторных отрисовок) [AI, CDR, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Волки
+43 AI, CDR, EPS +JPG PreviewФормат: AI, CDR, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC728BF519F0063A9AA50F85E752341F5C92EC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220014   (709853) от 16.04.2018
+
+Векторный клипарт - Creative Metal Backgrounds 19 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+ворческие металлические фоны
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322EB9E7D3846DAC5EA9B895C971273E8CBD3579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401546   (709160) от 10.08.2020
+
+Векторный клипарт - Watercolor set of bouquet and flower elements [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Акварельный набор из букета и цветов
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41EF4B86DFE20545577781571EA728FC5CA1B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220192   (708166) от 17.04.2018
+
+Векторный клипарт - Realistic Cakes Mix 25 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Реалистичные торты
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044627BA8F5DB8FDD25D20446827A3F8E489D5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1121816   (799668) от 03.04.2017
+
+Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
+02. Lady Madonna (3:36)
+03. Eleanor Rigby (3:50)
+04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506582   (799497) от 01.11.2021
 
 VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
@@ -716,35 +745,6 @@ VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274045   (795048) от 05.01.2019
-
-VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
-02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
-03. DJ Apres Ski Hits - Johnny Däpp
-04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
 ```
 
 https://mybot314.ru/tekegram_catalog/

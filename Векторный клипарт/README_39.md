@@ -1,115 +1,3 @@
-###  Публикация: 1182983   (312349) от 12.11.2017
-
-Векторный клипарт - Cards with ribbons [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Карты с ленточками
-15 AI + prewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183006   (312210) от 12.11.2017
-
-Векторный клипарт - Creative Christmas Trees Set 8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Творческий набор елок
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9D1C345197F3FEEC0028FD5ABBF0CAD0F30BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182996   (312209) от 12.11.2017
-
-Векторный клипарт - Christmas Balls Backgrounds Set 10 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Рождественские Шары
-6 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EED272D6F59974F1A72C109E7AAA2412E09C371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183173   (312195) от 12.11.2017
-
-Векторный клипарт - Decorative pattern color patchwork design [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративный рисунок пэчворк
-10 EPS+ jpeg prewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C9FC0BB7B7C3DC3102651B0C4376915012ADAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332716   (311149) от 21.10.2019
 
 Calendar New Year 2020 design template [AI]
@@ -715,6 +603,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3039592CFB38B840E1B3727A1A4D7B0E78F9DFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184163   (303333) от 16.11.2017
+
+Векторный клипарт - Wooden Christmas Backgrounds 12 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Деревянные Рождественские Фоны
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3396AE2F29461D515FFAAD396ABB60E0EE7E45C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184160   (303330) от 16.11.2017
+
+Векторный клипарт - Wooden 2018 Backgrounds [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Деревянные Фоны 2018
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F134490923E8A2963A04643399D50CD22E95F223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184073   (303240) от 16.11.2017
+
+Векторный клипарт - Decorative vector elements with crowns [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_303240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Декоративные векторные элементы с коронами и украшениями
+18 files EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D36A173F6A63D8C2E2EA77C9C6DC181C2485D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184067   (303230) от 16.11.2017
+
+Векторный клипарт - Vintage golden vector frame [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Старинные золотые векторные рамки c гравировкой узора
+12 files EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDF0D8D954716FEBC6DFA0D4294BCCF150D4ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

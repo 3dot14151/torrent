@@ -1,3 +1,31 @@
+###  Публикация: 1566209   (245335) от 27.07.2022
+
+WhatsApp 2.2226.5 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245335.jpg" />
+</div>
+
+
+###  Подробнее
+
+WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
+Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
+уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478BC133F85C7D0596A8A8FF52FC1CE5729D3293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608933   (245333) от 01.02.2023
 
 Glary Disk Cleaner 5.0.1.285 [Multi/Ru]
@@ -652,32 +680,6 @@ OBS Студия - бесплатное программное обеспече�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384313A3038837AC5B37247CF6EF29EAEA605F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621013   (245121) от 23.03.2023
-
-Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.5 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245121.jpg" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F5CECED102410E0A6F5F600935F2CBABF68DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

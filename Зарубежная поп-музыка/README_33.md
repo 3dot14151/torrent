@@ -1,3 +1,38 @@
+###  Публикация: 516847   (647529) от 01.07.2012
+
+Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647529.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Keiner Singt Gern Allein (I Shall Sing)
+2. Dieser Sänger Braucht Nur Ein Chanson
+3. Sie War Ooh!
+4. Ich Hab' Mich Verliebt
+5. In Versailles In Dem Grossen Garten
+6. Meines Vaters Sohn (Un Cadeau De Papa)
+7. Schöne Grüsse An Mama
+8. Septemberwind (L'ete Indien) (Africa)
+9. Immer Weiter
+10. Es Gibt Mädchen So Zum Träumen(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516957   (647397) от 01.07.2012
 
 Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
@@ -721,35 +756,6 @@ MAGIC! - Primary Colors (2016) [MP3|320 Kbps] <Pop, reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D36ABAE02EABE0268AAB28C2EB58D2A8EBC9FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033302   (639882) от 10.07.2016
-
-VA - FitHits (2016) [MP3|256 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639882.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-Пpодолжительность: 01:11:52
-
-01. Avicii Ft Simom Aldred - Waiting For Love(   Читать дальше...   )Жанр: PopПродолжительность: 2:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D1D3893BD1BFD4A85BF91C2DA7F09D0DEFFD9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

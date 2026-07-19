@@ -1,3 +1,90 @@
+###  Публикация: 1563599   (502601) от 16.07.2022
+
+Shivaree - Compilation (2022) [MP3|320 Kbps] <Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nova (The Luckiest Girl) (Allskate Mix)
+02. New Casablanca
+03. The Fat Lady Of Limbourg
+04. Rubble(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB56CC0EF961BE41B1ED07D222BD8D9E5B7F18FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564496   (499585) от 19.07.2022
+
+Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparently They Were Travelling Abroad  (03:12)
+ 02. It's A Miracle  (08:31)
+ 03. Me Or Him  (05:24)
+ 04. Picture That  (06:48)(   Читать дальше...   )Жанр: Progresive RockПродолжительность: 01:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA94A66000849170D669847EF0CF999D07415A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404314   (495177) от 24.08.2020
+
+VA - Heartache Tonight: Classic Rock Collection (2020) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Darkness - I Believe
+002. Jet - Cold Hard Bitch
+003. Jo Jo Gunne - Run Run Run
+004. Snew - Put Upon(   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F877655F28BC354468959942EA55A0C42E2494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318416   (494824) от 06.08.2019
 
 VA - Phoenix Rising (2019) [MP3|320 Kbps] <Metal, Power, Death>
@@ -664,93 +751,6 @@ VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567708   (470079) от 04.08.2022
-
-VA - Rock Indie Night (2022) [MP3|320 Kbps] <Rock, Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lanterns On The Lake - Not Going Back To The Harbour
-002. Maa Ilmasta - Aamutuima
-003. Kitsugaki - Sotaisei
-004. Color Dolor - The Void(   Читать дальше...   )Жанр: Rock, Indie Rock, AlternativeПродолжительность: 11:28:23 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74832C027CC0E602F495316B4629E9B787F8002A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058068   (468843) от 01.10.2016
-
-The Sword - Greatest Hits (2016) [MP3|320 Kbps] <Sludge, Stoner Rock, Post-Metal,>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocryphon
-02. Arrows in the Dark
-03. How Heavy This Axe
-04. Fire Lances Of The Ancient Hyperzephrians(   Читать дальше...   )Жанр: Sludge, Stoner Rock, Post-Metal,Продолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE957820997B35FB75FA0CE1879E939B06B3A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407222   (468487) от 06.09.2020
-
-VA - Tears Of The Dragon (2020) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_468487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. March - Challenger
-002. Ockra - In A Dream
-003. Backwater - Sweet Little Passion
-004. Crow Killer - Castigate(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

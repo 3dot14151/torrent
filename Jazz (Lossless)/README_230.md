@@ -1,119 +1,3 @@
-###  Публикация: 964890   (281065) от 12.12.2015
-
-Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.cue]<Modern Creative, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bantul [06:27]
- 02.Monk Funk [15:10]
- 03.My Funny Valentine [15:00]
- 04.My Life [16:20](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081576   (281054) от 11.12.2016
-
-VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[FLAC|Lossless|image + .cue] <Dixieland, Swing, Bop, Hard Bop, Big Bang>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281054.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Donald Byrd & Johnny Coles - Child's Play [05:38]
-02.Howard McGhee - Shades of Blue [05:06]
-03.Freddy Hubbard - Ley [05:49](   Читать дальше...   )Жанр: Dixieland, Swing, Bop, Hard Bop, Big BangПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0F95824D9BF069981D99AE4C4C4F57495A4FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082037   (281036) от 11.12.2016
-
-Kenny Clarke - Bohemia After Dark (1955) 1992, Savoy[FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bohemia After Dark [06:11]
- 02.Chasm [04:23]
- 03.Willow Weep For Me [06:22]
- 04.Hear Me Talkin' To Ya [03:16](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5D02B53D0EB6105EC889E2624FC0BC8D1A9C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081923   (281025) от 11.12.2016
-
-Bill Evans Trio - Live At Ronnie Scott's: Letter To Evan & Turn Out The Stars (1980) 2CD, 1992, Dreyfus[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281025.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Letter To Evan:
-01.Emily [05:34]
-02.Days Of Wine And Roses [08:26]
-03.Knit For Mary [06:08](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C52E18C2C7944755EAC542654C8D7B83C26DC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336357   (280955) от 06.11.2019
 
 Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -745,6 +629,122 @@ Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B828303A1834D46CB25BB907E92CD6FE0F8D582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264895   (277721) от 25.11.2018
+
+Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – What Child Is This?
+02 – God Rest Ye Merry Gentlemen
+03 – Christmas Cards
+04 – Es Wird Scho Glei Dumpa(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A34442DCB5C0CE7BE9043C4D3BF6E7E5563CF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336818   (277600) от 08.11.2019
+
+Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sticks [3:25]
+02. Sacks O' Woe (A Bag O' Trouble) [5:23]
+03. Organ Grinder [5:50]
+04. Theme for Ernie [7:03](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4EE38171507A18C01052CCB52FC3F3F6CC5E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336892   (277599) от 08.11.2019
+
+Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives [FLAC|Lossless|tracks + .cue] <Ragtime, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [2:51]
+02. Black Bottom Stomp [3:11]
+03. The Chant [3:07]
+04. Sidewalk Blues [3:28](   Читать дальше...   )Жанр: Ragtime, Early JazzПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B20194B8D28B0C5B20301EEDBC2764728BF796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336890   (277598) от 08.11.2019
+
+Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rug Cutter's Swing [3:04]
+02. Dream Lullaby [3:11]
+03. Tea For Two [3:11]
+04. Early Session Hop [2:44](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211DEF4EE6306590B1AC43082536FA79A3584B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

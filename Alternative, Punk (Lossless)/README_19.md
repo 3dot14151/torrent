@@ -1,3 +1,119 @@
+###  Публикация: 1526674   (738157) от 25.01.2022
+
+Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Said It Was Easy (2:10)
+ 02. Shame On You (3:20)
+ 03. Fade (4:27)
+ 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527053   (737390) от 27.01.2022
+
+Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden Fiya (1:46)
+ 02. Diamond (3:48)
+ 03. Queen (2:26)
+ 04. High Beams (feat. Nafets) (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527323   (736906) от 28.01.2022
+
+Alice Glass - PREY//IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Electropunk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PREY (1:50)
+ 02. PINNED BENEATH LIMBS (1:56)
+ 03. LOVE IS VIOLENCE (2:38)
+ 04. BABY TEETH (2:26)(   Читать дальше...   )Жанр: Electronic, Electropunk, ExperimentalПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752F80F85371CF605EA2AB832B21D01931A08F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399355   (733419) от 31.07.2020
+
+Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smiling (04:17)
+02. Ablaze (03:57)
+03. Reasons I Drink (03:36)
+04. Diagnosis (04:46)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399465   (732958) от 01.08.2020
 
 The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -619,122 +735,6 @@ Iggy Pop - 3 альбома (1988 - 1993) [FLAC|Lossless]<Alternative Rock, Punk
 02. Wild America (5:45)
 03. Mixin' The Colors (4:50)
 04. Jealousy (6:04)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128818   (726260) от 26.04.2017
-
-Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/20. Intro: I Switched My Robot Off (0:24)
- 02/20. Ascension (feat. Vince Staples) (2:36)
- 03/20. Strobelite (feat. Peven Everett) (4:33)
- 04/20. Saturnz Barz (feat. Popcaan) (3:02)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99CC24D56CD81BD0DE9EE860B246F781691E9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128577   (726074) от 26.04.2017
-
-Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Folk, Ambient, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don'e Be So Serious 06:13
-02. Bones 02:49
-03. St. Eriksplan 03:41
-04. Give Me An Answer 03:43(   Читать дальше...   )Жанр: Indie-Pop, Folk, Ambient, AlternativeПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128693   (726039) от 26.04.2017
-
-Kaleo - A/B (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Good (03:54)
-02. Way Down We Go (03:39)
-03. Broken Bones (04:06)
-04. Glass House (04:01)(   Читать дальше...   )Жанр: Alternative Rock, Indie, BluesПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264196705D17C4662877F28401039A63163DC997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667743   (725425) от 14.06.2013
-
-Blink-182 - 24 Альбома (1994 - 2011) Дискография [FLAC|Lossless]<Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / The Story So Far [00:05:57]
-02. Living The High Life [00:06:01]
-03. I Guess You Had To Be There [00:05:15]
-04. Get Back In The Van [00:05:20](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 01:01:16
 
 ## Скачать торент
 ```bash

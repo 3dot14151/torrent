@@ -1,3 +1,90 @@
+###  Публикация: 1699376   (117715) от 14.02.2024
+
+VA - Rock 'n' Roll 50s (2024) [MP3|320 Kbps] <Rock 'n' Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley - Hound Dog [02:17]
+02. Bill Haley & His Comets - Rock Around The Clock [02:15]
+03. Jerry Lee Lewis - Great Balls of Fire [01:55]
+04. Carl Perkins - Blue Suede Shoes [02:16](   Читать дальше...   )Жанр: Rock 'n' RollПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBB021E90667F625493BFA9C68152E9544235D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699624   (117712) от 14.02.2024
+
+VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Cooper - School's Out [03:30]
+02. T. Rex - 20th Century Boy [03:41]
+03. Elton John - Saturday Night’s Alright (For Fighting) (Remastered) [04:55]
+04. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22F435DAE6C03DA1E9EEED707CAFD3280D6C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699884   (116924) от 18.02.2024
+
+VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Floyd - Embryo [10:22]
+02. Yes - Starship Trooper: a. Life Seeker, b. Disillusion, c. Wurm [09:27]
+03. Frank Zappa, The Mothers of Invention - Inca Roads [08:45]
+04. Aphrodite's Child - The Four Horsemen [05:53](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 06:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700802   (116899) от 18.02.2024
 
 VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
@@ -673,93 +760,6 @@ Gamma Ray - Compilation (1990-2021) [MP3|320 Kbps] <Power metal, Speed metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF64DDF977F333648B0553D73782EAA781159AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783667   (69747) от 07.03.2025
-
-Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Believe You [04:41]
-02. Hellectric [04:57]
-03. Riff Revolution [03:59]
-04. Tires On Fire [03:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789529   (68234) от 05.04.2025
-
-Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kong At The Gates (Famous Monsters 1999)
-02. Where Do They Go (The Devil's Rain 2011)
-03. Where Eagles Dare (Night Of The Living Dead EP 1979)
-04. Scream (Famous Monsters 1999)(   Читать дальше...   )Жанр: Punk rock,  Horror punkПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723C2CB16ECB79F71524DE68FEA7C0D665C913E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795976   (66935) от 12.05.2025
-
-Black Stone Cherry - Compilation (2003-2025) [MP3|320 Kbps] <Hard rock, Southern rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & Mary Jane (Magic Mountain | 2014)
-02. Out Of Pocket (Screamin' At The Sky | 2023)
-03. Sunrise (Folklore & Superstition | 2008)
-04. Stop Runnin' (Black Stone Cherry | 2006)(   Читать дальше...   )Жанр: Hard rock, Southern rockПродолжительность: 04:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B428F615AA4AE1E468392810ED0ED4D1B0A3D890
 ```
 
 https://mybot314.ru/tekegram_catalog/

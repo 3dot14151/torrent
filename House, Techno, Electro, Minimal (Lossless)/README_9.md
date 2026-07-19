@@ -1,3 +1,171 @@
+###  Публикация: 1316795   (1001981) от 11.08.2021
+
+Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Want To Sleep? (01:22)
+ 02. Can You Stop It From Bleeding? (02:41)
+ 03. Hurting Myself (05:13)
+ 04. Blackmail (02:51)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch •Продолжительность: 23:40:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351573   (1001952) от 11.01.2020
+
+Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Deep House, ProgressiveПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351900   (1001684) от 12.01.2020
+
+VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks + .cue]<Deep, Electro, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotsome - Just A Feeling ( Franky Rizardo Remix )
+02. Emanuel Satie - Cold Sweat
+03. The New Sins - Lights Down ( Waze & Odyssey Remix )
+04. Tensnake - The Walk(   Читать дальше...   )Жанр: Deep, Electro, House, TechnoПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125104   (1001359) от 13.08.2021
+
+Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
+ 02. Bing And Ruth - The How Of It Sped (05:48)
+ 03. Nils Frahm - For (Max Cooper Remix) (07:06)
+ 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352350   (1001086) от 14.01.2020
+
+Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eintagsfliege (07:08)
+02. Zweibrütiger Scheckenfalter (07:13)
+03. Dreizehenspecht (03:34)
+04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352888   (1000890) от 15.01.2020
+
+VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House, Neo Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Progressive House, Neo TranceПродолжительность: 03:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547986   (1000715) от 15.01.2020
 
 Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, Euro House, House>
@@ -572,181 +740,6 @@ VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CA95F3BEF81D825515DDF083D0AFE3D05C536B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355378   (983626) от 26.01.2020
-
-VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
-02. Paul Kalkbrenner - Platscher (4:12)
-03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
-04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355821   (981153) от 28.01.2020
-
-Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep House, Dub, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rooftops (Minilogue's Taqism Remix) (09:43)
- 02. Time (John Daly Remix) (06:55)
- 03. Ghostship (Deadbeat Remix) (06:55)
- 04. Backwards Never (XDB Remake) (07:04)(   Читать дальше...   )Тип издания: WebЖанр: Deep Techno/Dub Techno/DubПродолжительность: 03:48:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F97B16A23B969D7F03D27CB5A00FA143A02316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972659   (980765) от 07.01.2016
-
-Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Sinclar feat. The Sugarhill Gang - Lala Song (3:33)
-02. Bob Sinclar feat. Roland Clark - Give Me Some More (3:18)
-03. Bob Sinclar feat. Shabba Ranks - Love You No More (4:22)
-04. Bob Sinclar feat. Vybrate, Queen Ifrica & Makedah - New New New (5:26)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972679   (980674) от 07.01.2016
-
-Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golddiggers (3:36)
-02. Ding Dong Song (4:04)
-03. Teeny Weeny String Bikini (4:00)
-04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356348   (979114) от 30.01.2020
-
-Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Pop-Trance, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One's To Blame (3:52)
- 02. Remember (4:46)
- 03. Falling Forward (5:25)
- 04. All I've Got (5:14)(   Читать дальше...   )Жанр: Progressive House, Pop-Trance, Deep House, DowntempoПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E86CAD8CA89457138467C956678484C01B9FF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606162   (975032) от 10.02.2013
-
-Michael Cassette - Singles & EP's (2007-2011) [FLAC|Lossless]<House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through The Windows (Original Mix) (4:49)
-02. Through The Windows (Marcus Maison Remix) (6:54)
-03. Through The Windows (Stephen J Kroos Remix) (8:30)
-04. Through The Windows (John B remix) (6:02)
-05. Through The Windows (Gerhard Saturnus Remix) (6:09)Жанр: House, Progressive HouseПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

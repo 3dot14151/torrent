@@ -1,3 +1,119 @@
+###  Публикация: 1416643   (363173) от 18.10.2020
+
+Star Insight - 2 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Symphonic, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape as a Last Resort [00:03:37]
+02. Reaching for the Sky Above [00:03:02]
+03. I'm Not a Number [00:03:22]
+04. It's All Lies [00:03:42](   Читать дальше...   )Жанр: Melodic Metal, Symphonic, Power MetalПродолжительность: 2 CD, 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A9006FC8E0877AC834F55394EBC5F1BCAFFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177476   (362689) от 25.10.2017
+
+Hollywood Undead - Five (2017) [FLAC|Lossless|tracks] <Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreaming (3:55)
+ 02. Whatever It Takes (3:08)
+ 03. Bad Moon (3:52)
+ 04. Ghost Beach (3:55)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC1D0C30763AA3F690E01935519D37A752F2578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576884   (361882) от 16.09.2022
+
+The Devil Wears Prada - Color Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Christian Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exhibition (3:58)
+02. Salt (3:27)
+03. Watchtower (2:48)
+04. Noise (3:43)(   Читать дальше...   )Жанр: Christian Post-HardcoreПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C1193973D68139ED754DD885F072F7CF98E7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255843   (361841) от 19.10.2018
+
+Defeater - Lost Ground (2009) EP [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Red, White And Blues (3:44)
+ 02. The Bite And Sting (3:01)
+ 03. A Wound And Scar (2:50)
+ 04. Home Ain't Never Home (2:51)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E6B4783A031D5A0E2B519E2EF3F2DA0DA34998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255852   (361794) от 19.10.2018
 
 Fires of Waco - Old Ghosts Never Sleep (2011) [FLAC|Lossless|tracks + .cue] <Punk>
@@ -629,122 +745,6 @@ Wilco - Ode to Joy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C664F2D236E672E7A5B9A869AB436A78B1BFD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178569   (353696) от 29.10.2017
-
-Weezer - Pacific Daydream (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mexican Fender (3:10)
- 02. Beach Boys (3:51)
- 03. Feels Like Summer (3:16)
- 04. Happy Hour (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D550FC31E4048E498270887C5232734047ACDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577724   (352554) от 20.09.2022
-
-Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inferno [00:02:37]
-02. The Haunted [00:03:26]
-03. Interlude [00:00:32]
-04. Fade Out [00:03:06](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 2 CD, 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF8984A21152E3F52A53450F7D553F5453AC853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577718   (352311) от 20.09.2022
-
-Maggie Lindemann - Suckerpunch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Punk, Female Vocal,  Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro / welcome in (1:16)
-02. take me nowhere (2:54)
-03. she knows it (2:36)
-04. casualty of your dreams (3:17)(   Читать дальше...   )Жанр: Alt.Rock, Pop-Punk, Female Vocal,  ElectronicПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721FD5291473247B19B3832D641C24AEA6D8B6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329436   (352263) от 05.10.2019
-
-Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Tell (04:16)
-02. One Eye Open (04:43)
-03. Daily Driver (03:54)
-04. Feels (04:42)(   Читать дальше...   )Жанр: Indie-Rock, ElectronicПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DACF67FAECC3C3E8FB1CEAA96F1DD5C42BE4986
 ```
 
 https://mybot314.ru/tekegram_catalog/

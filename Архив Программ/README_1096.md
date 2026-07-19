@@ -1,3 +1,29 @@
+###  Публикация: 1317770   (499374) от 02.08.2019
+
+DVDFab Player 5 Ultra 5.0.3.0 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499374.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab Media Player - мультимедийный плеер для Windows, способный качественно проигрывать видео различных форматов. Многие используют его для просмотра Blu-ray (UHD) дисков, тоже самое относится к DVD носителям. DVDFab Media Player не только проигрывает Blu-Ray, DVD диски и другие видео файлы во всех форматах, но и воспроизводит Blu-Ray папки, файлы ISO-образов, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A0F29A641BCC8B070A616B2CD262BB4E4003CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317693   (499370) от 02.08.2019
 
 Restore Desktop Icon Layouts 1.9 Portable [Multi/Ru]
@@ -648,32 +674,6 @@ Uninstall Tool - это маленькая, но очень шустрая пр�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935216   (499080) от 08.09.2015
-
-HitmanPro 3.7.9 Build 245 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499080.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitmanPro – мощный cканер для выявления различных вредоносных программ. Особенность HitmanPro в том, что он использует при проверке базы данных других приложений для обнаружения и удаления шпионских модулей (Ad-Aware SE Personal, Spy Sweeper, Spybot Search & Destroy, CWShredder, SpywareBlaste, Spyware Block List, Sysclean Package, SuperDAT VirusScan). После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96631A23A46C2909A0494EA50A25DE1E5A2EB641
 ```
 
 https://mybot314.ru/tekegram_catalog/

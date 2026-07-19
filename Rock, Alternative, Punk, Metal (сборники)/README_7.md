@@ -1,3 +1,90 @@
+###  Публикация: 985331   (935499) от 11.02.2016
+
+VA - Alterportal HITS 16 Vol. 89 - January (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cypecore - The Void
+2. Dark Avenue - Forget You
+3. Forever Still - Break the Glass
+4. One Day Remains - Enemy in Me(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7B901C1A01BA6D32F71B0FBF63764D42CCC7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364582   (934473) от 04.03.2020
+
+VA - Rock Archive (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evanescence - Bring Me To Life
+002. Bon Jovi - Its My Life
+003. Alice Cooper - Poison
+004. Black Sabbath - Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: RockПродолжительность: 07:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750D064D0FD012F9302A7A359AD8BDC42D611514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984852   (934085) от 12.02.2016
+
+Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве Remaster (2015) [MP3|320 кб/с] <Brit-pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 ******
+02 Воздушный шар
+03 Импровизация в синтетическом парке
+04 Говорящий вакуум(   Читать дальше...   )Жанр: Brit-popПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986059   (932073) от 13.02.2016
 
 VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
@@ -662,93 +749,6 @@ VA - The Best Rock (2016) [MP3|256 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA3C328C1679330543EA2578C9F87AE3E10ECE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368319   (907414) от 21.03.2020
-
-Foo Fighters - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock, Post-Grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everlong 4:10
-02. The Sky Is A Neighborhood 4:05
-03. Best Of You 4:15
-04. Learn To Fly 3:55(   Читать дальше...   )Жанр: Rock, Alt.Rock, Post-GrungeПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A618675FBA77312705B7658A9B032A076C5D7A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368318   (907077) от 21.03.2020
-
-Linkin Park - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - In The End 3:37
-02. Linkin Park - Numb 3:06
-03. Linkin Park - One More Light 4:15
-04. Linkin Park - Somewhere I Belong 3:34(   Читать дальше...   )Жанр: Rock, Alt.RockПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF848BB730E17D8D20F278F312BD3C6E6F11485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368314   (907073) от 21.03.2020
-
-System Of A Down - Essentials (2020) [MP3|320 Kbps] <Rock, Alternative, Nu-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chop Suey! 3:31
-02. Sugar 2:34
-03. Toxicity 3:39
-04. B.Y.O.B. 4:16(   Читать дальше...   )Жанр: Rock, Alternative, Nu-MetalПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE47B061AB711929BAE74F9ABF7D7000D886F2FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

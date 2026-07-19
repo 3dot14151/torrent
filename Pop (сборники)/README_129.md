@@ -1,99 +1,3 @@
-###  Публикация: 462522   (80397) от 06.03.2012
-
-VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80397.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: pop, danceПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55641978263D624BBAEBAFC3C72CCDFC59186849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461387   (80380) от 06.03.2012
-
-VA - DFM - Russian Dance from AGR (2.03.2012) MP3, 320 kbps (2012) [MP3|320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Fay - Я просто хочу быть....mp3
-02. DJ Vini feat. Stephenie Coker - Жестокая любовь (extended club mix)
-03. Виктор Павлик - Город Зеленого Цвета (dj Stranger Mix)
-04. Градусы - Заметает (DJ Karabaev DJ Agamirov Radio Edit)
-05. Звери - До скорой встречи (DJ Bemax Remix)
-06. Zdob Si Zdub - Видели ночь (DJ Fisun remix)
-07. Chris Parker - Symphony 2011 ( DJ P.AR remark)
-08. Иван Дорн - Стыцамен (Viento Mutti Remix)
-09. 5ivesta Family - Тук тук (dj Alex Menco Remix)
-10. Vengerov Fedoroff feat. Иванушки International - Кукла (Remix)(   Читать дальше...   )2012Жанр: popПродолжительность: 02:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8219654E30E00428DA09E63CFF73A3A329649335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456037   (77476) от 21.02.2012
-
-VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эffekt - Замерзаю
- 02. Vincent Did It - Dynamo
- 03. Egor - Breathe (Radio Edit)
- 04. Claude Kelly - Don't Turn Out The Lights
- 05. Gregory Sirakuza Feat. Mirami - Miramimania (House Remix)
- 06. Suck The Clatter - Dance With You (Radio Edit)
- 07. K.1.M Feat. Аня Скворцова - Причина-Это Ты
- 08. Daddy Yankee Feat. Don Omar - Lovumba (Official Remix)
- 09. Sara Oks - Rebel Girl
- 10. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)2012Жанр: popПродолжительность: 06:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777252   (71090) от 05.02.2025
 
 Scatman John - Compilation (1995-2019) [MP3|320 Kbps] <Pop, Jazz, Scat rap, Dance>
@@ -754,6 +658,90 @@ VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733815   (51171) от 03.07.2024
+
+VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ms Project - Gimme GimmeЖанр: Dance, EurodiscoПродолжительность: 04:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735214   (50149) от 13.07.2024
+
+VA - Happy Birthday to Me! (2024) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Uriah Heep - Happy Birthday [04:42]
+002. Ислам Итляшев - Кобра [02:53]
+003. Loboda - Tvoi glaza [03:54]
+004. Миша Марвин, Ханна - Французский поцелуй (Red Max Remix) [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D9A47A563B3CA2687BCFB4D9F118059E081A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737444   (49541) от 19.07.2024
+
+ZAZ - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Demain C'est Toi
+ 02.  Les Passants
+ 03.  On Ira
+ 04.  Imagine(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240FD2DBB876BD0D2EB02BD2A78C955BE91518AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,102 +1,3 @@
-###  Публикация: 388528   (461270) от 16.09.2011
-
-VA - Хит-парад Record 8 50/50 (2011) [MP3|256 kbps]<Клубная>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Грув - I Can Take
-02. Потап и Настя Каменских vs. Bass Kleph - Мы отменяем К.С. (Sasha Dith Mash-Up)
-03. The Black Eyed Peas - Dont Stop The Party
-04. Armin Van Buuren feat. Sunlounger - White Sand
-05. Pitbull & Ne-Yo feat. Afrojack - Give Me Everything
-06. Twosome Bookaz feat. Dvisti Boys - Карпаты
-07. DJ Tiesto pres. Allure feat Jes - Show Me The Way
-08. Mishelle feat. Randi - Only You (Рома Лейтенант Remix)
-09. Chase & Status feat. Delilah - Time
-10. Митя Фомин - Огни большого города (DJ Favorite Radio Edit)(   Читать дальше...   )2011Жанр: КлубнаяПродолжительность: 05:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A82D7C26545015C7E9E3138E0FD54934C2AAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388405   (460662) от 16.09.2011
-
-VA - Oldie Hit (10 CD Box Set) (2009) [MP3|320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460662.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Demis Roussos - Forever And Ever
-2. Brotherhood Of Man - Save Your Kisses For Me
-3. Ricky King - Verde
-4. Roger Whittaker - River Lady (Live)
-5. Baccara - Sorry I'm A Lady
-6. John Travolta - Greased Lightning
-7. Edison Lighthouse - Love Grows
-8. Lynn Anderson - Rose Garden
-9. The Marmalade - Reflections Of My Life
-10.Joe Dolan - Make Me An Island(   Читать дальше...   )2009Жанр: PopПродолжительность: 07:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F543CF8140C000D874E7B404448CE203B71294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703729   (460262) от 25.09.2013
-
-VA - Осеннее настроение в СССР [2CD] (1972-1991) (2013) [MP3|320 кб/с]<Ретро, советская эстрада, поп, рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алла Пугачева - Осень (1984)
-02. Форум - Улетели листья (1985)
-03. Юрий Лоза - Опять  (1986)
-04. Валерий Леонтьев - Исчезли солнечные дни (1986)(   Читать дальше...   )Жанр: Ретро, советская эстрада, поп, рокПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19FFCAA988475DA7DAA73410E5164474F05A7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941728   (459898) от 28.09.2015
 
 VA - Звездные Xиты. Only Best Hits (2015) [MP3|256 кб/с]<Pop>
@@ -769,6 +670,105 @@ Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673B48600F18C1ACA042A5C3D416D0E44C5E9464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550111   (453446) от 24.09.2012
+
+VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lili - Lady Gaga Отдыхает!
+002. Bloody Faeries - Revolution
+003. Дискотека Авария & Джиган & Вика Крутая - Карнавал
+004. Shogun Feat. Melissa Loretta - Skyfire
+005. Глюкоза И Макс Барских - Адреналин
+006. Don Omar - Hasta Que Salga El Sol
+007. Женя Тополь - Угадай
+008. Sean Paul Feat. Ester Dean - How Deep Is Your Love
+009. Юрий Шатунов - Ромашки
+010. Юрий Титов И Алекса - Мое Счастье(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF93357F65295799EF057CA595C97BF2D452340B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942581   (453234) от 01.10.2015
+
+Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453234.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cendres De Lune (1986)
+002. Chloe (1986)
+003. Libertine (1986)
+004. Maman A Tort (1986)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 08:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550981   (453109) от 24.09.2012
+
+VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tisha feat. Reforma - В главных ролях (DJ Nejtrino & DJ Kirill Clash remix)
+002. Coctail Royal feat. Марина Алиева - Ты Сводишь С Ума
+003. Интонация (In2nation) - Не со мной
+004. Снежана Фирсова - Благодарю
+005. Кирил Андреев - Не Умирает Любовь
+006. Амилио - Все, что захочешь
+007. Игорь Саруханов - Черно-белые полосы
+008. Татьяна Овсиенко - Тому, кого люблю
+009. Audio Girls feat. Батишта - Игра
+010. DJ Fisun feat. Ika - Москва слезам не верит(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50DF825444E7CADE162133AA8889E7B4BD1DEFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

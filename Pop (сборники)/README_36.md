@@ -1,3 +1,32 @@
+###  Публикация: 1212433   (776009) от 11.03.2018
+
+VA - Зарубежные Хиты (Март) (2018) [MP3|320 Kbps] <Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 30 Seconds To Mars - Dangerous Night
+002. 247 - Tu Guerrero
+003. Adam Cola - Be Free
+004. Adelen - Go Home(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 05:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F25B29898A5CEBDCE75EB21A40F1B0A4AB8EE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014818   (775807) от 09.05.2016
 
 VA - Популярная соточка. Русская версия (2016) [MP3|256 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 26.06.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:396E016F55178F58270E1D98C37D7CAB2AA4B02B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393123   (768288) от 29.06.2020
-
-VA - Radio DFM Top D-Chart Июнь 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intelligency - August (Alex Shik & Alex One Remix) 3:35
-02. Dua Lipa - Break My Heart (Leo Burn Remix) 2:53
-03. Filatov & Karas feat. Deepest Blue - Give It Away 3:28
-04. Zivert - ЯТЛ (Kolya Dark & DJ Prezzplay Remix) 3:33(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5442BB3CFB80198A484F0FD670961291749D026C
 ```
 
 https://mybot314.ru/tekegram_catalog/

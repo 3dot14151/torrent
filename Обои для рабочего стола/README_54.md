@@ -1,29 +1,3 @@
-###  Публикация: 1245124   (475922) от 04.09.2018
-
-Обои - Desktop Wallpapers Full HD. Part (280) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D58C072C1AC0616697BFD5443A2CB032F2334A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939778   (473322) от 22.09.2015
 
 Обои - Осенняя вода. 1920x1080 - 100 шт [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64BE16F7B54DED97AFD6AEE45145D4A69997F73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246237   (465585) от 09.09.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (171) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F786E0C59ECD9FF97F5A10BFAA8611A012E08322
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1361539   (954276) от 20.02.2020
-
-King Sporty & The Root Rockers - Fire Keep On Burning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Keep On Burning (5:48)
-02. L-O-V-E (3:49)
-03. Get On Down (6:47)
-04. That Funky Groove (4:31)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A3D6ED65685EBD7E4C804A47E096BA09BCDB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361598   (954201) от 20.02.2020
 
 Moulin Rouge - Moulin Rouge (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -740,6 +711,35 @@ Final Offspring - The Destruction Of Mundhora (1977) LP [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99806E4AA2CB0A96702730C74AB36DD5AF2FC9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098794   (908728) от 30.01.2017
+
+Enterprise - Enterprise (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor (4:10)
+02. Que Sera, Sera (3:19)
+03. In The Year 2525 (2:30)
+04. Cuando, Cuando, Cuando (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ADB54D5153ECBB482DCC0F948BC1613ED10C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

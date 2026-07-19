@@ -1,386 +1,22 @@
-###  Публикация: 1798499   (66496) от 26.05.2025
+###  Публикация: 1794791   (67133) от 03.05.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798712   (66495) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798528   (66492) от 26.05.2025
-
-Растровый клипарт - DoodleBox - Creative Fabrica - Gingerbreads Watercolor Christmas [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный рождественский клипарт с имбирными пряниками и не только.Формат: PNGРазрешение файлов: 1157 x 2500 - 4608 x 3456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF4DB34AB3C9762FBADB400C2ED55113D4348C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799294   (66488) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0FF4258AF973214B9B148645478CB6647922D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799295   (66486) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Space Elements Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на космическую тему.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799296   (66483) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Fish Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с рыбами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799302   (66480) от 27.05.2025
-
-Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799301   (66476) от 27.05.2025
-
-Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зернистые текстуры под бумагу в пастельных тонах.Формат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799290   (66460) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BD4C28A354EEDD821479C379974BE0A278F07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799288   (66459) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889E6460A9410A56E380641A952D7E9AB87BBB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800090   (66339) от 31.05.2025
-
-Фоны - sugamiart - Creative Fabrica - Blue Christmas Glitter Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных разноцветных блестящих фонов.Формат: JPGРазрешение файлов: 1000 x 1000 - 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D83AD8946708E321A958B16374C4E6E859697B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800096   (66333) от 31.05.2025
-
-Растровый клипарт - SapphireDreamscape - Creative Fabrica - Feathered Fans PNG Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект вееров с перьями.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481FB39EF81F962EAA4E16E2DED8D256F365701C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800091   (66331) от 31.05.2025
-
-Растровый клипарт - SapphireDreamscape - Creative Fabrica - Colorful Balloons PNG Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор разноцветных воздушных шаров.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E234B93FD04A46E767FDC5526C1F1CA026EADFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800908   (66262) от 07.06.2025
-
-Растровый клипарт - Luv Bijou - Creative Fabrica - Budgerigar Watercolor Clipart Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с волнистыми попугайчиками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B511D380C9F03658BD1EBCB72BB50F08EA50B3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800915   (66260) от 07.06.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Romantic Floral Seamless Patterns [PNG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Princess Tiara Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочные бесшовные орнаменты (паттерны).Формат: PNGРазрешение файлов: 3600 x 3600
+Клипарт с розовыми тиарами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47A3FA885C7A4832ADF12D9531B67FD72640CEC0
+magnet:?xt=urn:btih:54AA3CBCA13DD6A45AE222DDDE79E20D36554219
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802723   (65994) от 19.06.2025
+###  Публикация: 1794795   (67132) от 03.05.2025
 
-Фоны - FreezeronMedia - Envato - Halftone Red Silk Backgrounds - BT7TLXW [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Deer Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоны с красным шелком.Формат: JPGРазрешение файлов: 5000 x 3500
+Акварельный клипарт с изображением оленей.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAFEF5591A5B414FB21E7D10EE95C490798722DA
+magnet:?xt=urn:btih:79715AAC1F1A638A401FA80590FE1195E377E2BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802728   (65993) от 19.06.2025
+###  Публикация: 1794755   (67131) от 03.05.2025
 
-Фоны - kaleriia - Envato - White Plush Backgrounds - 8SYQAU7 [JPG]
+Растровый клипарт - inpixell.studio -  Creative Fabrica - Cute Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 белых плюшевых фонов.Формат: JPGРазрешение файлов: 5000 x 3333
+Акварельный клипарт с разнообразными изображениями.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA87C9384BCDEFAC775FC36D9504CF5CB460ACE7
+magnet:?xt=urn:btih:9912421C3B7E81D144120F7D541402FD0951E360
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802716   (65989) от 19.06.2025
+###  Публикация: 1794789   (67130) от 03.05.2025
 
-Текстуры - CCpreset - Envato - 20 Table Texture HQ - SZSMB4X [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Bath Time Animals Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6300 x 4200
+Клипарт с животными во время купания.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E152B06B915D99B4376D62DF4F5C39521DCA004A
+magnet:?xt=urn:btih:7CEDA88AAD58796D08E65290C6E2267FE893D486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802726   (65988) от 19.06.2025
+###  Публикация: 1794804   (67129) от 03.05.2025
 
-Текстуры - NassyArt - Envato - 20 White Marble Gold Textures - JWSSV6B [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Dinosaur Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор мраморных текстур с золотыми прожилками.Формат: JPGРазрешение файлов: 6000 x 4000
+Акварельный клипарт с динозаврами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51B764DE60EDD5626D8FD6EBD00750CBF2124B75
+magnet:?xt=urn:btih:12F916DE1FEFFA01C62D6D7A01753A1D1A787321
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802718   (65987) от 19.06.2025
+###  Публикация: 1794775   (67128) от 03.05.2025
 
-Фоны - FadeLine_Std - Envato - Old Steel Gradient Texture Background [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Bath Time Animals Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоны с градиентной текстурой старой (ржавой) стали.Формат: JPGРазрешение файлов: 6400 x 4400
+Клипарт с животными во время купания.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F99EEAD8F65CEC05E63BB1083695E654AD3EB32
+magnet:?xt=urn:btih:01A4665E2FBC2C29B3B9ADE4BBDB6E4463481517
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802715   (65985) от 19.06.2025
+###  Публикация: 1794788   (67127) от 03.05.2025
 
-Текстуры - CCpreset - Envato - 20 Wood Texture HQ - W7DN6RG [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica -  Vintage Teacup Stacks Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6000 x 4000
+Клипарт с винтажными стопками чайных чашек.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5EB86DCCF210BA8C7E3F090F16B8F41B0967BE3
+magnet:?xt=urn:btih:E022CEA67C077B07CB5760156D3C1FDA13F2F16A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802871   (65960) от 20.06.2025
+###  Публикация: 1794757   (67126) от 03.05.2025
 
-Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+Акварельный клипарт с разнообразными изображениями.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
+magnet:?xt=urn:btih:9339B72A9B8F9EA0D7AC8479C218A298A69F116F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802872   (65954) от 20.06.2025
+###  Публикация: 1794776   (67124) от 03.05.2025
 
-Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Bee Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+Акварельный клипарт с пчёлами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
+magnet:?xt=urn:btih:FBEAA10739A853213298D09A707E01AF5A0F7FB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803238   (65892) от 22.06.2025
+###  Публикация: 1794665   (67123) от 03.05.2025
 
-Фоны - Julia_Dreams - Envato - Texturica Papers Textures Textured Backgrounds - L6DTK6J [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Duck with Flowers Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Огромный набор фонов с разнообразной текстурой.Формат: JPGРазрешение файлов: 1994 x 2973 - 3381 x 2959
+Клипарт уток с цветами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D41D86E819152B331057159A0013897700F00F8
+magnet:?xt=urn:btih:9826C94C2257A82200F93C260D8DF52CD6032706
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803237   (65885) от 22.06.2025
+###  Публикация: 1794664   (67122) от 03.05.2025
 
-Текстуры - CCpreset - Envato - 30 Grass Texture HQ - 5VDJAWT [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Retro Beach Heart Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из 30 текстур с изображением травы.Формат: JPGРазрешение файлов: 6300 x 4200
+Пляжный клипарт в ретро-стиле.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
+magnet:?xt=urn:btih:61C413459FD1C18E3B288D92838811D428E5824B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +284,389 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803239   (65880) от 22.06.2025
+###  Публикация: 1794798   (67121) от 03.05.2025
 
-Текстуры - CCpreset - Envato - 40 White Textures HQ - JBC9VTS [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Rainbow Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из 40 белых текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
+Акварельный клипарт с изображениям радуги.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
+magnet:?xt=urn:btih:BD26FAB6780E9DC688DE3E993200B0D642286A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794758   (67119) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Fairy Garden Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на тему "Сказочный сад".Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885EC2129E35DFD25461C6295D859FC555ECFE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794770   (67118) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Haiwaii Cliparts [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные Гавайские клипарты.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD143BCBFC39098F83A5421A420B2475AD99DD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794794   (67116) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Airplane Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с самолетами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3767854D569F77FFD45557691BA2834471A5F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794771   (67115) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Animal Moms Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с животными и их детёнышами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F24E0611D90FD7CFEA45BB938D8FFD5A7B2DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794785   (67114) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Christmas Sweets Cake Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями тортов с рождественскими сладостями.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFEDF1500222D8A9C21133F10C988AD48E33FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794754   (67109) от 03.05.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Bunny Holding a Heart Valentine Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с кроликами и шариками в виде сердца.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DEF32418A981F3B0A7BB3B8D49E4DDFFB70020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794786   (67108) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Bunny Sublimation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сублимационный клипарт с пасхальными кроликами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D30BF18890A89B4C5ADF295D8745AC83EE17CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794763   (67107) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Summer on the Beach [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на пляжную тему.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9042DE328BE397B246B4A95B2492C332C68B8B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794787   (67106) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Undersea Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний подводный клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE168A63CF1B725B5F7ECEFF3351E2B9E8D0EEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795339   (67096) от 04.05.2025
+
+Растровый клипарт - Free PSD Templates - Strawberry Waretcolor [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с клубникой.Формат: PNG, PSDРазрешение файлов: 173 x 194 - 1849 x 741
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657EE56E9AC137FE1FDD33DC79D20061C717F089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795904   (66904) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Tropical Turquoise Birthday Png ClipArt [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тропический клипарт на День рождения в бирюзовых тонах.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040587C230A259230BA7168F432F5F56C8B5DF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795842   (66901) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Stained Glass Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображением витражных стёкол.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C5A3B15D3BFBFA5CCB19DD3D7F63AFEDDDFA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795899   (66897) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Summer Beach Holiday Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на тему летнего пляжного отдыха.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48D706FDB6A5CFB35077A95037FE52C9C90072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795840   (66893) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Watercolor Lighthouse Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные фоны с изображением маяка.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

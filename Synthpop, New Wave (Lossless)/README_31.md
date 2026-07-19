@@ -1,32 +1,3 @@
-###  Публикация: 1740185   (48175) от 01.08.2024
-
-Kazaky - Like It (Part I) (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Electro House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Secret Mission	2:48
-02		Crazy Law	3:51
-03		Doesn't Matter	3:41
-04		Touch Me	3:21(   Читать дальше...   )Жанр: Synth-pop, Electro HouseПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759B3DE0EC7E94A61E5E66C104536176FAEC408A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740102   (48173) от 01.08.2024
 
 Krachtek Elektronik - Oslo Syndrome (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
@@ -745,6 +716,35 @@ Cosmic Ally - Twin Sun (2005) [FLAC|Lossless|tracks + .cue] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7680C3AC11C40E701800DBEAC30CBC80EBC930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770519   (32290) от 01.01.2025
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amandi - Space Hunter (5:33)
+02. Digital Galaxy - Wind Of Phaeton (5:33)
+03. Laserlight feat. NeoSpace - Flying To The Stars (6:09)
+04. Ray Orion - Synapse (6:05)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E74C80C9E92ED53E0EBD5C57EF4A45C7CD3595
 ```
 
 https://mybot314.ru/tekegram_catalog/

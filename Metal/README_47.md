@@ -1,3 +1,90 @@
+###  Публикация: 906192   (645651) от 08.06.2015
+
+Neurotech - Stigma (2015) [MP3|320 кб/с]<Industrial, Cyber Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stigma
+02. Fear the Fear
+03. Of Adversity
+04. Built to Last(   Читать дальше...   )Жанр: Industrial, Cyber MetalПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7269CC9226DAF164AD0141AF3E309CEEC3E6E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292674   (645087) от 30.03.2019
+
+Bloodbound - Rise of the Dragon Empire (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645087.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Rise Of The Dragon Empire (4:37)
+ 2 - Slayer Of Kings (5:04)
+ 3 - Skyriders And Stormbringers (3:52)
+ 4 - Magical Eye (3:51)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC0CE40A493BC40B96891F627E7A47DFD258BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141934   (644852) от 13.06.2017
+
+Nemesis - The Day of Retribution (1984) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Messiah
+02 - In God We Trust
+03 - Theme of the Guardians
+04 - The King Is Dead(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF80D9081B320A8E79D4A4735E05FEE99B8938A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292665   (644701) от 30.03.2019
 
 Manowar - The Final Battle I (2019) EP [MP3|320 Kbps] <Heavy Metal>
@@ -664,99 +751,6 @@ Risen Prophecy - Into the Valley of Hinnom (2015) [MP3|320 кб/с]<Thrash / Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3522E7986FF11846F62578C9FFB85EB6918A3F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907382   (639918) от 11.06.2015
-
-Nergard - A Bit Closer To Heaven (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light And Shadows (feat. Ralf Scheepers, Nils K. Rue, Andi Kravljaca, Ole Martin Moe Thornaes)
-02. Fall From Grace (feat. Thomas Loseth)
-03. On Through The Storm (feat. Elize Ryd, Andi Kravljaca)
-04. Let It Come (feat. Michael Eriksen. Guitar solo by Oyvind Voldmo Larsen)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481C6AD5D395D3973C245CE51205CE51B77A5509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907358   (639916) от 11.06.2015
-
-Stormhammer - Echoes Of A Lost Paradise (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rememberance
-02. Glory Halls of Valhalla
-03. Fast Life
-04. Echoes of a Lost Paradise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0EDDACCDE30F541B1761856800962A628E760E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518669   (639675) от 05.07.2012
-
-Poison Sun - Virtual Sin (2010) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo
- 02. Red Necks
- 03. Hitman
- 04. Rider In The Storm
- 05. Killer
- 06. Virtual Sin
- 07. Princess
- 08. Phoebia
- 09. Excited
- 10. ForeverЖанр: Heavy MetalПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D8914AF0C6598C9BEC7046A2BB1128E5113034
 ```
 
 https://mybot314.ru/tekegram_catalog/

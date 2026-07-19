@@ -1,3 +1,30 @@
+###  Публикация: 1526494   (738387) от 24.01.2022
+
+Mozilla FireFox 96.0.2.8054 Portable by JolyAnderson [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla FireFox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
+Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A4EAB10E7A2C7C07C6B8D5ABDFE7F4B1467ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526471   (738386) от 24.01.2022
 
 CCleaner 5.89.9385 Free / Professional / Business / Technician_Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -650,32 +677,6 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554FC98FB68C5D83DC0DE71B9E7441EAFFDEC87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526900   (737769) от 26.01.2022
-
-Auslogics Disk Defrag Pro 10.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239B4475AA4C1A314B73C1A6E18AF81158A6A58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

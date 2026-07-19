@@ -1,3 +1,61 @@
+###  Публикация: 1850144   (1053959) от 26.01.2026
+
+VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kaxamalka - Bugambilia (04:00)
+ 02 - Breviarium Musicae - Aubade (04:10)
+ 03 - Vis et Spes - Love Play (04:30)
+ 04 - Lichterloh - Douceur (04:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B1FABB5AD257E858E598A9F45F8BDA34BE47EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848937   (1053213) от 19.01.2026
+
+VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Burrow World (6:11)
+02. Tibetania - Desert Stomping (6:05)
+03. Tibetania - Down Tempo Vibes (4:46)
+04. Indiano - The Crossing (7:01)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C1EE2AF972D0EB045C00F14FE1460713566075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848762   (1052855) от 18.01.2026
 
 VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -607,35 +665,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602925   (1045858) от 08.01.2023
-
-VA - Chill N' Orient - Essential Oriental Chill Out Moods (2006) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amira Alaf - Khandhalha (3:33)
-02. Oman Chali - New Hopes (2:55)
-03. No.on - Morning (4:00)
-04. Love Reprise - A Special Gift (1:04)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF920DA6B6778D824EB0C9AD0D5AD49184911EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602938   (1045856) от 08.01.2023
 
 VA - Chill Out Lounge Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
@@ -665,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602958   (1045850) от 08.01.2023
+###  Публикация: 1604173   (1045491) от 12.01.2023
 
-VA - Sunrise Lounge & Chillout, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rob Downbeat - Cosmicon (5:10)
-02. Dulcis Domus - 19:42 P.m. (7:22)
-03. Kenny Laakkinen - Winner Lounge (6:35)
-04. Blue Wave - Eu Gosto De Voce (5:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:58:55
+01. Matt Sour - Sitting Alone (Original Mix) (4:35)
+02. Filalete - Soul Design (3:14)
+03. Ian Otta - Rainy Sunday (4:16)
+04. Hölderlin - Lullaby (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40DBFC28AECD37CB9DA292842BAF5165938D8DE4
+magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,57 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603257   (1045848) от 08.01.2023
+###  Публикация: 1605934   (1044729) от 19.01.2023
 
-GARRISON (Игорь Савосин) - Musical Contact (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Water (4:24)
-02. Astral Space (6:07)
-03. Enigma (4:08)
-04. Positive Energy (4:51)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E3D608D58E818635B98FB1251430063DE8236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602951   (1045846) от 08.01.2023
-
-VA - Lounge Music Bar and Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1045846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vis Et Spes - Served With A Flourish (6:03)
-02. Aqua Mundi - Pescadores De Altura (5:54)
-03. Roesselsprung - Among The Firs (5:46)
-04. Ackeret - Surprisingly (6:03)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:51:33
+01. Kool&Klean - River Flows in You (04:37)
+02. Chillaxing Jazz Kollektion - Evening Sun (05:24)
+03. Konstantin Klashtorni - Humble and Kind (04:06)
+04. Chillaxonic - Aurora (05:13)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:26:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2355D6177DD999A887A3FBCA7D3747A43837FDDB
+magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

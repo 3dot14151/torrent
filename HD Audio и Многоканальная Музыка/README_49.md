@@ -1,3 +1,31 @@
+###  Публикация: 1618995   (249796) от 14.03.2023
+
+Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
+2013 - Synchronicity
+2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538612   (249634) от 22.03.2022
 
 Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Records  [DST64 2.0, 5.1|1bit/2822,4kHz |SACD-R] <Art Rock, Prog Rock>
@@ -56,35 +84,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 253090   (246749) от 26.07.2023
-
-Андрей Макаревич и Оркестр Креольского Танго - Старая Машина (2006) [DTS 5.1|1411 kb/s|Апмикс]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_246749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький город
-02. Эпоха большой нелюбви
-03. Он был старше ее
-04. Мы расходимся по домам(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623217   (245973) от 01.04.2023
 
 Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
@@ -136,35 +135,6 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620006   (245766) от 20.03.2023
-
-Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
-2005 - Hordes of The Brave
-2009 - Shadow Of The Red Baron
-2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -742,6 +712,33 @@ A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542187   (243620) от 06.04.2022
+
+Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
+2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

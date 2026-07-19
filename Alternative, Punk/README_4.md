@@ -1,3 +1,61 @@
+###  Публикация: 1093788   (932430) от 16.01.2017
+
+Saviour - Let Me Leave (2017) [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore, Male & Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April
+02. All I Am Is You
+03. The Quiet Calm
+04. Pressure And Composure(   Читать дальше...   )Жанр: Melodic Hardcore, Post-Hardcore, Male & Female VocalsПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E3116E7628CBB55FE9DD4A65EE2D51AF8D3318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093790   (932375) от 16.01.2017
+
+Code Orange - Forever (2017) [MP3|320 Kbps] <Hardcore Punk, Chaotic Hardcore, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932375.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Forever
+2. Kill The Creator
+3. Real
+4. Bleeding In The Blur(   Читать дальше...   )Жанр: Hardcore Punk, Chaotic Hardcore, SludgeПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8ABA0D965F59B8C8F80499BF5921F18E5F52E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987498   (926024) от 17.02.2016
 
 VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Hardcore Punk, Skate & Street Punk>
@@ -690,64 +748,6 @@ Afterlife - Vicious Cycle (2017) EP [MP3|320 Kbps] <Nu Metal, Metalcore, Rapcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79B70DA2C627F0A685E9D0C58EE9CAF88B777CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102237   (891188) от 09.02.2017
-
-Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fight the Fight
-2. The Edge
-3. The Other Side
-4. Perfect Combination(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371792   (888707) от 01.04.2020
-
-Ty Segall - Segall Smeagol (2020) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coconut
-02. Gotta Get Up
-03. Drivin Along
-04. Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ABCF0E724DCF838128F51F9ED0BD4E9830CD15
 ```
 
 https://mybot314.ru/tekegram_catalog/

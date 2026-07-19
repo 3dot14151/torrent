@@ -1,29 +1,3 @@
-###  Публикация: 1243037   (495719) от 25.08.2018
-
-3D модели - TurboSquid - Mercedes-Benz SS Roadster 1930 Erdmann&Rossi retro legend sport cabriolet - 641235 [MAX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495719.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: MAX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972C5E3ED9BA54A8C84A35A008AD920DF7103291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243136   (495587) от 25.08.2018
 
 3D модели - Hum3D - Skoda Karoq 2018 [MAX, 3DS, FBX, LWO]
@@ -675,6 +649,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAD5018BAE64515C58CF1D8421F75B0E7E3E2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407679   (461868) от 09.09.2020
+
+3D модели - Daz 3D - Scar 8 Pro Bundle - 70885 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Scar 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FE610B32DAEEB3B7129D95D95AE3D7D771A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

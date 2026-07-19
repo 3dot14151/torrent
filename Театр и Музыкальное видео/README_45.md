@@ -1,32 +1,3 @@
-###  Публикация: 1388642   (784183) от 11.06.2020
-
-Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadcast on Public Broadcasting Stations in the US, The Sarah Brightman Special, Harem: A Desert Fantasy was widely available for purchase on DVD. In addition to containing videos of songs from Harem, it also included new videos of “Time to Say Goodbye” and “Anytime, Anywhere,” a photo gallery, a thirty minute “Behind the Scenes” documentary, and a 5.1 surround (   Читать дальше...   )1. Harem (Cancao do Mar)
-2. Beautiful
-3. Mysterious Days
-4. Anytime, Anywhere(   Читать дальше...   )Производство: Austria, DoRo Produktion / USA, Angel Records / EMIЖанр: Classical Crossover, Adult Contemporary, Ethnic Fusion, Adult Alternative, Vocal Pop, Spoken Word, Middle Eastern Pop, Middle Eastern TraditionsРежиссер: Rudi Dolezal, Hannes RossacherАктеры: Sarah BrightmanПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08FD5812E1DFE198111FC49209C4FD7E8813F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389592   (784175) от 11.06.2020
 
 David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
@@ -721,6 +692,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98886E8CCBC2AC50874934DC796C87A3C971311A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012639   (777219) от 05.05.2016
+
+Сергей Прокофьев - Каменный цветок / Sergei Prokofiev - The Stone Flower (1990) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777219.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу сюжета положен сказ Павла Петровича Бажова «Малахитовая шкатулка», где глубокая и верная любовь уральского мастера-камнереза Данилы и его невесты Катерины преодолевает все испытания. Обручённый с Катериной, Данила отправляется на поиски Каменного цветка - символа красоты и совершенного мастерства. Он попадает в подземное царство Хозяйки Медной Горы. Данила (   Читать дальше...   )Производство: Россия, Япония, Большой Театр, ArtHaus MusikЖанр: Балет, сказкаРежиссер: Юрий Григорович, Сюдзи ФудзииАктеры: Людмила Семеняка, Нина Семизорова, Николай Дорохов, Юрий ВетровПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862C90294669EEB09866FACC405F865BE6435F90
 ```
 
 https://mybot314.ru/tekegram_catalog/

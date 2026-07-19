@@ -1,25 +1,22 @@
-###  Публикация: 1796613   (18642) от 11.05.2025
+###  Публикация: 1759972   (37598) от 11.11.2024
 
-Sting - 3.0 Live (2025) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+Marillion - 4 Albums (1991-2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Pop Rock, Symphonic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Message in a Bottle
-02. Englishman in New York
-03. Fields of Gold
-04. Seven Days(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:36
+Жанр: Prog Rock, Pop Rock, Symphonic RockПродолжительность: 6 CD, 09:02:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E7E400355D5C47718E4DEDFF47C994FD1F1D400
+magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797587   (17988) от 17.05.2025
+###  Публикация: 1759961   (37574) от 11.11.2024
 
-Fleetwood Mac - Like Crying: The Songs of Danny Kirwan (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coming Your Way (2013 Remaster)
-02. When You Say (2013 Remaster)
-03. One Sunny Day (2013 Remaster)
-04. Although the Sun Is Shining (2013 Remaster)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:35:51
+01 – Only You
+02 – A Place We Call Home
+03 – Brand New Day
+04 – Baby I Love You(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:07:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8DDCF56A78218BB2B82DF22C167B154878D7085
+magnet:?xt=urn:btih:9E6E048BDDBEC2B095C5E321155E6714A4A0BABD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797340   (17981) от 17.05.2025
+###  Публикация: 1760228   (37480) от 12.11.2024
 
-Rush - Rush 50 (2025) 4CD Anniversary Super Deluxe [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
+The Alan Parsons Project - Pyramid (1978) Reissue, Remastered, 2024, Cooking Vinyl [FLAC|Lossless|tracks + .cue] <Progressive Rock, Crossover Prog>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. - Not Fade Away [03:17]
-02. - You Can't Fight It [02:49]
-03. - Working Man (Vault Edition) [07:10]
-04. - Need Some Love (Live At Laura Secord Secondary School, St. Catharines, Ontario, Canada - 4/1/1974) [03:11](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 04:41:13
+01. Voyager (2:14)
+02. What Goes Up... (3:40)
+03. The Eagle Will Rise Again (4:22)
+04. One More River (4:16)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:52:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6232F08351D53BB0B16A14E7659C5B4D3D3C9A0F
+magnet:?xt=urn:btih:9063480F93D51269B15BEF081F265A266CFAEE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798099   (17517) от 21.05.2025
+###  Публикация: 1760274   (37360) от 13.11.2024
 
-Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
+Rick Wakeman - Yessonata (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When You Got a Good Friend    [0:03:20.32]
-02. Little Queen of Spades    [0:04:57.70]
-03. They’re Red Hot    [0:03:25.08]
-04. Me and the Devil Blues    [0:02:56.37](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:49:31
+01. Yessonata [00:20:23]
+02. The King Arthur Piano Suite [00:20:03]Жанр: Symphonic Progressive RockПродолжительность: 00:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
+magnet:?xt=urn:btih:A5504F3A11BC097F68F334D5CA2421DDE58BA727
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549864   (17361) от 23.05.2025
+###  Публикация: 518392   (37232) от 15.11.2024
 
-Без Обмежень / БеZ Обмежень / Without Limits - 8 Albums + 11 Singles + 4 Compilations + Live (2012-2024) [FLAC|Lossless|tracks] <Pop Rock>
+Asia - XXX (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_17361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2012 - Without Limits
-2016 - #DИХАЮТОБОЮ
-2017 - 5Хвилин
-2018 - Буду з тобою!Жанр: Pop Rock |Продолжительность: 08:54:44 |
+01. Tomorrow The World (6:47)
+02. Bury Me In Willow (6:01)
+03. No Religion (6:36)
+04. Faithful (5:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C14DF0DFB2E2EB5026AD3C7BEB29C52501ABA3
+magnet:?xt=urn:btih:5AD50813801FD4958EA6E0323E88DE7CEFBC7837
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798611   (17245) от 23.05.2025
+###  Публикация: 1760640   (37224) от 15.11.2024
 
-John Lennon - Acoustic (2004) Compilation [FLAC|Lossless|image + .cue] <Rock>
+Rockets - The Final Frontier (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Acoustic - сборник демо-записей, студийных и живых выступлений John Lennon'а, в которых он использовал акустическую гитару, выпущенный в 2004 году. Хотя он не попал в чарты в Великобритании, Acoustic достиг 31-го места в Соединенных Штатах, став лучшим посмертным релизом John Lennon'а в США с момента выхода в 1988 году саундтрека Imagine: John Lennon. Он продержался (   Читать дальше...   )01. Working Class Hero (4:00)
-02. Love (2:32)
-03. Well Well Well (1:17)
-04. Look at Me (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:01
+01. Ride The Sky (4:20)
+02. Stand On The World (4:13)
+03. Flesh and Bones (5:56)
+04. All 4-One (3:47)(   Читать дальше...   )Жанр: Space RockПродолжительность: 00:55:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA0639A67C3594CFBEF9E5533C8D1AB045B06BB
+magnet:?xt=urn:btih:6E637CADC461EE8384431C15C6735A3E079F9F53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810823   (16841) от 06.08.2025
+###  Публикация: 1760596   (37194) от 15.11.2024
 
-38 Special - Extended Versions: The Encore Collection (2000) [FLAC|Lossless|tracks + .cue] <Classic Rock, Southern Rock>
+Linkin Park - From Zero (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rockin’ Into the Night (4:54)
-02. Twentieth Century Fox (4:02)
-03. Back Where You Belong (4:31)
-04. Wild‐Eyed Southern Boys (5:20)(   Читать дальше...   )Жанр: Classic Rock, Southern RockПродолжительность: 00:49:38
+01. From Zero (Intro) (0:22)
+02. The Emptiness Machine (3:10)
+03. Cut the Bridge (3:49)
+04. Heavy Is the Crown (2:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:31:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
+magnet:?xt=urn:btih:B06D5DF3253A6CFBDB16682C5841DD911B873036
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799452   (16699) от 27.05.2025
+###  Публикация: 1761458   (36660) от 20.11.2024
 
-VA - Rock Klassiker (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Sandy Hall - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Singer-Songwriter>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Green Day - American Idiot (2:54)
-02.  Deep Purple - Hush (2014 Remaster) (4:24)
-03.  Skillet - Hero (3:07)
-04.  Jet - Are You Gonna Be My Girl (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:30
+01. My Feeble Words (03:59)
+ 02. Love Still Remains (03:35)
+ 03. The River Calls Me Home (03:51)
+ 04. Break The Cycle (03:57)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Singer-SongwriterПродолжительность: 00:45:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1935CF577DCF5CBF27F93BC95C48686B4C201E7
+magnet:?xt=urn:btih:B35B0E7089700C88FCFC81E3692791EB4D69C36D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811003   (16692) от 07.08.2025
+###  Публикация: 1761502   (36603) от 21.11.2024
 
-Good Charlotte - Motel Du Cap (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Pop Punk>
+Queen - Queen I (1973) 2xCD, SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Check in at Motel Du Cap (01:45)
- 02 - Rejects (02:55)
- 03 - Stepper (03:17)
- 04 - I Don’t Work Here Anymore (03:41)(   Читать дальше...   )Жанр: Alt. Rock, Pop PunkПродолжительность: 00:41:22
+CD1 - 2024 - MIX:
+01. Keep Yourself Alive
+02. Doing All Right
+03. Great King Rat(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:40:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A325A1952BD9CD00F97EC92C94E584170F72335E
+magnet:?xt=urn:btih:B50C7AFB57B02F63AFC65243696E5653F6B9EC04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799450   (16669) от 27.05.2025
+###  Публикация: 1761706   (36593) от 21.11.2024
 
-VA - Pride Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+VA - Emotional Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Linkin Park - The Emptiness Machine (3:10)
-02.  Halestorm - Get Lucky (3:09)
-03.  GAYLE - abcdefu (2:49)
-04.  Lizzo - Love in Real Life (2:34)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:45
+01. Linkin Park - The Emptiness Machine (3:10)
+02. Paramore - crushcrushcrush (3:09)
+03. Green Day - Holiday Boulevard of Broken Dreams (8:13)
+04. Black Stone Cherry - Rolling in the Deep (Live) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:995AF51FF9EF7DC11CA086EB8B3EFBA596B6E62D
+magnet:?xt=urn:btih:9412F597D8E21E5FB87DA4E87D851765B28C59EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +283,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799444   (16655) от 27.05.2025
+###  Публикация: 1761696   (36458) от 22.11.2024
 
-VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+VA - 21 Winners: Fabulous 50's (2001) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Early R&B, Early Pop/Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Hoobastank - The Reason (3:53)
-02.  Aerosmith - Dream On (Live Version) (4:51)
-03.  The Cranberries - Linger (4:34)
-04.  Bon Jovi - I'll Be There For You (5:46)(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:09
+01. Pat Boone - Ain't That a Shame (2:21)
+02. The Platters - The Great Pretender (2:37)
+03. Bill Doggett - Honky Tonk, Pt. 1 (3:03)
+04. George Hamilton IV - A Rose and a Baby Ruth (2:23)(   Читать дальше...   )Жанр: Rock & Roll, Early R&B, Early Pop/RockПродолжительность: 00:53:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7836392E46B54C63384C4F58808E194023B056CB
+magnet:?xt=urn:btih:2D3747F84531E639E2F87855DBD9B015985FADB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596602   (16605) от 28.05.2025
+###  Публикация: 1762549   (36046) от 26.11.2024
 
-Брати Гадюкіни - 7 Albums + 3 Live + 1 Compilation + 1 Single (1989-2019) [APE, FLAC|Lossless|image + .cue, tracks] <Punk Rock, Folk Rock>
+VA - Rock Women - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1989 - Всьо Чотко (2004 - Караван CD)
-1991 - Ми - хлопці з Бандерштадту (2002 - Lavina Music)
-1994 - Було не любити (2002 - Lavina Music)
-1999 - Щасливої дороги! (1999 - Караван CD)Жанр: Punk Rock, Folk Rock |Продолжительность: 10:29:26 |
+01. Linkin Park - The Emptiness Machine (3:10)
+02. GAYLE - abcdefu (2:49)
+03. Halestorm - Get Lucky (3:09)
+04. Amira Elfeky - Will You Love Me When I’m Dead (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EE6CE6FCDA24F19E3DDE498DF3D817E61C89D19
+magnet:?xt=urn:btih:1565584D1672DE5A3E10CBF1AC2EC8E8335EBDA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799553   (16521) от 28.05.2025
+###  Публикация: 1762762   (35927) от 27.11.2024
 
-Suzi Quatro - If You Knew Suzi… (1978) 2017 Remaster, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
+Paris - Hungry 4 Action (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Change My Luck
-02. Tired Of Waiting
-03. Suicide
-04. Evie(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:38:05
+01. Hungry 4 Action
+02. Don't Count On Me
+03. Face The World
+04. Not Broken(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E2FDA79CADCCE598F6A8B9D55D3C0A1F9E9A8DB
+magnet:?xt=urn:btih:A4EE87CEA44786210C2E28A1E22B69E26CDC5D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800402   (15859) от 02.06.2025
+###  Публикация: 1763211   (35642) от 30.11.2024
 
-Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remastered, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Rock, Pop>
+Status Quo - Driving to Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coming Up
-02. Temporary Secretary
-03. On the Way
-04. Waterfalls(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:38:43
+01. Driving To Glory (3:45)
+02. Analyse Time (3:38)
+03. Fighting With The Pack (4:34)
+04. Obstruction Day (3:48)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:26:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A67F5DD758A5BEC6115AE77540A248AFF52F8274
+magnet:?xt=urn:btih:51429DAA39CA1ED042A16D83E99C249C2BEDDD69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058177   (15709) от 04.06.2025
+###  Публикация: 208993   (35582) от 01.12.2024
 
-The Rolling Stones - Studio Albums 28, Live 37, Compilations 42, Singles 16, Box Sets 4 (1964 - 2023) 302 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Blues Rock, Classic Rock>
+Electric Light Orchestra - Definitive Collection (1992) [FLAC|Lossless]<Art-Rock, Pop-Rock,Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История группы The Rolling Stones началась со знакомства Мика Джаггера и Кита Ричардса. Дебют группы состоялся 12 июля 1962 года на сцене Marquee Jazz Club. В первый состав рок-группы вошли Мик Джаггер (Mick Jagger) – вокал; Кит Ричардс (Keith Richards) – ритм-гитара, вокал; Дик Тейлор (Dick Taylor)– бас; Брайан Джонс (Brian Jones) – соло-гитара, вокал; Иэн Стюарт (   Читать дальше...   )Список альбомов:
-1964 The Rolling Stones
-1964 England's Newest Hit Makers
-1964 12x5Жанр: Blues Rock, Classic Rock, Rock & RollПродолжительность: 235:39:34
+01. Showdown — [04:11]
+02. Eldorado Overture — [02:12]
+03. Can't Get It Out of My Head — [04:23]
+04. Evil Woman — [04:17](   Читать дальше...   )Жанр: Art-Rock, Pop-Rock,Soft RockПродолжительность: 01:13:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64840AEB3E951195A2416BCEB59AE9DA18620852
+magnet:?xt=urn:btih:91553E1F32F07ED43B89AAB52269CA23E0D9D121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800563   (15630) от 04.06.2025
+###  Публикация: 242328   (35573) от 01.12.2024
 
-Paul McCartney - Tug Of War (1982) Japanese Edition, SHM-CD, Reissue, Remastered, 2025, Capitol Records, Limited Edition [FLAC|Lossless|image + .cue] <Pop Rock>
+The Beatles - Hot As Sun (2010) Bootleg [FLAC|Lossless]<Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tug of War
-02. Take It Away
-03. Somebody Who Cares
-04. What’s That You’re Doing?(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:16
+В сентябрьском номере журнала «Rolling Stone» за 1970 год был опубликован слух о якобы потерянном альбоме The Beatles, записанном в период между февралем и маем 1969 года. По слухам, мастер-ленты этого самого альбома были украдены кем-то из персонала студии «Abbey Road», похититель требовал большой выкуп за возвращение ленты. Но случайно (или нет) лента прошла сквозь (   Читать дальше...   )01. Maxwell's Silver Hammer [3:44]
+02. Don't Let Me Down [3:12]
+03. Hot As Sun [1:25]
+04. Junk [2:23](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39889977A8326B1009635953D35956A08F3A6EB7
+magnet:?xt=urn:btih:F4EF75D8A4B21EBDF77E75697552E8938D285443
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800767   (15575) от 05.06.2025
+###  Публикация: 779832   (35547) от 01.12.2024
 
-Paul McCartney - Pipes Of Peace (1983) Japanese Edition, SHM-CD, Reissue, Remastered, 2025, Capitol Records, Limited Edition [FLAC|Lossless|image + .cue] <Rock Pop>
+Black Stone Cherry - Hits, Rareties And Live (2014) [FLAC|Lossless]<Rock, Acoustic Rock, Hard Rock,>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pipes of Peace
-02. Paul McCartney feat Michael Jackson / Say Say Say
-03. The Other Me
-04. Keep Under Cover(   Читать дальше...   )Жанр: Rock PopПродолжительность: 00:39:02
+Приложением к июньскому номеру журнала Classic Rock (ROC197-06-14) вышел диск интереснейшей американской группы Black Stone Cherry. Лучшие песни, отобранные самими музыкантами, дают представление об их творчестве и не богатой, но очень интересной дискографии (на диске представлены композиции с каждой из выпущенных 3 пластинок). А первая "забойная" вещь (   Читать дальше...   )01. Me And Mary Jane  (4:09)
+02. Lonely Train  (3:52)
+03. Blind Man  (3:40)
+04. White Trash Millionaire  (3:20)(   Читать дальше...   )Жанр: Rock, Acoustic Rock, Hard RockПродолжительность: 00:48:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BC6C185057C48BA9D4CD66E1827A4DDF356AF9A
+magnet:?xt=urn:btih:8C44CFC78BA0F82C34600EC8E402C03E4FCF7F92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +486,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800504   (15573) от 05.06.2025
+###  Публикация: 1763527   (35426) от 02.12.2024
 
-Jeff Lynne's ELO - Wembley or Bust (2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+VA - Modern Power Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballads>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - 10538 Overture [4:49]
-02 - Twilight [4:46]
-03 - Ma.Ma.Ma Belle [4:08]
-04 - Shine a Little Love [3:55](   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:38:38
+01. Benson Boone - GHOST TOWN (3:14)
+02. Ed Sheeran - Perfect (4:24)
+03. Zach Bryan feat. Kacey Musgraves - I Remember Everything (3:48)
+04. Christina Perri - Jar of Hearts (4:07)(   Читать дальше...   )Жанр: Pop-Rock, BalladsПродолжительность: 01:59:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC6C13BAFD9AA4F92FAECCBE3F14FA63228D6586
+magnet:?xt=urn:btih:DEBA3534808C76D284D4B3BE3969107B322EBB9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +515,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800727   (15542) от 05.06.2025
+###  Публикация: 1763415   (35421) от 02.12.2024
 
-Foreigner - Extended Versions (2011) Compilation [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
+1997 - Notes From Underground (2009) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбом Extended Versions, вышедший 26 апреля 2011, представляет ветеранов-рокеров Foreigner, исполняющих концертный сет из своего тура 2010 года. Всего 12 треков бьющие по живому непрерывным шквалом классических хитов группы, таких как Double Vision, Cold as Ice, Hot Blooded и Dirty White Boy, и это лишь некоторые из них. Этот концертный альбом представляет все хиты, (   Читать дальше...   )01. Double Vision 3:45
-Written-By – Lou Gramm, Mick Jones
-02. Head Games 5:40
-Written-By – Lou Gramm, Mick Jones(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 01:16:00
+01. #1 (4:02)
+02. Hold Yr Breath (5:33)
+03. Sympathy for the Living (3:18)
+04. Falling Down (2:37)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D5CBDF9E3538EE1729F1CA2E9CBBA6DAE1A3FE4
+magnet:?xt=urn:btih:5845C458C01E9C61298A392CDE9130E9FD8F598D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +544,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801023   (15345) от 07.06.2025
+###  Публикация: 1763418   (35420) от 02.12.2024
 
-Paul McCartney - Снова В СССР (1988) Japanese Edition, SHM-CD, Reissue, Remastered, 2025, Capitol Records, Limited Edition [FLAC|Lossless|image + .cue] <Rock Pop>
+Beck - Mutations (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kansas City
-02. Twenty Flight Rock
-03. Lawdy Miss Clawdy
-04. Bring It On Home To Me(   Читать дальше...   )Жанр: Rock PopПродолжительность: 00:38:45
+01. Cold Brains (3:42)
+02. Nobody's Fault but My Own (5:03)
+03. Lazy Flies (3:43)
+04. Canceled Check (3:15)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 00:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:266156D1D027B419351F427F1EF9D7EB86C98DD9
+magnet:?xt=urn:btih:E34BE71C7A67F83D6BAB7B2E0DDDA160FA744F8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800870   (15339) от 07.06.2025
+###  Публикация: 1763646   (35321) от 03.12.2024
 
-Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
+VA - Посередине века. Трибьют Константину Арбенину (2018) Reissue, 2021, Polygon Records [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard to Say I’m Sorry / Get Away    [0:05:07.70]
-02. Look Away    [0:04:03.03]
-03. Stay the Night    [0:03:49.00]
-04. Will You Still Love Me?    [0:05:43.40](   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:54
+01. Джин и Тоник (Трибьют Константину Арбенину) [00:04:04]
+02. Транзитная пуля (Трибьют Константину Арбенину) [00:03:01]
+03. Дом на заказ (Трибьют Константину Арбенину) [00:03:20]
+04. Самолёт (Трибьют Константину Арбенину) [00:04:38](   Читать дальше...   )Жанр: RockПродолжительность: 02:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EAF0A3B6AB89461AFC44C79532D890DD67AF00
+magnet:?xt=urn:btih:241C57A6ED76CEA8AB471B3C08520AFD34A09B02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801300   (15153) от 09.06.2025
+###  Публикация: 1763864   (35211) от 04.12.2024
 
-Paul McCartney - Flowers In The Dirt (1989) Japanese Edition, SHM-CD, Reissue, Remastered, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Rock Pop>
+The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Brave Face
-02. Rough Ride
-03. You Want Her Too
-04. Distractions(   Читать дальше...   )Жанр: Rock PopПродолжительность: 00:54:09
+01. Thinking Only Of You [00:02:16]
+02. I Want You Back [00:03:11]
+03. Such A Lovely Daughter [00:06:04]
+04. Paula [00:03:41](   Читать дальше...   )Жанр: Indie Rock/Rock popПродолжительность: 01:36:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B39C288FBACD601373508F690F36EC7ADCD19A1B
+magnet:?xt=urn:btih:1505429DED3B740FEE70A1D6D5DC71942BE0A779
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801408   (15035) от 10.06.2025
+###  Публикация: 1764019   (35210) от 04.12.2024
 
-Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carry On (04:25)
- 02. If I Could Change Your Mind (04:15)
- 03. Nathalie (03:32)
- 04. Alone With You (04:39)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:59
+01. Out Of The Blue (4:22)
+02. Don't Need Another Heartache (4:36)
+03. No Easy Way Out (3:55)
+04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFA0EC88F83A968F7D564C2F176CF04837BAD839
+magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +660,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801417   (15027) от 10.06.2025
+###  Публикация: 1765412   (34415) от 12.12.2024
 
-Bon Jovi - Bon Jovi + 7800° Fahrenheit (1999) Compilation, Reissue, 2009, Universal Music Group International [FLAC|Lossless|image + .cue] <Arena Rock, Hard Rock>
+Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Bon Jovi:
-1-1 Runaway
-1-2 Roulette
-1-3 She Don't Know Me(   Читать дальше...   )Жанр: Arena Rock, Hard RockПродолжительность: 01:25:43
+01. Chill (5:00)
+02. Change (3:10)
+03. Had a Dream (4:11)
+04. RU (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F6F5E5A301376803A97393E76011B8E15944638
+magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +689,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801862   (14752) от 13.06.2025
+###  Публикация: 1765409   (34398) от 12.12.2024
 
-Queen - Epic (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
+Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Innuendo (Digital Remaster) [06:31]
-02. My Fairy King (Remastered 2011) [04:08]
-03. The Prophet's Song (Remastered 2011) [08:21]
-04. It's Late (Remastered 2011) [06:28](   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 01:10:50
+01. Whiskey (0:17)
+02. No Secrets (3:20)
+03. Hall Light (3:57)
+04. Sweet Little Two-Timer (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB3BDECFA034741E7E957D9728B23109E5840B01
+magnet:?xt=urn:btih:360DB5502C9A8527335159E2FF7169EBEE6B2DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +718,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801877   (14726) от 13.06.2025
+###  Публикация: 1765405   (34395) от 12.12.2024
 
-Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Superman’s Dead    [0:04:16.69]
-02. Automatic Flowers    [0:04:05.31]
-03. Carnival    [0:04:48.05]
-04. Big Dumb Rocket    [0:04:23.65](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:43
+01. Devil on Your Side (2:51)
+02. Blue Monday (3:16)
+03. Piece of You (4:00)
+04. Haunted by You (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
+magnet:?xt=urn:btih:F811893D455F37287953EE7CDE8159A83628560C
 ```
 
 https://mybot314.ru/tekegram_catalog/

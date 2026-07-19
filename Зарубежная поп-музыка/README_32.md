@@ -1,3 +1,32 @@
+###  Публикация: 1140012   (658140) от 04.06.2017
+
+Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comete (3:43)
+02. Voices Of Paradise (3:28)
+03. The Last Day (5:08)
+04. Eire (3:24)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BD69C2BFB8F33BBE83579514B4770B30FA9F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225778   (657821) от 18.05.2018
 
 VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
@@ -722,41 +751,6 @@ Barbra Streisand - The Essential (2CD) (2002) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AFD190E990C0C201262DF369A737CE8DA43E388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516847   (647529) от 01.07.2012
-
-Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Keiner Singt Gern Allein (I Shall Sing)
-2. Dieser Sänger Braucht Nur Ein Chanson
-3. Sie War Ooh!
-4. Ich Hab' Mich Verliebt
-5. In Versailles In Dem Grossen Garten
-6. Meines Vaters Sohn (Un Cadeau De Papa)
-7. Schöne Grüsse An Mama
-8. Septemberwind (L'ete Indien) (Africa)
-9. Immer Weiter
-10. Es Gibt Mädchen So Zum Träumen(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
 ```
 
 https://mybot314.ru/tekegram_catalog/

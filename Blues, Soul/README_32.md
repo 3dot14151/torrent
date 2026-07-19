@@ -1,3 +1,61 @@
+###  Публикация: 1258842   (333039) от 01.11.2018
+
+Giles - Dancing With Dolores (2006) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (05:20)
+02. Freedom (04:40)
+03. Letter To Bush (04:06)
+04. Fallen Angel (02:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9B3666D48D4BFE0B5124FC725DE33C82C90181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258885   (333033) от 01.11.2018
+
+Janie Cribbs & The T.Rust Band - Queen Of Fire (2018) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Fire (05:04)
+02. No Shelter (04:59)
+03. One Of These Days (05:00)
+04. Wouldn't Change A Thing (05:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C40D8D23752B4EE01FE7D9DEF81A76CC98E915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581304   (327207) от 05.10.2022
 
 Rory Gallagher - Deuce (1971) 4CD, 50th Anniversary, 2022, UMC [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ Buck 69 - No Medicine Like The Blues (2013) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A2D12DD8A5EE4B7A6B6B09B13138C430FADF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422995   (304280) от 11.11.2020
-
-Misty Blues - Weed 'Em & Reap (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятый альбом Misty Blues Weed 'Em & Reap, который был выпущен этой весной, содержит большое количество разнообразных звуков - это пластинка, «уходящая корнями в блюзовые традиции, с переходом от джаза, фанка и соула к нему и обратно», по словам группа. У штурвала корабля - солистка Джина Коулман, чей вокал полон, богат и порой преследует. В лучшем случае Weed (   Читать дальше...   )01. No More To Give (05:12)
-02. I Ain't No Giving Tree (04:17)
-03. Blues Coaster (03:30)
-04. Find My Way Again (03:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E4C765C55CFBC8C2178C899A6CB87FC7071AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077323   (302835) от 30.11.2016
-
-Hound Dog Taylor - Hound Dog Taylor And The Houserockers (1971) ) Reissue, 1990, Alligator Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Gone
-02. Walking The Ceiling
-03. Held My Baby Last Night
-04. Taylor's Rock(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98C5A7B6F28DC50D7215C0B9680C332E8C0DF85
 ```
 
 https://mybot314.ru/tekegram_catalog/

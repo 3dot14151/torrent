@@ -1,29 +1,3 @@
-###  Публикация: 1854540   (1057593) от 18.02.2026
-
-IM-Magic Partition Resizer 7.9.0 Professional |Server | Unlimited Edition RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057593.jpg" />
-</div>
-
-
-###  Подробнее
-
-IM-Magic Partition Resizer - надежное программное обеспечение для изменения размера разделов, которое позволяет пользователям расширять, перемещать, сжимать, форматировать, копировать, удалять, создавать разделы и перераспределять свободное место на диске, не разрушая и не изменяя данные в разделе.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFC599ED140B7F7D0310815929EEA533C9E49F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854541   (1057592) от 18.02.2026
 
 NIUBI Partition Editor 10.3.0 Pro / Server / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
@@ -668,6 +642,32 @@ AOMEI Partition Assistant – мощная программа для работ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA76F61DEDBFE683BB99FAC96A1FC99BC6510BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845576   (1050824) от 
+
+Hard Disk Sentinel PRO 6.30 Build 13391 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F692DEA5DF47D292CA4FC34BA6F1A026A8F773B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,30 +1,3 @@
-###  Публикация: 1368780   (906526) от 21.03.2020
-
-Luminar 4.2.0.5577 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar - это полнофункциональный набор для редактирования фотографий, состоящий из цифрового редактора, RAW-конвертера и каталогизатора.
-Он предоставляет более 300 надежных инструментов и функций, включая быструю поддержку RAW, слои, пользовательскую кисть для выборочного редактирования, маскировку, десятки фильтров для фотографий с настраиваемыми настройками, пресетами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EC6A261B1D4A775FC20E13D9196DF02D89A2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866801   (906509) от 06.02.2015
 
 Headdreamer - Lost in Space (2015) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient>
@@ -697,6 +670,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5885DA34AD2E48BC48118BA0DE835A70FB909958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991448   (906193) от 28.02.2016
+
+VA - The Ultimate Trance Collection Vol. 6 (Mixed by Joe Cormack) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Miller - I Believe (Original Mix) (8:14)
+02. Euphoric Feel - Solitary World (Hoyaa & Joakim Sjoberg Remix) (8:01)
+03. Another World & Nuaro Ft Sam Vince - Will You Stay the Night (UDM Remix) (7:48)
+04. Andy Elliass - Way to Paradise (Original Mix) (7:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417EA25C59DDA6E83D1F36701E92EFA80758EEB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

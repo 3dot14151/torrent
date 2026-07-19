@@ -1,3 +1,32 @@
+###  Публикация: 1620262   (1032328) от 19.03.2023
+
+VA - The Best 70's Music (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Da Ya Think I'm Sexy
+02. Maxine Nightingale - Right Back Where We Started From
+03. Fleetwood Mac - Dreams (2018 Remaster)
+04. Kate Bush - Wuthering Heights(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107EBE4C7F6BFD67A3F1AFE154C84686869D4103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620509   (1032143) от 20.03.2023
 
 VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
@@ -716,35 +745,6 @@ Disco Loveland Orchestra - Koto Around The World. ABBA Investigation (1979) LP [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:376A1D96DA093928D83F7C32F06D15C23C208878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453163   (1027186) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Dress
-2. Chemtrails Over The Country Club
-3. Tulsa Jesus Freak
-4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

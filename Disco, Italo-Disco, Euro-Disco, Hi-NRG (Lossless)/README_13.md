@@ -1,3 +1,102 @@
+###  Публикация: 1552213   (588514) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CAEB2BF5405DE1515E8DDA13D5E138068E40B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809230   (588382) от 31.07.2014
+
+Wish Key - Uno (2010) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acumbacha
+02. Make It Up
+03. The Key Of Sunshine
+04. No Woman No Cry
+05. Last Summer
+06. The One You Love
+07. Life
+08. Orient Express
+09. Make It Up (Maxi Version)
+10. Orient Express (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AF0AD62EEF2E665CDB1B560DE50787013065B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809257   (588339) от 31.07.2014
+
+K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Need Me? (maxi mix)
+02. Catch Me Now I'm Falling
+03. Julia (maxi mix)
+04. Dancing In The Dark
+05. Angel Of The Dreamland (extended version)
+06. Wait, Baby, Wait
+07. Do You Really Need Me? (original version)
+08. Julia (funk b-mix)
+09. Catch Me Now I'm Falling (instrumental)
+10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809496   (587448) от 01.08.2014
 
 T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition [FLAC|Lossless]<Italo-Disco>
@@ -759,103 +858,6 @@ Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4145C8D812DE9DBDC60826F0E58E69873CEAA0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811577   (579459) от 09.08.2014
-
-King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom Dollar (Red Monster Mix) 5:54
-02. Walkie Talkie 3:59
-03. Love & American Dollars 5:27
-04. Lies 4:15
-05. Bingo 6:34
-06. Love Of The Angel 5:41
-07. Gimme Gimme Gimme 6:04
-08. Panic In New York 6:29
-09. It's So Funny 2:53
-10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35D278F72A487C321BBD1D2833FB3A6BD3F08B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303273   (575996) от 19.05.2019
-
-VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GusGus - Add This Song (Patrick Chardronnet Mix Remix) (7:54)
-02. Gui Boratto & Nathan Berger - The Phoenix (4:00)
-03. Matt Sassari - Dope Safari (Natch & Dothen Remix) (6:15)
-04. Superpitcher - Disko ! (You Don't Care) (7:17)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D324EF886E225BAEAF419569513FA9D4E03B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812314   (574962) от 12.08.2014
-
-Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esatto ! 3:44
-02. C'e' Da Spostare Una Macchina 3:45
-03. Il Lupo 4:33
-04. Universal Love (Speaker's Corner) 4:31
-05. Taxi 4:20
-06. Son Contento 4:26
-07. Maionese 4:09
-08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

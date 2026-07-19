@@ -1,29 +1,3 @@
-###  Публикация: 1217044   (745895) от 02.04.2018
-
-Океан Ельзи - Без тебе (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без Тебе (4:20)Жанр: RockПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B0F2E14CA1B5E991D3533D9940CE976EFB5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282438   (745152) от 12.02.2019
 
 Roger Waters - Live In Rome July 14 2018 (2019) Bootleg [MP3|320 Kbps] <Rock>
@@ -743,6 +717,35 @@ Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B39C53C5E509AF9BCCE59EF5146F1A37450A1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399280   (732967) от 01.08.2020
+
+Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Sir (02:57)
+ 02. Wild Ducks And Low Flying Doves (04:08)
+ 03. L.B.F.M. (05:26)
+ 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
 ```
 
 https://mybot314.ru/tekegram_catalog/

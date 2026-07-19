@@ -1,48 +1,22 @@
-###  Публикация: 562577   (405569) от 19.10.2012
+###  Публикация: 558575   (413660) от 10.10.2012
 
-Digital Juice - Jump Backs SD 38: Law & Order (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2031FD7539363CFA119D4CCB7221166E65FE39BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562555   (405564) от 19.10.2012
-
-Digital Juice - Jump Backs SD 54: Fierworks (Full ISO)
+Digital Juice - Photo Knockouts (ISO Install Disk Low)
 
 >>Материалы для мультимедиа и дизайна
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_405564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+Формат: iso
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5E6CC3F1BF5D1714A1CB1EAFE5D18B448FB35EA
+magnet:?xt=urn:btih:84237FF3D15C4E2F7A14C208D68F5A265D9E38D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,391 +24,318 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562584   (405560) от 19.10.2012
+###  Публикация: 711018   (413657) от 15.10.2013
 
-Digital Juice - Jump Backs SD 40: Ethereal (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F334827BC8BE6F184C4659B9A9C01C44E0FEB745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562598   (405543) от 19.10.2012
-
-Digital Juice - Jump Backs SD 28: Subtle Impact II (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B621D132A9E78EE433108FB202CD7BCC1AFEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562561   (405540) от 19.10.2012
-
-Digital Juice - Jump Backs SD 49: All Particles (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FD5319EC36CC989CE1D12C4A4161D773E037D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562595   (405537) от 19.10.2012
-
-Digital Juice - Jump Backs SD 27: International Flags (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD7D85D0FF8C389D0B7680C70D53D766411DCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562554   (405535) от 19.10.2012
-
-Digital Juice - Jump Backs SD 55: Drift Away I (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.Разрешение файлов: 720х576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCB070691ACB7E8325555F98E7F18FDBF0F42D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562581   (405530) от 19.10.2012
-
-Digital Juice - Jump Backs SD 39: Base Camp II (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175F09063FA3D459FF4E712B510D6315C1A4326B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562560   (405505) от 19.10.2012
-
-Digital Juice - Jump Backs SD 50: Fresh Crawl (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F865AD28E744AAAF256AB2BAD1D5303C1A1F17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562607   (405475) от 19.10.2012
-
-Digital Juice - Editor's Themekit 100: Medicinal Effects (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Editor's Themekit 100: Medicinal Effects - Комплект анимации для ваших видео-проектов. Editor's Themekits - наборы анимированной графики, собранные в фокусе определенной темы. Все сборники включают различные типы графических элементов и аудио, которые специально предназначенны для совместной работы - это анимированные фоны, видео-переходы, анимированные элементы, маски и звуковые эффекты. Все элементы с альфа-каналом и могут быть использованы в любой программе видеомонтажа.Разрешение файлов: HD — 1920х1080; SD — 720x576; PSD, PNG (6000х3375 px, RGB)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB04B258497A5847CBA84D6B7C5ED74342D03FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168848   (404935) от 25.09.2017
-
-Растровый клипарт - Set Grass [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт травы на прозрачном фонеФормат: PNGРазрешение файлов: 8000х1144-8000х2504
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF328B9BA07E879224B12881277C97DA6E66E5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168845   (404930) от 25.09.2017
-
-Растровый клипарт - Fruits and Vegetables Collage 4 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллаж из фруктов и овощейФормат: JPGРазрешение файлов: 5000x5000-9000x9345
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208478F312EFB2B8CDAA3D18413EAAE67B82325E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168860   (404929) от 25.09.2017
-
-Шаблоны - Наилучшие пожелания [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь с фоторамкой на 2018 год
-Автор: lunar.elfФормат: PSDРазрешение файлов: 3508х4961
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E26A372F309090280011E8837C2599C91C8D457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168849   (404928) от 25.09.2017
-
-Растровый клипарт - Set Flowers #2 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт цветы на прозрачном фоне (28 шт)Формат: PNGРазрешение файлов: 1412X2500-8000x5817
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F8ED73FFC804375BA1570510F69BDB238C5951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168834   (404927) от 25.09.2017
-
-Растровый клипарт - Festive Clipart #5 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничные объекты без фона. (198шт)Формат: PNGРазрешение файлов: 60х247-1367x3182
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC32E81141B2EBAE825DA6921C6BD16BAEEB828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168829   (404893) от 25.09.2017
-
-Растровый клипарт - Набор из 20 скрапов автора TinyTurtles [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт от TinyTurtles на прозрачном фоне 2418 PNG+805 JPGФормат: PNG, JPGРазрешение файлов: 84x84-800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE637857E49C305EFD007EFB30204179FC18EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168840   (404889) от 25.09.2017
-
-Векторный клипарт - Sale Autumn Backgrounds Set 2 [AI]
+Векторный клипарт - Осенние фоны / Autumn backgrounds [AI,EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние фоныФормат: AI,EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B62E16F70CB78110059F1C19124704432F973F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711065   (413649) от 15.10.2013
+
+Векторный клипарт - Календарь 2014-4 /  Calendar 2014-4 [AI,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь 2014Формат: AI,EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24749A62C0AE27C1C4EA64F82679BE6567DF02CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710893   (413387) от 15.10.2013
+
+Экшены - Graphicriver - Creative Graffiti Street Art [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшен для Фотошопа: Креативное граффити.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9C490B4D6DA06051700949B6EFA15C594FDA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948346   (413339) от 19.10.2015
+
+Шаблоны - Dark Classic set-book and DVD [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический свадебный набор, фотокнига + обложка и задувка на DVD.
+Автор: ELLAФормат: PSDРазрешение файлов: 1686x1686 - 7205x3602 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593036F299CE1746E9A3DA1FEC62E1AF7B5C0703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947858   (413170) от 19.10.2015
+
+Шаблоны - Приглашения для Xara Photo & Graphic Designer [XAR]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послойные шаблоны для создания свадебных приглашений.
+Проекты предназначены для редактирования в Xara Photo & Graphic Designer. Элементы дизайна можно удалять и добавлять.Формат: XAR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410986F8B909A1515EF43621908C6CA0EA3A5B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948120   (413156) от 19.10.2015
+
+Векторный клипарт - Vector gold baroque pattern [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна. Золотые узоры в стиле Барокко.
+7 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4B9EE3538FA379359D50F058C99E2409B3A6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251837   (413080) от 03.10.2018
+
+Экшены - Creative Market - Mixed Media Photoshop Action - 2960779 [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mixed Media - простой в использовании экшен фотошоп без особого усилия превратит вашу обычную фотографию в стилизованную картинку из комикса. Работает со всеми типами изображений. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B80EB42D91D9509BE51F75931F11529AE7B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251841   (413070) от 03.10.2018
+
+Экшены - GraphicRiver - Epic Smoke Photoshop Action - 19844921 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Smoke - экшен фотошоп с эффектом дыма в эпическом стиле. Прост в использовании с хорошо организованными слоями. Для получения наилучших результатов используйте фото с разрешением 300 dpi и размером изображения между 1600-2700 pixels.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42205EF3A4826B50301BECEB9C3EAB49BB87DCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948104   (413055) от 19.10.2015
+
+Векторный клипарт - Wedding Invitations, vector card with roses [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантное оформление пригласительных открыток.
+10 AI | + JPG PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C590FBBD648874F737609D37E622E98C5DB0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948050   (413053) от 19.10.2015
+
+Векторный клипарт - Vintage travel poster [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винтажная реклама туризма.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFAA4F10E16613C497A54BD83AF1FAB318A97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251946   (413023) от 03.10.2018
+
+Экшены - GraphicRiver - Multiple Exposure Photoshop Action - 22613240 [ATN, PAT, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multiple Exposure - этот экшен фотошоп, поможет вам создать удивительный эффект мульти экспозиции, он может быть использован с любым видом фотографий.Формат: ATN, PAT, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC6FE8FA951DBCA232E57585B554AB1FE05D58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251931   (413020) от 03.10.2018
+
+Векторный клипарт - Calendar 2019 with pigs [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413020.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Осенние фоны+TIFF PreviewФормат: AI
+Китайский новый год свиньи 2019.
+6 EPS + preview.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DEB42F45E428ED5C5CDCB1CFF283541A0CFB6D6
+magnet:?xt=urn:btih:77850FC2680837DF6CD7D5479AE9D7F4512B57C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +343,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168851   (404887) от 25.09.2017
+###  Публикация: 948315   (412993) от 19.10.2015
 
-Растровый клипарт - Кленовые, дубовые и другие осенние листья [PNG]
+Шаблоны - Перекидной календарь на 2016год - Дни идут, минуты тают [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт листья на прозрачном фоне (257 шт)Формат: PNGРазрешение файлов: 250x450-3300x3300
+Перекидной календарь с рамками для фото на 2016 год.
+Автор: krot82Формат: PNGРазрешение файлов: 2480 x 3508 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFFFD31BBF3A238242D623B0441EA01FE37D4F5D
+magnet:?xt=urn:btih:4DABC9AC07E3EB974BF299DF0E947D9028F20E64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +370,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563513   (404874) от 21.10.2012
+###  Публикация: 1325634   (412455) от 15.09.2019
 
-Digital Juice - Jump Backs SD 44: Chaos (Full ISO)
+Boom Library - DOGS [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+Dogs - для создания этой библиотеки, автор использовал высокочастотные микрофоны с частотой до 50 кГц, чтобы создать идеальную библиотеку, которая хорошо подходит для интенсивного тона, проектирования и обработки эффектов. Создатели записали десятки животных, предоставляя нам, действительно широкий выбор различных пород собак. Вы получаете полный диапазон от маленького (   Читать дальше...   )Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D144A6E539C7A347AFFA405861C8F0972B3C880
+magnet:?xt=urn:btih:F90C7A36D3CE72EF46D43FC89F9F0102BEA80CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563363   (404864) от 21.10.2012
+###  Публикация: 1325512   (412091) от 15.09.2019
 
-Digital Juice - Jump Backs SD 42: Soft & Subtle (Full ISO)
+Экшены - GraphicRiver - TechnicalArt 3 Photoshop Action - 24222422 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+TechnicalArt - данное действие преобразует ваши изображения в карандашный эскиз. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF8328ABA8A1DC8A66100C82480FB52C67D34F36
+magnet:?xt=urn:btih:3197C8BE258875E8FC6278E92301AF30A5AC65D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563529   (404819) от 21.10.2012
+###  Публикация: 832458   (412011) от 18.10.2014
 
-Digital Juice - Jump Backs SD 47: Simple Thoughts (Full ISO)
+Футажи - Rab-Byte - Volume 19 - Transitions & Wipes (Keyable Transitional Animations) [AVI]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+Cборник анимационной графики Rab-Byte. 79 файлов со звуковыми эффектами.Формат: AVIРазрешение файлов: 720х480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:893E07907A3C23ABE3366EA5128F760B459311F9
+magnet:?xt=urn:btih:484ADE5A322B58AF2F16EE857025CA6AFB1755AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563365   (404816) от 21.10.2012
+###  Публикация: 832259   (412010) от 18.10.2014
 
-Digital Juice - Jump Backs SD 43: Dynamic Impact (Full ISO)
+Футажи - Rab-Byte - Volume 39 - First half of the day "Rings & Roses. A Wedding Collection" [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+Cборник свадебной анимационной графики Rab-Byte. Розы и кольца. 17 клипов.Формат: AVIРазрешение файлов: 720 x 480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4307DB97B88E57B8FD1EB0B89FE95D08950350E
+magnet:?xt=urn:btih:83F484D752EF9B3F5210BD3974A84636424CA291
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +474,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563527   (404815) от 21.10.2012
+###  Публикация: 832387   (412009) от 18.10.2014
 
-Digital Juice - Jump Backs SD 46: Side Scrollers (Full ISO)
+Футажи - Artbeats - Water Effects 2 (PAL) [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+21 клип водных эффектов + 10 анимированных масок.
+
+Перевод от Яндекса: В водные эффекты 2 кристально чистой водой-это везде. Если вы ищете подводные пузыри, брызги и каскады, или капли дождя в воздухе или плескаться в бассейне, если вы нуждаетесь в завораживающую рябь солнечных лучей или под водой, вы сможете найти эти клипы, чтобы быть идеальным вода fx! Есть несколько (   Читать дальше...   )Формат: MOVРазрешение файлов: 720x576
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F3086E5475163C3DD8FA23CFCAEA2E2B875EB4
+magnet:?xt=urn:btih:80CB1D68CA99A5133CA09E204D83D726B7AB3A53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,25 +502,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563361   (404812) от 21.10.2012
+###  Публикация: 832231   (412006) от 18.10.2014
 
-Digital Juice - Jump Backs SD 41: Pure Tech (Full ISO)
+Рамки - Wedding Album [PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+Рамки для свадебного креатив-альбома + Обложка и лейбл для DVD.
+В файлах PSD все слои отделены и отключены.Формат: PSD, JPGРазрешение файлов: 3508x2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF26B6742EAACC654B1FD7F02B7982DE76027AD9
+magnet:?xt=urn:btih:7C16D068AA8E7AEF696920BA81AD22B90A9E6918
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,25 +529,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563519   (404435) от 21.10.2012
+###  Публикация: 1167998   (411969) от 22.09.2017
 
-Digital Juice - Jump Backs SD 45: Ultra Funk (Full ISO)
+Футажи - VideoHive - Glowing Cubes Particles [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Digital Juice
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+Glowing Cubes Particles хорошо подходит для светодиодных видеоэкранов и проекций в ночных клубах и на сцене. И как стильный фон для музыкальных видеороликов, презентаций, слайд-шоу.Формат: MOVРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC3B5FD6D4B4AEDD0929A22BC7B06C0E83CC49F
+magnet:?xt=urn:btih:A5E6F493B201AEC8ECF04785A60F7084448024AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +555,133 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169113   (404002) от 26.09.2017
+###  Публикация: 1325507   (411949) от 15.09.2019
 
-Растровый клипарт - Герберы, лилии и хризантемы [PNG]
+Экшены - GraphicRiver - Hand Drawn Art Photoshop Action - 20933797 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт цветы на прозрачном фонеФормат: PNGРазрешение файлов: 182х467-3497х2811
+Hand Drawn Art - данное действие преобразует ваши изображения в карандашный эскиз. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41601E7494857BB198F65133926C1694C2F273B0
+magnet:?xt=urn:btih:F8D6A4F5245C3FA108251042BAC3AD72C960443F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325501   (411947) от 15.09.2019
+
+Экшены - GraphicRiver - Digital Vector Art Photoshop Action - 23432856 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vector Art - простой в использовании экшен фотошоп стилизует ваши обычные фотографии под векторный рисунок.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FC16DA8D1F882E1CCB30126D87921AF5248BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832425   (411852) от 18.10.2014
+
+Футажи - Rab-Byte - Volume 30 - Wedding Photo Stand "First Half of the Wedding Day" [AVI]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник свадебной анимационной графики Rab-Byte.
+19 файлов из 21. Отсутствуют два клипа (3006 и 3009), которые дублируются с небольшим отличием двумя другими (3005 и 3008).Формат: AVIРазрешение файлов: 640х480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6E40B862C45180CFF1B939759051F073460386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832521   (411846) от 18.10.2014
+
+Футажи - Rab-Byte - Volume 29 - Transitions & Wipes (Keyable Transitional Animations) [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник анимационной графики Rab-Byte. 85 файлов.Формат: MOVРазрешение файлов: 720 x 576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13011B6B4435AD99A7D2BBA7B2B988469F2BEABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832178   (411842) от 18.10.2014
+
+Футажи - Ulead - Pick-a-Video 11 - 3D Universe [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественные анимированные футажи на тему "Космос. Звёздные войны."
+12 видео файлов.
+
+От Injulir:(   Читать дальше...   )Формат: MOVРазрешение файлов: 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778C062E4F2902B4A4DA09CA964F7FDA3C6B6B74
 ```
 
 https://mybot314.ru/tekegram_catalog/

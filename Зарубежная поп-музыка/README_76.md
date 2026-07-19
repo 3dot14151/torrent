@@ -1,3 +1,32 @@
+###  Публикация: 1658023   (191599) от 07.09.2023
+
+Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Virtual Insanity (Remastered) [00:03:49]
+02 - Cosmic Girl (Remastered) [00:03:47]
+03 - Little L (Remastered) [00:03:59]
+04 - Alright (Remastered) [00:03:42](   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3D786DC6D40E09802EB6056C0154E2DCD121A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658323   (191534) от 07.09.2023
 
 VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F6067DF87B4AE81CF5853FC52571E529EA9036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595994   (174011) от 08.12.2022
-
-VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Dance, Nu-Disco, Progressive, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174011.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. A1 & J1 & Tion Wayne - Night Away (Dance) (Clean)
-02. Alok Ella Eyre & Kenny Dope Fe. Never Dull - Deep Down (Radio)
-03. Atb & Topic & A7s - Your Love (9pm) (Clean)(   Читать дальше...   )Жанр: Dance, Nu-Disco, Progressive, Synth-popПродолжительность: 01:19:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

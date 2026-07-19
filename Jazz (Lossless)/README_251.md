@@ -1,119 +1,3 @@
-###  Публикация: 1406883   (240722) от 05.09.2020
-
-Tony Coe, Gerard Presencer, Brian Lemon, Dave Green - Dreams (2001) Zephyr Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrap Your Troubles in Dreams [5:28]
-02. Ghost of a Chance [6:13]
-03. It Had to Be You [4:00]
-04. Don't Blame Me [5:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, CoolПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0463E41FECAD5723B620C7E40DE6DF04FA4E676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406889   (240701) от 05.09.2020
-
-Tony Coe & Roger Kellaway - British-American Blue (1978) 2000, Between the Lines [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carona Glass and Lady Maggie [4:09]
-02. Friend in the Mirror [2:37]
-03. The Caverns of Volere [4:49]
-04. Conversations with Sparza [4:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Contemporary JazzПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3716AD1216B0269789ED8B93267E01B95DADF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463160   (240699) от 18.04.2021
-
-Kansas City 5, 6 & 7 - 1938 - 1944 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at Life [3:05]
-02. Good Morning Blues [2:52]
-03. I Know That You Know [3:05]
-04. Love Me or Leave Me [2:44](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E92E9BF3073444E5706E09CDEDAB2270BEA8C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463353   (240674) от 18.04.2021
-
-Jim Hall - Dialogues (1995) Telarc [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frisell Frazzle [4:50]
-02. Simple Things [6:29]
-03. Calypso Joe [5:20]
-04. Bon Ami [6:41](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8723932ABF44469974AE8B68DFD931551A3AB2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406880   (240661) от 05.09.2020
 
 Peter Bernstein With The Tilden Webb Trio - Live at Cory Weeds' Cellar Jazz Club (2013) Cellar Live Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Guitar Jazz>
@@ -745,6 +629,122 @@ Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:764C9968F95B7E5B40DE625200FB322D32310838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466739   (240042) от 01.05.2021
+
+Stan Getz - 1946 - 1949 (2000) Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus de Bop [2:32]
+02. And the Angels Swing [2:45]
+03. Running Water [2:46]
+04. Don't Worry 'Bout Me [2:39](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6BF802AB5208C0C1EFB0EAF6C959359509378B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635100   (240037) от 24.05.2023
+
+The Modern Jazz Sextet - 1956 (2000) Азбука Звука [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toure de Force [11:44]
+02. Dizzy Meets Sonny [8:04]
+03. Ballad Madley: Old Folks/ Whats New?/How Deep is the Ocean? [7:15]
+04. Mean to Me [6:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6EA83FBA69B1CC9D18EABD106623B33ED34057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466734   (240034) от 01.05.2021
+
+James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Sit Right Down and Write Myself a Letter [2:32]
+02. Keepin' Out of Mischief Now [2:47]
+03. Squeeze Me [2:35]
+04. Honeysuckle Rose [2:58](   Читать дальше...   )Жанр: Ragtime, Stride, Piano JazzПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65AD7557A4F533C4356AC8EA3D21059CE62CEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466600   (240026) от 01.05.2021
+
+Buck Clayton - 1945 - 1947 (1997) Classics [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm in the Mood for Love [2:41]
+02. Sugar Hips [2:47]
+03. Diga Diga Doo [4:04]
+04. Love Me or Leave Me [4:02](   Читать дальше...   )Жанр: SwingПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE88D7C9158E82DE571F66E50016DE8BF7049B8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

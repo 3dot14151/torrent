@@ -1,30 +1,3 @@
-###  Публикация: 1782922   (25837) от 03.03.2025
-
-Растровый клипарт - Phhh Phhh - Behance - Вырезки буков в стиле "Ransom Notes" - 219569711 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит - кириллица, в комплекте есть цифры, знаки препинания и т.п.
-Разработчик: Phhh PhhhФормат: PNGРазрешение файлов: 3000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E27667FD1E07F724B8ED573DD43BCB18FC85CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783209   (25725) от 04.03.2025
 
 Растровый клипарт - Dealjumbo.com - Deeezy - Electric Cable FREE 3D Alphabet - 59624 [PNG]
@@ -674,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:334D008FFF4BC8108E4820EC1C7F5C3E096283FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790586   (21965) от 09.04.2025
+
+Растровый клипарт - Jumi Creative - Light Collection [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 70 световых оверлейев для потрясающих эффектов + пару видеоуроков.Формат: PNG, JPGРазрешение файлов: 6000x6000 - 8889x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2742CBAF5CC0A223A222BCCA7FE10AFF28F9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,137 +1,3 @@
-###  Публикация: 382702   (491773) от 02.09.2011
-
-VA - The Rough Guide To Manu Dibango (2004) [FLAC|Lossless] <Jazz, Makossa>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491773.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:58] 01.  Ngolowake
-[06:08] 02.  Miango Ma Tumba
-[06:08] 03.  Miss Cavacha
-[04:23] 04.  Nature Boy
-[05:14] 05.  Mi Niya
-[03:48] 06.  Oa Na Mba
-[05:13] 07.  Mouna Pola
-[06:58] 08.  Baobab Sunset
-[08:02] 09.  Super Kumba
-[05:43] 10.  Bayam Sellam(   Читать дальше...   )2004Жанр: Jazz, MakossaПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382729   (491768) от 02.09.2011
-
-VA - The Rough Guide To Gypsy Swing (2004) [FLAC|Lossless] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491768.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:12] 01. Romane Acoustic Quartet - Symphonie
-[03:44] 02. Fapy Lafertine Quintet & Tim Kliphouse - Fleur De Lavande
-[02:21] 03. Patrick Saussois & Alma Sinti - Rythmes Gitanes
-[01:23] 04. Moreno Trio - Du Dja Yal
-[04:05] 05. Biréli Lagrene Ensemble - Black Eyes
-[03:22] 06. Serge Desauny, J.Quézin, Jean-Philippe Viret - La Valse Des Niglos
-[03:22] 07. Les Primitifs du Futur - La Belle Et Le Manouche
-[02:57] 08. Guerino Et Son Orchestre Musette De La Boite A Matelots - Gallito
-[03:16] 09. Quintette Du Hot Club De France - Minor Swing
-[03:07] 10. Django Reinhardt, Quintette Du Hot Club De France - I'se A Muggin'(   Читать дальше...   )2004,Жанр: JazzПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382669   (491600) от 02.09.2011
-
-The Crusaders - Collection [3CD] (1996 - 2003) [FLAC|Lossless]<Jazz-Funk, Fusion,>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_491600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rural Renewal (5:25)
-02. Creepin' (6:57)
-03. Heartland (7:05)
-04. A Healing Coming On (7:20)
-05. Sing The Song (4:53)
-06. Shotgun House Groove (5:56)
-07. The Territory (6:15)
-08. Greasy Spoon (5:24)
-09. Viva De Funk (4:53)
-10. Lazy Sundays (5:32)(   Читать дальше...   )1996 - 2003Жанр: Jazz-Funk, Fusion,Продолжительность: 03:14:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404583   (491590) от 26.08.2020
-
-Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Mail Special [7:38]
-02. Soft Winds [6:13]
-03. It's Only A Paper Moon [6:52]
-04. The Way You Look Tonight [11:11]Жанр: Mainstream JazzПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110A91FB5B445B08A76E60F4983D9F18CA2D81FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404586   (491187) от 26.08.2020
 
 Stefon Harris & Blackout - Sonic Creed (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -765,6 +631,122 @@ Earl Coleman featuring Billy Taylor - Love Songs (1967) /2013, Warner/[FLAC|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD5E7BA04C132AF6A9BA58F2DCC0CF3E1409F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565933   (488367) от 26.07.2022
+
+Norio Maeda - Saxophone Unity (1967) 1987, Denon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five [6:36]
+02. 'Round About Midnight [3:52]
+03. Oleo [4:07]
+04. Night in Phrygia [4:16](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA2C8BB5D14C757EC15E8716612860F72BCF9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937582   (488319) от 15.09.2015
+
+Laurindo Almeida & Bud Shank Quartet - Brazilliance Vol. 1 & 2 (1953) 2CD /1991, World Pacific/[FLAC|tracks+.cue]<Bossa Nova, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488319.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Atabaque [02:49]
+02. Amor Flamengo [02:57]
+03. Stairway to the Stars [03:01](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE1501C5CCA8E772C762395EF2F58AE079EEB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937594   (488318) от 15.09.2015
+
+Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|image+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Only Have [04:25]
+02. Stay [04:44]
+03. Romantic Flight [04:18]
+04. I Love You [03:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BB8C1C15CB630C50747D96E97CA7BF3975E8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243829   (488292) от 29.08.2018
+
+Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Search for the New Land [9:10]
+02. Speak No Evil [8:39]
+03. The Melting Pot [7:29]
+04. Succotash [7:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A737C32361D2E67EBDBA28D29E1214E3264C7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

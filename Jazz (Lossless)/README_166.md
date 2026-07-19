@@ -1,119 +1,3 @@
-###  Публикация: 1562918   (507130) от 11.07.2022
-
-Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Groove
-02. See the Light
-03. A Reason to Smile
-04. Soul Expression(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EAE5E3D4296AE8EDDAE7A1E1C98AF3C9CDBB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562885   (507118) от 11.07.2022
-
-Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down On The Levee Blues [3:37]
-02. Lonesome Woman's Blues [3:07]
-03. Got The Bench, Got The Park [3:14]
-04. In A Cafe On The Road To Calais [2:50](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED18A679D583EB0E796AEE7799CAD4F311FA29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316360   (506925) от 25.07.2019
-
-Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [7:19]
-02. Cecilia Is Love [9:51]
-03. Simone [9:11]
-04. There'll Be a Time [6:12](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588468E993BB21C4D4CBF3B2F5D3309B1D6D0CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316362   (506924) от 25.07.2019
-
-Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreambox Media [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peau Douce [4:03]
-02. It Was Bound to Happen [3:37]
-03. Skylark [5:51]
-04. Nardis [4:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64036EA7B1229CA97D5C5975C2668DAE5FB725B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933359   (506329) от 01.09.2015
 
 Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|tracks+.cue]<Jazz Fusion>
@@ -766,6 +650,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743F6AB8C265D208B9EFE8F0EFD43A2B83EBA256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316640   (504235) от 28.07.2019
+
+Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504235.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Groove Blues:
+01. Ammon Joy [13:20]
+02. Groove Blues [9:35]
+03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934218   (503768) от 04.09.2015
+
+Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Replacement [05:31]
+02. Splainin' [05:29]
+03. Backstroke Boogie [07:13]
+04. Biker's Dozen [05:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E23193B1A5BCE892FD5F389C072E2680A11EC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934316   (503762) от 04.09.2015
+
+Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One O'Clock Jump, Pt. 1 (feat. Michel Pastre Big Band)
+02. Swing Brother Swing (feat. Michel Pastre Big Band)
+03. They Can't Take That Away from Me (feat. Michel Pastre Big Band)
+04. Travelin' Light (feat. Michel Pastre Quartet)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC86770969D25F1557A036EFDB6C6C223926D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934154   (503759) от 04.09.2015
+
+Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spider Webs [05:09]
+02. If Women Ruled The World [05:03]
+03. God Bless The Child [05:58]
+04. You Gotta Be [04:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8410A89D2C7DE097FC65F96156A4B48BE0E1C8A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -105,33 +105,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848812   (1053293) от 21.01.2026
-
-TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1053293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив TrueNAS Community от компании iXsystems, в котором используется ядро Linux и пакетная база Debian (ранее выпускаемые продукты данной компании, в том числе TrueOS, PC-BSD, TrueNAS и FreeNAS, основывались на FreeBSD).
-Как и TrueNAS CORE (FreeNAS), TrueNAS Community может быть загружен и использован бесплатно. Исходные тексты специфичных для TrueNAS SCALE (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E5A23F9FA44D4981D0B9B79D6D265A7B16AF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843176   (1049113) от 19.12.2025
 
 Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
@@ -682,6 +655,32 @@ SystemRescueCd — это спасательной диск в системе Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA538C504CDD00DDC35AE23D354D89A9334CB10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394283   (764354) от 04.07.2020
+
+OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

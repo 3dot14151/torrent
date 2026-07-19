@@ -1,25 +1,25 @@
-###  Публикация: 1798971   (66530) от 25.05.2025
+###  Публикация: 1804500   (65620) от 29.06.2025
 
-Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
+Grace Hayhurst - The World is Dying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge, Progressive, Post-Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undo [00:03:59]
-02. Surge [00:04:05]
-03. Meek [00:04:13]
-04. Safe [00:05:21](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalcoreПродолжительность: 00:44:01
+01. Prologue [00:01:23]
+02. The World Is Dying [00:07:30]
+03. And It's Our Fault [00:07:07]
+04. Us vs Them [00:05:12](   Читать дальше...   )Жанр: Sludge, Progressive, Post-MetalПродолжительность: 00:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
+magnet:?xt=urn:btih:6546D83E44876D06B5DBD7E272EE1BF245B48D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798916   (66526) от 25.05.2025
+###  Публикация: 1804384   (65607) от 29.06.2025
 
-The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock / AOR>
+Enemy Ac130 Above - Cosmic Apotheosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adecence
-02. Patient Zero
-03. Late Night Talking
-04. Make Me Feel(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:41:02
+01. Diminishing Light [00:05:02]
+02. Vector Gamma [00:04:22]
+03. Nocturnal Vapor [00:04:39]
+04. Limitless Subversion [00:03:20](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:45:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
+magnet:?xt=urn:btih:7A9FCCC009897A840838943B6D57C10EF12FD9BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799053   (66525) от 25.05.2025
+###  Публикация: 1804372   (65605) от 29.06.2025
 
-Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard Rock, Post-Grunge>
+Hot Milk - Corporation P.O.P. (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live Without It [00:03:28]
-02. Rearview [00:03:23]
-03. Everything Is A Cult [00:03:23]
-04. Bring Me Back To Life [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Hard Rock, Post-GrungeПродолжительность: 00:47:44
+01. (How Do I) Make The Devil Fall Asleep [00:03:55]
+02. Insubordinate Ingerland [00:03:36]
+03. The American Machine [00:03:43]
+04. Hell Is On Its Way [00:02:12](   Читать дальше...   )Жанр: Alternative-Rock, Pop-RockПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41342DCC4CDFF0DCDDB78E956B9DEEF8A0893746
+magnet:?xt=urn:btih:5513549D028E54092845EA436E15A2A2222AE77B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799191   (66503) от 26.05.2025
+###  Публикация: 1804755   (65564) от 01.07.2025
 
-Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
+Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal, Hardcore, Blackened>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Cult [00:03:09]
+02. Hammering the Sinners (Streaming Version) [00:02:17]
+03. "The Cælestial Beast is Rotten." (Streaming Version) [00:02:45]
+04. Que Minjam eths Nosti Mòrts [00:03:35](   Читать дальше...   )Жанр: Death Metal, Hardcore, BlackenedПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E970EDA492147292E2FB9A5B60E74E69ABD0DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804694   (65558) от 01.07.2025
+
+The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
-1995 - Twinaleblood
-1997 - Unpop
-1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
+A1 - Conspire To Deceive
+A2 - Detonate
+A3 - Our Channel To The Darkness
+A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
+magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799742   (66418) от 29.05.2025
+###  Публикация: 1804746   (65555) от 01.07.2025
 
-Miley Cyrus - Something Beautiful (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prelude (02:36)
- 02 - Something Beautiful (04:32)
- 03 - End of the World (04:10)
- 04 - More to Lose (04:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:11
+01. Prenatal Obituary [00:02:06]
+02. Mors Mater Nostra [00:03:38]
+03. In Disgust They Shine [00:02:38]
+04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5302F0D186E052C1FB786617BB49317F88537460
+magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,608 +172,579 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799851   (66355) от 30.05.2025
+###  Публикация: 1804739   (65553) от 01.07.2025
 
-Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death From Above [00:04:19]
+02. They Watched [00:05:00]
+03. Your Truth [00:04:04]
+04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804848   (65551) от 02.07.2025
+
+MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - December Coma [7:42]
+02 - In Perpetum [5:05]
+03 - Brennt [4:30]
+04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804863   (65550) от 02.07.2025
+
+Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Decadence [1:59]
+2 - Within Reach [4:58]
+3 - A Paths Deceit [6:13]
+4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805000   (65544) от 03.07.2025
+
+Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side A [00:00:36]
+02. Воздуха нет [00:02:17]
+03. In the Dark [00:02:46]
+04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805001   (65533) от 03.07.2025
+
+Zero Mindset - Nightdive (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Shoegaze>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightdive [00:03:42]
+02. Liquid Room [00:03:36]
+03. Rebirth [00:03:31]
+04. A Deeper Blue [00:03:48](   Читать дальше...   )Жанр: Alternative Metal, ShoegazeПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77017F1B45E4CA625698594D99BA524AB2011BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804999   (65531) от 03.07.2025
+
+Транкор - Разные вещи (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разные вещи [00:03:03]
+02. Мало [00:03:07]
+03. Говорят [00:02:05]
+04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1254463EE46939DDF944A975A1B288E885168AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805002   (65521) от 03.07.2025
+
+Nastyville - Rebirth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey Of Rebirth [00:01:47]
+02. Power To The People [00:04:12]
+03. Run Wild, Rev High! [00:03:57]
+04. Rocking Through The Night [00:03:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86224829BB51B27C481023B4334D3175C82A307C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805141   (65513) от 04.07.2025
+
+WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Lindisfarne... (1:20)
+02. Armageddon (3:02)
+03. Genghis Khan (feat. Orden Ogan) (3:28)
+04. Kingdom Come (3:51)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA03A53D46FB9FD68DBEFAC731B05D37CD20094F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805155   (65511) от 04.07.2025
+
+Hoffman Cruise - When The Moon Rises (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive [00:03:02]
+02. Jason [00:03:09]
+03. Nightmare [00:03:44]
+04. Stardust [00:03:26](   Читать дальше...   )Жанр: Darksynth, SynthwaveПродолжительность: 00:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2EAC9D409E8B7A4DDD35C281CBB04BD349D60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805230   (65508) от 04.07.2025
+
+Supernatural Blondes - Art Of Heartbreak (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tonight (3:50)
+02.  Ride (3:18)
+03.  Love Don't Bother Me (3:26)
+04.  Move Like This (3:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3822A4CE8BA308E96F234F61F4511CC99897BC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805156   (65500) от 04.07.2025
+
+Greet Death - Die In Love (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Shoegaze, Slowcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die In Love [00:02:38]
+02. Same But Different Now [00:05:22]
+03. Country Girl [00:05:54]
+04. Red Rocket [00:04:38](   Читать дальше...   )Жанр: Indie, Shoegaze, SlowcoreПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D34CB9963E61AD63A0434A9D344C5C6E54560DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805154   (65499) от 04.07.2025
+
+King Witch - III (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffer In Life [00:04:14]
+02. Deal With The Devil [00:05:49]
+03. Swarming Flies [00:04:49]
+04. Sea Of Lies [00:06:48](   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CDE10D07BDBEE7D462BEB4948AEFDE607555C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805148   (65497) от 04.07.2025
+
+Wavves - Spun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, indie rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spun [00:03:29]
+02. Lucky Stars [00:03:35]
+03. New Creatures [00:03:28]
+04. Goner [00:02:45](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E168C228BD6E84E45CA1561D3AC52C9ACAF03D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805153   (65495) от 04.07.2025
+
+Kommission Z80 - Hegemony (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire (Album version) [00:04:19]
+02. Choose [00:04:12]
+03. Deny, defend, dispose! [00:04:01]
+04. Never cross a picket line [00:04:02](   Читать дальше...   )Жанр: EBM, DanceПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDE2E5B3F02C7910CB9E8B901A356D38E9D6C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805228   (65493) от 04.07.2025
+
+Black Furies - Get Down Get With It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Prime Mover (2:59)
+02.  Suffragette City (2:58)
+03.  Teenage Kicks (2:33)
+04.  Loretta (2:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBEC218406B8A5CE8FEC230D7F391CB73FD4A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805229   (65491) от 04.07.2025
+
+Nicklas Sonne - Electric Dreams (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fireline (4:23)
+02.  Route 65 (4:03)
+03.  Shadows in Between (3:28)
+04.  A Woman's World (3:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028FAEC46E415C06787A4407DDAD9CFF01C2FC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805231   (65490) от 04.07.2025
+
+The Speaker Wars - The Speaker Wars (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Make Every Lie Come True (3:18)
+02.  It Ain't Easy (4:54)
+03.  Taste of Heaven (3:53)
+04.  Never Ready to Go (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7751D6996382F5E9619A608B5360AC41DD0E168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805294   (65482) от 05.07.2025
+
+Moonshine XXX - Frelate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walkin' Blues (4:16)
+02.  Release Me (3:15)
+03.  Goin' Down South (2:52)
+04.  Sittin' On Top Of The World (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C717D932C9493D53A07AEB1F6502827087953F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805298   (65471) от 05.07.2025
+
+The Tee - The Tower and The Star (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siren's Lament (3:26)
+02.  Wheel of Fate (3:59)
+03.  Crimson Moon (2:57)
+04.  The Witch of Ravenscroft (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB603432F1C8DEC43BBF890B9155AAA612E87B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805171   (65469) от 05.07.2025
+
+Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pagan, Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
-2016 - Everlasting
-2019 - Overpower
-2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
+A1-Искра
+A2-Разожги Огонь
+A3-Саламандра
+A4-Оберег(   Читать дальше...   )Жанр: Pagan, Folk MetalПродолжительность: 00:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800028   (66342) от 31.05.2025
-
-VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Strana A:
-A1 K. Gott - Ma Prvni Laska Se Dnes Vdava
-A2 H. Zagorova - Bludicka Julie
-A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799927   (66321) от 31.05.2025
-
-(hed) p.e. - New And Improved (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Breath You Take [00:02:41]
-02. Just Can't Get Enough [00:03:01]
-03. Always On My Mind [00:02:44]
-04. Red Red Wine [00:04:26](   Читать дальше...   )Жанр: Experimental, Hardcore Hip-Hop, MetalcoreПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D8228A5ACD6C37DB65D9E17953F38B3CBE2FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799917   (66320) от 31.05.2025
-
-Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank Me [00:02:17]
-02. Heidiwood (feat. Chase Icon) [00:02:11]
-03. WET HOT SUMMER [00:02:09]
-04. Prototype [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEF8AF6C7C49D90DFEA88861FDECBAC79718A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800581   (66280) от 04.06.2025
-
-The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66280.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Duskfall — шведская метал-группа из Лулео, образованная в 1999 году.2002 - Frailty
-2003 - Source
-2005 - Lifetime Supply Of Guilt
-2007 - The Dying Wonders Of The World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F906BF469317365DF56F49634C6531B5C7416A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800850   (66271) от 07.06.2025
-
-СЛОТ - 15 (The Best Of) (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Хаос (Demo 2002) [3:25]
-02 - Одни [3:12]
-03 - 2 войны [3:45]
-04 - 7 звонков [4:45](   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B8141F98ACCF2597CC9894058E3644276DDF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800907   (66257) от 07.06.2025
-
-Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funeral Derangements (Live in Lowell / 2022) [4:28]
-02 - Wurst Vacation (Live in Lowell / 2022) [3:53]
-03 - Hip To Be Scared (Live in Lowell / 2022) [4:09]
-04 - IT Is The End (Live in Lowell / 2022) [5:06](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC83A9DC9AB4B7134EF8E0D2CA93F05F79F1B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800977   (66246) от 07.06.2025
-
-Jimmy Barnes - DEFIANT (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's What You Do For Love
-02. New Day
-03. Beyond the River Bend
-04. Never Stop Loving You(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93DC6ECB307BB72A70815EC1E9C04C61E67F06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801035   (66243) от 07.06.2025
-
-Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keep On Movin' (04:21)
- 02 - Too Hard To Handle (04:17)
- 03 - Will I Believe (03:30)
- 04 - Traveler (03:06)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2660CE98BD0902E67A12D2BDC0BC284AD29F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801187   (66227) от 08.06.2025
-
-Belier Bleu - Top Yourself (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pluto (3:13)
-02.  Gasoline (3:34)
-03.  Life's A Beach (3:13)
-04.  Kill Me (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75147339DC95FD26EB737D110A1D81811EFA565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801183   (66224) от 08.06.2025
-
-Beaten by Hippies - Sidetracked in El Paso (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Know For Sure (2:41)
-02.  Sidetracked in El Paso (4:20)
-03.  In Better Days (3:53)
-04.  Roar (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD9A8620F159F0934E8E1CCA8287727EACAB8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801185   (66220) от 08.06.2025
-
-Beebe Gallini - Begged, Borrowed and Stealed! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Run, Run, Run (2:10)
-02.  Hold Tight (2:44)
-03.  Something You Got (2:21)
-04.  Why (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5845737DD0565E5DF50EEC366BD8E34AB9AD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801192   (66219) от 08.06.2025
-
-Boot Juice - Covered in Juice, Volume I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blackberry Brandy (4:26)
-02.  Don't Do It (5:06)
-03.  High Flying Bird (3:20)
-04.  Highway Star (5:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76C5335E5643A85768E3F08DA7DE3C122904629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801189   (66215) от 08.06.2025
-
-Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I’m Tore Down (3:04)
-02.  All Your Love (3:29)
-03.  Let the Good Times Roll (3:33)
-04.  Lonely Boy (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15B01EE22FC8B2D6E88EC53314E55E3B5374C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801461   (66203) от 11.06.2025
-
-Birth Control - Bäng! (1982) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuclear Attack (Remastered) [00:05:03]
-02. Get Ready To Run (Remastered) [00:04:08]
-03. Take Alarm (Remastered) [00:05:31]
-04. Greedy Eyes (Remastered) [00:04:56](   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8FAA7BA99574A13AF68F8744CC2682B23334FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801465   (66199) от 11.06.2025
-
-Monkey House - Crashbox (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return of the Mayfly (4:30)
-02. Someplace on Madison (4:24)
-03. Crashbox (5:12)
-04. Disappear in Plain Sight (4:20)(   Читать дальше...   )Жанр: Jazz, Soft RockПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4237BCC0BBB9738F1C71A0E97C243B9451A70DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801760   (66192) от 12.06.2025
-
-The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Can Never Say Goodbye (Paul Oakenfold "Cinematic" Remix) [4:16]
-02 - Endsong (Orbital Remix) [6:24]
-03 - Drone:Nodrone (Daniel Avery Remix) [5:21]
-04 - All I Ever Am (meera remix) [8:03](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, RockПродолжительность: 02:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CDFD4804D00884D079514356989A617A175EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801920   (66139) от 14.06.2025
-
-Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Dance. Alternative, Electronic, Experimental Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Switch It (Kingdom Remix) [00:03:21]
-02. Say Tell Me (Maya Jane Coles Remix) [00:04:58]
-03. All In (Karaba Remix) [00:04:20]
-04. For You (Next To Blue Remix) [00:03:22](   Читать дальше...   )Жанр: Dance. Alternative, Electronic, Experimental Hip-HopПродолжительность: 4 CD, 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C8A618FC105C841B97EEFDE688626A55F2F62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801996   (66138) от 14.06.2025
-
-Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down The Walls (3:52)
-02.  Yesterday (My End, My Beginning) (4:10)
-03.  Veneno (3:29)
-04.  Fear (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD59AB9FCE64C91DB58AE1F0A255F437912C57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801901   (66136) от 14.06.2025
-
-King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Garage Rock, Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Phantom Island [5:15]
-02 - Deadstick [3:34]
-03 - Lonely Cosmos [5:36]
-04 - Eternal Return [4:35](   Читать дальше...   )Жанр: Psychedelic Rock, Garage Rock, Jazz RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801994   (66133) от 14.06.2025
-
-Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Downfall (1:52)
-02.  To Stars And Beyond (5:28)
-03.  Karma (4:14)
-04.  A New Dawn (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
+magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 604497   (996051) от 18.01.2013
+
+Ангел в сердце (2012) DVB (1-4 серии из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1985 года. Ксения и Петр заканчивают школу в приморском городе. Они любят друг друга с первого класса. И теперь, когда впереди взрослая жизнь, серьезно думают о свадьбе. Но в семье Ксении случается несчастье — папа, начальник строительного треста, замешан в деле о финансовых махинациях, и ему грозит серьезный уголовный срок и конфискация имущества. Помочь может старый мамин знакомый, местный партийный руководитель Григорий Дмитриевич. Но он выдвигает неожиданное условие: помощь будет, если мама Ксении выдаст (   Читать дальше...   )Жанр: мелодрамаРежиссер: Елена НиколаеваАктеры: Дмитрий Певцов, Даниил Певцов, Ольга Дроздова, Анна Михайловская, Сергей Юшкевич, Александр Солдаткин, Татьяна Догилева, Катерина Шпица, Иван Рудаков, Валерий Баринов, Борис КаморзинПродолжительность: серия ~ 00:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602899   (996047) от 18.01.2013
 
 Дочь землекопа / La fille du puisatier (2011) [720p] BDRip
@@ -711,41 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B43CDE3F5E7ABA21169971C00BEFE661E41417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605287   (995910) от 19.01.2013
-
-Armin van Buuren - A State of Trance Episode 596 (17-01-2013) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor & Betsie Larkin - Love Again (Andrew Rayel Remix) (Ava)
- 02. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (Infra Progressive)
- 03. Audien - Warfayer (Anjunabeats)
- 04. Vadim Spark - Lost Angeles (Club Mix) (Vendace)
- 05. Kyau & Albert - All Your Colours (Euphonic)
- 06. Steve Brian & Cressida - Casablanca (Tool Trance)
- 07. Eximinds - Revolved (Anjunabeats)
- 08. Antillas & Dankann - Synapse (Soundpiercing)
- 09. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Lange Remix) (High Contrast)
- 10. Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Original Mix)Жанр: TranceПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B757B2FF87A07BD8489944223D2BDD74745B56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

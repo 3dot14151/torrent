@@ -1,3 +1,61 @@
+###  Публикация: 1190736   (265974) от 11.12.2017
+
+Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny Shadows (5:26)
+ 02. White Eclipse (3:29)
+ 03. In the Sand (5:36)
+ 04. Misspent Youth (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDE97872C7BF87B39435D7F8C1546455FCC93AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267600   (265802) от 07.12.2018
+
+Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard Rock, Heavy Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Traitor
+2. It's Yesterday
+3. The Quiz
+4. Circling(   Читать дальше...   )Жанр: Hard Rock, Heavy PsychedelicПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265D0EAC2B7EFC20CD1C7F32D117A7E56D91B4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267547   (265798) от 07.12.2018
 
 Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
@@ -578,6 +636,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637223   (239999) от 03.06.2023
+
+Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanctuary Records [MP3|320 Kbps] <Heavy Metal, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_239999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mob Rules (Live in Seattle, April 24, 1982) (2023 Remix) [00:03:23]
+02. Heaven and Hell (Live in San Antonio, May 13, 1982) (2023 Remix) [00:11:58]
+03. The Sign of the Southern Cross / Heaven and Hell (Continued)Жанр: Heavy Metal, Hard-RockПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F63AFAF9BB8826FC1EC79A05875CECE051BF179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580016   (238412) от 30.09.2022
 
 Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
@@ -658,93 +744,6 @@ Heartbreak Remedy - 3 Albums (2015-2023) [MP3|320 Kbps] <Classic Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6329DB70500B3A8AFC4B35409D84493FCD4DBEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631163   (236637) от 04.05.2023
-
-Axel Rudi Pell - The Ballads VI (2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelations (2:35)
-02. Diamonds And Rust (5:19)
-03. Morning Star (7:35)
-04. Dust In The Wind (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECF2C7C67C011720A24457E64D4A5E55140C399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639569   (234521) от 14.06.2023
-
-Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Drag Me [00:05:40]
-02 The Knife [00:03:27]
-03 Now Here - No Where [00:03:38]
-04 Twice [00:03:51](   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBD0A1B09754C84C68E42B192A37DB509F2C3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644105   (234067) от 05.07.2023
-
-Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delirium
-02. Babalon Trinity
-03. Astral Traveller
-04. Where The Mushrooms Grow(   Читать дальше...   )Жанр: Psych Doom, Stoner, 70'sПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916FDF2F2F58015685BE4F44ED6926BAB2B07FC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

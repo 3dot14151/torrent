@@ -1,3 +1,294 @@
+###  Публикация: 594314   (133658) от 26.12.2012
+
+Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Alternative, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -2 Sides of Me
+02 -All American Nightmare
+03 - What Ya Gonna Do
+04 - Hey Ho
+05 - The Life
+06 - Waking Up the Devil
+07 - Red Tail Lights
+08 - Striptease
+09 - Everybody's Wrong
+10 - Put That Record OnЖанр: Hard-rock, Alternative, Post-GrungeПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680885   (133399) от 01.12.2023
+
+Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock, world-music>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panopticom (Dark-Side Mix) [00:05:16]
+02. The Court (Dark-Side Mix) [00:04:20]
+03. Playing For Time (Dark-Side Mix) [00:06:18]
+04. i/o (Dark-Side Mix) [00:03:53](   Читать дальше...   )Жанр: Art-rock, neo-folk, progressive-rock, world-musicПродолжительность: 2 CD, 02:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE333510BC55210E2BAD011F71B9BAA41B563F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680222   (132707) от 03.12.2023
+
+Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues-rock, Progressive-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disco [00:04:58]
+02 - Red Hot Mama [00:05:11]
+03 - Rock [00:04:17]
+04 - Impossible _ Rock [00:08:22](   Читать дальше...   )Жанр: Southern Rock, Blues-rock, Progressive-RockПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EDBCBA8B1A46E3F1FC12F25BDD7E6FBDB3BB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491315   (130209) от 02.05.2012
+
+Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E La Luna Busso`
+02. Robin Hood
+03. Colombo
+04. Prendi Fra Le Mani La Testa
+05. Folle Citta
+06. Macchina Del Tempo
+07. In Alto Mare
+08. Un Po`Di Tutto
+09. Prima O Poi
+10. Buongiorno Anche A Te(   Читать дальше...   )1988Жанр: Rock, Pop-RockПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DFEFF2DF7F2EDB1CE4DD9D31DFFDC2C7BE0943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490435   (129820) от 01.05.2012
+
+The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Gold
+02. Hit The Ground (Superman)
+03. Give It Up
+04. The Palace
+05. 1313
+06. Rubbernecking
+07. Jump Music
+08. Lose Your Mind
+09. Future This
+10. 772012Жанр: Folk, Indie RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C5B3A5BE94A458DC4A1B16DB12BDB348D365C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490420   (129637) от 30.04.2012
+
+Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Cambiamento
+02. Il Vecchio
+03. Il Fuoco
+04. Eagle Mountain
+05. La Mente
+06. L'Uomo Nuovo
+07. Le Anime
+08. Raoul
+09. La Spiaggia
+(   Читать дальше...   )2010Жанр: Progressive rockПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489029   (129239) от 28.04.2012
+
+Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Metal/Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Few 04:51
+ 02. Possession 04:46
+ 03. The Awakening: Chapter III-Regret 05:12
+ 04. The Awakening: Chapter IV-Torment 04:34
+ 05. The Awakening: Chapter V-Descension 03:55
+ 06. Trapped 04:42
+ 07. Lies 03:22
+ 08. Suffer In Silence 04:48
+ 09. Eyes Of A Child 03:12
+ 10. Whan We Leave Behind 04:37(   Читать дальше...   )2012Жанр: Symphonic/Gothic Metal/Female VocalsПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683404   (128410) от 11.12.2023
+
+VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickelback - Someday (3:27)
+02. Linkin Park - In the End (3:39)
+03. Raimundos - Mulher de fases (3:33)
+04. Red Hot Chili Peppers - Californication (5:21)(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473CE875A921552D98A3F5AB7E29EAD8FE3BBA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683829   (128258) от 12.12.2023
+
+Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderin' Y [02:50]
+02. Kill 'Em At the Hot Club Tonite [03:21]
+03. I'm Mee, I'm Now, An' That's Orl [03:42]
+04. She Did It to Me [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A4468383481E5D52669FE3D8E6BA639B1E26F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686471   (126463) от 23.12.2023
 
 Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
@@ -481,267 +772,6 @@ Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A97029DDA709446FE81A2761745BB3E9E56AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693919   (121519) от 22.01.2024
-
-Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Your Dream (3:41)
-02. Fantasion (7:25)
-03. November Blue (4:34)
-04. Bond Of Love (Expanded Version) (7:02)(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5F1C7637C0ADD02B82BE5D64D2E951EEF3E502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693863   (120979) от 25.01.2024
-
-Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Supervixen
-02.  Queer
-03.  Ony Happy When It Rains
-04.  As Heaven Is Wide(   Читать дальше...   )Жанр: Rock, Pop, Alternative Rock, Pop RockПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93347E0E592EDFF58F88658737E54ED2BE27AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694596   (120818) от 26.01.2024
-
-Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive [00:03:58]
-02. Stone Heart [00:04:42]
-03. Blame It on Me [00:03:33]
-04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4971D1B7082D18BBA821DAA734FDA8CE871A1F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696555   (119496) от 03.02.2024
-
-David Byron - Baby Faced Killer (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Байрон (29 января 1947 - 28 февраля 1985, настоящее имя Дэвид Гаррик). Британский певец и автор песен, наиболее известный как фронтмен Uriah Heep.01. Baby Faced Killer (3:13)
-02. Rich Man's Lady (3:53)
-03. Sleepless Nights (3:51)
-04. African Breeze (4:14)(   Читать дальше...   )Жанр: Electronic, Rock, DiscoПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D57FB59123B2E4708B24CC2B704FA5F5820A96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696842   (119334) от 04.02.2024
-
-Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's Gonna Win (3:51)
-02. Too Fast To Know (4:25)
-03. Moonshine (3:27)
-04. Boogie With The Law (4:05)(   Читать дальше...   )Жанр: Electronic, New Wave, Hard Rock, Glam, PopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AF0A463F3DF5D9B2F506E240BA61036F509D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698340   (118271) от 10.02.2024
-
-Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Universal Music Operations Limited [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Nature Said (4:54)
-02. The Hero And The Madman (6:10)
-03. Slow Blues (5:15)
-04. The Rocker (5:12)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FBC65BCCD4FF878517CF64AB016075B40C9B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699953   (117233) от 16.02.2024
-
-Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320 Kbps] <Progresive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obscured By Clouds (Live At Vienna Stadthalle, Austria, 13 October 1973) [05:11]
-02. When You’re In (Live At Vienna Stadthalle, Austria, 13 October 1973) [08:10]
-03. Set The Controls For The Heart Of The Sun (Live At Vienna Stadthalle, Austria, 13 October 1973) [12:59]
-04. Careful With That Axe, Eugene (Live At Vienna Stadthalle, Austria, 13 October 1973) [13:46](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC426C6A543F53C4CFAB71C56A3D04C0C946916A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699817   (117219) от 16.02.2024
-
-AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Live Wire (Live)
-02 – Shot Down In Flames (Live)
-03 – Hell Ain’t A Bad Place To Be (Live)
-04 – Sin City (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B59DEFB5F9705341DBBC9A5B88460C3EDD2242E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699838   (117182) от 16.02.2024
-
-Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Woman, Stop Whatcha Doin' [00:04:18]
-02 - I Only Need a Next Time [00:03:58]
-03 - My Serene Coleen [00:03:22]
-04 - Lookin' for a Better Way [00:03:09](   Читать дальше...   )Жанр: blues rock, Pop RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81ED79118929697F51163B94B507A463C8656053
 ```
 
 https://mybot314.ru/tekegram_catalog/

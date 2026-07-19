@@ -1,3 +1,265 @@
+###  Публикация: 1414567   (46887) от 14.08.2024
+
+Рок-опера "Икар" (2020 - 2024) [MP3|320 Kbps] <Rock Opera, Musical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-опера-антиутопия «Икар»:
+Молодой ученый из закрытого куполом Полиса после общения с "дикарями", живущими за его пределами загорается идеей создания крыльев. Но полеты в закрытом от неба Полисе запрещены...
+ 
+ (   Читать дальше...   )32. Равные [4:05]
+33. Время верить [3:26]
+34. Прикоснись ко мне [4:32]
+35. Баррикады [2:51](   Читать дальше...   )Жанр: Rock Opera, MusicalПродолжительность: 03:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EF7439A58E53BA1B809A6604C1B5022BB0A211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742903   (46813) от 14.08.2024
+
+Phantom Vision - 3 Albums (2005-2019) [MP3|320 Kbps] <gothic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:09:11]
+02. Dirty Walls [00:03:40]
+03. Happy Moons [00:04:24]
+04. Alone [00:04:04](   Читать дальше...   )Жанр: gothic rockПродолжительность: 3 CD, 03:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D1A6B9D35A6AC2A3F2FC452125C2D723F3842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744027   (46278) от 19.08.2024
+
+Ten Years After - Woodstock 1969 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoonful (Live At Woodstock, 17th August 1969) [07:38]
+02. Good Morning Little SchoolgirlЖанр: Rock, Hard Rock, Blues RockПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5075E35B52269AAEC3754FC3BD7266DADA1889B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744414   (46072) от 21.08.2024
+
+Nocturnal Sea - Among the shadows we tell no lies (2024) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rust on Broken Hearts [00:03:20]
+02 - Ride the Sky [00:04:02]
+03 - Never-ending Night [00:03:47]
+04 - Before Rainfall [00:03:42](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151035C79C4F2D08C7CC69896038E416FCF18931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745747   (45444) от 27.08.2024
+
+Slade - MTV History (2000) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cum On Feel The Noize [04:20]
+02. Martha My Dear [02:16]
+03. Dapple Rose [03:29]
+04. Gudbuy T' Jane [03:28](   Читать дальше...   )Жанр: RockПродолжительность: 02:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC1AD091F4B3FE974AC62D0674095CC4FE522D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745948   (45246) от 29.08.2024
+
+Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Magik [00:05:35]
+02 - Waving Around [00:06:55]
+03 - Dim [00:05:42]
+04 - Dreamt By The Sea [00:07:56](   Читать дальше...   )Жанр: heavy psychПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9B3848BCCBCD5AE73CC2F73A9F3889AA85D587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746061   (45226) от 29.08.2024
+
+Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Messenger (05:50)
+ 02. Shine On (04:18)
+ 03. Counties And Countries (09:51)
+ 04. Build Me An Ocean (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DC921B1C90638FADDC9E9CB9D9EBC336FD03F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747696   (44285) от 07.09.2024
+
+David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Cat [01:32]
+02. Luck and Strange [06:57]
+03. The Piper's Call [05:15]
+04. A Single Spark [06:04](   Читать дальше...   )Жанр: Progresiv RockПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069142622531001C971B9975D6557A1997C1BACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748643   (43979) от 10.09.2024
+
+Ghostwriter Society - Long Weekend (2024) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What She Said (03:10)
+ 02. Thousand Dreams (04:50)
+ 03. Bravest Mistake (04:12)
+ 04. Stand In The Street (04:02)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF202533B4119971EFC1FA98B68EAFA5C2C348B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748830   (43898) от 11.09.2024
 
 Rush - Ten songs for you (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
@@ -484,267 +746,6 @@ Vedran Bozic - Planet Led Zeppelin (Live At Vintage Industrial Bar, Zagreb) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA37F852FE4733E3629727CD22AB088E41190D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772976   (31041) от 13.01.2025
-
-Echolyn - Time Silent Radio vii II (2025) 2 x CD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31041.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Time Silent Radio vii:
-1. Radio Waves (7:19)
-2. Silent Years (4:21)
-3. Cul-de-Sacs and Tunnels (7:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7E2DC4E610D25972294F12D601CFE7AD99CEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773166   (30964) от 14.01.2025
-
-Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Master [MP3|320 Kbps] <Progresive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Me (Live at Wembley 1974 - 2023 Master) [02:45]
-02. Breathe (In the Air) (Live at Wembley 1974 - 2023 Master) [02:51]
-03. On the Run (Live at Wembley 1974 - 2023 Master) [05:09]
-04. Time (Live at Wembley 1974 - 2023 Master) [06:32](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDF217336A1D41F156B4EFDDCF35C1B3248D162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774863   (29907) от 24.01.2025
-
-Jack Lancaster & Robin Lumley - Peter And The Wolf (1975) [MP3|320 Kbps] <Progresive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [01:05]
-02. Peter's Theme [02:10]
-03. Bird And Peter [00:39]
-04. Duck Theme [01:00](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD785FD205DCDA83642227D7F94C53646D16EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775460   (29701) от 26.01.2025
-
-Led Zeppelin - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Whole Lotta Love / Medley
-02 – How Many More Times
-03 – Communication Breakdown
-04 – Celebration Day(   Читать дальше...   )Жанр: RockПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB592CF8219740467F9E44807C4D93246C24D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776256   (28814) от 03.02.2025
-
-ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hells Bells [05:09]
-02. Shot Down In Flames [03:16]
-03. Sin City [05:00]
-04. Back In Black [03:46](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D008E2E70FEA38DDF50C56141156DE04E396246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780983   (26931) от 21.02.2025
-
-VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boston - More Than A Feeling
-02. Europe - The Final Countdown
-03. Blue Oyster Cult - (Don't Fear) The Reaper
-04. Toto - Africa(   Читать дальше...   )Жанр: Classic Rock, Pop Rock, VocalПродолжительность: 06:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDDCC3F192F3D389EB41D8B3F6739305DC176DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786695   (23842) от 22.03.2025
-
-Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One Little Victory (Remixed) [00:05:08]
-02 - Cygnus X-1 (Live At Maracana Stadium, Rio de Janeiro, Brazil - 11_23_2002) [00:03:12]
-03 - The Seeker [00:03:24]
-04 - Between The Wheels (Live At Festhalle Frankfurt, Frankfurt, Germany - 9_24_2004) [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 4 CD,  04:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8014F9A89365630C718D48DCF0C564C23188921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792734   (20275) от 25.04.2025
-
-T. Rex - Bolan B-Sides (2025) [MP3|320 Kbps] <Rock, Classic Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cadilac [03:53]
-02. Baby Strange [03:06]
-03. Lady [02:15]
-04. Thunderwing [03:46](   Читать дальше...   )Жанр: Rock, Classic Rock, GlamПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1F7CAF9B373176730E0F4015AE4B2D8964FE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793583   (20263) от 25.04.2025
-
-Billy Idol - Dream Into It (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Into It [05:05]
-02. 77 (feat. Avril Lavigne) [02:54]
-03. Too Much Fun [03:20]
-04. John Wayne (feat. Alison Mosshart) [04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
 ```
 
 https://mybot314.ru/tekegram_catalog/

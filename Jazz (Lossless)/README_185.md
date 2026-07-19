@@ -1,119 +1,3 @@
-###  Публикация: 1409935   (441025) от 19.09.2020
-
-Vic Damone - Spotlight on Vic Damone (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Still of the Night [2:23]
-02. Laura [2:24]
-03. Shangri-La [2:42]
-04. Close Your Eyes [2:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4340D0DD545413BB24F610E5E080D5C340A7D1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410021   (440963) от 19.09.2020
-
-Sidney Bechet - Great Original Performances 1924 to 1938 (1989) [FLAC|Lossless|tracks + .cue] <Dixieland, Early Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okey Doke (2:57)
-02. Early Every Morn (2:56)
-03. Shag (3:07)
-04. Polka Dot Rag (2:52)(   Читать дальше...   )Жанр: Dixieland, Early JazzПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AF4FA87EA17B61E0FC860D52B68DD17DED7763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409735   (440887) от 19.09.2020
-
-Panta Rhei - Hier Wie Nebenan - Anthologie (2020) Compilation, 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440887.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Alles Fliesst
-02. Blues fur John Henry
-03. Free Angela(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705DD9E00A314F725655E65C7681420985D97C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409958   (440871) от 19.09.2020
-
-Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-DL|tracks] <Dance, R&B, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (Eric Kupper Extended Vocal Mix) [00:07:08]
-02. September (Eric Kupper Radio Mix) [00:03:33]
-03. September (Eric Kupper Dub Mix) [00:07:08]
-04. September (Eric Kupper A cappella Mix) [00:07:08](   Читать дальше...   )Жанр: Dance, R&B, ElectronicПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B1E7C7DD93FA8C86FFA51883DAA1F739D62314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570607   (440795) от 18.08.2022
 
 Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Accordion Jazz>
@@ -746,6 +630,122 @@ Mel Torme - Prelude To A Kiss (1958) 1996, Simitar Records[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C08D8624FC1BE9E1CE2B18E8E35779B014177A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062992   (437841) от 15.10.2016
+
+Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm Confessin' [02:41]
+ 02.September In The Rain [03:11]
+ 03.That Old Gang Of Mine [02:39]
+ 04.If I Could Be With You [01:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00439B543A017CF7435BD1A25474648793EFB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063003   (437840) от 15.10.2016
+
+Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Body And Soul [03:07]
+ 02.When Day Is Done [03:22]
+ 03.Bouncing With Bean [03:08]
+ 04.April In Paris [03:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1056044F51DA7D1735F5B8A8A8DA7058C1429A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062968   (437839) от 15.10.2016
+
+Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Lot Of Livin' To Do [02:37]
+ 02.I've Got Your Number [02:00]
+ 03.Little By Little [02:05]
+ 04.Got That Magic [01:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA8D71B7E404F7879DE04C30C61FD40825B987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062995   (437836) от 15.10.2016
+
+Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Do Something To Me [01:40]
+ 02.Almost Like Being In Love [01:59]
+ 03.Just One Of Those Things [02:18]
+ 04.That Old Black Magic [02:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C457C273BB3769877FB1B02F9FD2C4B81AC52A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,170 +1,12 @@
-###  Публикация: 1316630   (505020) от 27.07.2019
+###  Публикация: 539310   (504924) от 28.08.2012
 
-Мафия! / Jane Austen's Mafia! (1998) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Дон Винченцо Кортино — глава удивительно неорганизованной преступной группировки. В результате мафиозных разборок на крестного отца совершается коварное покушение — в него стреляют 47 раз, и это заставляет Дона Кортино задуматься о смысле жизни.
-Патриарху криминального мира нужен достойный преемник, который сможет окончательно дезорганизовать преступность (   Читать дальше...   )Производство: США / Touchstone PicturesЖанр: комедия, криминалРежиссер: Джим АбрахамсАктеры: Джей Мор, Билли Бёрк, Кристина Эпплгейт, Памела Гидли, Олимпия Дукакис, Ллойд Бриджес, Джейсон Фучс, Джо Витерелли, Тони Ло Бьянко, Блейк ХэммондПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: английскиеПродолжительность: 01:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896BAE918AB5CE0FDDFE2A3EDADDFA2352325EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316709   (505011) от 27.07.2019
-
-MAGIX Sound Forge Pro Suite 13.0 Build 100 (x86/x64) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505011.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE Pro Suite - программный пакет, позволяющий записывать высококачественный материал, превращая его при помощи дополнительной обработки в настоящие шедевры качественного звука.
-SOUND FORGE Pro Suite  - мощная 64-битная версия идёт в комплекте с поддержкой VST3-эффектов, современными подключаемыми модулями и другими возможностями программного семейства SEQUOIA. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FC5A7C9FD8622C894B018ACE25F307D0B1E2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316590   (505010) от 27.07.2019
-
-K-Lite Codec Pack 15.0.9 Mega/Full/Standard/Basic + Update [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505010.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA35C339242BC53F84F25017D2E0223D9A78D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933655   (505003) от 02.09.2015
-
-Volume (2015) [Ru/Multi] (1.1.00) Repack R.G. Механики
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume — игра о ближайшем будущем, в которой заново рассказывается легенда о Робине Гуде. Локсли не убивает. Это было бы слишком просто. Он предпочитает совершать свои преступления скрытно. Он крадется, он прячется, он отвлекает охрану. Его никогда не видно и редко когда слышно. С ростом популярности Локсли растет и его арсенал.Тип издания: RepackРазработчик: Bithell GamesЖанр: Action, 3D, Top-down, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2642F3EEDD83729DFAB4BEAAFCF5D1023E5FE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904818   (504988) от 02.09.2015
-
-Шёпот / The Whispers (2015) WEB-DLRip (сезон 1, серии 1-13 из 13) NewStudio
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные силы проникают в правительство США и вызывают хаос, при этом остаются незамеченными. Правительственным агентам удается выяснить, что пришельцы используют для воплощения своих целей самое дорогое, что у нас есть — детей…Производство: СШАЖанр: фантастика, драмаРежиссер: Чарльз Бисон, П.Дж. Пеше, Холли ДэйлАктеры: Лили Рэйб, Барри Слоан, Майло Вентимилья, Дерек Уэбстер, Брианна Браун, Каталина Дэнис, Кайли Роджерс, Кайл Харрисон и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF8EAADD4D2DC6F19375434A029178B6CE6C550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904583   (504985) от 02.09.2015
-
-Шёпот / The Whispers (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) (BaibaKo)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные силы проникают в правительство США и вызывают хаос, при этом остаются незамеченными. Правительственным агентам удается выяснить, что пришельцы используют для воплощения своих целей самое дорогое, что у нас есть — детей…Производство: США, ABC Studios, Amblin Television, Grady Girl ProductionsЖанр: фантастика, драмаРежиссер: Чарльз Бисон, П.Дж. Пеше, Холли ДэйлАктеры: Лили Рэйб, Барри Слоан, Майло Вентимилья, Дерек Уэбстер, Брианна Браун, Каталина Дэнис, Кайли Роджерс, Кайл Харрисон и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Лира Грим, Дмитрий Глебов и Александр ФурманЯзык субтитров: русский (форсированные на жесты мальчика)Продолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD644937C70EA113748B802B5BE4E48C35542FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540142   (504978) от 28.08.2012
-
-Nature Wallpapers (27.08.12) [Wallpapers]
+Design and interior of the wallpaper (24.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504924.jpg" />
 </div>
 
 
@@ -174,7 +16,7 @@ Nature Wallpapers (27.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A70D53B777DBDB4456706783D78F5E9448C5D5
+magnet:?xt=urn:btih:DC3757C63D632CFBEB0078DDDE6EFA61BAF4CD2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,15 +24,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540132   (504977) от 28.08.2012
+###  Публикация: 538122   (504922) от 28.08.2012
 
-Nature Wallpapers (26.08.12) [Wallpapers]
+Design and interior of the wallpaper (23.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504922.jpg" />
 </div>
 
 
@@ -200,7 +42,7 @@ Nature Wallpapers (26.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E784364A3A52F996F827D56A17285D68D32601B8
+magnet:?xt=urn:btih:A199899DF328A3AAD4838B6E05967A053A1ECF4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,15 +50,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540131   (504976) от 28.08.2012
+###  Публикация: 539346   (504919) от 28.08.2012
 
-Best HD Wallpapers Pack (26.08.12) [Wallpapers]
+Design and interior of the wallpaper (25.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504919.jpg" />
 </div>
 
 
@@ -226,7 +68,7 @@ Best HD Wallpapers Pack (26.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C34F2BED809861F0C2B418516DD414CFF5841D3
+magnet:?xt=urn:btih:CAAC4DE0A889E0D529A0CA02C2E5DFB81BBA20D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,15 +76,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539343   (504974) от 28.08.2012
+###  Публикация: 537878   (504918) от 28.08.2012
 
-Nature Wallpapers (25.08.12) [Wallpapers]
+Landscapes HD Wallpapers (21.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504918.jpg" />
 </div>
 
 
@@ -252,7 +94,7 @@ Nature Wallpapers (25.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D155C7EE08936AC727C477F8198E92B362D15C9
+magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,15 +102,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538093   (504973) от 28.08.2012
+###  Публикация: 540144   (504917) от 28.08.2012
 
-Nature Wallpapers (22.08.12) [Wallpapers]
+Design and interior of the wallpaper (27.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504917.jpg" />
 </div>
 
 
@@ -278,7 +120,7 @@ Nature Wallpapers (22.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7B6A2D3744E9BECD44D84BE23E9DFF9FC90F0B2
+magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,15 +128,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540140   (504972) от 28.08.2012
+###  Публикация: 540125   (504916) от 28.08.2012
 
-Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
+Журнал | Красота & здоровье № 9(150) [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая женщина хочет быть красивой. Внешняя привлекательность дает уверенность в себе и во многом определяет успехи как в личной жизни, так и в карьере. Безусловно, неотъемлемая составляющая красоты – это здоровье. Чтобы все успеть и реализовать задуманное, современная женщина должна быть полна жизненных сил и хорошо себя чувствовать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050ACF55AB9E8A1A9CA298AE3ED863B6FE15085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540206   (504915) от 28.08.2012
+
+Landscapes HD Wallpapers (28.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504915.jpg" />
 </div>
 
 
@@ -304,7 +172,7 @@ Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F42F96CB269BADE0E7F1BF1F85AFF69E88CB2AA
+magnet:?xt=urn:btih:F566A56060E1AC61C988029B19EEDF37EC65D4DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,15 +180,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539307   (504971) от 28.08.2012
+###  Публикация: 540226   (504914) от 28.08.2012
 
-Nature Wallpapers (24.08.12) [Wallpapers]
+Artworks by Gabriel Deschamps [Графика]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Gabriel Deschamps
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6C7DEEFC2B8FD9DE6C76D586C04419E55A591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538118   (504912) от 28.08.2012
+
+Best HD Wallpapers Pack (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504912.jpg" />
 </div>
 
 
@@ -330,7 +224,7 @@ Nature Wallpapers (24.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD65AE3F44C5D85B54EB92512FF91315212E8BBC
+magnet:?xt=urn:btih:89E1197DF78502A99F60BB7FF5034BBB115AEB92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,15 +232,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538119   (504970) от 28.08.2012
+###  Публикация: 539305   (504910) от 28.08.2012
 
-Nature Wallpapers (23.08.12) [Wallpapers]
+Computer Desktop Wallpapers Collection (24.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504910.jpg" />
 </div>
 
 
@@ -356,7 +250,7 @@ Nature Wallpapers (23.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6317D74018C8E607B483A0EF517353F3400C075
+magnet:?xt=urn:btih:60BB0256536108A48E16BBE591E89A66BA3AE92D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,28 +258,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539756   (504968) от 28.08.2012
+###  Публикация: 540141   (504909) от 28.08.2012
 
-David Salvans - Montseny (1994) [MP3|320 кб/с]<New age, Electronic>
+Best HD Wallpapers Pack (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0121AE89FB736B391DD1765431001782592556D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539400   (504907) от 28.08.2012
+
+Военные учения на Гороховецком полигоне в 2010 году [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военные учения на Гороховецком полигоне в 2010 году
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB611FCD7BF603007D4ECA00683158BB83AFB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538003   (504906) от 28.08.2012
+
+VA - Spiritual High (1999) [MP3|320 кб/с]<New Age, Enigmatic, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(11:06) 1. Turo de grenys
-(12:22) 2. Fragments
-(14:18) 3. Montseny
-(03:30) 4. Tufts & MusicЖанр: New age, ElectronicПродолжительность: 00:41:16
+01.Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:13:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12F216AB9A1573898B07BA9042AB1FFAA4B5949
+magnet:?xt=urn:btih:FC0400152866B44D7ED0D0567AC176FAE63D1F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,15 +336,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539345   (504967) от 28.08.2012
+###  Публикация: 540204   (504905) от 28.08.2012
 
-Desktop wallpapers (25.08.12) [Wallpapers]
+Best HD Wallpapers Pack (28.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504905.jpg" />
 </div>
 
 
@@ -411,7 +354,7 @@ Desktop wallpapers (25.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C9831615A249590CAF589BAD4CE4D7E48EE1F21
+magnet:?xt=urn:btih:AA7A45E968412DDDC1D407FCBB40F7B733F99CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,15 +362,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538094   (504966) от 28.08.2012
+###  Публикация: 539421   (504904) от 28.08.2012
 
-Landscapes HD Wallpapers (22.08.12) [Wallpapers]
+Desktop wallpapers (26.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504904.jpg" />
 </div>
 
 
@@ -437,7 +380,7 @@ Landscapes HD Wallpapers (22.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C9E909A8E4CCEA2575D17101B6809CEDF1E5CA
+magnet:?xt=urn:btih:66F34DD00244A012F5F89A0581DEBC43403720F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,15 +388,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539344   (504965) от 28.08.2012
+###  Публикация: 540207   (504903) от 28.08.2012
 
-Landscapes HD Wallpapers (25.08.12) [Wallpapers]
+Design and interior of the wallpaper (28.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504903.jpg" />
 </div>
 
 
@@ -463,7 +406,7 @@ Landscapes HD Wallpapers (25.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AD6107FE8D20E5D4C18F55B685372CA7D5248C4
+magnet:?xt=urn:btih:A780FFDD3765743223D072167A6A20427155E748
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,15 +414,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540205   (504938) от 28.08.2012
+###  Публикация: 539427   (504900) от 28.08.2012
 
-Nature Wallpapers (28.08.12) [Wallpapers]
+Ships Wallpapers (26.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504900.jpg" />
 </div>
 
 
@@ -489,7 +432,7 @@ Nature Wallpapers (28.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DE89BBA1D3C4E58D9736EE62965EEC0ADB0A324
+magnet:?xt=urn:btih:61BFC4C90BAFA101AEEA915431414336A6BFBCFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,15 +440,71 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538117   (504937) от 28.08.2012
+###  Публикация: 540546   (504899) от 28.08.2012
 
-Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
+Термит & Иллюминатор - Новогодний  (2001) [FLAC|Lossless]<Ambient, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странный симбиоз двух музыкальных начал, породивший в итоге неожиданный результат. Безграничная музыкальная фантазия, уводящая слушателей в эфемерное пространство иллюзий, умело создаваемых музыкантами. Стремительные ритмические завихрения, тесно переплетенные с мягкими мелодиями и атмосферными звуковыми конструкциями, создают завораживающий (гипнотизирующий) музыкальный коктейль. Качественные гитарные и клавишные аранжировки, вкупе с остальными инструментами, смешиваются с космическими напряжёнными шумами. Это придаёт музыке эффект напора, движения вперёд.01. Термит - Белоснежная :: 02:18
+02. Иллюминатор - Ты спишь :: 06:11
+03. Термит - Эдельвейс :: 06:07
+04. Термит - Апрель :: 10:16Жанр: Ambient, ChilloutФормат: Mini-CD, Web trackПродолжительность: 00:24:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540362   (504897) от 28.08.2012
+
+История французских спецслужб [3 серия] / Histoire des services secrets français (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французские спецслужбы считаются не только старейшими в Европе, но и самыми элегантными и коварными. Фильм студии PROGRAM 33 рассказывает об образовании и истории создания французских спецслужб.
+3 серия - История французских спецслужб. "Серьёзное недопонимание. 1981-1989 г.г"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EFB9B197306D1E22498F053294466E970EB148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539306   (504896) от 28.08.2012
+
+Best HD Wallpapers Pack (24.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504896.jpg" />
 </div>
 
 
@@ -515,7 +514,7 @@ Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F84CC597B44E6771EB7ADC87EEB1FD72FEAB8608
+magnet:?xt=urn:btih:0B19F16564F3D22CDFEC89CD3E136D2143EFE3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,15 +522,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538095   (504936) от 28.08.2012
+###  Публикация: 539947   (504895) от 28.08.2012
 
-Nature HD Wallpapers (22.08.12) [Wallpapers]
+Any Video Converter Professional 3.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Pro - это программа для конвертирования видео файлов. Она позволяет перекодировать популярные видео форматы (AVI, MOV, RM, MPEG, DVD, WMV, MP4 и FLV) в DVD, VCD, MP4 или FLV. В утилите присутствует возможность использовать для кодирования файлов как готовые профили с установленными параметрами видео, которые ориентированы на определенные устройства (бытовой DVD-проигрыватель, мобильный телефон), так и самостоятельно подбирать свои настройки конвертирования. Перед началом кодирования видео, его можно просмотреть во встроенном проигрывателе.
+
+(   Читать дальше...   )Название программы: Any Video Converter ProfessionalЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538602   (504893) от 28.08.2012
+
+Monjes Budistas - Sakya Tashi Ling (2005) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient, Ethnic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My spirits flies to you
+02. Secret energy
+03. The other side
+04. River of light
+05. I wanna fly
+06. Om sai ram
+07. Way to Kundalini
+08. Blessings for life
+09. Emotions
+10. Urban Buddishm(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambient, EthnicПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696D797AD09D4D0ADC83867540FF5B3832993FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539410   (504892) от 28.08.2012
+
+Художник Ivan Berryman [Графика]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художник Ivan Berryman
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232D9A1CA32789B26C57757982775E280D05B480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539430   (504891) от 28.08.2012
+
+Wallpapers - Ангелы (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504891.jpg" />
 </div>
 
 
@@ -541,7 +629,7 @@ Nature HD Wallpapers (22.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B3BA976C5FB477EC99DF35B505FBC3AC6790288
+magnet:?xt=urn:btih:95AEAF7DE37777613D59D7D91180FF44BD07DE05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +637,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539420   (504935) от 28.08.2012
+###  Публикация: 540330   (504888) от 28.08.2012
 
-Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
+Mistic - Mistic (2006) [MP3|192 кб/с]<New age, Gregorian Chant>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01 - Mistic
+02 - 10 Przykazan
+03 - Statki Na Niebie
+04 - Zaluje
+05 - Kiedy Powiem Sobie Dosc
+06 - Wiara
+07 - Kropla Deszczu
+08 - Kolysanka Dla Nieznajomej
+09 - To Co Dobre
+10 - Imie Deszczu(   Читать дальше...   )Жанр: New age, Gregorian ChantПродолжительность: 00:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5DD521BA046219890F629B8F96441FFB87C131F
+magnet:?xt=urn:btih:D76125D3E0A8DDBBB1485473B0B2DC69B9CBEB1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,103 +672,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538096   (504934) от 28.08.2012
+###  Публикация: 540340   (504884) от 28.08.2012
 
-Design and interior of the wallpaper (22.08.12) [Wallpapers]
+Павел Попович. Космические приключения (2008) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Фильм о Поповиче Павеле Романовиче – пилоте космического корабля «Восток-4», подполковнике; командире космического корабля «Союз-14», полковнике. Лётчике-космонавте СССР № 4 и 6-м космонавте мира.Жанр: Телепередача, ДокументальныйПродолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:417F1BA87D2167F10F6C349B940CCB3475B73963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537877   (504933) от 28.08.2012
-
-Nature Wallpapers (21.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CDCE1EE4BBA024BEDEFFAE074A4EA7F5E59D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539342   (504932) от 28.08.2012
-
-Best HD Wallpapers Pack (25.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1D04F50933EFC54FFA611978F49867D882462F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538097   (504931) от 28.08.2012
-
-Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7335708E0E2074971D56A0CF1CB5C87B091CA170
+magnet:?xt=urn:btih:0EA7598A36944D58819DF8029C48B7421B2C7164
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,148 +1,3 @@
-###  Публикация: 1614226   (1038897) от 21.02.2023
-
-Карабас и НесуРазности - Ум и красота (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тамара была
-02. Салон
-03. Пианино
-04. Водка(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7CB71EB67F95D4EC043B76FB966C7DACA5F64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614169   (1038888) от 21.02.2023
-
-Рыба пила - Парфюмер (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты танцуешь не со мной! [00:03:58]
-02. Завтра весна [00:04:02]
-03. Парфюмер [00:04:38]
-04. Аня пьяная [00:03:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A0A81EE31DBB9B325B7E2BFAA94AECDAC66271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440338   (1038849) от 17.01.2021
-
-Starified - Fat Hits (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Scapegoat [00:04:23]
-02 - Don Loco [00:05:00]
-03 - An Ode To Tenacious D [00:04:27]
-04 - Anti Rebel [00:04:28](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E2FB3C5E84A63711EC242578B85D5BA6D2A47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615048   (1038112) от 24.02.2023
-
-Карабас и НесуРазности - Едем мы на оргию (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038112.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Едем мы на оргию
-2. Космотанцы
-3. Клоуны
-4. НовостиЖанр: RockПродолжительность: 00:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BF584DAF75AB7022A81DE4A9A17927DE9424F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615555   (1037296) от 27.02.2023
-
-Dis Tortion - Metal Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:24]
-02. Distortion [00:05:11]
-03. Animal Farm (Album version) [00:03:43]
-04. Mr. Dickens [00:04:32](   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E87FA78B5ED059FED8E9C595D7E9FE7B764106C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442045   (1037205) от 23.01.2021
 
 Stay Away - Путешествие из России в Москву (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Punk-Rock>
@@ -745,6 +600,151 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67899B546831608F1604B277DDDD98CC24998EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617550   (1035044) от 07.03.2023
+
+Фильм - Стихия: Иллюзорные миры (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы верим в то, что ждем... [00:01:44]
+02. Наш мир арена жестких игр... [00:00:58]
+03. Часто цвета меняют свою окраску... [00:01:44]
+04. В запутанных дорогах... [00:01:40](   Читать дальше...   )Жанр: RockПродолжительность: 00:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E186C3A463C43A3A1ABB1E8B06FF560A956CC7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617556   (1035041) от 07.03.2023
+
+Счастье - Счастье (2023) [FLAC|Lossless|WEB-DL|tracks] <Garage Punk, Industrial, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Съеденные голуби [00:03:22]
+02. Печень болит [00:03:19]
+03. Коллектив мертвецов [00:02:48]
+04. Оскомина [00:02:35](   Читать дальше...   )Жанр: Garage Punk, Industrial, HardcoreПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B88167A38BBEB8B4E87D35593552DE8DA4473F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617737   (1034843) от 08.03.2023
+
+Animal ДжаZ - Инь (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XXI век [00:04:06]
+02. О хлебе и воде [00:02:47]
+03. Смайлик [00:03:24]
+04. Под нож [00:04:17](   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBC0D094DCA9830F371D256274D6C4EB23C7034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617647   (1034738) от 08.03.2023
+
+БГ (Борис Гребенщиков) - Песни Бардов (2023) [WavPack|Lossless|image + .cue] <Rock, Bard>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элегия (А. Городницкий / Е. Клячкин)
+02. Примета (Б. Окуджава)
+03. Песенка о Солдатских Сапогах (Б. Окуджава)
+04. Неистов и упрям (Б. Окуджава)(   Читать дальше...   )Жанр: Rock, BardПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E5E434EC2D743A1E5817F5F73C95525D2E0283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444333   (1034620) от 01.02.2021
+
+Черный Кофе - Вольному - Воля (1989) Reissue 2003 [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Брожу по городу один [4:13]
+ 02. Вольному - Воля [4:34]
+ 03. Ночь [3:56]
+ 04. Светлый образ [4:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F193ABC29E42E92416EF21A38F457F7633E4BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

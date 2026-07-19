@@ -1,119 +1,3 @@
-###  Публикация: 1286434   (713204) от 02.03.2019
-
-Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Rumba [8:12]
-02. Visa fran Utanmyra/Ganglek fran Alvdalen [8:31]
-03. Blues for Lange [5:38]
-04. Sommar adjo [2:57](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28C15B61743BC92A91C5EDB3107C41038DD7B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286226   (713197) от 02.03.2019
-
-Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Depend on Me [3:28]
-02. My Shining Hour [5:32]
-03. Home with You [4:25]
-04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286431   (713191) от 02.03.2019
-
-Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Almoravid [7:56]
-02. Early Minor [6:53]
-03. Gazelle Suite [3:40]
-04. Catta [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B367B22C5469CA9CD50C12218F65BB9777DBB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286423   (713182) от 02.03.2019
-
-Michel Petrucciani - Blue Note Jazz Inspiration (2011) Blue Note Jazz Inspiration [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Tune [7:03]
-02. Limbo (Live) [8:01]
-03. She Did It Again [4:03]
-04. One For Us [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC82B4F50FFFB68B05830EC0216D749B0B41816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532613   (713111) от 20.02.2022
 
 Nicki Parrott - The Songs Of Four Seasons (2013) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Stree
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131154   (709007) от 05.05.2017
+
+Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Bridge [03:58]
+02. Love Is Here To Stay  [03:25]
+03. It Happens To Be Me [03:23]
+04. All Too Soon [04:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533066   (708997) от 22.02.2022
+
+Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Were Meant for Me [3:35]
+02. I Thought About You [5:10]
+03. Goody Goody [3:50]
+04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131319   (708552) от 05.05.2017
+
+Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone In Love
+02. Isn't It Romantic
+03. L-O-V-E
+04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D96336FADD9F85E6D646D4A0BAEF0C3941F2090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025990   (708294) от 13.06.2016
+
+Chico Hamilton - El Chico & The Further Adventures Of El Chico (1965/1966) 2011, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Chico [03:47]
+ 02.People [06:07]
+ 03.Marcheta [04:02]
+ 04.This Dream [03:12](   Читать дальше...   )Жанр: Mainstream Jazz, Latin JazzПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3631E6B387C14CB78FECAFD2D465FAED293183FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

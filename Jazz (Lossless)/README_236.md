@@ -1,119 +1,3 @@
-###  Публикация: 1267788   (265139) от 08.12.2018
-
-Ahmad Jamal - At The Pershing: But Not for Me (1958) 1997, MCA Records [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not For Me [3:32]
-02. Surrey With The Fringe On Top [2:35]
-03. Moonlight In Vermont [3:10]
-04. (Put Another Nickel in) Music Music Music [2:57](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236B8998A0BAEDDB6F5012C8DF255B3AC9ABD771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267792   (265138) от 08.12.2018
-
-Kazumi Watanabe - Mobo (1983) 2CD, 1996, Polydor [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265138.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shang-Hi (Mobo No.1) [6:21]
-02. Yatokesa (Mobo No.3) [15:34]
-03. Alicia [5:44](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE118D6D58999FB712917F8B4157103DB5C5B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267672   (265136) от 08.12.2018
-
-Jimmy Smith - Dot Com Blues (2000) Verve [FLAC|Lossless|image + .cue] <Organ Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only In It For The Money [4:35]
-02. 8 Counts For Rita [3:40]
-03. Strut [5:04]
-04. C.C. Rider [7:09](   Читать дальше...   )Жанр: Organ Jazz, Soul JazzПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF388C5DE7CB2FCA11844DCE1B29434EBAE2C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267674   (265132) от 08.12.2018
-
-Josh Roseman Unit - Cherry (2000) Enja Records [FLAC|Lossless|tracks + .cue] <Big Band, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Cruel [2:33]
-02. If I Fell [5:10]
-03. Kashmir [6:09]
-04. Land of Make Believe [5:19](   Читать дальше...   )Жанр: Big Band, Jazz FusionПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAAA593D8F4A1ADFEEB62F5648DB803321843E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267552   (265078) от 08.12.2018
 
 George Benson - The Best Of  George Benson (1989) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
@@ -745,6 +629,123 @@ Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42503F3D2AAF0A92ACFBD3EC14EB8EFFD305593B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191864   (263918) от 15.12.2017
+
+Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [06:32]
+02. Dream Behind The Winter [04:17]
+03. Full Moon [04:27]
+04. 3 Steps Ahead of the Spider [05:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46ECEAB268DD91ECB328A940AA6AC3699357A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191855   (263914) от 15.12.2017
+
+George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263914.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blues Alley Jazz:
+01. One for the Woofer [08:32]
+02. Autumn in New York [05:03]
+03. The Masquerade Is Over [06:28](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70DB6A5CC5591DF44473A1004CB0114D60E88E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191856   (263901) от 15.12.2017
+
+Dave Brubeck Quartet - At Wilshire Ebell (1953) 2006, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Smile Again [07:55]
+02. Let's Fall in Love [04:37]
+03. Stardust [06:33]
+04. All the Things You Are [06:54](   Читать дальше...   )Жанр: CoolПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC46FD91BF829099380C47D4F2BAA0F32709E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603566   (263789) от 23.11.2019
+
+Brian Culbertson - 15 Альбомов (1995-2018) [FLAC|Lossless|image+ .cue, tracks+ .cue]<Contemporary Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brian Culbertson — американский джазовый пианист, мультиинструменталист, композитор, продюсер и аранжировщик.
+В 8-летнем возрасте начал обучаться игре на фортепиано, годом позже освоил ударные инструменты, еще через год — тромбон, бас-гитару и в юношеском возрасте уже начал сочинять свои первые произведения.1995 - Modern Life
+1996 - After Hours
+1997 - Secrets
+1999 - Somethin' Bout LoveЖанр: Contemporary Jazz, Smooth JazzПродолжительность: 13:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCC91114C66BC1B5D8589A25EDE0B8D60E74677
 ```
 
 https://mybot314.ru/tekegram_catalog/

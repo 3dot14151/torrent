@@ -1,3 +1,90 @@
+###  Публикация: 982825   (946792) от 04.02.2016
+
+Drowning Pool - Hellelujah (2016) [MP3|320 кб/с] <Alt.Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push (3:14)
+02. By The Blood  (3:28)
+03. Drop (3:42)
+04. Hell To Pay (4:02)(   Читать дальше...   )Жанр: Alt.Metal, Hard RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856E7C92DA837CF8D3302DF7C8457BF75F797162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362892   (946630) от 25.02.2020
+
+The Word Alive - Monomania (2020) [MP3|320 kbps] <Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monomania (03:58)
+02. No Way Out (03:35)
+03. Searching For Glory (03:36)
+04. Another Year In The Shadows (03:33)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12C74923C0BE82F1DFCDFFC7FA4F8421D9844A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982821   (945582) от 05.02.2016
+
+Textures - Phenotype (2016) [MP3|320 кб/с] <Progressive Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceans Collide (06:04)
+02. New Horizons (04:52)
+03. Shaping a Single Grain of Sand (04:21)
+04. Illuminate the Trail (07:16)(   Читать дальше...   )Жанр: Progressive Math MetalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6971BE23A10CB129FD5B0510BEA7A12E10FE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751665   (945013) от 31.01.2014
 
 Ektomorf - Retribution (Digipak Edition) (2014) [MP3|320 кб/с]<Groove / Thrash Metal>
@@ -670,93 +757,6 @@ Persona - Elusive Reflections (2016) [MP3|320 кб/с] <Progressive Metal, Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2C46873DD6D33C210D99F1EE8C91A84984C9C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985649   (933989) от 12.02.2016
-
-Beyond the Black - Lost in Forever (2016) [MP3|320 кб/с] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Forever
-02. Beautiful Lies
-03. Written in Blood
-04. Against The World(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EF6AD33F7E5121236B4BF3D1E91B4BD140A489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365072   (933690) от 05.03.2020
-
-My Dying Bride - The Ghost of Orion (2020) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Your Broken Shore
-2. To Outlive the Gods
-3. Tired of Tears
-4. The Solace(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B235D39839F91EB1BE61460BF8254C2F65A6E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364979   (933419) от 05.03.2020
-
-Crematory - Unbroken (2020) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken
-02. Awaits Me
-03. Rise and Fall
-04. Behind the Wall(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D61C5FB970C675C183BEB794513F7D9B2E32571
 ```
 
 https://mybot314.ru/tekegram_catalog/

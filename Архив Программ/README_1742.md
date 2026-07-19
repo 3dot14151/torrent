@@ -1,3 +1,29 @@
+###  Публикация: 1603892   (204200) от 11.01.2023
+
+Auslogics Disk Defrag Pro 11.0.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C305404C2A598DC64B98465CED3EA6750B847161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603960   (204197) от 11.01.2023
 
 DiskDigger 1.73.59.3361 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -645,33 +671,6 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B100E749CE78BF4A456F92B36167799233200138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656013   (203981) от 28.08.2023
-
-SanDisk (Western Digital) SSD Dashboard 4.0.2.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203981.jpg" />
-</div>
-
-
-###  Подробнее
-
-SanDisk (Western Digital) SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
-Программа SanDisk SSD Dashboard (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1404D0DACFB445D3EEFC5BBCA9773DDCE2CAEBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

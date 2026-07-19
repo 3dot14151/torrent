@@ -1,3 +1,61 @@
+###  Публикация: 1407508   (464116) от 08.09.2020
+
+Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man Blues
+02. Key To The Highway
+03. Young Fashioned Ways
+04. I'm Gonna Move To The Outskirts Of Town(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454C0111FD403A38AA35C82AFF032B9A06931AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161770   (463558) от 30.08.2017
+
+The Dirty Mojo Blues Band - Made Cents At The Time (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin Ice (02:52)
+02. Too Much Alcohol (02:50)
+03. That's Alright (04:28)
+04. Morrow County Jail (03:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F9315C3AF676A31715CB8A06EF9672A0ABA515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940997   (462858) от 27.09.2015
 
 Arlen Roth - Slide Guitar Summit (2015) [MP3|320 кб/с]<Blues Rock, Slide Guitar, Rockabilly>
@@ -705,64 +763,6 @@ Kim Simmonds And Savoy Brown - The Devil To Pay (2015) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E335538E7A4E0EBB968ADB3928C2D38C079675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323295   (437874) от 03.09.2019
-
-Dave P. Moore - Fort Necessity (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fort Necessity (05:08)
-02. 420 Blues (05:48)
-03. Hank's Basement (04:54)
-04. Rainin' In The Delta (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588B6D6CEDAFDABBEFE0E7C7983ADFEC95D3510A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063001   (437278) от 15.10.2016
-
-Nick Waterhouse - Never Twice (2016) [MP3|320 Kbps] <Rhythm & Blues, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Time  (03:08)
-02. I Had Some Money (But I Spent It) (03:12)
-03. Straight Love Affair  (03:18)
-04. Stanyan Street (07:48)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock'n'RollПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05EC38A38260256C107CC50F0A17E14D6623814
 ```
 
 https://mybot314.ru/tekegram_catalog/

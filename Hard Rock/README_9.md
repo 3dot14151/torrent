@@ -1,3 +1,61 @@
+###  Публикация: 1396100   (750071) от 13.07.2020
+
+Shout The Band - Made Of Gold (2020) [MP3|320 Kbps] <Melodic Hard Rock, Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Into You (03:29)
+ 02. Memories (03:07)
+ 03. Wake Up Call (04:12)
+ 04. Loser Boy (03:26)(   Читать дальше...   )Жанр: Melodic Hard Rock, Alt.RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF34900C8330D81638D14DEDC66B5B475697B5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020148   (746822) от 25.05.2016
+
+Acacia Avenue - Early Warning (2016) [MP3|320 кб/с] <Hard Rock, Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Love    04:40
+02. Running Out Of Time    04:44
+03. Broken Dreams    05:14
+04. Early Warning    04:48(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard Rock, AORПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA01B86C2D3458F8658B33C8BBDBF78043C843BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217349   (743130) от 04.04.2018
 
 Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
@@ -690,64 +748,6 @@ Statement - Force of Life (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BFD6C4D425E38EB4D7C0AAC7D683EC1AB4E95BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024577   (716129) от 09.06.2016
-
-Stretch - You Can't Beat Your Brain For Entertainment (1976) [MP3|320 кб/с] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fixin' To Die
-2. If The Cap Fits
-3. The Way Life Is
-4. That's The Way The Wind Blows(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AF1F9580C52B78823086B3F50B4C2088E8EF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130683   (714236) от 02.05.2017
-
-Days Of Jupiter - New Awakening (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Never Die  (05:00) 
-02. I Am Stone  (03:53) 
-03. My Tragedy, My Curse  (04:26) 
-04. Wasted Years  (04:58) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E40712D0A532CAC0AAA290240A00E2AA66A9FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

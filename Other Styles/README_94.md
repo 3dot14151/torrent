@@ -1,3 +1,196 @@
+###  Публикация: 1152193   (563145) от 24.07.2017
+
+Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Departure (1:41)
+02. Cosmic Rhythms (6:00)
+03. Redshift (3:40)
+04. Dawn Of Time (5:47)(   Читать дальше...   )Жанр: Electronic, New Age, Downtempo |Продолжительность: 01:50:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141217946456D8B3CF30A13D064CB06BD2051F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528328   (562951) от 02.08.2012
+
+David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Native American, Spiritual, Healing, Nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562951.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sunrise Ritual
+2. Calling The Sacred Beat
+3. Shaman's Dance
+4. Path With A Heart
+5. Within The Cloud Lodge
+6. Spirit Vision
+7. Mother Earth, Father Sky
+8. Gift Of The Eagle
+9. Flowering Tree
+10. Rainbow HoopЖанр: New Age, Native American, Spiritual, Healing, NatureПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C56A2BBF02EF28B63AB47D237DD49CD9B374FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529933   (562947) от 02.08.2012
+
+Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kubrick) (1962) [MP3|320 кб/с]<OST Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Harris - Lolita Main Title (2:00)
+ 2. Nelson Riddle - Quilty (Quilty's Theme) (2:55)
+ 3. James Mason, Peter Sellers - Dialogue: Quilty As Charged (0:51)
+ 4. Nelson Riddle - Ramsdale (Arrival In Town) (0:47)
+ 5. Shelley Winters, James Mason - Dialogue: Cherry Pies (0:30)
+ 6. Nelson Riddle - Lolita Ya Ya (3:26)
+ 7. Sue Lyon, Shelley Winters - Dialogue: Hula Hoop (0:12)
+ 8. Nelson Riddle - Quilty's Caper (School Dance) (1:52)
+ 9. Peter Sellers, Shelley Winters - Dialogue: A Lovely, Lyrical, Lilting Name (0:25)
+ 10. Paul Mann & Steohen Weis - Put Your Dreams Away (for Another Day) (3:03)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E58585C16733D801484100295AD87D8E44CB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530348   (562681) от 02.08.2012
+
+Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<Latin, Pop / Tango, Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balada Para Mi Muerte - Angela Denia Tarenzi, Astor Piazzolla, Horacio Ferrer [04:53]
+02. Los Pajaros Perdidos - Astor Piazzolla, Michele Trejo [04:06]
+03. Decarisimo - Astor Piazzolla [02:50]
+04. Années De Solitude (Anni De Solitudine) - Angela Denia Tarenzi, Astor Piazzolla, Maxime Le Forestier, Simonluca [03:47]
+05. Balada Para Un Loco - Astor Piazzolla, Horacio Ferrer [05:49]
+06. Vamos Nina - Astor Piazzolla, Horacio Ferrer [04:27]
+07. Oblivion (J'Oublie) - Angela Denia Tarenzi, Astor Piazzolla, David McNeil, Simonluca [04:28]
+08. Che Tango Che - Angela Denia Tarenzi, Astor Piazzolla, Jean-Claude Carrière, Simonluca [03:49]
+09. Rinascerò (Preludio Para El Año 3001) - Angela Denia Tarenzi, Astor Piazzolla, Horacio Ferrer [04:21]
+10. Entre Brecht Et Brel (Finale) - Angela Denia Tarenzi, Astor Piazzolla, Claude Lemesle, Simonluca [05:16]Жанр: Latin, Tango, VocalПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280516   (562526) от 01.08.2015
+
+Win Kowa - 6 альбомов (1992 - 2000) [MP3|192, 320 кб,]<New age, Relax, Electronic, Rock, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win Kowa - довольно известный немецкий композитор, музыкант, поэт-песенник, продюсер. Обладатель многих наград за музыку к художественным и телевизионным фильмам, радиопередачам.
+Широк диапазон стилей создаваемой им интереснейшей музыки!Список альбомов:
+1992 - Discovery Drive
+1993 - Touchdown
+1995 - Imagination(   Читать дальше...   )Жанр: New age, Relax, Electronic, Rock, EthnicПродолжительность: 05:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A1D05CF8BA5CBB2B81843079C9BEBB6EC12F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304603   (561847) от 27.05.2019
+
+Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Godzilla Main Title (02:35)
+03. Memories of San Francisco (02:11)
+04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304653   (561840) от 27.05.2019
 
 Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -575,176 +768,6 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045738   (557732) от 24.08.2016
-
-Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Blowin' In The Wind [02:48]
- 2 - The Times They Are A-Changin' [03:14]
- 3 - Don't Think Twice, It's All Right [03:40]
- 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045533   (557724) от 24.08.2016
-
-VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557724.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grease [03:25]
- 2. Summer Nights [03:36]
- 3. Hopelessly Devoted To You [03:05]
- 4. You're The One That I Want [02:49](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045709   (557723) от 24.08.2016
-
-Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New Age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hymn (05:44)
-02 - (Everything I do) I do it for you (05:45)
-03 - Yesterday (05:02)
-04 - Deep Prayer (04:25)(   Читать дальше...   )Жанр: New Age,EnigmaticПродолжительность: 04:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262307204CC92B7A7D10634A8D63649D27CDFD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924813   (557535) от 04.08.2015
-
-Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 кб/с]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Didge Playa Musica para la Relajacion
-02. Didge Cielo Musica para SanacionЖанр: New Age, Relax |Продолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AB31CC58BEB610A33519AE4A843BCE14FE8565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924598   (557477) от 04.08.2015
-
-VA - Southpaw (2015) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. James Horner – Cry For Love (Part 1)
-2. Eminem ft. Gwen Stefani – Kings Never Die
-3. Rob Bailey & The Hustle Standard ft. Busta Rhymes, Kxng Crooked & Tech N9ne – Beast (Southpaw Remix)
-4. Denaun – This Corner(   Читать дальше...   )Жанр: OSTПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147FF249638B0E8EB9F27D4F0F3021A953F274BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235697   (557323) от 13.07.2018
-
-Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cirlces of Light (37:53)
-2. Temple Trance (25:09)Жанр: New Age, Meditative, RelaxПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5470585B8BF05D70FE5E9F177427697AE44DF817
 ```
 
 https://mybot314.ru/tekegram_catalog/

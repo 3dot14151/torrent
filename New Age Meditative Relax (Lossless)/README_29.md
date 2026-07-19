@@ -1,3 +1,32 @@
+###  Публикация: 1436138   (138721) от 30.12.2020
+
+Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Forest (Symphonic Version)
+02. Cafe Europa (Symphonic Version)
+03. Night Bird (Symphonic Version)
+04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195762   (138081) от 31.12.2017
 
 Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electronic, Pop Rock>
@@ -726,35 +755,6 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784919   (69235) от 16.03.2025
-
-Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
 ```
 
 https://mybot314.ru/tekegram_catalog/

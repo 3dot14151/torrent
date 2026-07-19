@@ -1,3 +1,69 @@
+###  Публикация: 521940   (625155) от 12.07.2012
+
+VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD [MP3|320 кб/с]<Blues, West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC Douglas - Mercury Blues (2:27)
+02. Sidney Maiden - Eclipse Of The Sun (2:34)
+03. Little Son Willis - Bad Luck And Trouble (2:42)
+04. Little Son Willis - Operator Blues (3:29)
+05. Black Diamond - T P Railer (2:42)
+06. Black Diamond - Lonesome Blues (2:27)
+07. Sonny Boy Johnson - Dessert Blues (2:56)
+08. Sonny Boy Johnson - Come And Go With Me (2:49)
+09. Willie B Huff - Beggar Man Blues (3:00)
+10. Willie B Huff - I've Been Thinkin And Thinkin (3:06)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 02:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6987C871C7E0E964A8C3772AF018253143AABC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521950   (625149) от 12.07.2012
+
+VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+CD1 - Blow Wind Blow
+CD2 - Big World
+CD3 - Tough Times
+CD4 - Korea BluesЖанр: Blues, Chicago BluesПродолжительность: 04:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB057B0D2ED384D62E1FEEAE84975CAA816F7600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035732   (624572) от 18.07.2016
 
 VA - The Real... Blues: The Ultimate Collection (2015) [MP3|320 Kbps] <Blues>
@@ -689,64 +755,6 @@ Billy Price & Otis Clay (ft. Duke Robillard) - This Time For Real (2015) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A95E4E4A4A71CBD17F13C4AB612EF1844B36C5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037769   (612014) от 25.07.2016
-
-Tracy Chapman - Greatest Hits (2015) Compilation (Remastered)[MP3|320 Kbps] <Blues Rock, Folk Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telling Stories (2015 Remastered)    03:58
-02. Baby Can I Hold You (2015 Remastered)    03:12
-03. Change (2015 Remastered)    05:05
-04. The Promise (2015 Remastered)    05:25(   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Pop RockПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ECDE1F2B6DA5130DCFA5232E755422FE1906A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147189   (611315) от 01.07.2017
-
-Shaw Davis & The Black Ties - Shaw Davis & The Black Ties (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Hit the Road  (03:28) 
-02. Set Me Free  (04:47) 
-03. Hell with Ya  (04:12) 
-04. Starvin' Blues  (03:48) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1DA9856F7D54E309BA0EB35F991B5ADD24689D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,125 +1,3 @@
-###  Публикация: 1500379   (841397) от 06.10.2021
-
-Warne Marsh Groups - Noteworthy (1956 - 1979) 1988, Discovery Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hard Way [4:08]
-02. Noteworthy [4:23]
-03. Finishing Touch [3:44]
-04. How Deep, How High [4:33](   Читать дальше...   )Жанр: CoolПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3818A0D24E735B52E5878A77B599383DEDB6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500381   (841395) от 06.10.2021
-
-Tony Bennett & Count Basie - Swingin' Together (1958) 2021, 20th Century Masterworks [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [1:48]
-02. When I Fall in Love [2:22]
-03. Taking a Chance on Love [2:00]
-04. Without a Song [3:09](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E473FE06664107033A161E7A27382CFE3DC3A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500374   (841307) от 06.10.2021
-
-Roy Eldridge With The Gene Krupa Orchestra Featuring Anita O'Day - Uptown (1941 - 1949) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Eyes [2:41]
-02. Let Me Off Uptown [3:06]
-03. Kick It! [2:29]
-04. After You've Gone [2:39](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA0D3EED48C58D5CD2083DF30F2832352910882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309679   (840910) от 16.03.2011
-
-Paul Hardcastle - Desire (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (4:27)
-02. Valentine (3:47)
-03. Forever Dreamin (4:50)
-04. Closer (4:55)
-05. Wonderland (5:18)
-06. Lost Summer (4:51)
-07. Same Place Same Time (5:52)
-08. Lost In Space (4:56)
-09. Smooth Jazz Is Bumpin (4:09)
-10. Cloud Watching (5:30)(   Читать дальше...)Жанр: Jazz-Pop, Smooth Jazz, New AgeПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004181   (840316) от 05.04.2016
 
 Russ Garcia & His Vocal Choir & Orchestra - Sounds In The Night (1957) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Third Stream>
@@ -766,6 +644,125 @@ VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310263   (837707) от 18.03.2011
+
+The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nevada (15:34)
+02. Where Flamingos Fly (5:12)
+03. Bilbao Song (4:13)
+04. Stratusphunk (8:05)
+05. Sunken Treasure (4:19)
+06. Sister Sadie (6:57)Жанр: Jazz, Progressive Big Band, Cool, Post-Bop, Modern Big BandПродолжительность: 00:44:19
+                
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379632   (837676) от 30.04.2020
+
+Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Like You [4:24]
+02. Meditacao [6:45]
+03. I Fall in Love Too Easily [6:36]
+04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004845   (836974) от 07.04.2016
+
+Bobby Hutcherson - Now! (1969) Remaster, 2004, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slow Change [07:18]
+ 02.Hello To The Wind [06:00]
+ 03.Now [02:47]
+ 04.The Creators [12:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EB952EC132FEE323B9B8B522F8E48C1E845E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004818   (836973) от 07.04.2016
+
+The Phil Woods Six - Live From The Showboat (1976) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836973.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.A Sleepin' Bee [07:39]
+02.Rain Danse [08:21]
+03.Bye Bye Baby [07:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF35BAFCA1EBF401A2CE65CDCF2ED2EA526FDA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

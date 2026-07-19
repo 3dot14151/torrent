@@ -1,3 +1,181 @@
+###  Публикация: 1414580   (376166) от 12.10.2020
+
+Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376166.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:36] 01. Intro
+[03:21] 02. Blood Machines Theme
+[03:19] 03. Attack Of The Amazons
+[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414498   (376026) от 12.10.2020
+
+Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kbps] <New Age, Enigmatic, Choral>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Procession
+02. Misereris
+03. Christus factus est
+04. Halleluja I(   Читать дальше...   )Жанр: New Age, Enigmatic, ChoralПродолжительность: 05:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CA38E148FE29903538BD113965F226A0EA5C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415368   (376011) от 12.10.2020
+
+Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069010   (375962) от 03.11.2016
+
+David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Rain [00:03:43]
+02. The Approaching Storm [00:04:53]
+03. Cloud Burst (Interlude) [00:01:31]
+04. And Skies Opened Up [00:04:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABB69AD400C84B3A3CC987BDB1C128C341DAD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574336   (375539) от 12.11.2012
+
+V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FLAC (tracks+cue)|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disco Dancer (1982)
+01. Vijay Benedict - I Am A Disco Dancer
+02. Parvati Khan - Jimmy Jimmy Jimmy Aaja
+03. Usha Uthup, Bappi Lahiri - Auva Auva Koi Yahan Nache
+04. Bappi Lahiri - Yaad Aa Raha Hai
+05. Nandu Bhende - Krishna Dharti Pe Aaja Tu
+06. Kishore Kumar - Ae Oh Aa Zara Mudke
+07. Suresh Wadkar - Goron Ki Na Kalon Ki
+Kasam Paida Karne Wale Ki (1985)
+08. Salma Agha - Dance Dance(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574330   (375454) от 12.11.2012
+
+Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys / RZA - The Baddest Man Alive
+  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
+  03. Kanye West - White Dress
+  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
+  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 33144   (375013) от 12.11.2012
 
 Music of the Shamans (Музыка шаманов)
@@ -565,180 +743,6 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070689   (366531) от 07.11.2016
-
-Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quarantine Zone (20 Years Later) - [3:40]
-02. The Hour - [1:02]
-03. The Last of Us - [3:04]
-04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255343   (366232) от 17.10.2018
-
-Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titles (2:18)
- 02. Mourning (3:24)
- 03. Beach (2:35)
- 04. Knife (2:25)(   Читать дальше...   )Жанр: Score, ModernПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576400   (366159) от 14.09.2022
-
-Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinding Lights [03:29]
-02. Bad Habits [03:51]
-03. Wellerman (2k21 Native RMX) [02:12]
-04. Cold Heart [03:24](   Читать дальше...   )Жанр: New Age, Instrumental, Native AmericanПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5DF295B8C40CAC6C84EF65C513FEB25370154A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255367   (366059) от 17.10.2018
-
-The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterlily (4:29)
- 02. Miss Casey Medley (2:00)
- 03. Byker Hill (2:47)
- 04. Atlantic Blue (4:15)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255339   (366052) от 17.10.2018
-
-VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Bird - Prayer of St. Francis (From St. Francis Hymn) (00:21)
-02. Alanis Morissette - Hand in My Pocket (03:38)
-03. HAIM - Little of Your Love (03:33)
-04. Adolf Fredrik Girls Choir - Panis Angelicus (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2603EC4694D1F20603B26A24653C0C82B440E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328097   (366029) от 29.09.2019
-
-Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triangular Navigation (9:01)
-02. We Continue the Search (7:42)
-03. Andromeda (5:59)
-04. Comets Went Forever (4:54)(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

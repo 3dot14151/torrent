@@ -1,3 +1,32 @@
+###  Публикация: 1222694   (683029) от 30.04.2018
+
+Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Dance To The Beat (Remix) 5:01
+02. Indian Grave 4:02
+03. Pump It Up 4:26
+04. Masterboy Theme 4:41(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135317   (682914) от 18.05.2017
 
 Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop, Easy Listening>
@@ -713,35 +742,6 @@ VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291641   (668805) от 25.03.2019
-
-VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days 3:32
-002. Jess Glynne - Hold My Hand 3:47
-003. Clean Bandit feat. Anne-Marie & Sean Paul - Rockabye 4:10
-004. Panic! At The Disco - High Hopes 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB09DBFEEFCB2A8BF1D162527F5D19BA2D1A722E
 ```
 
 https://mybot314.ru/tekegram_catalog/

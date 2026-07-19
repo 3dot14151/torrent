@@ -1,3 +1,119 @@
+###  Публикация: 1278364   (771827) от 25.01.2019
+
+Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn to Live (03:56)
+02. 2 Kids (03:31)
+03. No Roots (03:57)
+04. Funny Business (03:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5222F3ACD1F563A121EB512478E6919E98F1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015749   (771256) от 13.05.2016
+
+The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Alternative rock, Indie pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771256.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1.	"Hand in Glove" (7" version) – 3:17
+2.	"This Charming Man" – 2:43
+3.	"What Difference Does It Make?" (Peel Session) – 3:13(   Читать дальше...   )Жанр: New wave, Alternative rock, Indie popПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016448   (770274) от 14.05.2016
+
+Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borders & Fences
+02. Times Of Our Lives
+03. A Million Good Reasons
+04. Here I Am(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB75DF0E0B2E288BEC2504AC7563E1B98F6FF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392141   (769875) от 24.06.2020
+
+Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves (05:31)
+02. In the Den (06:45)
+03. Desert Rambler (09:02)
+04. Step Into You (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC6CC5BD69B06118168DF674CBAD73D8072923A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278752   (768604) от 26.01.2019
 
 Bob Mould - Sunshine Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -629,122 +745,6 @@ Broods - Don't Feed the Pop Monster (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905665E84F9BB05AE055D6EB471B8E68A2A10275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215746   (756491) от 27.03.2018
-
-Incubus - Morning View (2001) Epic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice to Know You (4:44)
-02. Circles (4:09)
-03. Wish You Were Here (3:35)
-04. Just a Phase (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD894C2B5F2157BA8C45186F1A72A544013FA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662144   (752461) от 01.06.2013
-
-Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alternative Rock, Synth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming (Minutes To Midnight Demo) (3:08)
-02. Points Of Authority (Demo) (3:05)
-03. Clarity (Minutes To Midnight Demo) (3:05)
-04. Asbestos (Minutes To Midnight Demo) (1:55)(   Читать дальше...   )Жанр: Alternative Rock, Synth RockПродолжительность: 19:43:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281431   (752083) от 08.02.2019
-
-Jessica Pratt - Quiet Signs (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Night (01:39)
-02. As the World Turns (03:11)
-03. Fare Thee Well (04:05)
-04. Here My Love (02:54)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB366881D4B4BC4D71ADB4C780B0158EB464401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281027   (752082) от 08.02.2019
-
-Nina Nesbitt - The Sun Will Come Up, The Seasons Will Change (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred (02:37)
-02. The Moments I'm Missing (03:47)
-03. The Best You Had (02:56)
-04. Colder (03:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337504E3FC40DDF7ECF7C692B2DB6003B3964D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

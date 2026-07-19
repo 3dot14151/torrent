@@ -1,279 +1,3 @@
-###  Публикация: 621703   (961736) от 21.02.2013
-
-Биплан - В jazz'е только девушки (2000) [FLAC|Lossless] <Rock, BritPop, IndiePop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космонавты (02:34)
-02. Чао бамбино (02:43)
-03. Телефоны (02:51)
-04. Киносны (03:20)
-05. Родинки (03:35)
-06. Самолёты (02:26)
-07. Улыбки (02:19)
-08. Деньги (02:55)
-09. Киносны (Happyendless remix) (04:58)
-10. Улыбки (Matisse happy gibb rmx) (05:08)(   Читать дальше...   )Жанр: Rock, BritPop, IndiePopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621713   (961640) от 21.02.2013
-
-BY Effect - Первый шаг (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обратная сторона (04:21)
-02. Мы (03:30)
-03. Холод истин (04:11)
-04. Первый шаг (04:52)
-05. Для неё (04:29)
-06. Безумные звезды (04:23)
-07. Кризис (04:02)
-08. Легион (03:57)
-09. Период счастья (04:25)
-10. Не война (05:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170390   (961420) от 29.01.2010
-
-ВИА "Круг" - Круг друзей (2003) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454424   (961180) от 21.02.2013
-
-АнимациЯ - 2 Альбома (2010-2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На минуту (02:48)
-02. Родина (02:57)
-03. Питерская (03:19)
-04. Дневник (03:40)
-05. Холодильник (03:18)
-06. Прелесть (04:37)
-07. Всё будет хорошо (03:29)
-08. Спички (03:15)
-09. Чукчи(Народная) (03:26)
-10. Точка отсчёта (03:03)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:40:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979199   (960882) от 25.01.2016
-
-Аквариум - Grand Collection (2001) Compilation, Квадро-Диск [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Acoustik>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город Золотой 02:41
-02. Мочалкин блюз 02:29
-03. География 02:14
-04. Рок-н-ролл мертв 05:14(   Читать дальше...   )Жанр: Rock, Blues Rock, AcoustikПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840D2002BF8D771598AD4CE9C3F3FE34803FE247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979005   (960877) от 25.01.2016
-
-АлисА - Шестой лесничий (1989) Remastered, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новый метод
-2. Тыр-тыр-тыр
-3. Шестой лесничий
-4. Театр теней(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BB58677C5D6D5ECD95D254D1755E3F2C75D56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979130   (960762) от 25.01.2016
-
-Кино - Grand Collection. Часть 2 (2001) Compilation, 2005, Квадро-Диск [FLAC|Lossless|image + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Группа крови 04:40
-02. Война 03:53
-03. Мама, мы все тяжело больны 03:00
-04. Последний герой 03:04(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0798E5E275E06B9252BC2A5457615EF305AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360706   (959299) от 16.02.2020
-
-Альянс - Космические сны (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Навстречу холодному свету
-02. Космические сны
-03. Эй, мен, супермен!
-04. Ночь сомнения(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979931   (958361) от 27.01.2016
-
-Нервы - Третье дыхание (2015) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я здесь!
-02. ЗТНБ
-03. На Луну
-04. Мы – Мир!(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E0ACCE93EA3450248BF480F7F515F00546D5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979939   (958183) от 27.01.2016
 
 Пикник - Большая игра (2015) 3CD [FLAC|Lossless|image + .cue] <Rock>
@@ -766,6 +490,264 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871067   (943349) от 06.02.2016
+
+Кино - Последний герой (1989) /1993, Moroz Records/ [FLAC|Lossless]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хочу Перемен (5:00)
+02. Электричка (4:50)
+03. Война (4:04)
+04. Троллейбус (2:58)(   Читать дальше...   )Жанр: РокПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1616DA649EBCA35BE725CE479D825CF3DCA026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626531   (942697) от 06.03.2013
+
+Vivienne Mort - Teatr PipinO (2013) [FLAC|lossless] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перейди, місяцю! (02:22)
+02. Г.Г.П.Т.К.Н. (04:21)
+03. День, коли святі... (06:26)
+04. Камінсорі (04:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175169   (941905) от 13.02.2010
+
+Яна Станиславовна Дягилева (Янка) - Дискография (1988-1991гг + Переиздания 2007г) [FLAC|Lossless]<Рок / Фолк Рок / Пост Панк : Rock / Folk Rock / Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок / Фолк Рок / Пост Панк : Rock / Folk Rock / Post PunkПродолжительность: 12:38:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983567   (941860) от 07.02.2016
+
+Пикник - Иероглиф (1995) [APE|Lossless|image + .cue] <Rock , Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	Остров 	        04:50
+2. 	Иероглиф 	        05:42
+3. 	Праздник 	        04:30
+4. 	Ты Вся Из Огня 	04:20(   Читать дальше...   )Жанр: Rock , Goth RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3207C1E09A051A072D5C71F189BE18C0ED5888AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363922   (940914) от 29.02.2020
+
+Веня Д'ркин - Всё Будет Хорошо (1997) Reissue, Remastered, 2019, Выргород [FLAC|Lossless|tracks + .cue] <Rock, Acoustic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бразильская страдальческая (1:42)
+02. Про любовь №3 (2:26)
+03. Мы туда не пойдём (2:10)
+04. Город с Ад (2:43)(   Читать дальше...   )Производство: Выргород – 200Жанр: Rock, Acoustic, FolkПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4862F9925352BBB71B88FC7DE3AE7EB25A9D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092404   (939961) от 11.01.2017
+
+Тараканы! - Лучшие из лучших (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom
+02. Крыса
+03. Непогода
+04. Дурная башка(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF24380FF6CED92F13D220931F2FBBEC76EB501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984090   (939623) от 08.02.2016
+
+Nautilus Pompilius - Крылья (1995) [FLAC|Lossless|image + .cue] <Rock , Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Крылья 	03:46
+02.Железнодорожник 	05:09
+03.Дыхание 	03:39
+04.Золотое Пятно 	04:25(   Читать дальше...   )Жанр: Rock , Art RockПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD99DC2D8EB861C1EE15F9283EE82F7188F4955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985003   (936649) от 10.02.2016
+
+Ночные снайперы - Выживут только влюбленные (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. шагай (3:22)
+02. наотмашь (3:51)
+03. этонемне (4:16)
+04. помолчим (4:42)(   Читать дальше...   )Жанр: РокПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70741AC666FB257777B544911FF418EB43BBBCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364551   (936299) от 03.03.2020
+
+Gorky Park - The Best (2013) VG Music, 2017 [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow Calling (5:10)
+02. Stare (4:58)
+03. Welcome To The Gorky Park (4:15)
+04. Stranger (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5755B78E37A0FAF4C0DE6C94476569E2BF9C96DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

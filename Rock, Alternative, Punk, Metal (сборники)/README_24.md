@@ -1,3 +1,90 @@
+###  Публикация: 1031649   (651483) от 04.07.2016
+
+Cliff Richard - The Hits (2015) [MP3|320 Kbps] <Pop, Rock, Rock'n'Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Suede Shoes
+02. Early in the Morning
+03. I Gotta Know
+04. Sway(   Читать дальше...   )Жанр: Pop, Rock, Rock'n'RollПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA911321009335C5ED7A5C5B9A39601B12C5ABFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905270   (651439) от 05.06.2015
+
+VA - Alterportal HITS 15 Vol. 81 -  May (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stellar Revival - The Crazy Ones
+02. Marigold - The Hunter
+03. Lindemann - Praise Abort
+04. Coal Chamber - Light In The Shadows(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C523A4A09683D3478F459C487251F953B35CDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031533   (651361) от 04.07.2016
+
+Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Rainbow In The Dark
+03. Along Comes A Spider
+04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905276   (651336) от 05.06.2015
 
 VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
@@ -664,93 +751,6 @@ VA - Are You Ready? (Vol.23) (2016) [MP3|128 - 320 Kbps] <Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78EBBBC6CA27B3F6162A6DB37538CAB85E084CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543418   (625787) от 13.04.2022
-
-VA - Svanrenne Music: Russian Subterranean Doom Metal (2022) [MP3|320 Kbps] <Doom Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625787.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Crunch - Future Power [00:05:34]
-002 Anal Pus - Unsurmountable Exhaustion of Disentombed... [00:04:41]
-003 Well Done Beat - My Chrystally Charred Rain [00:03:36]
-004 Painful Memories – Why- [00:11:00](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 13:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDB2D71DCF4146E5C852F4992DF5B8C9A5CC4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294766   (625589) от 09.04.2019
-
-VA - The Best Of The Rock`s #1 (2019) [MP3|320 Kbps] <Rock, Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Cranberries - Zombie
-002. The Rolling Stones - Anybody Seen My Baby
-003. Dire Straits - Money For Nothing
-004. Aerosmith - Amazing(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 07:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11092A19DBE3C58FC40DA8ED56467E5B1AA9079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543796   (625410) от 13.04.2022
-
-Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Road
-02. All Night Long
-03. Sometimes
-04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

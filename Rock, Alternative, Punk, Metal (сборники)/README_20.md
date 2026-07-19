@@ -1,3 +1,90 @@
+###  Публикация: 1282694   (743389) от 13.02.2019
+
+Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Slip
+02. When The Tigers Broke Free
+03. Not Now John
+04. Take It Back(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 02:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423D91DFDD1FE56BE9E92AF0ED4D88C83BE9D6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217326   (743236) от 04.04.2018
+
+VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Burning Witches - Black Widow
+002. Esclavitud - This Time
+003. Dark Sarah - Breath
+004. Ghost of Mary - The Moon and the Tree(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524804   (742245) от 17.01.2022
+
+L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kbps] <Hard Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742245.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Killing Machine
+02. Kiss Of Death
+03. One More Reason(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ABCCEE38CD628C8D85EBCE84F68E2650285E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525724   (739036) от 22.01.2022
 
 VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
@@ -662,93 +749,6 @@ VA - Metal Tuning Fork (2018) [MP3|320 Kbps] <Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE856014DE4119B70661B2114183C107F136140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218400   (721631) от 10.04.2018
-
-VA - Presage Of Emptiness (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avatarium - into the Fire / into the Storm
-002. Ajattara - Saatanan sinetti
-003. John Frum - Presage Of Emptiness
-004. From Eden To Exile - Gospel Untold(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A32446C0A8BF68F15932DEB747D9825193AE06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218824   (719106) от 11.04.2018
-
-VA - Русский Рок. Лучшее 2018 (2018) [MP3|320 Kbps] <Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночные Снайперы - инстаграм
-02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
-03. Александр Иванов - Боже, какой пустяк
-04. Vespercellos - Я остаюсь(   Читать дальше...   )Жанр: РокПродолжительность: 06:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35875247D6017389F6A19946BC340BD588906CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285034   (718684) от 27.02.2019
-
-VA - Vynil Rock Classic Mania (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. King Buffalo - Quickening
-002. Afi - Get Dark
-003. Blondie - Heart Of Glass
-004. Comisario Pantera - El Camino De La Noche(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91497423C5EC5D634127C5A5A105C2408BE2EBF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

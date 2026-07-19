@@ -1,22 +1,22 @@
-###  Публикация: 1877283   (1073763) от 20.06.2026
+###  Публикация: 1880413   (1076243) от 06.07.2026
 
-Андрей Царёв | Выживальщики (Книга 2). Конец игры (2026) [MP3, CHUGA (Артём Чугуев)]
+Mike O’Leary | Linux Security Foundations. A Practical Guide to System Processes, Permissions, and Protection (2026) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В мире свирепствует ужасный вирус, смертность необычайно высока. Наконец, находят вакцину от страшной болезни. Но спасение оборачивается апокалипсисом... Продолжение романа "Игры выживальщиков".Жанр: ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 08:26:19
+Whether you're a student stepping into the world of cybersecurity or a self-taught learner eager to build real-world skills, this book is your gateway to understanding and mastering Linux from both offensive and defensive perspectives. Designed for readers with a basic familiarity with Linux, it dives deep into the practical techniques that form the backbone of system (   Читать дальше...   )Жанр: Linux Programming, Unix Operating System, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43A2D8220DFB98712D7878B0CE5AEB9C72316F4F
+magnet:?xt=urn:btih:06654A3A3901C7598718792E9E72A0498BEBFDB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,306 +24,300 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1877280   (1073764) от 20.06.2026
+###  Публикация: 1879609   (1076244) от 06.07.2026
 
-Глубокие воды / Deep Water (2026) WEB-DLRip [H.264]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолёт, следующий из Лос-Анджелеса в Шанхай, из-за пожара и взрыва на борту совершает аварийную посадку в кишащих акулами водах. Пассажирам приходится объединить усилия и преодолеть разногласия, чтобы пережить крушение авиалайнера и нападения акул.Производство: Испания, Новая Зеландия, США, Китай / Arclight Films, Aventura (I)Жанр: ужасы, боевик, триллерРежиссер: Ренни ХарлинАктеры: Аарон Экхарт, Бен Кингсли, Энгус Сэмпсон, Люси Барретт, Молли Райт, Келли Гейл, Прия Джайн, Рози Чжао, Ричард Краучли, Chrissy JinПеревод: Дублированный (WinMedia)Язык озвучки: РусскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D27AAF1A277921E3738BF1148FDB64AFC3DDE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1877281   (1073765) от 20.06.2026
-
-SoftPerfect RAM Disk 26.6 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073765.jpg" />
-</div>
-
-
-###  Подробнее
-
-SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486DAB7E7E904680FF40E8384C6BB2F5FA78F308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1877279   (1073766) от 20.06.2026
-
-Как приручить дракона / How to Train Your Dragon (2010) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростку Иккингу не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Парень неожиданно заводит дружбу с драконом Беззубиком, который поможет ему и другим викингам увидеть мир с совершенно другой стороны.Производство: США, Франция, Великобритания / DreamWorks Animation, Mad Hatter FilmsЖанр: мультфильм, фэнтези, приключения, семейный, комедияРежиссер: Дин ДеБлуа, Крис СандерсАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Робин Аткин Даунс, Филип МакГрэйдПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447E3A29EEFACE65EF3885B838B4972C0DE1639E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1877278   (1073767) от 
-
-Кодекс молчания / Code of Silence (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [handmade Upscale AI] [MVO]
-
->>Остальное
->>handmade * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операция чикагского полицейского Эдди Кьюсака по взятию с поличным нарко-банды Комачо провалилась. Во время передачи «товара» появились представители конкурирующей группировки Тони Луны, которые расстреляли людей Комачо и полицейского информатора и забрали партию и деньги. Подозревая, что вскоре может вспыхнуть война между бандами, честный и принципиальный Кьюсак (   Читать дальше...   )Производство: США / Orion PicturesЖанр: боевик, криминалРежиссер: Эндрю ДэвисАктеры: Чак Норрис, Генри Сильва, Берт Ремсен, Майк Дженовезе, Деннис Фарина, Нэйтан Дэвис, Ральф Фуди, Аллен Хэмилтон, Рон Энрикез, Джо Гузальдо, Молли Хэйгэн и др.Перевод: Многоголосый (НТВ, Первый канал, Петербург 5-й канал, РТР, НТВ+), авторский (Володарский, Гаврилов, Горчаков, Живов, Сербин, Калинин)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3272167C2C5E2BB15D30E1C1C7EBD1307564AC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876857   (1073751) от 17.06.2026
-
-VA - Global Vibes - The New Sound Of Arabia (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Us Conductors - Under Palms (Bar De Lune original mix) - 5:16
- 02 -  Nickodemus feat. Andrea Monteiro - Dessert Dancer - 5:27
- 03 -  Al-pha-X - First Transmission - 5:01
- 04 -  dZihan & Kamien - Before - 6:03(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15523C515E9D4E38EAE11ED14FA1F2125C20DF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876793   (1073752) от 17.06.2026
-
-VA - Global Vibes - The New Rhythms Of Africa (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rage - Bassakilici - 5:23
- 02 - Jephte Guillaume - Bourrique La - 3:54
- 03 - New African Orchestra feat. Ron Trent & Anthony Nicholson - Village Dance - 4:26
- 04 - DJ Spinna - Deep Rooted - 6:54(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F76D38FAC877E62BD5A9F0285C6C030BC0F7830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876197   (1073753) от 17.06.2026
-
-Secret Service - Diamond Collections (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do you remember - 3:31
-02 - Walking - 4:10
-03 - How I want you - 3:53
-04 - Closer every day - 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD830C301A60CBF4E075A1D22D5B839F07ABC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876331   (1073754) от 17.06.2026
-
-Mylene Farmer - Diamond Collection (1998) 2CD, Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073754.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 - California - 5:01
-02 - Regrets - 5:17
-03 - Ainsi Soit Je... - 6:23(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F687F5E425D108534DB8AE28459860375D5CC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876927   (1073737) от 17.06.2026
-
-God Body Disconnect - Detune the Tragic Light (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Dark Jazz>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice of Depression (6:31)
-02. Portraits of Possession (9:10)
-03. Faraway and Far From Well (9:18)
-04. The Tragic Night When All Stars Fell (10:23)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Dark Jazz, Jazz NoirПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB1E0A81B5F946075D376F85F665FEC5A111148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876926   (1073738) от 17.06.2026
-
-God Body Disconnect - Lost Within Loss (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Soundscapes>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Life I Took For Granted (4:48)
-02. Departed Moments of Home (5:33)
-03. Pain Grows Closer (5:47)
-04. Hiding In Nostalgia (4:35)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Soundscapes, Field RecordingsПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B257008E4277DC2E12A04468E555AB0BFB8FED57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1876925   (1073739) от 17.06.2026
-
-Beth Hart - You Still Got Me (2026) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Silence Lies Fear - 3 Albums (2012-2018) [FLAC|Lossless|image + .cue, tracks] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Savior With A Razor (feat. Slash) (4:48)
-02. Suga N My Bowl (feat. Eric Gales) (3:34)
-03. Never Underestimate A Gal (3:08)
-04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:24:09
+01. Hypernova
+02. Aftermath
+03. Shores of time
+04. Artificial engine(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:11:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BD55F881BF31EFB8F7255201723DDF930881D24
+magnet:?xt=urn:btih:B4BBE8331AAD8A2F18629F9B296F689A9A566D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880412   (1076245) от 06.07.2026
+
+Алекс Коган | Изучаем pytest. От основ до продвинутых техник тестирования в Python (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ручной тестировщик и мечтаете перейти в автоматизированное тестирование? Эта книга для вас!
+Вы уже освоили основы Python, но пока что испытываете трудности с покрытием программ тестами или не знаете, что именно изучать дальше? Эта книга для вас!
+Вы веб-разработчик на стеках Django, Flask или FastAPI и хотели бы улучшить качество и надежность своего кода? Знание (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE8FE366BC52EE8F2F7B886824109A452DE9AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880450   (1076231) от 06.07.2026
+
+Евгений Маслов | Культивация программиста. Становление императором Java. Секта Java Core (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что, если изучение Java было бы не скучным учебником, а путём культивации?
+Перед вами необычная книга для тех, кто хочет начать программировать, но устал от сухих объяснений, однотипных примеров и ощущения, что код — это набор непонятных символов.
+Главный герой попадает в Секту Java Core — место, где переменные становятся сосудами ци, условия превращаются в печати (   Читать дальше...   )Жанр: Java, Обучение программированию, Программирование на Java, Ранобэ, Учебники по программированиюИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7892DFCCC72E3ABE678670286DCB25C7AA0A6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880446   (1076232) от 06.07.2026
+
+Владимир Низов | Алгоритмы на Java. Современный подход (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая версия книги по алгоритмам Java, используется современный язык и подход, большое внимание уделяется качеству объяснения и его простоте.Жанр: Компьютерная литература, ПрограммированиеИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A388BFB00F504BEEA021C2816C484B5BBA9FF3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880444   (1076233) от 06.07.2026
+
+Максим Кузнецов, Игорь Симдянов | Программирование: ступени успешной карьеры (2006) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная опытными профессионалами и известными авторами книга посвящена различным аспектам успешного создания карьеры в программировании и области IT-технологий. Рассмотрены как технические аспекты такие как хороший тон в программировании, правила дизайна интерфейсов, приемы проектирования, так и вопросы, напрямую с программированием, казалось бы, не связанные: (   Читать дальше...   )Жанр: Программирование, Подготовка IT-специалистовИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E5D9BA69A6067F320793593D2740ABD8D04C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880442   (1076234) от 06.07.2026
+
+Милесия МакГрегор | Фулстек JavaScript. Секреты, которые должен знать каждый мидл (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как практикующий разработчик ПО вы уже умеете качественно выполнять задачи — на фронтенде или бэкенде. Пора перейти на следующую ступеньку карьерной лестницы и развить навыки, которыми обладают эксперты и senior-разработчики.
+Милесия МакГрегор поможет разобраться, как работает вся система и как senior-разработчики принимают технические решения.
+Вы изучите все необходимое (   Читать дальше...   )Жанр: Web Services, JavaScript Programming, Computer Systems Analysis & DesignИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B977BC88373FB9BEBA72454874F074AFFF7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880432   (1076235) от 06.07.2026
+
+John C. Shovic, Mary Everett | Python & AI For Dummies (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unlock the combined power of Python and AI to supercharge your next technical project and your career
+
+Python & AI For Dummies explores the exciting combo of two revolutionary technologies that are reshaping how we work, code, and solve problems. Authors John C. Shovic and Mary Everett draw on their extensive work in computer science, precision agriculture, and (   Читать дальше...   )Жанр: Open Source Programming, Python Computer Programming, Python ProgrammingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63795A7728D165C5C2C13050D17F7F369236DC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880430   (1076236) от 06.07.2026
+
+Andrey Markelov | Red Hat RHCSA 10 Study Companion. Getting Ready for the EX200 Exam (Certification Study Companion Series) (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076236.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is the ultimate study companion for Red Hat's RHCSA certification, aligning with the release of Red Hat Enterprise Linux (RHEL) 10 in 2025.
+
+As the foundational certification for Enterprise Linux administrators, the RHCSA exam validates essential system administration skills. This book is designed to sit along aside official documentation and study guides (   Читать дальше...   )Жанр: Linux Certification Guides, Unix Operating System, Information ManagementЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15B014797C95A7308504B744AC103E3347B0F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880476   (1076237) от 06.07.2026
+
+Prototype 2 (2012) [Ru/En] (Build 19788008/dlc) Repack dixen18 [Radnet Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вырвавшийся на свободу смертоносный вирус превратил мегаполис в преддверие ада. Разделенный на зоны безопасности, город стал огромной ловушкой. Часть улиц контролируют военные, уничтожающие любое проявление заразы. Остальные районы превратились в «красную зону» – обиталище мутантов, безжалостно пожирающих своих жертв.Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111AEA6E70CC19AD0C53F4AA1FC25146A1132236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880429   (1076238) от 06.07.2026
+
+Michael Inden | Java 25 and Beyond. Modern Java Made Easy (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bring your Java skills up to date and discover the full diversity of modern Java! This book guides you step by step through the most important new features up to the current Java 25 LTS, while also drawing on proven highlights from earlier versions.
+
+It covers numerous language and syntax improvements, such as switch extensions, records, and text blocks. We also (   Читать дальше...   )Жанр: Java, Programming LanguageЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B106E0B45DA2FF444FA94E989187AB1385063F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880424   (1076239) от 06.07.2026
+
+Д.А. Ильин | Основы программирования на Python и PyQt5 в операционной системе Astra Linux Special Edition. Практикум для СПО (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076239.jpg" />
+</div>
+
+
+###  Подробнее
+
+В практикуме приведены теоретические и практические части, большую часть из которых составляют практические задания, направленные на освоение программирования, алгоритмизации и разработки настольных графических приложений на Python с использованием PyQt5 в Astra Linux Special Edition 1.8. В теоретической части раскрываются базовые понятия: свойства и формы представления (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Ай Пи Ар Медиа, ПрофобразованиеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DA8716557CF4833A33CC8E594694208443BF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

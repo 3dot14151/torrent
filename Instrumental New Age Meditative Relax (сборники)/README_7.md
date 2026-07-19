@@ -1,3 +1,38 @@
+###  Публикация: 508023   (676902) от 11.06.2012
+
+VA-Classik Album - Gold Classic Instrumental (2012) [MP3|320 кб/с]<Instrumental, Classic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Acoustic Alchemy-Jamaica Heart Beat
+02 - Anthony Ventura-La paloma
+03 - Elton John-CHELDORADO
+04 - C. Dulfer-Lilly Was Here
+05 - Cantoma-Maja
+06 - Damian Luca-Unchained Melody
+07 - David London-Horizons
+08 - Miami Sound Machine-ALL BECAUSE OF YOU
+09 - Ed Calle-Spanish Rose
+10 - En Voice-Rainy Days(   Читать дальше...   )2012Жанр: Instrumental, ClassicПродолжительность: 02:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386DC5E22FBBB5E05DE975D3A7E3D76A155B80A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136157   (676612) от 21.05.2017
 
 VA - Relaxing SPA Music Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
@@ -726,35 +761,6 @@ VA - Dreams of a shaman 2 (2015) [MP3|320 кб/с]<Native american, Ethnic, Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D77132637A1462828BC79D739227E2D1B68FD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228861   (631651) от 03.06.2018
-
-VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiromitsu Agatsuma - Paper In The Air (Kami no Mai)
-02. Jia Peng Fang - A Water Lily
-03. Greg Maroney - Breathe
-04. Yanni - In The Morning Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 07:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE26608D86D0AA9607616E92BE061064D17A597
 ```
 
 https://mybot314.ru/tekegram_catalog/

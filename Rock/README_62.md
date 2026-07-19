@@ -1,32 +1,3 @@
-###  Публикация: 1068701   (378450) от 02.11.2016
-
-Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilo Runs The Voodoo Down 05:55
-02. Green Tourist 05:19
-03. Amusements Of The Western Capital 11:08
-04. Habitrot 07:23(   Читать дальше...   )Жанр: Psychedelic, Post-Rock, Progressive RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB441D899933E8E9E07FDA6FA7C22FCF403CED18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573821   (378423) от 11.11.2012
 
 Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedelic>
@@ -757,6 +728,35 @@ Trubetskoy - Magister Bibendi (2015) [MP3|~265 кб/с (V0)]<Rock, Ska>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8104B3FF971C36AD4F2198AE7AA3E25761F76805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415959   (371590) от 14.10.2020
+
+Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher Love (06:06)
+ 02. Strange (00:11)
+ 03. Stranger (05:39)
+ 04. Strangest (00:42)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

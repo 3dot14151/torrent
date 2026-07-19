@@ -1,3 +1,30 @@
+###  Публикация: 1326516   (384814) от 20.09.2019
+
+Native Instruments - SESSION GUITARIST – PICKED ACOUSTIC [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винтажная акустическая гитара со стальными струнами, сыгранная пальцами и медиатором студийным профессионалом. Проигрывайте 194 варианта паттерна пикинга и бренчания в реальном времени, а также используйте инструмент для мелодичной игры. Используйте свой звук с тремя различными настройками микрофона и расширенным разделом эффектов.
+Если вы пишете трек, записываете (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKR, NKX, NKA; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D40B88C6B0C4925CED4B5AB23EFD10B6135884D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326626   (383113) от 21.09.2019
 
 Ilya Efimov - Bayan - RePack Андрей650071 [Kontakt]
@@ -651,32 +678,6 @@ NNM-Club Sound Cleaner - Чистые Звуковые Эффекты с AudioJu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB28304CA404003CD9BB12C477886EBDA9E68AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331112   (334665) от 13.10.2019
-
-JP Sample Line - Junior Porciuncula - Nord Stage 3 Ultimate Stage Pianos [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фортепиано для сэмплера Kontakt от Junior Porciuncula. Звуки, снятые с клавиатуры Nord, содержащие 43 фортепиано и 16 синтезаторов с современным скриптом, с возможностью легко менять пианино и синтезаторы.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870E70135860C871CD527DC56CC03C3E58032363
 ```
 
 https://mybot314.ru/tekegram_catalog/

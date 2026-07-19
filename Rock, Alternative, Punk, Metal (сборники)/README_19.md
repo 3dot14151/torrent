@@ -1,3 +1,90 @@
+###  Публикация: 1280581   (760427) от 03.02.2019
+
+VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast In Black - Beast In Black (2017) (4:29)
+02. Excalion - Divergent Falling (2017) (5:18)
+03. Visions of Atlantis - Seven Seas (2016) (4:11)
+04. Nocturnal Rites - Before We Waste Away (2017) (4:46)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB70195E327A5C82F5FDE0001956DC99B969678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215317   (759609) от 25.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
+122 Ozzy Osbourne - Zombie Stomp
+123 3 Doors Down - Kryptonite
+124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215165   (759463) от 25.03.2018
+
+VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Северный Флот  -  Революция на вылет  4:10
+002.  Вячеслав Бутусов  -  Бедная птица  4:06
+003.  Северный флот  -  Время любить  4:15
+004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280754   (758721) от 04.02.2019
 
 VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
@@ -655,93 +742,6 @@ VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282694   (743389) от 13.02.2019
-
-Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Slip
-02. When The Tigers Broke Free
-03. Not Now John
-04. Take It Back(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 02:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D91DFDD1FE56BE9E92AF0ED4D88C83BE9D6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217326   (743236) от 04.04.2018
-
-VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Burning Witches - Black Widow
-002. Esclavitud - This Time
-003. Dark Sarah - Breath
-004. Ghost of Mary - The Moon and the Tree(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524804   (742245) от 17.01.2022
-
-L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kbps] <Hard Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Killing Machine
-02. Kiss Of Death
-03. One More Reason(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ABCCEE38CD628C8D85EBCE84F68E2650285E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

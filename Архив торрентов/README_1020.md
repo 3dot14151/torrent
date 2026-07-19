@@ -1,148 +1,3 @@
-###  Публикация: 1117489   (815629) от 24.03.2017
-
-Баскетбол. Евролига 2016-2017. Женщины. 1/4 финала. 2-й матч. Бурж Баскет (Франция) — Динамо (Россия) (10.03.2017) WEB-DL [H.264/576p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815629.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 марта 2017 года, пятница. 21:30 МСК
-Евролига 2016-2017. Женщины. 1/4 финала. 2-й матч
-Бурж Баскет (Бурж, Франция) - Динамо (Курск, Россия)
-Стадион:  Дворец спорта дю Прадо (Бурж, Франция)Телекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22052E8F85BFB200B3BD02FB849EBA537D23E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118115   (815626) от 24.03.2017
-
-Nice Clipboard - a cloud synced clipboard manager 1.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nice Clipboard - Отличная реализация менеджера буфера обмена
-Nice Clipboard - Чистый, привлекательны и простой в использовании.
-
-Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью iCloud между вашими компьютерами Mac и  iOS устройствами и написан с использованием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 марта 2017Разработчик: Jedrzej GronekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3920BCB3978602A579088D9CE4BD6BAAEA05750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117846   (815625) от 24.03.2017
-
-File Cabinet Pro 3.9.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815625.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Cabinet Pro  - менеджер документов из строки меню
-Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
-
-Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 марта 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBD956090F86D3CA8BAB1EA89CFFED8F949E4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117941   (815623) от 24.03.2017
-
-VA - Tukan Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Xantra - Amnesia (Aron Scott Remix) (feat. Kalvin Deccaud)  6:10
-02.  Changer - Golden Gates (Heever Analogue Remix)  7:14
-03.  Wavetraxx - Beach Stringz (DJ Space Raven & Petersen Remix)  7:02
-04.  Chapa - Inside My Head (Arabica Remix)  2:00(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0377528E066F06BFB70338CFD624EC2C14352606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117811   (815621) от 24.03.2017
-
-VA - The Best Undeground Music (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Owl Stone - Eternity (Original Mix)  6:33
-02.  Sunmote - Canara (Original Mix)  4:30
-03.  Sunmote - Love Is Gone (Original Mix)  5:15
-04.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513DE9567BBEEC32BF8100F4C37A5B4CC8F3F0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118097   (815617) от 24.03.2017
 
 Sidify Apple Music Converter 1.1.6 [En]
@@ -705,6 +560,145 @@ The Orb - Cydonia (1999) 2001, Island Records [FLAC|Lossless|image + .cue] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C74F3A5AC9BFCE25A53C09008437925641C76C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117997   (815486) от 24.03.2017
+
+GraphicConverter 10.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815486.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter - графический редактор и конвертер
+GraphicConverter - полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов.
+
+Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 марта 2017Разработчик: Lemke Software GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F3ECD011F354051DAB1CF528BADF29F4DEA3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117945   (815483) от 24.03.2017
+
+PicturesToExe Deluxe 9.0.5 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0003524797DF135C4488EB3119E3AD451BA2AB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118111   (815481) от 24.03.2017
+
+USDownloader 1.3.5.9 Portable (24.03.2017) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8015147BC6D6AF81CF26F441324E2D590843FA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117898   (815480) от 24.03.2017
+
+VA - Vocal Anthems Miami (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel & Jan Johnston - Skysearch (Ruslan Radriges Radio Edit)  3:05
+02.  Roman Messer & Armos - Higher (feat. Angel Falls) (Original Mix)  6:30
+03.  Three Faces & Christian Zechner - Lost In Time (Steve Allen Radio Edit)  4:23
+04.  Armos & Lucid Blue - Call Of The Wild (Ruslan Radriges Remix)  5:15(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5168A50A6D2DE12AA24936DA10FF217EF86C97F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117948   (815478) от 24.03.2017
+
+Cosmic Flow - The Hermit (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Saint Of Sin - Moments In Love (Cosmic Flow Remix)  6:00
+02.  Cosmic Flow - Archangels (Original Mix)  7:53
+03.  Crucial Fiction - Little Red (Cosmic Flow Remix)  7:11
+04.  Cosmic Flow - Indiana (Original Mix)  8:12(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFB5540E245C6A3530B207BD5D349437CD6F6C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

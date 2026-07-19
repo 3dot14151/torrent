@@ -1,30 +1,3 @@
-###  Публикация: 533443   (532307) от 10.08.2012
-
-[Art] Rodney Matthews
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика Art.
-Автор обложек для Thin Lizzy, Tygers of Pan Tang (Crazy Nights), Diamond Head (Am I Evil) (Borrowed Time), Praying Mantis (Time Tells No Lies, Predator In Disguise), Nazareth (No Mean City), Scorpions (Lonesome Crow), and Eloy (Metromania and the picture disc for Time to Turn).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622C6C9538CFD7D0025D2539F40CE72B1B525F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926954   (531031) от 11.08.2015
 
 Современное искусство - Federico Bebber (Потрясающие и ужасные работы) [JPG]
@@ -649,25 +622,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 379809   (500946) от 26.08.2011
+###  Публикация: 541591   (500366) от 01.09.2012
 
-[Компьютерная графика] Абстрактный космос
+Michal Ivan: фэнтези творчество иллюстратора из Словакии [Графика]
 
 >>Графика, Арт, Разное
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_500946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В данную сборку включена компьютерная графика на тему космос.
+Michal Ivan: фэнтези творчество иллюстратора из Словакии
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A78C4DDEB2001B117CB46133D12B236D1F14886C
+magnet:?xt=urn:btih:E94E8B2790159749F7A70E4439FFB0D66358F4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541592   (500330) от 01.09.2012
+
+Hirano Katsuyuki - Works [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hirano Katsuyuki - Works
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23D0AFFAED766F34058EA36472C3A8DA5CA62E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1574792   (381540) от 07.09.2022
+
+George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further and Further [00:02:02]
+02. Passed Tense [00:04:01]
+03. Rainbows and Dreams [00:04:41]
+04. Cold [00:04:42](   Читать дальше...   )Жанр: Downtempo, Deep House, ElectronicПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572187   (380435) от 10.11.2012
+
+Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient,  New Age,  ElectronicПродолжительность: 00:46:49
+01. Oxygene Part 7 (11:33)
+02. Oxygene Part 8 (3:54)
+03. Oxygene Part 9 (6:13)
+04. Oxygene Part 10 (4:16)
+05. Oxygene Part 11 (4:58)
+06. Oxygene Part 12 (5:41)
+07. Oxygene Part 13 (4:41)
+08. Oxygen In Moscow (Bonus) (5:32)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175452   (379041) от 18.10.2017
+
+VA - Amsterdam Coffeeshop Chillout Vol.13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful-Cafe - So Suddenly (Radio Version)  3:42
+02.  Deep X - Go Ahead (Club Extended Mix)  4:59
+03.  Lady Mojo - Boiling (Radio Edit)  2:57
+04.  Soulful-Cafe - Can You Feel It Coming (Radio Version)  3:26(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E1571007E1278ECEC7E690C7B535426773353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415151   (378547) от 11.10.2020
+
+Terrence Dixon - Galactic Halo (2020) Axis [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centrifugal Force (03:49)
+ 02. Direct Drive (05:47)
+ 03. Galactic Halo (04:55)
+ 04. Multiple Star (03:49)(   Читать дальше...   )Жанр: Techno, Detroit Techno, MinimalПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63B9D62EE57E0C2BE2194FAD3A6D2BC45F8D50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834473   (377823) от 25.10.2014
+
+Flight Facilities - Down To Earth (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377823.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Жанр: Tech House, Deep House, Nu DiscoПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5675FBF6002539C56519236585EF8DCA991755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575355   (376915) от 09.09.2022
+
+U96 - 20.000 Meilen Unter Dem Meer (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seven Seas (feat. Claude Oliver Rudolph)
+02. New Life
+03. Atlantis (feat. Claude Oliver Rudolph)
+04. Pressure(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B3222812DFCF0D75676A9E97BC6A4FCD2E7923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415612   (376869) от 12.10.2020
 
 Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
@@ -574,180 +750,6 @@ Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44296C057216B5A1E83DC8AB1B800CCAF8F8C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256038   (359032) от 20.10.2018
-
-Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <House, Pop, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Let the Night (3:28)
- 02/14. Setting Sun (3:30)
- 03/14. Do What You Feel (4:01)
- 04/14. Photograph (4:44)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438C132FAE334A4807B7C6CDA2C8BA022CC1FDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417373   (358066) от 20.10.2020
-
-Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersed In Foggy Emotions (06:39)
- 02. Satyr (10:34)
- 03. Rewinded Into South (04:36)
- 04. Selective Remembering (08:27)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7C4159C05CCA2CDDBD2B6044C53C34ACDFE59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071758   (357216) от 11.11.2016
-
-Dino Sabatini - Discography 17 Releases (2008-2016) Prologue, Outis Music [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Minimal, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes Back (Touched By Howie B) (06:16)
- 02. If (Dino Sabatini Variation) (feat. Antonello Salis) (05:19)
- 03. The Unexpected (ASC's Grey Area Remix) (07:17)
- 04. And It All Ends Here (Salis & Sabatini Variation) (04:05)Жанр: Techno, Ambient, Minimal, Tribal •Продолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42BD417CD5AA6C7164B8B309BD4ECBB5A57E818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256437   (357047) от 21.10.2018
-
-Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Difficult Guys (Radio Edit) (3:55)
-02. Difficult Guys (Beatchuggers & Sidelmann Radio) (3:21)
-03. Difficult Guys (Extended Mix) (6:24)
-04. Difficult Guys (Beatchuggers & Sidelmann Club Mix) (6:41)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBB9094067F397A73D6B15ABCC6E1C8D7FA8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577400   (357029) от 18.09.2022
-
-VA - Masvingo Phases (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  MBX, EDHI EDWARD -  Phases (Intro Mix)  (5:12)
-02.  Jason Fiero -  Autumn Victory (Extended Mix)  (5:50)
-03.  Duce -  Hypnotized (Extended Mix)  (4:51)
-04.  Leo Lauretti -  Europa (Extended Mix)  (5:38)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3A4CFB80C4C1271E1E8E6EDEAC67BC81DA2993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329172   (356503) от 03.10.2019
-
-Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imaginary Friends (Morgan Page Remix) (03:07)
-02. Luxuria (Tinlicker Remix) (06:54)
-03. Coelacanth (Gregory Reveret Remix) (05:00)
-04. Acedia (Rinzen Remix) (05:24)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0536870462055B8A9A8A85FDD1251655C22AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1067247   (408474) от 28.10.2016
-
-VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giorgio Moroder - Deja Vu
-002. Cade - Care
-003. Сандра Круглова - Мгновение
-004. Ariana Grande - Moonlight(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067079   (408397) от 28.10.2016
-
-VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yana Beliz - Влюблена
-002. Geo Da Silva - I Love U Baby
-003. Слава - 2 Л 2 Ю
-004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067275   (408393) от 28.10.2016
-
-VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alex Mica - Afrodita 3:39
-002.Andre Tay - Детство 4:05
-003.Arti - Параллели 3:39
-004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559574   (408370) от 13.10.2012
 
 VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
@@ -835,6 +748,111 @@ VA - Musical Dreams: Popular Session Of September (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE45FEBF02E092CA257A4C65E1FDF14B38A90CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564409   (403070) от 23.10.2012
+
+VA - Музыкальные Новости Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vlad Bostan - Любовь Не По Сценарию
+02. Tisha - Любовь
+03. Mainstream One - Моя Мечта
+04. Горячий Шоколад - Ты Обними
+05. Борис Моисеев И Pastor Bob - Один Раз
+06. Dj Sandro Escobar - Давай, До Свидания!
+07. A'studio - Просто Прощай
+08. Julia Lasker - Хочу
+09. Дилайс - Нежно-Нежно
+10. Алина Артц - Со Мной По-Другому Нельзя(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B136CE84EA659340755A21B14D359166E5CDE5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563995   (403036) от 23.10.2012
+
+VA - Взрывная волна Русского Радио (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dari-M - Ты Будешь Мой
+002. Isamin - О Тебе
+003. Vetra-N - Не Хочу
+004. Ассорти - Неземное Притяжение
+005. Святослав Бах - Девочка-Кокеточка
+006. Тимати - Давай, До Свидания!
+007. A-Dessa - Fire
+008. Dicaprio - Моё Сердце
+009. Алекс Малиновский & Сергей Рига - Белые Ночи
+010. Инфинити - Ты Мой Герой(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A366A237464BED0ED366782C1D9737A90CEACDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563925   (403035) от 23.10.2012
+
+VA - Зажигаем все вместе (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex - Я Буду Небом Твоим (Extasy Project Remix)
+02. Loboda - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
+03. MaXimA - Так тихо (Fidel Wicked radio edit)
+04. Rocco and Bass - T vs. REDTZER - Holy Grouns
+05. Ольга Литвиненко - Листья
+06. 3D-Mix - Я Улетаю (Remix)
+07. ViRUS! - Р- Rapture (Avicii New Generation Radio Edit)
+08. Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
+09. Александр Лир - Сделай Это Быстро
+10. Ассорти - Ангелы(   Читать дальше...   )Жанр: PopПродолжительность: 06:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB606FECCACE98498B0230E64F411CD5387F3D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

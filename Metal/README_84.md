@@ -1,3 +1,90 @@
+###  Публикация: 964135   (283793) от 10.12.2015
+
+Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2000 - Sunrise In Eden
+2001 - Arcana
+2003 - Aphelion(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 12:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B6AEB3F09A013D2CB58C85798D6545D15C447C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264258   (282663) от 22.11.2018
+
+Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die by the Sword
+02. Restless and Wild
+03. Koolaid
+04. Pandemic(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E07F833FD7F811520C5683602E140E4D36935B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264358   (281155) от 23.11.2018
+
+In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Empty Streets
+2. Substance Vortex
+3. Respect My Solitude
+4. Cloud Seeder(   Читать дальше...   )Жанр: Doom Metal, Atmospheric Black MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964481   (281058) от 12.12.2015
 
 Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
@@ -664,93 +751,6 @@ Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA44E3E2C7B7036E6F466496A502D32F8723B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267437   (266582) от 06.12.2018
-
-Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damned If You Do
-02. The Black Things
-03. By the Numbers
-04. Revolution Underway(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267458   (266519) от 06.12.2018
-
-Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|320 Kbps] <Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Sandman
-02. Master Of Puppets
-03. Harvester Of Sorrow
-04. The Unforgiven(   Читать дальше...   )Жанр: Cello MetalПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2739CEF8641106AFAF88C0B822297B1CC47190B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190922   (266035) от 11.12.2017
-
-Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cradle Of Hypocrisy
-2. Force Of Will
-3. Enemy
-4. Abyss(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8474573AFFDC48822979DEE1681C3D17095674
 ```
 
 https://mybot314.ru/tekegram_catalog/

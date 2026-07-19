@@ -1,81 +1,3 @@
-###  Публикация: 357704   (586341) от 02.07.2011
-
-VA - Танцевальное искушение Vol.5 (2011) [MP3|256 kbps]<Pop/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/ClubПродолжительность: 07:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA55F13602BAB918FD5D8FE706567DB8E5C6CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357916   (586286) от 02.07.2011
-
-VA - Новинки Года 6 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D76A4DE92DAD9AC6640EDA9EBF8EAA50AF2339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357686   (586284) от 02.07.2011
-
-VA - Дискотека: Летний отрыв Русский №100 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB56A23F93798E49B8BA9C28459E977BE846440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357860   (585763) от 02.07.2011
 
 VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
@@ -724,6 +646,93 @@ VA - German TOP 100 Single Charts 17.05. (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2CEA6430AC2FDA5740B74875C5403FA764F70D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301279   (584229) от 12.05.2019
+
+VA - Glamour Dance Party (2019) [MP3|320 Kbps] <Pop Dance, Club Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flawx - Genesis
+002. Soul Divers - Chasing The Sunset (Original Mix)
+003. Alan Connor - Outer Space
+004. Rosybyndy Feat. Lezlov - One Day Rmx(   Читать дальше...   )Жанр: Pop Dance, Club DanceПродолжительность: 09:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6846814C5D3CD1FBE0FDFA0E08B6A28C735FB72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301340   (584227) от 12.05.2019
+
+VA - Dance Sound Strange May (2019) [MP3|320 Kbps] <Dance, Hands Up, Hard Trance, Nu Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disco Killerz and GATTUSO - Million Things (Original Mix)
+002. Inner Sinner - Chances (Radio Edit)
+003. DJ Luciano - Do You Miss Me So Much
+004. Dj tomsten - Redy To Blah Baby(   Читать дальше...   )Жанр: Dance, Hands Up, Hard Trance, Nu DiscoПродолжительность: 08:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C99D2845B165BE5B5BA2657DA79FB459C47B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301179   (584215) от 12.05.2019
+
+VA - Heartbeat: Popular Greatest Hits (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrena Line - Outside (Original Mix)
+002. Alex Mota - Samba
+003. Altar Feat. Joelapussy - Cha Cha Cha
+004. Aestria - Into U(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E32F5A2F1F7E1F14538A2CF42F6C9DF182A7BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1323295   (437874) от 03.09.2019
+
+Dave P. Moore - Fort Necessity (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fort Necessity (05:08)
+02. 420 Blues (05:48)
+03. Hank's Basement (04:54)
+04. Rainin' In The Delta (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588B6D6CEDAFDABBEFE0E7C7983ADFEC95D3510A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063001   (437278) от 15.10.2016
+
+Nick Waterhouse - Never Twice (2016) [MP3|320 Kbps] <Rhythm & Blues, Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Time  (03:08)
+02. I Had Some Money (But I Spent It) (03:12)
+03. Straight Love Affair  (03:18)
+04. Stanyan Street (07:48)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock'n'RollПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05EC38A38260256C107CC50F0A17E14D6623814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249384   (435536) от 23.09.2018
 
 Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
@@ -695,64 +753,6 @@ Kerry Pastine And The Crime Scene - City Of Love (2019) [MP3|320 Kbps] <Rockin' 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9036984372CC421EFAEE6A442574D2B0EE961D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066039   (414579) от 25.10.2016
-
-Ali Maas & Micky Moody - Black & Chrome (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horse Or A Harley   (05:45) 
-  02. Why Does A Man   (05:07) 
-  03. Hanging On A Chain   (04:01) 
-  04. Same Blues, Different Day   (03:58) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5D193B45D022E4DE58148201661B96BC7F91BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412809   (413612) от 01.10.2020
-
-Jackie Venson - Live in Texas (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On (Live)
-02. Only Have You (Live)
-03. Intro to Destruct (Live)
-04. Destruct (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B0A2278FE4D7B931AB7106794A2E40686FB6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

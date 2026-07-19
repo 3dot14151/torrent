@@ -1,3 +1,116 @@
+###  Публикация: 731409   (295119) от 08.12.2013
+
+Сборник клипов - VA - Various Music part. 48 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 140 Ударов в минуту - А я скучаю очень 1080p (4:20)
+2. 5sta Family - Буду с тобой 1080p (3:36)
+3. Akcent - Lacrimi curg 1080p (3:59)
+4. Alex Kunnari & Heikki L ft. Joel Madden - City of Sin 1080p (3:41)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7558DF5F71471AF6396E7BA59B025E190A446418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962343   (294715) от 04.12.2015
+
+Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Тремера Дилларда или Фло Рида.1. A-Roma feat. Flo Rida and Shawn Lewis - A Prayer (Official Video) (00:03:29)
+2. Austin Mahone ft. Flo Rida - Say You're Just A Friend (Official Video) (00:03:15)
+3. Charmani ft. Flo Rida - Paint This Town (00:03:33)
+4. Erika Jayne ft. Flo Rida - Get It Tonight (00:03:44)(   Читать дальше...   )Жанр: House, Trance, Rap, Hip-HopПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B397EFDDA41AAFDEB2381AF553A33F70C88B8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962117   (294585) от 04.12.2015
+
+VA - Зимний марафон № 209: Дискотека с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (03.12.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. A-Dessa (Стас Костюшкин) - Караочен (Премьера!) (00:04:20)
+02. Azary ft. Kleo and Alldavay - Ах, какой казах (Official Video) (00:03:36)
+03. Carrie Underwood - Heartbeat (Official Video) (00:04:02)
+04. Chus and Ceballos ft. Astrid Suryanto - All I Want (Official Video) (00:04:03)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97298AE6830C980A1887D2EC376437EFC247CB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962452   (294480) от 04.12.2015
+
+4G (4 Girls) - Улыбайся (2015) WEBRip [4K] [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Максима Фадеева - 4G (состав группы: Дарина Иванова, Ирина Морозова, Аня Егорова и Софья Голубева), выпустила новый клип на песню "Улыбайся".Жанр: PopПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BC6CE9C9D1B915EB889A84E0B7307C68E26BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185103   (293122) от 21.11.2017
 
 Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
@@ -619,112 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F97AF8280CD7CEA1DF489A83000CE04273F6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498981   (256139) от 20.05.2012
-
-Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из сюрпризов церемонии MTV EMA 2011 стало выступление в качестве солиста группы Queen американского музыканта Адама Ламберта.
-****Выступление группы Queen завершало вечер. «Дамы и господа, группа Queen», — объявила ведущая, так и не упомянув Адама Ламберта. Было ли это частью сценария, или юная ведущая просто переволновалась, так и останется неизвестным.
-По (   Читать дальше...   )Жанр: рокРежиссер: MTVАктеры: Queen feat. Adam LambertПеревод: ОтсутствуетПродолжительность: 00:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D7602484F36FD6C99456E3C7F640195B5D3EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627218   (255052) от 18.04.2023
-
-Валерия & Жан Милимеров - Колокола [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерия и Жан Милимеров представляют видеоклип на песню «Колокола».Производство: Hana Road StudiosЖанр: Поп, русская эстрадаПродолжительность: 00:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7877633C458404C4CED3117F5B0F321965F43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497561   (253449) от 16.05.2012
-
-Inna. Caliente (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОРПродолжительность: 03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497539   (253405) от 16.05.2012
-
-Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОРПродолжительность: 04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
 ```
 
 https://mybot314.ru/tekegram_catalog/

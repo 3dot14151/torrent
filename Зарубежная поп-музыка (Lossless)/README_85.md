@@ -1,3 +1,148 @@
+###  Публикация: 1433909   (153391) от 23.12.2020
+
+Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTF Do I Know
+02. Plastic Hearts
+03. Angels Like You
+04. Prisoner (feat. Dua Lipa)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1A59613F1B54D2B9E04C2545F1AA452992C59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707577   (152842) от 23.12.2020
+
+VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя он уже был на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. После серии номерных сборников шведы выстрелили  сборником самых последних "свеженьких" хитов осени 2013.01. Ellie Goulding - Burn (Tiestos Club Life Remix) (5:16)
+02. Avicii - Wake Me Up (Speed Remix) (7:02)
+03. Robin Thicke Feat. Pharrell - Blurred Lines (3:50)
+04. Naughty Boy Feat. Sam Smith - La La La (3:38)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F483275503240F2B5ED2E50E0B0DA37AA51149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086121   (152777) от 24.12.2016
+
+Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Lossless|image + .cue] <Pop, Holiday, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Up Christmas (3:47)
+02. I Believe In Father Christmas (3:02)
+03. Have Yourself A Merry Little Christmas (Duet with Kim Wilde) (2:35)
+04. Santa Claus Is Coming To Town (2:57)(   Читать дальше...   )Жанр: Pop, Holiday, ChristmasПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379B6AC52EF4166C66EB7B9FB09ED54D8EEDE9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085881   (152689) от 24.12.2016
+
+VA - RTL Weihnachten (2014) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Rock, Jazz, Classics>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Connor & The Felicia Taylor Gospel Choir - The Best Side Of Life (2006) - 3:49
+02. Melanie Thornton - Wonderful Dream (Holidays Are Coming) (Radio Version) (2001) - 3:52
+03. Band Aid - Do They Know It's Christmas? (1984 Version) (1984) - 3:49
+04. Chris Rea - Driving Home For Christmas (1986) - 3:58(   Читать дальше...   )Жанр: Christmas, Holiday, Pop, Rock, Funk & Soul, Pop Rock, Soft Rock, Folk, Jazz, ClassicsПродолжительность: 03:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2B9715F1B61BEF586F7D37A7937EA17A91C580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086206   (152588) от 24.12.2016
+
+Sarah McLachlan - Wonderland (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Christmas Song (3:19)
+02. Angels We Have Heard On High (3:39)
+03. Let It Snow (3:05)
+04. White Christmas (2:23)(   Читать дальше...   )Жанр: Pop, Folk, Holiday, Christmas, Ballad, VocalПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9864AE4E9E90914AB353AE67EA58D0039A0F1BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085897   (152548) от 24.12.2016
 
 VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & Soul, Pop Rock>
@@ -599,151 +744,6 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E56D42FE4AE09FF1C8023378AA963CA9C53442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434853   (147707) от 26.12.2020
-
-Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars On 45 4:46
-02. Stars On 45 - 12-Inch Version 9:46
-03. More Stars - Abba Medley 3:53
-04. More Stars - U.S.A. ( 12-Inch Version ) 6:55(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E94A93CAECB98DC260B1A451DEB812098A53F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678183   (147681) от 20.11.2023
-
-Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight [00:03:31]
-02. Arrivals [00:03:05]
-03. 24 Hours [00:03:27]
-04. Higher [00:02:53](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD999F3F514EACEF71B0E6B1940F9DC7B305268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968635   (147414) от 27.12.2015
-
-a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [FLAC|Lossless|image + .cue] <Pop, New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (03:49)
-02. Train Of Thought (04:15)
-03. Hunting High And Low (03:45)
-04. The Blue Sky (02:37)(   Читать дальше...   )Жанр: Pop, New Wave, Synth-popПродолжительность: 02:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226275   (147383) от 26.12.2016
-
-George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk, Pop rock, Soul music, Dance music>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георгиос Кириякос Панайотоу (греч. Γιώργος-Κυριάκος Παναγιώτου; 25 июня 1963, Лондон), более известен под псевдонимом Джордж Майкл (англ. George Michael) — популярный британский поп-певец и автор песен англо-греческого происхождения. За его (   Читать дальше...   )Альбомы:
-1987 - Faith
-1990 - Listen Without Prejudice (Vol.1)
-1995 - Jesus To A Child (CD Single)(   Читать дальше...   )Жанр: R&B, Pop, Funk, Pop rock, Soul music, Dance musicПродолжительность: 06:57:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272025   (147245) от 25.12.2018
-
-VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You 4:32
-02. Mariah Carey - Hero 4:19
-03. Celine Dion - It's All Coming Back To Me Now (Radio Edit 1) 5:31
-04. Alison Moyet - Love Letters (Remastered) 2:52(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E31E4EA3F0EAF5DB7B6434238B380EFF06E7C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

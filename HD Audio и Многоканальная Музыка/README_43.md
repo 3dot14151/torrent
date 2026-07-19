@@ -1,3 +1,177 @@
+###  Публикация: 1579161   (334580) от 28.09.2022
+
+Boycott - Группа Boycott (1989) Licensed From – Polarvox Oy [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334580.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Crazy 'Bout Music
+A2 Eyes Of Blue
+A3 My Sharona
+A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331068   (334550) от 13.10.2019
+
+Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell (4:10)
+02. Mariners Apartment Complex (4:07)
+03. Venice Bitch (9:36)
+04. Fuck It, I Love You (3:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841105   (332391) от 14.11.2014
+
+Black Sabbath - Technical Ecstazy (1976)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332391.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Back Street Kids (3:52)
+A2. You Won't Change Me (6:38)
+A3. It's Allright (4:02)
+A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580202   (332013) от 30.09.2022
+
+Dolly Parton · Linda Ronstadt · Emmylou Harris - Trio (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Folk Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332013.jpg" />
+</div>
+
+
+###  Подробнее
+
+A The Pain Of Loving You
+A2 Making Plans
+A3 To Know Him Is To Love Him
+A4 Hobo's Mediation(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBEFD497C47F9C6A5EB5304107AA3DBD4A89E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580161   (332009) от 30.09.2022
+
+VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332009.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Мики Евремович - Белая Хризантема
+А2 Мишо Ковач - Заря Заплачет
+А3 Оливер Драгоевич - Копакабана
+А4 Радмила Караклаич - Моя Земля(   Читать дальше...   )Жанр: Pop, Pop Rock, BalladПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955756   (330981) от 13.11.2015
+
+Евгения Лисицина (серия Органная музыка, запись 1972 г.) - И. С. Бах, М. Регер: Партиты, концерт №1 длдя органа, (1986) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330981.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Партиты На Тему "Sei Gegrüsset, Jesu Gütig" Соль Минор, В. 768
+Концерт №1 Для Органа Соль Мажор, В. 592 (И. С. Бах)
+A2	1. (Allegro)
+B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581217   (328048) от 04.10.2022
 
 VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Hard Rock, Pop Rock>
@@ -579,194 +753,6 @@ A4 Лифт • The Elevator(   Читать дальше...   )Жанр: Reggae
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E52464339673B026A4B99DFF1ECC882203DD2AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421303   (319542) от 04.11.2020
-
-Barbra Streisand - Guilty (1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Easy Listening, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319542.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Guilty
-A2 Woman In Love
-A3 Run Wild
-A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582107   (319528) от 29.11.2012
-
-Uriah Heep - Magic Night /Live at Astoria Theatre, London/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Hard Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Livin' (2:45)
-02. Shadows Of Grief (6:12)
-03. Cry Freedom (3:42)
-04. Pilgrim (6:18)
-05. Bad Bad Man (3:40)
-06. Devil's Daughter (4:44)
-07. Wise Man (4:13)
-08. Firefly (2:00)
-09. Heartless Land (1:49)
-10. Free Me (3:25)(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 01:03:12 (2.0), 01:02:59 (5.1)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B676222168E7AA4C36C45B3F2770328ED86B4B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580076   (319518) от 29.11.2012
-
-ДДТ - Актриса Весна (1992) [DTS 5.1|1411]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дождь
-2. В последнюю осень
-3. Фома
-4. Родина
-5. У тебя есть сын
-6. Храм
-7. Что такое осень
-8. Ночь
-9. Актриса ВеснаЖанр: RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFACC48AF20B6756BED1487B710C5FAD7789288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580099   (319516) от 29.11.2012
-
-Владимир Высоцкий - Vladimir Vissotski (1985) [DTS 5.1|1411 кб/с]<Авторская песня>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (Side A-B)
-
-1. Он не вернулся из боя
-2. Черные бушлаты
-3. Как призывный набат
-4. Недолюбил
-5. Про прыгуна в высоту
-6. Боксер
-7. Расстрел горного эха
-8. К вершине(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 35:02+37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0081D644863CFF8B5AD679ACEDFE6EC4C97CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417241   (318734) от 30.11.2011
-
-Celine Dion - A New Day Has Come (2002) [DSD 5.1 1bit/2822,4kHz|SACD-R] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABCA6684D72975A62C6D2D4DAFFF70453404AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582759   (318609) от 11.10.2022
-
-Tina Turner - Foreign Affair (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318609.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Steamy Windows
-A2 The Best
-A3 You Know Who (Is Doing You Know What)
-A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: Pop Rock, Soul, Rhythm & BluesПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,180 @@
+###  Публикация: 1193477   (157892) от 24.12.2017
+
+Maury Laws & Jules Bass - Сумасшедшая вечеринка чудовищ / Mad Monster Party (1967) 1998 [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maury Laws - The Baron
+02. Ethel Ennis - Mad Monster Party
+03. Maury Laws - Waltz for a Witch
+04. Maury Laws - Cocktails(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518159   (157689) от 18.12.2021
+
+Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient, Choir>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Welsh Home
+02. Kyrie Victoria
+03. Waiting for Life
+04. Pie Jesu (Ft. Narcis)(   Читать дальше...   )Жанр: New Age,  Ambient, ChoirПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588534   (157375) от 13.12.2012
+
+Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_157375.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Raga Puriya Kalyan [11:48]
+2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
+Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
+3. I. Lalit (Presto) [16:36]
+4. II. Bairagi (Moderato) [08:11]
+5. III. Yaman Kalyan (Moderato) [14:32]
+6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433454   (156856) от 21.12.2020
+
+Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New Age, Easy Listening, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Giovanni Marradi (17.04.1952) родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток. После иммиграции в Америку он играл небольшие концерты в Калифорнии. Набравшись смелости, он приехал в Лас-Вегас и попросился выступить в Caesar's Palace (казино и отель). Удивительно, но ему пошли навстречу. А что более удивительно, на одном из выступлений (   Читать дальше...   )01. Never Again (5:03)
+02. Janet's Dream (4:33)
+03. Voices (3:18)
+04. Thoughts (3:40)(   Читать дальше...   )Жанр: New Age, Easy Listening, Instrumental, PianoПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433644   (156813) от 21.12.2020
+
+Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy 1 (Angels) (02:27)
+ 02. Elegy 2 (Forever) (05:01)
+ 03. Elegy 3 (Farewell) (04:02)
+ 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085799   (156695) от 22.12.2016
+
+Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chanson d'automne (poeme de Verlaine) [0:53]
+02. Une amitie [1:30]
+03. La promenade [1:23]
+04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433680   (156392) от 21.12.2020
 
 VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
@@ -572,180 +749,6 @@ Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о сам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:190DC2D800233909211B36EF1B594E5E8FD45B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271242   (152362) от 22.12.2018
-
-Бурановские бабушки - Внучка (2018) [MP3|320 Kbps] <Folk, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Иван-чай
-3. Внучка
-4. Мне снова 18(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548E5A782C469F6C9A065C181B2EFB754F62D457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086271   (152233) от 24.12.2016
-
-Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival (02:51)
-02. Heptapod B (03:43)
-03. Sapir- Whorf (01:17)
-04. Hydraulic Lift (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195052   (152123) от 27.12.2017
-
-O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Waking Woman
-02. Every Rebel Campaign
-03. Two Fingers Flicked
-04. The Way Home(   Читать дальше...   )Жанр: Folk, IndieПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BC670FBFD57D05950E4D176796BDEE26A7A119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738521   (152114) от 25.12.2013
-
-Юрий Пашалы - Для влюблённых... в аккордеон. Музыка для души (2007) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Брызги шампанского (А.М. Люкери) (3:26)
-02. Домино (Плане-Ферари) (3:05)
-03. Тико-тико (З. Эбрю) (4:42)
-04. Танго любви (А. Пьяццола) (5:20)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B6899F2EA71917DC87E98DC6AB30319897A8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086332   (152101) от 24.12.2016
-
-Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starship Avalon (Main Title) (04:15)
-02. Hibernation Pod 1625 (01:19)
-03. Command Ring (00:57)
-04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675516   (151762) от 16.11.2023
-
-Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Vedic Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dhanvantri Dhyana
-02. Prarthana, Anna Brahmopasana, Paap Nivarak Mantra
-03. Roga Nivarak Sukta, Mrithika Sukta, Durva Sukta
-04. Shatangayur Sukta(   Читать дальше...   )Жанр: Mantras, Vedic ChantsПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

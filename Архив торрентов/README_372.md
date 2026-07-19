@@ -1,3 +1,38 @@
+###  Публикация: 610988   (981824) от 05.02.2013
+
+Butterfly & Stan Sanych - Trance Life Radio Podcast 007 (January 2013) (29.01.2013) [MP3|320 кб/с]<Progressive House, Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Echd -  Something About You (Elfsong & Aeron Aether & Something More Mix)
+02. Michael & Levan feat. Stiven Rivic -  Free Fall (Original Mix)
+03. Fehrplay -  Incognito (Original Mix)
+04. Thomas Hayes -  Waterfall (Original Mix)
+05. Moonsouls -  Resolution (Original Mix)
+06. Steve Brian & Cressida -  Systemic (Original Mix)
+07. Damian Wasse -  Into The Love (Club Mix)
+08. Reconceal -  Renascentia II (Original Mix)
+09. RAM & XB -  Symphonik (Original mix)
+10. Armin Van Buuren & Markus Schulz -  The Expedition (Original Mix)Жанр: Progressive House, Progressive Trance, Melodic TranceПродолжительность: 02:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F581DEA18B9AE8B42B513D73A48BAED9FC54F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972275   (981817) от 06.01.2016
 
 Камеди Клаб / Комеди Клаб / Comedy Club (25.12.2015) WEB-DL [H.264/720p-LQ]
@@ -677,32 +712,6 @@ The best of 1st hour is:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3071C5A4ADDA13ADD0DF7B9A8B53B475BE3740F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972517   (981572) от 06.01.2016
-
-Paint.NET 4.0.9 + Plugins Portable by Punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint.NET — бесплатный растровый графический редактор рисунков и фотографий для Windows, разработанный на платформе .NET Framework. Paint.NET является отличной заменой редактору графических изображений, входящему в состав стандартных программ операционных систем Windows. Обладая многими мощными функциями, которые присутствуют только в дорогих графических редакторах, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC89AF45F19EC1C34E9ACDDE4B796E824954553
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1569806   (447191) от 15.08.2022
-
-VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Gang - Challenger
-02. Miko Mission - The World Is You
-03. Charlie - Space Woman
-04. Mike Rogers - Just A Story(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569818   (447187) от 15.08.2022
 
 VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
@@ -752,6 +723,35 @@ C.C.Catch - Big Fun (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF897FDC7EA5602F37959FFEEC2E3FEEBD93822F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572332   (423516) от 26.08.2022
+
+C.C.Catch - Like A Hurricane (1987) [OGG Vorbis|485 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Guys Only Win In Movies (Long Version)	5:42
+02. Like A Hurricane	3:13
+03. Smoky Joe's Café	3:41
+04. Are You Man Enough	3:36(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F43473BFF17E7D354B5D77A76A50EB7B057D1CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

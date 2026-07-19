@@ -1,3 +1,32 @@
+###  Публикация: 1221353   (695143) от 24.04.2018
+
+Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Balls (3:08)
+02. Electrons, Neutrons, Protons & Morons (1:59)
+03. You Can Be Anything (4:36)
+04. Morrocan Roll (3:19)(   Читать дальше...   )Жанр: Electronic,  Synth-pop, DiscoПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80846B6566346A74C8B2422AA728D5436D2BEDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027574   (694842) от 20.06.2016
 
 Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk, World>
@@ -719,35 +748,6 @@ Amy Macdonald - Life In A Beautiful Light (2012) [MP3|~247 кб/с (V0)]<Pop, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8F6BCFBC8CFE4F1802892EAEF7682F4E015A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222694   (683029) от 30.04.2018
-
-Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Dance To The Beat (Remix) 5:01
-02. Indian Grave 4:02
-03. Pump It Up 4:26
-04. Masterboy Theme 4:41(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
 ```
 
 https://mybot314.ru/tekegram_catalog/

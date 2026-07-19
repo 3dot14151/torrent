@@ -1,3 +1,29 @@
+###  Публикация: 299987   (877759) от 23.02.2011
+
+VA - The Lounge Legend Ballroom Collection (2009) [MP3|320 kbps]<Instrumental | Dance>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental | DanceПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670DEB0177456238FF382D0DB3EA4B9BA4F812CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996818   (877425) от 15.03.2016
 
 VA - Sentimental Piano: Most Romantic Piano Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -720,35 +746,6 @@ VA - New Age Style - Enigmatic 24 (2016) [MP3|320 кб/с] <New Age, Enigmatic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7410D268BE017CFE32CB08C88CC1CDF2B0CE304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196425   (824003) от 02.01.2018
-
-Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow On The Wall (4:27)
-02. Frozen Love (4:52)
-03. Soran (5:27)
-04. The Rain (5:13)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBFB92D37762D538B6DA3E2D9EF3C5D579F5085
 ```
 
 https://mybot314.ru/tekegram_catalog/

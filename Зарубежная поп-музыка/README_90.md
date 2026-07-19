@@ -1,3 +1,32 @@
+###  Публикация: 1775485   (71406) от 27.01.2025
+
+VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown - Sex Machine
+02. Peoples Choice - Do It Anyway You Wanna
+03. Earth, Wind & Fire - Saturday Nite
+04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677A13D455960AD26F54954AF7E525DB8B6E4746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775689   (71376) от 28.01.2025
 
 VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -716,35 +745,6 @@ VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37939F605989B1F2A3770A0CB531E424F2F49820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785331   (69370) от 15.03.2025
-
-Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <Disco, Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La marche des machos (04:17)
-02. Chante pour nous Mama (03:17)
-03. Les nouveaux romantiques (03:23)
-04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F5DDF065CCA1F4933F4FC4F7DD97939405B563
 ```
 
 https://mybot314.ru/tekegram_catalog/

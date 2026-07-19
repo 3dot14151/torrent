@@ -1,3 +1,309 @@
+###  Публикация: 473459   (84531) от 26.03.2012
+
+Коллекция исполителей песни - Besame Mucho (2012) [MP3|128 кб/с]<Blues, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84531.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Blues, RetroПродолжительность: 2:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A4F734FF8E25F933D1649C76397B3F0E61BF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472478   (84426) от 25.03.2012
+
+KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84426.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:04] .  - WinRAR and RAR unblacklister
+[01:16] .  - 2000AD - SimCity Deluxe intro
+[05:14] .  - ABAKUS - Indian Mission DE intro
+[01:01] .  - ACCESSiON - Cyberzerk intro
+[00:57] .  - ACTive PDA - VidaOne MyPersonalDiet 3.xkg
+[01:29] .  - AERiS - Hod Dog King +7trn_02
+[01:43] .  - AERiS - Hod Dog King +7trn_03
+[00:38] .  - AERiS - Hod Dog King +7trn_12
+[03:50] .  - AGiLE - Miami Chase intro
+[01:01] .  - AGRESSiON - Anti-Trojan Elite 3.4.3crk(   Читать дальше...   )Жанр: 8bitПродолжительность: 04:13:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27131E4E7B94487944A5977DBB6BB45EEBA23388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472485   (84415) от 25.03.2012
+
+KeyGen Music (origins) - 3139 треков (2000-2012) [xm, .it, .mod, .mo3, .s3m|.>115 кб/с (V6)]<8bit>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84415.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:04] .  - WinRAR and RAR unblacklister
+[01:16] .  - 2000AD - SimCity Deluxe intro
+[05:14] .  - ABAKUS - Indian Mission DE intro
+[01:01] .  - ACCESSiON - Cyberzerk intro
+[00:57] .  - ACTive PDA - VidaOne MyPersonalDiet 3.xkg
+[01:29] .  - AERiS - Hod Dog King +7trn_02
+[01:43] .  - AERiS - Hod Dog King +7trn_03
+[00:38] .  - AERiS - Hod Dog King +7trn_12
+[03:50] .  - AGiLE - Miami Chase intro
+[01:01] .  - AGRESSiON - Anti-Trojan Elite 3.4.3crk(   Читать дальше...   )Жанр: 8bitПродолжительность: 04:13:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02291F37ED8317FF68B615413E1296B17FE5C90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471866   (84206) от 24.03.2012
+
+VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP3|320 кб/с]<Dance/Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1
+Продолжительность: 03:27:05
+1. 666 - Bomba
+2. Aqua - Roses Are Red
+3. ATC - Around the World
+4. Atischa Feat. Blue System - Secret Of The Night
+5. Babe - Oh My Little Baby Boy
+6. B-Cap - Send Me An Angel (Radio Version)
+7. Bellini - Samba De Janeiro
+8. Bizz Nizz Feat. G.Arrendell - Dabadabiaboo (Ragga Edit)(   Читать дальше...   )2012Жанр: Dance/PopПродолжительность: 06:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849AF0FA8696DB5BE3CE112782E4F787C414D7C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470569   (83608) от 21.03.2012
+
+VA - Фоновая музыка для дня рождения (2012) [MP3|128-320 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ирина Аллегрова - С Днем рождения (3:12)
+2.  Золотое Кольцо - С Днем рождения (2:32)
+3.  Игорь Николаев - День рождения (2:57)
+4.  Таня Буланова - День рождения (3:28)
+5. Михаил Михайлов - С днем рождения (3:46)
+6.  Л.Гурченко – «Песенка о хорошем настроении» (2:39)
+7.  Верка Смердючка - День рождения (2:45)
+8.  Иванушки International - День рождения (3:33)
+9. Михаил Михайлов - (3:43)
+10.  ВИА Путiна - День рождения (3:29)2012Жанр: Dance, PopПродолжительность: 02:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D376547DE6B20CAF507CD6FA6210EA28474E18C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470556   (83595) от 21.03.2012
+
+VA- Для Юбилея, Дня Рождения Русский (2012) [MP3|128 - 320 кб/с <Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Ирина аллегрова - с днем рождения (3:12)
+2.  Фристайл - метелица (3:50)
+3.  На-на! - фаина (3:36)
+4. Ирина аллегрова - Бабы-стервы (3:23)
+5. Андрей губин - Лиза (4:14)
+6.  Hi-fi - а мы любили (3:07)
+7.  Блестящие - за четыре моря (3:54)
+8.  Tarkan - simarik (3:52)
+9. Алиса мон - Алмаз (3:39)
+10. Фристайл - Ах, какая женшина! (4:28)2012Жанр: Dance, PopПродолжительность: 07:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425764D82DC96FAC477F0EF6A60B3DE814B4AE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471128   (83494) от 21.03.2012
+
+VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julio Iglesias - Nostalgie
+02. Fausto Papetti - Windmilles Of Tour Mired
+03. Foreigner - Waiting For A Girl Like You
+04. Overkill - Girl, You`ll Be A Woman Soon
+05. Tony Braxton - Un Break My Heart
+06. Abba - The Winner Takes It All
+07. Cris norman - Some Hearts are Diamonds
+08. Rolling stones - Angie
+09. Sting - Fragile
+10. James Last - Lonesome Shepherd(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C8A2EB588B6372BD7F8D62CEAD69CD1B9C4286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470527   (83450) от 21.03.2012
+
+VA- Для Юбилея, Дня Рождения Иностранный (2012) [MP3|128 - 256 кб/с <Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Boney m - sunny (3:44)
+2.  Gloria gainor - i will survive (3:25)
+3. Cher - believe (3:52)
+4.  Heath hunter - revolution in paradise (3:27)
+5. Whizzkids & inusa dawuda - rub-a-dub girl (3:46)
+6. Smokie - what can i do (3:38)
+7. Mr. President - coco jambo (3:41)
+8. Boney m - boney m kalimba de luna (4:11)
+9. Shaft mambo italiano (2:47)
+10.  Ricky martin - living la vida loca (4:00)2012Жанр: Dance, РорПродолжительность: 09:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471417   (83433) от 21.03.2012
+
+VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Raumwohnung - 2 Von Millionen Von Sternen
+002. Aakarshan - Tantra Cafe (Sacred Spirit Of Love Mix)
+003. Acoustik Undo - You Don't Love Me (No, No, No)
+004. Adele Del Rey - - Steel Curry (Cafe Bombay Steel Sitar Mix)
+005. Ali Kaan Gebes - The Simplycity
+006. Ali Sural - Follow Me
+007. Alphawezen - Chance Destination
+008. Animelatine - Por Do Sol No Mar (Original Mix)
+009. Anja Garbarek - No Trace Of Grey
+010. Antique Beats Om - Voices Of India (Mantra Mix)(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 10:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471150   (83421) от 21.03.2012
 
 VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop | Dance | Club>
@@ -547,267 +853,6 @@ VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDDF2109B35DD28E2451F6962A96DDA1280BBAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794008   (67409) от 27.04.2025
-
-VA - Music News For Forum vol.077 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Halestorm - Darkness Always Wins (04:50)
- 002. Трепетно - Взаперти (02:18)
- 003. ADDA - Straine (02:26)
- 004. Aelyn - Only You (06:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EFF666795381B1AD2950E426B465CFAC8BA64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794305   (67331) от 28.04.2025
-
-VA - Musical kaleidoscope part 38 Easy listening (2025) [MP3|320 Kbps] <Instrumental, Electronic, Sax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lava - Uncertainties of Fate
-02. Roxette &  Felicity Norway - It Must Have Been Love
-03. The Sound of Love - Deep Darkness
-04. Starship, Jk Sax - Nothing's Gonna Stop Us Now(   Читать дальше...   )Жанр: Instrumental, Electronic, SaxПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7767D8767F3490D23C42EAAD15853DC6E6B650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799679   (66444) от 29.05.2025
-
-VA - Music News For Forum vol.094 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66444.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Julia Michaels - F.O.O.L (03:15)
- 002. 3Sonn - Сначала фэмили (02:02)
- 003. 5sta Family - Я буду (Max Cardo Re-Mash 2025) (02:59)
- 004. Торопцева - Никогда (02:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7417B2941653164FB39B1259024EB0B0A812B09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801687   (66195) от 12.06.2025
-
-VA - National Pop Dance Music Vol.106 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eddy De Pretto - Crash Test (01:31)
- 002. L'affaire Capucine - Canon A The (01:31)
- 003. Dj Luciano - Granny's Square Dance Fail (01:55)
- 004. Robertino Y Su Arpa - Arbol De Navidad (02:09)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD425A41684584BB7EDA3249254355FCF89E3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801695   (66189) от 12.06.2025
-
-VA - National Pop Dance Music Vol.108 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66189.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hugel - I Adore You (03:34)
- 002. Mc Menor Jp - Menina De Vermelho (02:31)
- 003. Bac - Rosaroter Tee (02:43)
- 004. Jazeek - Tell Me (02:35)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C6A5F5368E42A786A25F4110608B678A33C172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802085   (66141) от 14.06.2025
-
-VA - National Pop Dance Music Vol.110 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tws - Plot Twist (02:32)
- 002. Aleph - School Day Nostalgia (03:22)
- 003. Marracash - Gli Sbandati Hanno Perso (03:14)
- 004. Pinguini Tattici Nucleari - Islanda (03:37)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68A5EEAB9E355D97569C9953282E89996FCB4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803770   (65778) от 25.06.2025
-
-VA - Luminiscent Dance Boom (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65778.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harmony Bytes - Genesis Of Code (03:20)
- 002. Chromeo - Personal Effects (04:00)
- 003. Babebee - Safe Haven (02:08)
- 004. Prima Stanza A Destra - L'ultima Volta (02:24)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 10:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45C8A817E3E40721F38F67EB555843C83C19B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808108   (65068) от 22.07.2025
-
-VA - National Pop Dance Music Vol.114 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karol G - Si Antes Te Hubiera Conocido (03:16)
- 002. Keshi - Kiss Me Right (02:42)
- 003. Dr. Yaro - Minimum Ca (02:30)
- 004. Ava Max - Lost Your Faith (03:14)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1AEDA909FC5E3AF7E4CE4A9DA80B1519733F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808110   (65067) от 22.07.2025
-
-VA - The Groove of Life (2025) [MP3|320 Kbps] <Blues, Rock, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65067.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beth Hart - Drunk On Valentine(05:23)
-002. Grant Sabin - Luisa(03:52)
-003. Whiskey Nips - Mamma Just Got Married(04:30)
-004. The Smoothies - We Can Change The Past(03:33)(   Читать дальше...   )Жанр: Blues, Rock, FolkПродолжительность: 09:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F21F8EE06EB8D7BA44BF6E8FED5BDD9F8026333
 ```
 
 https://mybot314.ru/tekegram_catalog/

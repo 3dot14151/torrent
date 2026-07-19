@@ -1,119 +1,3 @@
-###  Публикация: 1196545   (822543) от 03.01.2018
-
-Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Trust [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without A Song [08:41]
-02. Besame Mucho [05:05]
-03. Ain't No Sunshine When She's Gone [10:36]
-04. Vita Bella [05:12](   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, Post-BopПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586144EE3BA03681B9634E15A1CF4B277EAF92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166028   (822435) от 17.10.2021
-
-Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитаристы Ник Вебб и Грег Кармайкл в 80-х и 90-х годах прошлого столетия под вывеской "Acoustic Alchemy" произвели на свет серию интересных альбомов, классифицируемых на Западе как "adult contemporary music". На самом деле в музыке "алхимиков" всегда присутствовала смесь различных стилей: джаз, фолк, поп, латино, нью-эйдж, соул и т. (   Читать дальше...   )Список альбомов:
-Red Dust & Spanish Lace (1987)
-Natural Elements (1988)
-Blue Chip (1989)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 14:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DA281661A152440309F1525A796890304C9C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196614   (822406) от 03.01.2018
-
-Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindred Spirits
-02. Breakthrough to the Temperate Zone
-03. Lucky Charm
-04. Solo Act(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D1A592F360026E0950CEE4BCB5E930F069079C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196810   (821758) от 30.04.2010
-
-VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima & His Band - I Wanna Be Like You  (4:22)
-02. Louis Armstrong - Cabaret  (2:43)
-03. Ella Fitzgerald - Mack The Knife (Live)  (5:04)
-04. Nina Simone - My Baby Just Cares For Me  (3:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007522   (821694) от 15.04.2016
 
 The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
@@ -744,6 +628,122 @@ Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4B9EB7F299C14111A741D9E4832CE92E6CF30C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382601   (819278) от 11.05.2020
+
+V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Works For Me - Send One Your Love
+02. Jon Davis - My Cherie Amour
+03. Theo Hill - Superwoman
+04. Idle Hands - You And I(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F40FDBBE08965D253A2A9610AA65B620F24D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117303   (819267) от 22.03.2017
+
+Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (1955, 1956, 1958) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819267.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Porgy And Bess:
+01.Buzzard Song [04:13]
+02.Bess, You Is My Woman Now [05:17]
+03.Gone [03:43](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB86B2D2B8D11EFB1210F274EE27D269F8CD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117340   (819250) от 22.03.2017
+
+Jack Jezzro - Sinatra On Guitar (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly With Me
+02. You Make Me Feel So Young
+03. Strangers In The Night
+04. Fly Me To The Moon(   Читать дальше...   )Жанр: Smooth Jazz, GuitarПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF5C91B434F5DC5E032BC1599C4CA908857CC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196923   (819213) от 05.01.2018
+
+John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Difference a Day Made [02:31]
+02. Polka Dots and Moonbeams [04:19]
+03. Blow Fiddle Blow [02:50]
+04. Blue Orchids [03:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5916B988D1C8F868F4E376B852427DB34919BAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

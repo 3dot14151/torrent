@@ -1,3 +1,32 @@
+###  Публикация: 1690744   (123673) от 09.01.2024
+
+VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep Groove, Nu Disco, Funky, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glz, Venessa Jackson – The Night (M0na-K Remix) 4:24
+02. David Jansen, Pierre Galli – Can’t Get Enough 6:29
+03. Benny Dawson – Falling 7:16
+04. Christian Desnoyers – From Left To Right (Filj Italo Disco Remix) 5:24(   Читать дальше...   )Жанр: Soulful, Deep Groove, Nu Disco, Funky, Indie DanceПродолжительность: 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4171A06E92D6ECD9F8D0EBB7D9786AA604E99D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692065   (122960) от 14.01.2024
 
 Michael Cretu - 5 Albums (1979-1992) LP [MP3|320 Kbps] <Electronic, Pop, Disco, Downtempo, Synth-pop>
@@ -716,35 +745,6 @@ VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF1D0CA8298055EC7518EA293073AD495642BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712371   (112043) от 04.04.2024
-
-The Veronicas - Gothic Summer (2024) [MP3|320 Kbps] <pop-rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Perfect [00:02:33]
-02 - Detox [00:03:00]
-03 - Here To Dance [00:02:05]
-04 - Savage (feat. Kerser) [00:03:13](   Читать дальше...   )Жанр: pop-rockПродолжительность: 00:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A7DF8D15F42A47B4E7C2FA2AA03C6C3516418B
 ```
 
 https://mybot314.ru/tekegram_catalog/

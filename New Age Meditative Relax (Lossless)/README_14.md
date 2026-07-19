@@ -1,3 +1,32 @@
+###  Публикация: 1029656   (680339) от 27.06.2016
+
+Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside the OM (16:04)
+02. Inside Chanting (18:06)
+03. Inside Silence (12:47)
+04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029389   (680258) от 27.06.2016
 
 Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
@@ -727,35 +756,6 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228250   (637510) от 31.05.2018
-
-Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise Cafe
-02. Earth Halo
-03. Evolving the Distance
-04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

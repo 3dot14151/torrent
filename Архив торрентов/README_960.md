@@ -1,142 +1,3 @@
-###  Публикация: 1380946   (829840) от 05.05.2020
-
-Smif-N-Wessun - The All (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Intro) The Education Of Smif-N-Wessun (3:54)
-02. Testify (1:28)
-03. Dreamland (feat. Heather Victoria & Raekwon) (3:42)
-04. Ocean Drive (feat. Musiq Soulchild & Rapsody) (4:55)(   Читать дальше...   )Производство: Duck Down Music Inc. – DDM CD 2780Жанр: Hip-HopПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA4A7168ECA023B32ADB7DDC0B29E9E97EFAC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380954   (829838) от 05.05.2020
-
-Wale - Wow... That's Crazy (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sue Me (3:51)
-02. Love & Loyalty (feat. Mannywellz) (3:11)
-03. Cliché (feat. Ari Lennox & Boogie) (3:40)
-04. Expectations (feat. 6LACK) (5:04)(   Читать дальше...   )Производство: Warner Records Inc. – 093624897385Жанр: Hip-HopПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C06B5455406C7BFC754BD2333EE55B8FD906A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502135   (829807) от 13.10.2021
-
-Luminar AI 1.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый редактор изображений, полностью основанный на искусственном интеллекте.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2021Разработчик: Skylum SoftwareПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1BA06FBCFEF5D22F37F07A35F0C8AA1742E980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502258   (829806) от 13.10.2021
-
-MediaHuman YouTube Downloader 3.9.9.61 (1310) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829806.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение, с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер нового фильма с YouTube или подобных сервисов и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3590C262E03332A1E35173993E97D361858E10E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114911   (829796) от 16.03.2017
-
-VA - Armada Acoustic (2017) [FLAC|Lossless|WEB|tracks] <Chillout, Downtempo, Acoustic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & John Ewbank - This Is What It Feels Like (feat. Trevor Guthrie) (John Ewbank Classical Remix) (3:12)
-02. Dash Berlin & Jay Cosmic - Here Tonight (feat. Collin McLoughlin) (Acoustic Version) (2:47)
-03. Gareth Emery - I Could Be Stronger (but Only for You) (3:43)
-04. DJ Shah - Who Will Find Me (feat. Adrina Thorpe) (Acoustic Version) (   Читать дальше...   )Жанр: Chillout, Downtempo, AcousticПродолжительность: 03:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9BC085ED3F07901BEB80E9A5994D3D484B5718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115088   (829792) от 16.03.2017
 
 Журнал | Оружие №2 (2017) [PDF]
@@ -684,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE027EEE362ECC348FB9CE3FE6EF0031D542D788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114909   (829579) от 16.03.2017
+
+Coolmuster GIF Animator 2.0.25 RePack by вовава [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coolmuster GIF Animator — удобная программа для создания своих собственных анимированных файлов GIF. Анимированные изображения более привлекательны, чем статические рисунки, сразу бросаются в глаза и более эффективны для создания положительного имиджа. Coolmuster GIF Animator является достаточно хорошим средством для создания базовой GIF анимации и делает этот процесс (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9244D95EF37477B730B0190C396F1CEEF7E187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502196   (829542) от 13.10.2021
+
+Movavi Video Editor Plus 22.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor, это один из лучших видео-редакторов на рынке мультимедийных продуктов, ориентированных на массового пользователя, профессиональных требований не требуется, вам достаточно владеть опытом работы с простыми мультимедийными программами. Movavi Video Editor дает возможность юзеру заниматься редактированием своих видео-файлов на хорошем базовом уровне. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E740C0B55B6EA871A010489CD12384186B440969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502036   (829532) от 13.10.2021
+
+Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro 15.0.5389.1000 (2021.10) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD3BD973120A945DBFB97AB315A133C7D065296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502179   (829531) от 13.10.2021
+
+Rufus 3.16 (Build 1836) Stable + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8179CC32F7AC26CCB1C7F6822599E194A2D8B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502204   (829530) от 13.10.2021
+
+Adguard 7.7.0 (7.7.3715.0) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A527A394E8EDF56BE067D5A997141A4BA2BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

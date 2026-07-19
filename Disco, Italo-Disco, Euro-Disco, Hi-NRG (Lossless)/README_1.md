@@ -1,3 +1,90 @@
+###  Публикация: 1444691   (1034436) от 02.02.2021
+
+VA - Modernation, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sophie Du Palais - I Don't Wanna Go to Work Today (5:40)
+02. Adrian Marth - Sintesis Analogica (5:07)
+03. Antoni Maiovvi - Edge of Knowle (4:36)
+04. Black Light Smoke - Work for Love (5:56)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C2D7A204D1F21324CDA60BEE360C2BB95C1906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444692   (1034435) от 02.02.2021
+
+VA - Modernation, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Machine - Music Inside (8:43)
+02. Luca Dell'orso - Pulsario (5:15)
+03. Adrian Marth - New Vision (6:50)
+04. Ali Renault - Maghtab Mirror (5:19)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A16286C44DE6189CBC19EA228281689541EEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444766   (1034203) от 03.02.2021
+
+VA - New Italo Disco Music Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - My Heart Belongs To You (Extended Version) (6:33)
+02. Chito - The Long Tomorrow (Maxi Version) (6:46)
+03. D. White - No Connect (Extended Version) (7:04)
+04. Lenroy - Give Me A Night (Extended Version) (6:09)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCBCBEA2F74E9C4D70024BE7B6D377CF65330A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445797   (1033549) от 06.02.2021
 
 Aphelion - Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Synth, Italo-Disco>
@@ -656,93 +743,6 @@ Peaches & Herb - 2 Hot! (2015) [FLAC|Lossless|tracks + .cue] <Disco, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F6F4C39199BF2B37D151BC8D170C3F71D2E735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461242   (1022075) от 08.04.2021
-
-VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitsou - Rock 'N' Roll Is Back Again (4:16)
-02. Heather Parisi - Disco Bambina (5:14)
-03. La Flavour - Mandolay (5:29)
-04. Rinder & Lewis - Willie And The Hand Jive (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461202   (1021998) от 08.04.2021
-
-VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - It's Over (5:03)
-02. Bellatrix - Vector (5:37)
-03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
-04. DJ Con-T - Space Adventure (Vanello Remix) (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461313   (1021953) от 09.04.2021
-
-Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Blind (Long Version) (3:57)
-02. Return to Neon (Alternate Ending) (4:37)
-03. King Without a Crown (6:12)
-04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
 ```
 
 https://mybot314.ru/tekegram_catalog/

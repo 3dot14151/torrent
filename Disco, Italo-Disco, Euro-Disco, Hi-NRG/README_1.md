@@ -1,32 +1,3 @@
-###  Публикация: 1459447   (1023318) от 01.04.2021
-
-Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness (4:45)
-02. Superfly (4:12)
-03. Like To Love (3:49)
-04. Baby Get Down (4:17)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42AED927F99E0DBFF16505244932DBFDA7BE31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459620   (1023131) от 02.04.2021
 
 Love Symphony Orchestra - Penthouse Presents The Love Symphony Orchestra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -743,6 +714,35 @@ Ivan Cattaneo - Ivan Il Terribile (1982) [MP3|320 Kbps] <Electronic, Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DAE388FD70CE43DE4D1DD81C0C9C91850BD5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478642   (1010186) от 20.06.2021
+
+Patti Austin - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Electronic, Soul, Jazz-Funk, R&B, Downtempo, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская поп, R&B и джазовая исполнительница а так-же бэк-вокалистка, родилась 10 августа 1950 года в Нью-Йорке.01. Body Language (5:06)
+02. Another Nail For My Heart (3:14)
+03. S.O.S. (3:57)
+04. We've Got Tonight (4:18)(   Читать дальше...   )Жанр: Electronic, Soul, Jazz-Funk, R&B, Downtempo, DiscoПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161A416C5E92D002BFE4A463DC9D7212C5981E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,108 +1,3 @@
-###  Публикация: 478977   (87301) от 09.04.2012
-
-VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fable Time - Russia (Maxi Version)
-02. Savage - I Love Again (Special Remix)
-03. Fellini - Passenger (Extended Version)
-04. The Kitch Club - Can't Stop Saying I Love You (Club Version)
-05. Jeannie - Freedom (Die Antwort) (12''Version)
-06. Chip Chip - Never Say Goodbye
-07. Mr.Freaky - Out Of My Mind (12''Version)
-08. Mauro - Buona Sera - Ciao Ciao (Holiday Dance Mix)
-09. Mozzart - Malice And Vice (Maxi Version)
-10. Tony Turn - Cherry Cherry(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 12:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478091   (86636) от 05.04.2012
-
-VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Type - Russian Lullaby
-002. Руки Вверх - Студент
-003. Dr. Alban - Mr. Dj
-004. Русский Размер и Профессор Лебединский - Бегут года
-005. Heath Hunter - Revolution In Paradise
-006. Вирус - Позови меня
-007. Pet Shop Boys - Go West
-008. Дискотека Авария - Труба зовет!
-009. East-17 - It's Alright
-010. Валдай - Чай, кофе, потанцуем!(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478359   (86502) от 05.04.2012
-
-VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пропаганда - Нет-Да (Dance Version) (3:51)
-2. МакSим - Это же я (3:15)
-3. 5sta Family - Вместе Мы (3:40)
-4. Анастасия Приходько - Заждалась (3:21)
-5. Николь - Стихи О Любви (3:31)
-6. Лера Массква - Про тебя (3:18)
-7. Пальчики Оближешь - Интрига (3:22)
-8. Чи - Ли - Облака (3:02)
-9. Наталья Подольская Интуиция (3:16)
-10. Карина Крит - Смотри на небо (2:53)2012Жанр: PopПродолжительность: 05:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478261   (86491) от 05.04.2012
 
 VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
@@ -905,6 +800,102 @@ VA - Zumba Dance 2011 (2011) [MP3|~ 256 кб/с]<Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462522   (80397) от 06.03.2012
+
+VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80397.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: pop, danceПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55641978263D624BBAEBAFC3C72CCDFC59186849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461387   (80380) от 06.03.2012
+
+VA - DFM - Russian Dance from AGR (2.03.2012) MP3, 320 kbps (2012) [MP3|320 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Fay - Я просто хочу быть....mp3
+02. DJ Vini feat. Stephenie Coker - Жестокая любовь (extended club mix)
+03. Виктор Павлик - Город Зеленого Цвета (dj Stranger Mix)
+04. Градусы - Заметает (DJ Karabaev DJ Agamirov Radio Edit)
+05. Звери - До скорой встречи (DJ Bemax Remix)
+06. Zdob Si Zdub - Видели ночь (DJ Fisun remix)
+07. Chris Parker - Symphony 2011 ( DJ P.AR remark)
+08. Иван Дорн - Стыцамен (Viento Mutti Remix)
+09. 5ivesta Family - Тук тук (dj Alex Menco Remix)
+10. Vengerov Fedoroff feat. Иванушки International - Кукла (Remix)(   Читать дальше...   )2012Жанр: popПродолжительность: 02:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8219654E30E00428DA09E63CFF73A3A329649335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456037   (77476) от 21.02.2012
+
+VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эffekt - Замерзаю
+ 02. Vincent Did It - Dynamo
+ 03. Egor - Breathe (Radio Edit)
+ 04. Claude Kelly - Don't Turn Out The Lights
+ 05. Gregory Sirakuza Feat. Mirami - Miramimania (House Remix)
+ 06. Suck The Clatter - Dance With You (Radio Edit)
+ 07. K.1.M Feat. Аня Скворцова - Причина-Это Ты
+ 08. Daddy Yankee Feat. Don Omar - Lovumba (Official Remix)
+ 09. Sara Oks - Rebel Girl
+ 10. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)2012Жанр: popПродолжительность: 06:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

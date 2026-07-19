@@ -1,119 +1,3 @@
-###  Публикация: 1051899   (530680) от 12.09.2016
-
-Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (2009) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenderly     (03:56)
-02. Clouds     (05:00)
-03. How High The Moon     (04:25)
-04. I've Got a Crush On You     (01:00)(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA07B8D5B8C81594E1316610E87F6D4A61F086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051918   (530678) от 12.09.2016
-
-Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless|tracks + .cue] <Crossover, Guitar Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Last A Day Without You     (05:11)
-02. Jersey Bounce     (03:54)
-03. Bernie's Tune     (03:28)
-04. A Smooth One     (05:30)(   Читать дальше...   )Жанр: Crossover, Guitar Jazz, InstrumentalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927109   (529995) от 12.08.2015
-
-Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free For All [11:09]
-02. Hammer Head [07:51]
-03. The Core [09:29]
-04. Pensativa [08:24](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313D81F8B4FC37D24637648D74864212AF1B8D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927110   (529945) от 12.08.2015
-
-Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good News [05:58]
-02. Make That Dream Come True [04:11]
-03. Eva [05:20]
-04. The Mark Of Zorro [04:14](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974ED029FF826725D4B223C8EA1A535AF9666249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155705   (529895) от 05.08.2017
 
 Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Big Band>
@@ -745,6 +629,122 @@ Tom Harrell - Prana Dance (2009) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250342207D61490B2F89B036D311DC2857E81175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052826   (527380) от 15.09.2016
+
+Maaike Nicola - A Portrait Of Maaike (1989) IPS[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Easy Living [05:19]
+ 02.Corcovado [03:29]
+ 03.Day By Day [03:31]
+ 04.Close Enough For Love [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE50E96B8EE4A9F5A2305C500384D4AD17576A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052808   (527375) от 15.09.2016
+
+Najee - You, Me and Forever (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air (6:08)
+02. Fly With The Wind (3:50)
+03. Wave (5:23)
+04. Biggest Part Of Me (5:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BFF498935720706A23A47C5DC0D941F8AF08DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559231   (527230) от 24.06.2022
+
+Buddy DeFranco (De Franco) - The Buddy DeFranco Wailers (1956, 1957) 2007, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [6:48]
+02. Let's Call the Whole Thing Off [5:06]
+03. Moonlight on the Ganges [6:33]
+04. Angel Eyes [4:25](   Читать дальше...   )Жанр: BopПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4985C7204C74B26F2824810C74044275EE45A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559061   (527193) от 24.06.2022
+
+Konstantin Klashtorni - Chillaxonic: 1st Facet (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ineffable (5:22)
+ 02. Ethereal (5:09)
+ 03. Cosmic Visions (4:26)
+ 04. Mellifluous (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD3685F195334CBBDC5165F14301ED25E08817C
 ```
 
 https://mybot314.ru/tekegram_catalog/

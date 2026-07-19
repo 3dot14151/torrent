@@ -1,119 +1,3 @@
-###  Публикация: 1370458   (61172) от 31.03.2024
-
-Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jua Kiss
-02. Let I Go
-03. Kamakumba
-04. Heritage(   Читать дальше...   )Жанр: Jazz, Latin, Funk / SoulПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D35806A4F2D0B04F1CF48D624A6F89AC582EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717937   (58864) от 22.04.2024
-
-V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve St. Jones - All Night Long (all Night)
-02. Sarah Menescal - Clocks
-03. Sarah Menescal - Always on My Mind
-04. Groove Da Praia - Digging Your Scene(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, PopПродолжительность: 02:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719418   (57925) от 01.05.2024
-
-Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Home in Kansas City [4:33]
-02. Red Bank Heist [7:33]
-03. Our Love Remains [5:26]
-04. Bon Voyage [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719474   (57924) от 01.05.2024
-
-Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Is Another Day [6:30]
-02. The Moon Is Made of Gold [3:16]
-03. Convince Me [4:17]
-04. They Say It's Spring [4:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C49944DD508EFB17197C5DFC00F1345711F2757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939726   (56884) от 11.05.2024
 
 Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, Jazz-Pop>
@@ -745,6 +629,122 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - Rat Pack Is Back (1996) Starlite [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DDBE9FD0570AC98E21D3820C55600BC3464E928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741943   (47330) от 09.08.2024
+
+Phineas Newborn, Jr. - Please Send Me Someone To Love (1969) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Send Me Someone To Love [5:10]
+02. Rough Ridin' [4:14]
+03. Come Sunday [4:59]
+04. Brentwood Blues [8:05](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86401AB99AF00431BE25563E1115120EC456B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861832   (46821) от 14.08.2024
+
+Betty Wright - My First Time Around (2012) [FLAC|Lossless]<Jazz, Funk, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Can't Do What the Guys Do [02:09]
+02. Funny How Love Grows Cold [02:54]
+03. I'm Gonna Hate Myself in the Morning [02:15]
+04. Circle of Heartbreak [03:01](   Читать дальше...   )Жанр: Jazz, Funk, Soul, R&BПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1470BF50D34D416BEE55534B1BBC9A18A9B09ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742964   (46815) от 14.08.2024
+
+Frank Sinatra & Tommy Dorsey - Learn To Croon (1940 - 1942) 1999, Buddha Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ida! Sweet As Apple Cider [2:09]
+02. Blue Moon [3:42]
+03. Learn To Croon, More Than You Know, How Come You Do Me Like You Do [3:07]
+04. I've Got My Eyes On You [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960B7082BA3BEDF263F7AF8BD7EEBBFDD1079014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744184   (46185) от 20.08.2024
+
+Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Universal [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Norman Granz [0:34]
+02. Come Out, Come Out Wherever You Are [3:51]
+03. Baubles, Bangels and Beads [5:13]
+04. Laura [4:31](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A476A8E2A17DD788C076D89C028D04FD7802557
 ```
 
 https://mybot314.ru/tekegram_catalog/

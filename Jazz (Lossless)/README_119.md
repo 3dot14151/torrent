@@ -1,118 +1,3 @@
-###  Публикация: 1225838   (658831) от 17.05.2018
-
-Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Parts [11:14]
-02. Stella by Starlight [09:37]
-03. T.I. [08:51]
-04. Sleep, My Love [07:49]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767D68201EE3E5A5FFD6C0301279774E50B2D035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903466   (658173) от 31.05.2015
-
-Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Trane's Name [33:28]
-02. Brother Joseph [04:45]
-03. Thulani [22:11]Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225962   (658046) от 18.05.2018
-
-Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Fire [07:50]
-02. Mysterious Jump [08:32]
-03. Fancy Free [02:34]
-04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903380   (657986) от 31.05.2015
-
-Joyce Elaine Yuille - Welcome to My World (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow the Sun
-02. Come with Me
-03. Too Soon You're Old
-04. Late I Rise(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D64F52819FAD1D6E887A37FB99BA5F5F9D696B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903520   (657861) от 31.05.2015
 
 V.A. - Cafe Del Mar - Jazz 2 (2014) [FLAC|Lossless]<Lounge, Jazzy, Easy Listening>
@@ -756,6 +641,122 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A9CBCEE439C2E5AD6159DBADE0CA11876B1B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904166   (655690) от 02.06.2015
+
+Mimi Terris - Flytta Hemifran (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flytta hemifran (3:02)
+02. I drommen (3:40)
+03. Om kvinnan (3:31)
+04. En paradvaning (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4E8C0F5A7ACEAEB85E9F4C870543CE098251F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904377   (655687) от 02.06.2015
+
+Red Holloway - Coast To Coast (2003) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Groovin' [06:03]
+02. Avalon [08:05]
+03. 3 Steps Up Clark [05:11]
+04. Indian Summer [04:08](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB572E200BF5256ABE0D55FD4655106BCFEEA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140673   (654989) от 07.06.2017
+
+Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecaroh [04:35]
+02. The More I See You [09:24]
+03. Lament For Edda [05:26]
+04. Blues For Carla [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E27CD182D79231AE76AB509C11DC4D0A1897FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140675   (654987) от 07.06.2017
+
+Alexander Fisher (Александр Фишер) - Three Question Marks (2005) Austro Mechana [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiphopation [05:51]
+02. Yes No Yes No [05:41]
+03. Wienkorso [05:17]
+04. Peace [10:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBCA64C69D847492597BFD265B529D439E5782C
 ```
 
 https://mybot314.ru/tekegram_catalog/

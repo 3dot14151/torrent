@@ -1,119 +1,3 @@
-###  Публикация: 1592821   (181966) от 25.11.2022
-
-Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Green [6:09]
-02. Shug [4:24]
-03. Till Then [4:30]
-04. 9th Round [4:58](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593179   (181787) от 25.11.2022
-
-Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say It (feat. Alan Scaffardi)
-02. Enjoy The Ride (feat. Walter Ricci)
-03. La Vita E' Piu' Bella Cosi' (feat. Rosalia De Souza)
-04. Adventure Of A Lifetime (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593102   (181728) от 25.11.2022
-
-Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Your Angels Go
-02. From the Edge of Time
-03. Is It Right or is It Wrong
-04. Destination (Slow Mix)(   Читать дальше...   )Жанр: Nu-Jazz, Acid JazzПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D504DB1AFEC7912DBF72724425397455F9A7ED8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665615   (181645) от 01.10.2023
-
-Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Moe & Joe [6:53]
-02. Falling in Love with Love [5:29]
-03. Bags' Groove [6:01]
-04. Double Exposure [7:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC608462E74DEEAC0EDFA48A44FDCB5A34E845D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665623   (181640) от 01.10.2023
 
 Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion, Piano Jazz>
@@ -745,6 +629,122 @@ George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35257C29FB3CADAC6379A4C520A281DC9E973DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666417   (179704) от 04.10.2023
+
+George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Cha Time! [4:04]
+02. Hot Box [5:28]
+03. And She Left Me [4:16]
+04. Vonski [5:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3803B3277D0BB09490D65E504F36DD8A91893E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666411   (179682) от 04.10.2023
+
+John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [15:54]
+02. When Lights Are Low [15:27]
+03. Impressions [10:13]
+04. Greensleeves [16:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD39467372D7FB1EBF793CD5300756CA070F428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666399   (179665) от 04.10.2023
+
+Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz-Funk, Afrobeat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Classical Music (feat. Venna & Charlie Stacey) (5:19)
+02. Afro Cubanism (2:45)
+03. Raisins Under the Sun (feat. Shabaka Hutchings) (4:32)
+04. Rust (feat. Tom Misch) (3:59)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Funk, AfrobeatПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC38C591A29F39795C914AF47BD32BC78427262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666430   (179656) от 04.10.2023
+
+George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had You (Campbell-Connelly-Shapiro) - 11:05
+02. Mr. D (Freeman) - 7:39
+03. Up and Down (Freeman) - 6:04
+04. Lowe Groovin' (Freeman) - 5:53(   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307186EAB3A820B814D6C77A62299B9529F7D1F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

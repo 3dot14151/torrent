@@ -1,119 +1,3 @@
-###  Публикация: 1561493   (514515) от 05.07.2022
-
-Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retrospective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514515.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- 1923-1931:
-01. Am I Blue? [3:25]
-02. Ethel Sings 'Em [3:19]
-03. Sweet Georgia Brown [3:13](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F47EF9DADD6B47AE945A8098253048F79912015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930873   (514125) от 24.08.2015
-
-Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heads Up! Feet Down! [06:03]
-02. Togetherness [06:51]
-03. The Folks Who Live On The Hill [05:35]
-04. Good Humor Man [05:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CCCBD003E5B9850B2CAC719914E43EABAB11A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930891   (514124) от 24.08.2015
-
-Masabumi Kikuchi - Wishes / Kochi (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auroral Flare [13:37]
-02. Caribbean Blue [08:45]
-03. La Moca Esta Dormindo [05:36]
-04. Pacific Hushes [11:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6889D656B31C458735E879BE08AF8EB3DF811B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930864   (514122) от 24.08.2015
-
-Chico Hamilton - And The Players (1976) /2013, EMI Music/[FLAC|tracks+.cue]<Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Sweets [06:01]
-02. First Light [03:44]
-03. Abdullah's Delight [03:58]
-04. Ole To Miles [07:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3787A772B39337B08C33DE036D0C833E7E9F1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930762   (514100) от 24.08.2015
 
 Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
@@ -749,6 +633,122 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CA8B5A140BC5838A631BF5276BFC169DD54DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 21674   (510606) от 27.08.2015
+
+Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.cue]<Jazz>
+
+>>След.
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miles Davis девять раз становился победителем премии Грэмми. Он целых три поколения  был главной силой в мире джаза, и как трубач и как руководитель джаз-оркестра. Miles Davis считается одним из лучших музыкантов своего времени. На протяжении всей своей жизни, он был у руля меняющейся концепции джаза. Более того, он собственно и менял стили джаза, а многие потом следовали (   Читать дальше...   )Перечень альбомов:
+1953 - At Last!
+1954 - Walkin'
+1955 - Quintet and Sextet(   Читать дальше...   )Жанр: JazzПродолжительность: 37:24:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932070   (510331) от 28.08.2015
+
+Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Call [08:46]
+02. Soul Station [05:31]
+03. Our Waltz [04:54]
+04. Our Love Is Here To Stay [04:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257CBD108B74871ADC86AC04A4FD5B41DC1885AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932224   (510279) от 28.08.2015
+
+Marc Ribot - Live At The Village Vanguard (2012) /2014, Pi Recordings/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dearly Beloved [15:07]
+02. The Wizard [08:00]
+03. Old Man River [06:38]
+04. Bells [19:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EEB177C50114CC5EB5F92BAF14943FE8B9EC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932114   (510277) от 28.08.2015
+
+The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+.cue]<New Orleans Brass Bands, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Straight [05:24]
+02. When I'm Walking (Let me Walk) [03:13]
+03. Hannibal [06:35]
+04. Don't You Feel My Leg [04:21](   Читать дальше...   )Жанр: New Orleans Brass Bands, FunkПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B68E8A8A9AD0CEA1A719083CF44F997A64C729
 ```
 
 https://mybot314.ru/tekegram_catalog/

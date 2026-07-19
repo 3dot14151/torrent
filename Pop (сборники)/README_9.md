@@ -1,3 +1,446 @@
+###  Публикация: 608780   (992259) от 27.01.2013
+
+VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akces - I Feel Lucky (Radio Edit)
+02. Akon - That Na Na
+03. Alex Clare - Too Close (Slider & Magnit Remix)
+04. Alex Gaudino feat. Jrdn - Playing With My Heart (Radio Edit)
+05. Angeliya - Love Is Life
+06. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
+07. Arsenie - New Bang Bang
+08. Ask Embla - I Fell In Love
+09. Belinda - En La Obscuridad
+10. Cascada - GloriousЖанр: Pop, DanceПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608543   (992212) от 27.01.2013
+
+VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenka - Everything At Once
+02. Lana Del Rey - Summertime Sadness
+03. Chris Brown - Don't Judge Me
+04. Loreen - Euphoria
+05. Kesha - Die Young
+06. Andreas Gabalier - I Sing A Liad Für Di
+07. Labrinth - Express Yourself
+08. David Bowie - Where Are We Now!
+09. Otto Knows - Million Voices
+10. Flo Rida - I Cry(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607260   (991923) от 27.01.2013
+
+VA - Исаак Шварц. Песенка Верещагина (Лучшие песни, романсы и музыка из кинофильмов) (2003) [MP3|320 кб/с]<поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ваше благородие, госпожа удача! (к/ф "Белое солнце пустыни", исп. П.Луспекаев)
+02 Соломенная шляпка (к/ф "Соломенная шляпка", исп. А.Миронов)
+03 Песенка об утраченных надеждах (к/ф "Соломенная шляпка", исп. Л.Гурченко, З.Гердт)
+04 Песенка влюбленных (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
+05 Женюсь (к/ф "Соломенная шляпка", исп. А. Миронов)
+06 Песенка менестрелей (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
+07 Прелюдия (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
+08 Прогулка по ночному городу (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
+09 Песенка кавалергарда (к/ф "Звезда пленительного счастья", исп. В.Качан)
+10 Песня Минского (к/ф "Станционный смотритель", исп. Н.Михалков)(   Читать дальше...   )Жанр: попПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610214   (991147) от 28.01.2013
+
+VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Демо - Мимо облаков
+002. НеАнгелы - Просто скажи что любишь
+003. Иракли - Я тебя люблю
+004. Игра Слов - Было бы здорово
+005. Аника - За тебя
+006. Вельвет - Ну и пусть
+007. Ксения Новикова (Блестящие) - Хочу забыть
+008. Аника Далински - Завтра будет лучше
+009. A'Studio - Раз и навсегда
+010. K.Melody - Зажигай солнце(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8CA36D2EDE440E13A1E8A2A82914DEBA0BC3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353771   (990797) от 19.01.2020
+
+VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Tones and I - Dance Monkey
+03. Apache 207 - Roller
+04. Dardan - 6AM.........(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432220   (990633) от 06.01.2012
+
+VA - Дискотека Зеленоглазое Такси Золотой выпуск (2012) [MP3|224 kbps]<Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex - Я Небо Разбила (Ural DJs Remix)
+02. Ottawan vs. Peppermint - Hands Up 2011 (DJ Tank New Year Mash-Up Mix)
+03. Hi-Fi - Седьмой Лепесток (DJ Siluyanova Radio Edit)
+04. DJ Joyint & Yaroslav Stakhovskiy - Secret Land (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656281419882126BED621EF14D8E786DF6A6741D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610621   (990497) от 29.01.2013
+
+VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никита - Танец В Темноте (Andrey Keyton Official Remix) (Radio Edit)
+02. Слава - Люди Любят (Dj Vengerov Remix)
+03. Нюша - Ты Слишком Сильный (Ural Djs Dance Mix)
+04. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)
+05. Martin Solveig - The Night Out (Madeon Remix)
+06. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
+07. Амина - Дни-Недели (Dj Nariman Mix)
+08. Global Deejays - Hardcore Vibes (Club Edit)
+09. Karmin - Hello (Laidback Luke Radio Edit)
+10. Voodoo & Serano feat. Ceresia & Ron Carroll - Louder (Club Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610730   (990303) от 29.01.2013
+
+VA-Двигай Попой! Часть 6 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990303.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DJ Smash feat. T-Killah & Los Devchatos - Магнит
+ 002 Willy William - Pulcino Pio (Willy William Remix)
+ 003 Иракли - Все Будет ОК!
+ 004 Bodybangers Feat. Linda Teodosiu - Out Of Control (Radio Edit)
+ 005 Оля Полякова - Russian Style (Я не такая)
+ 006 Geo Da Silva - Boom Mami Choca (Roger Baby)
+ 007 DJ Грув feat. Polina Griffith - Все прошло (Prosvirin Progressive Pop Radio Mix)
+ 008 Will.I.Am feat. Britney Spears - Scream & Shout
+ 009 A-Dessa - 3G
+ 010 Lenka - Everything At Once(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C2B9A5819434CF6A6C3EB54839402172E3C3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610799   (989858) от 29.01.2013
+
+VA - Интернациональный сборник популярной музыки (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanting - Anxiety
+02. Джоя - На Краю Земли
+03. Марк Тишман - Песня Этого Города
+04. MC 77 & Архитектор - Я Ищу Тебя (DJ V1t Radio Edit)
+05. Don Omar - Pa Que El Party Se Active
+06. Luke Silver - All Nights
+07. Chris Parker feat. Polina - Don't Let Go
+08. Alex Mica - Donna Gialla (Radio Edit)
+09. 01. 30.02 - Не Считается
+10. Livin R & Pink Noisy feat. Marilena Animado - Secret Sin!(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 03:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E68E8745E2AD70C9A62930AC525181D12FD2B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609733   (989442) от 30.01.2013
+
+VA-Сотка любимой музыки. Зимний выпуск 50/50 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мая Красная - Он Ледяной
+ 002. Chris Oliver & Anita - I Sing In The Rain
+ 003. Aslan Feat. Misty - Знаю Знаю (Dj Audiophil Romanian Extended)
+ 004. Mylene Farmer - Lonely Lisa
+ 005. Людмила Соколова - Пуэрто-Рико
+ 006. Mylene Farmer - Du Temps
+ 007. Кристина Межинская - Я До Рассвета Танцевать Хочу С Тобой
+ 008. Justin Bieber - Mistletoe
+ 009. Татьяна Ширко - Hello
+ 010. Colby O'donis - Like Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB67CD8741F94FB43BF6B33AECEAD64301EC0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607610   (989425) от 30.01.2013
+
+VA-Союз Русских Новинок (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989425.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Varda - Мотылек
+ 002. Alyosha - Точка на карте
+ 003. Игорь Латышко - Любимая Женщина
+ 004. Сергей Чумаков - Не ври!
+ 005. Мята - Понимаешь Слова Мои
+ 006. Григорий Лепс - Водопадом
+ 007. Земляне - Свеча
+ 008. Тимати, L'One, Варчун, Крэк, Карандаш, Джиган - Tattoo
+ 009. A-Sen - Карие глаза
+ 010. Bel Suono & DJ Magic Finger - Любовь Бесконечна(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73A817AC077EDEC451DDDF11D9791CD3841ABA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607615   (989338) от 30.01.2013
+
+VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989338.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daze - Fool Me! (Radio Edit)
+ 002. Armin van Buuren - We Are Here To Make Some Noise
+ 003. Maroon 5 - One More Night
+ 004. Ramus & April - It's Summertime
+ 005. Ocean Drive - Revolution
+ 006. Inna Feat. Play & Win - INNdiA (Radio Edit)
+ 007. Loreen - My Heart is Refusing Me
+ 008. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
+ 009. Alex Megane - Turn Me On (Radio Edit)
+ 010. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A69ED9227544234FB2C5ADF9573FE5234E3F697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610934   (989227) от 30.01.2013
+
+VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Smash & DJ Vengerov - Только Вперед (DJ Noiz & DJ Maxtal Radio Remix)
+02 Basto & Yves V - Cloud Breaker (Basto mix)
+03 Virone - Расстояние (Dj Glazunov remix)
+04 Metrik - Engine Room (original mix)
+05 Дискотека Авария - Ноги-Ноги (DJ Nejtrino & DJ Stranger Remix)
+06 Max Graham feat. Jeza - Still There's You (Tomas Heredia remix)
+07 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+08 Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
+09 Alex Akimov & Ivan Flash feat. Dana K - Dance (Original Mix)
+10 Badiizrael - Insomnia (original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610333   (988292) от 31.01.2013
 
 VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -386,413 +829,6 @@ VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437639   (977551) от 17.01.2012
-
-VA - 80's Revolution - Disco Fox Vol 1-3 (6CD) (2010, 2011) [MP3|320 kbps]<Synthpop, Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco Fox Vol 1
-Продолжительность: 01:09:21
-CD1 01. Bad Boys Blue - Don't Walk Away, Suzanne (Dance Mix)
- 02. Bernie Paul - Attenzione / Go Go Radio (12'' Version)
- 03. Foreign Currency - C'est La Vie (12'' Version)
- 04. Roxanne - Charlene (Long Version)
- 05. Joe Lockwood - Hey You (12'' Version)
- 06. Essence - Kahlua Sun (Extended Dance Version)
- 07. Shipra - Joy (In My Heart) (12'' Version)
- 08. Curacao - Yasou (Special Russian Mix)(   Читать дальше...   )2010, 2011Жанр: Synthpop, Italo DiscoПродолжительность: 07:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118DB247D8D23D180856ADD04F3DFA334D6D1DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614130   (977372) от 08.02.2013
-
-VA - 100 Huge Hits Of The 60s & 70s (2007) 4CD BoxSet[MP3|320 кб/с]<Pop-Rock, Jazz, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undertones - Teenage Kicks [02:27]
-02. The Regents - 7 Teen [03:25]
-03. Sham 99 - Hersham Boys [03:28]
-04. Jilted John - Jilted John [02:56]
-05. Jonathan Richman And The Modern Lovers - Roadrunner [04:07]
-06. Dave & Ansel Collins - Double Barrel [02:45]
-07. Althia & Donna - Uptown Top Ranking [03:53]
-08. Ken Boothe - Everything I Own [03:47]
-09. Nicky Thomas - Love Of The Common People [02:20]
-10. Bob And Marcia - Young, Gifted And Black [03:10](   Читать дальше...   )Жанр: Pop-Rock, Jazz, RockПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4A70E625E00AE7FB1A05EE0876EC26F42C17ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974232   (976510) от 11.01.2016
-
-VA - 100 популярных супер хитов от Русского Радио (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Бурито - Мама
-002.Алексей Воробьев - Сумасшедшая
-003.Вера Брежнева - Мамочка
-004.Слава - Однолюб(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760AF4DBC0A34113CA977F530313BA9DE0B86EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742836   (976352) от 07.01.2014
-
-VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие песни 2013 года по версии слушателей Европы Плюс!01. Daft Punk - Get Lucky (06:07)
- 02. Rihanna - Diamonds (03:45)
- 03. Pink & Nate Ruess - Just Give Me A Reason (04:05)
- 04. Mind Vortex - Alive (03:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E5A99429F129D3F3BDAD19CCA3F993258C6810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974680   (975868) от 12.01.2016
-
-Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Rock, Indie Rock, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The State Of Things
-02. The Machine
-03. Heavyweight Champion Of The World
-04. Open Your Window(   Читать дальше...   )Жанр: Dance Rock, Indie Rock, ElectropopПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465D5373969A3A7BD5C986BC48EFB5CB495F3A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357011   (975614) от 02.02.2020
-
-VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)
-02. The Weeknd - Blinding Lights
-03. Gzuz - Donuts
-04. Samra & Elif - Zu Ende(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA949361155F6C12B61E341A959CDAA862632BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974251   (975565) от 12.01.2016
-
-VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boney M. - Rasputin (7:32)
-002. Sabrina - Boys (Sommertime Love) (3:52)
-003. Toni Esposito - Kalimba De Luna (4:59)
-004. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Pop, Disco, Dance, BalladПродолжительность: 11:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E131BEE5E130D59927A883343615D63A7DCA90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357119   (975374) от 02.02.2020
-
-VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Sorry
-002. The Chainsmokers - Closer
-003. Taylor Swift - Shake It Off
-004. The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59B48754AB73CFC6E3D43955EFF0EFF5117509C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974962   (974468) от 13.01.2016
-
-VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса Кожикина - Белые Снежинки
-02. Krewella - Somewhere To Run
-03. Чи - Ли - Моя Религия
-04. Karl Wolf Feat. Classified - Grown Man(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BCAAD51AFFDE67F77D5FD8EB3EF92FC592C49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974918   (974402) от 13.01.2016
-
-VA - Жажда скорости танцевальный ритм (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Lambert - Ghost Town
-02. Emin - Одна На Миллион
-03. Таня Дяченко - Пять Минут Счастья
-04. Алена Высотская - Спасибо Мама(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5265360A324746B431744284DD075FAFED11C20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617012   (973874) от 11.02.2013
-
-VA - Je T'Aime (2CD) (2013) [MP3|320 кб/с]<Pop \ Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973874.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Jovanotti - A Te
- 2.Eros Ramazzotti - Un Angelo Disteso Al Sole
- 3.Tiziano Ferro - L'ultima Notte Al Mondo
- 4.Modà - Come Un Pittore
- 5.Emma - Io Son Per Te L'Amore
- 6.Vasco Rossi - Rewind
- 7.Cesare Cremonini - Una Come Te
- 8.Dolcenera - Ci Vediamo A Casa
- 9.Alessandra Amoroso - Estranei A Partire Da Ieri
- 10.Negramaro - Meraviglioso(   Читать дальше...   )Жанр: Pop \ Pop-RockПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C9C52481FC4F62DC1DE365427BB5038AD7A7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616629   (973807) от 11.02.2013
-
-VA - Радио Шторм - Русский Шторм - 87 (2013) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Tri Slova
-02. Alisiya - Naprasno Zhdat
-03. Alisiya - Tam Gde Ty
-04. Andre Tay - Tebya Lyublyu
-05. Angry birds - Стоп любовь
-06. Anna Semenovich - Lyubov Pod Oblakami (Dj Noiz and Dj Maxtal Remix)
-07. Anton Pavlovsky feat.Jizz - Ya Tebya Ne Lyublyu
-08. Belka - Esli By Ty Byl Eyu
-09. Danila Rastv feat Alexey Sender vs Clint Mansell - Danila Rastv feat Alexey Sender vs Clint Mansell – Погаснет Планета(Rabid Core remix)
-10. Dress Code feat. Elektrica - Tolstyj Ty Ili HudojЖанр: Pop, DanceПродолжительность: 03:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7015DAA08182994D36544893902FFDC0BB1669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617163   (973411) от 11.02.2013
-
-VA - Best DJ of Radio Records (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Марсель - Остановись (KIDO Dub Step Remix)
-002 Molella - Even In The Rain (Club Edit)
-003 Серебро - Мальчик (DJ Niki Radio Remix)
-004 DJ Agr f. Airbse - Resurron
-005 MC 77 feat. Лукас (Паль-То) - Цыганочка (DJ Amor Remix)
-006 IQ-Talo & Miss Laluna - Sweet Little Lies (AlexKea feat. RainDropz! Remix Edit)
-007 DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
-008 Addicted Craze Feat. Kevin Kelly - Drinks Up to the Sky
-009 Диля Даль - Спасибо, мэрси (DJ Nejtrino & DJ Kirill Clash Remix)
-010 Ke$ha- Crazy Kids (D3Y Remix Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAC88551D76784D49D35BB60E6931FC78F6EE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

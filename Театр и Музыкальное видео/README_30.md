@@ -1,3 +1,166 @@
+###  Публикация: 1370470   (896755) от 27.03.2020
+
+Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lamb of God - Checkmate
+02 Lamb of God - Memento MoriЖанр: Groove, Thrash MetalПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D66975C97CA63888DA65F9F302826F4CC64D765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370055   (896555) от 27.03.2020
+
+Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/480p/360p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2009 Die Antwoord - Zef Side [1080p]
+002 2010 Die Antwoord - $copie (Live) [720p]
+003 2010 Die Antwoord - $o$ (Gorillaz' Stylo ) [720p]
+004 2010 Die Antwoord - Enter The Ninja (Explicit Version) [480](   Читать дальше...   )Производство: Left Post ProductionЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5A025C17C6050E41A285369C290DAF8A3F28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370150   (896543) от 27.03.2020
+
+Эдуард Суровый - Love Of Russian Man (1974) remastered 2020 WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Суровый - Love Of Russian Man (1974) Remastered 2020Производство: Россия, ТНТЖанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00827CC7DA01D48D0352E494E8D17A4099D690E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593182   (896146) от 02.04.2013
+
+сНежное шоу 3D (2012) [1080p] Blu-Ray [3D/2D]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Документальный, семейныйРежиссер: Виктор КрамерАктеры: Слава Полунин, Роберт СаралповПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C7EF19A051DFD9CA9E30D75548829E8D2B3716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101033   (895581) от 06.02.2017
+
+Дискотека 80-х (полная версия) (2016) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: телеканал НТВАктеры: Zodiac, Sandra, Юрий Шатунов, Secret Service, Песняры и др.Продолжительность: 04:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748222BF8EF718FC78BA0454B6C1C65AE4556F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993678   (895228) от 05.03.2016
+
+Валерий и Константин Меладзе. Полста (2016.03.05) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895228.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эфире Первого канала юбилейный вечер Валерия и Константина Меладзе.01. Валерий Меладзе - Се ля ви
+02. Валерий Меладзе - Самба белого мотылька
+03. Валерий Меладзе и Валерия - Не теряй меня
+04. Валерий Меладзе и Вера Брежнева, Анна Седокова, Альбина Джанабаева - Притяженья больше нет(   Читать дальше...   )Телекомпания: Первый каналЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5833E5BD4DEFE74CAF0CC37B754A580828ECC324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993329   (895168) от 05.03.2016
 
 Depeche mode - Devotional. Live In Barcelona (1993) DVDRip [hand made 60fps]
@@ -545,171 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EFEEAA6DA2CC3327777FB1687333ADEF81F5A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638365   (889092) от 06.04.2013
-
-Сборник видеоклипов / Rap Legends (Hits 1990-1994) DVDRip [EN]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов в стиле РЭП в хорошем качестве.1990_3rd_Bass_-_Brooklyn_Queens
-1990_Dr. Alban - No Coke
-1990_Ice_Mc_-_Scream
-1990_MC Hammer - You Can`t Touch This
-1990_Snap - The Power
-1990_Technotronic_-_This_Beat_Is_Technotronic
-1990_Vanilla Ice - Ice Ice Baby
-1991_DNA_Feat._Suzanne_Vega_-_Tom_s_DinerЖанр: Rap, Hip-HopПеревод: ОтсутствуетПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1EF0FE079D4AC81F182757D53E14D4DF585EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640535   (888957) от 06.04.2013
-
-Валерия и Валерий Меладзе - Не теряй меня (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A3A39EB40DB14D053CEC667443E6E67098576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640130   (888941) от 06.04.2013
-
-Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Dance, Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA5278308BA4C0C699C1C3E53B51DF38C68E8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640743   (887230) от 07.04.2013
-
-Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B082ED479B2B2C1F522106B79B3E7786289259D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640712   (887110) от 07.04.2013
-
-Емилия - Кукла (2013) WEBRip	 [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5522088D5E418D9BC8715D95DE24312A82DB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372108   (886991) от 02.04.2020
-
-Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industrial Melodic Death Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2015 Northern Genocide - Supernova (1080р)
-002 2019 Northern Genocide  - Genesis Vol. 666 (1080р)
-003 2019 Northern Genocide - Ikiruoste (1080р)Жанр: Industrial Melodic Death MetalПродолжительность: 00:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E78D1DD457E6680E3809AD1F386B42DCD433677
 ```
 
 https://mybot314.ru/tekegram_catalog/

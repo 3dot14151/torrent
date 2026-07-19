@@ -1,116 +1,3 @@
-###  Публикация: 1186554   (285853) от 25.11.2017
-
-Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dichterliebe Op. 48
-1. Im wunderschönen Monat Mai
-2. Aus meinen Tränen sprießen
-3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081132   (282675) от 10.12.2016
-
-Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2000) 2004, JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Vierge Sainte, rejouis-toi, Luc 1, 28 & 42 (1:41)
-2. Les Mages. rois de Perse (2:20)
-3. Dieu est avec nous (4:18)
-4. Benis le Seigneur. ô Mon âme. Psaume 102. 1-22 (5:24)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336157   (282192) от 05.11.2019
-
-Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|image + .cue] <Classical oratorio,  pastoral ode>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical oratorio,  pastoral odeПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FB87B0EC55144273A22DC0100DBDAFC43DD14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187739   (276947) от 30.11.2017
-
-Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996) [FLAC|Lossless|tracks] <Vocal, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walked Today Where Jesus Walked
-02. Panis Angelicus
-03. O Joyful Children
-04. The Christmas Song(   Читать дальше...   )Жанр: Vocal, ClassicalПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15060C72299E48E36D145E8B5B915BD6713D93A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338552   (266082) от 19.11.2019
 
 Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue] <Opera>
@@ -795,6 +682,122 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754269   (40865) от 09.10.2024
+
+Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ah! Mes AmisPavarottiPour Mon Ame (La Fille Du Regiment) 6:57
+02. Pour Me Rapprochher De Marie (La Fille Du Regiment) 3:40
+03. Quanto E Bella (L'elisir D'amore) 2:27
+04. Una Furtiva Lagrima (L'elisir D'amore) 4:48(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC8D0BBFB1CD0581E176AFCA02673B85E130C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755568   (40192) от 16.10.2024
+
+Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Se Quel Guerrier Io Fossi ... Celeste Aida (Aida) 4:33
+02. Questa O Quella (Rigoletto) 1:50
+03. Ella Mi Fu Rapita ... Parmi Veder Le Lagrime (Rigoletto) 4:47
+04. La Donna E Mobile (Rigoletto) 2:24(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B061AA95B096AFBEF22F218AB68B6B88BC2D4798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800255   (15835) от 02.06.2025
+
+Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights in White Satin (Notte di Luce)    [0:04:18.10]
+02. Caruso    [0:03:56.52]
+03. Without You (Desde el Dia Que Te Fuiste)    [0:03:51.25]
+04. Come Primavera    [0:03:50.55](   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB371E7EECD5027599A5103902D57A6B4C476AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806539   (11498) от 14.07.2025
+
+Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть 1. Scene I. September. A piece of land on a hill:
+01. (Allegro ma non troppo, con vigore) - Straight on, my plough, straight on! (orche - [03:22]
+02. 'Tis such a shame to let good land lie waste (Marti, Manz) - [01:55]
+03. Come, Vrenchen, come! (Sali, Vrenchen) - [01:52](   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8198154ACB5F53E4C68AFC91D101C966544843C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

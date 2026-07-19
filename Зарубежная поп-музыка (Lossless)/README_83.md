@@ -1,3 +1,148 @@
+###  Публикация: 1344380   (170319) от 10.12.2019
+
+V.A. - NOW 100 Hits: Even More Forgotten 80s (2019) 5CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01.Five Star - System Addict
+02.Dexys Midnight Runners & Kevin Rowland - Jackie Wilson Said (I'm In Heaven When You Smile)
+03.The Style Council - Speak Like A Child(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 06:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456B016F046A8DBEC72BCDC5549FAACEE76E90DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672218   (170264) от 27.10.2023
+
+Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To New York (Taylor's Version) (3:33)
+02. Blank Space (Taylor's Version) (3:52)
+03. Style (Taylor's Version) (3:51)
+04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DB53C0A07CB261BF6C58519018E61AA63DF378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672107   (170163) от 27.10.2023
+
+VA - Ballads for a Broken Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Photograph (4:18)
+02. Fleetwood Mac - Landslide (2018 Remaster) (3:20)
+03. Alec Benjamin - Let Me Down Slowly (2:49)
+04. Benson Boone - In the Stars (3:36)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 01:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDAB8C279D294113025F7610BEEA5A5802E3836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955776   (170077) от 10.12.2019
+
+Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) 4CD Box set [FLAC|tracks + .cue]<Pop Rock>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170077.jpg" />
+</div>
+
+
+###  Подробнее
+
+«The Roxbox!: A Collection Of Roxette's Greatest Songs» - это музыкальная подборка лучших песен шведской поп-рок-группы «Roxette», представленная на 4 CD дисках, она содержит все хиты «Roxette», включая 2 новые песни «One wish» и «Reveal».01. Neverending Love (03:29)
+ 02. Secrets That She Keeps (03:43)
+ 03. Goodbye To You (04:02)
+ 04. Soul Deep (03:35)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 05:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C08D3070B00E40D797B0CAD9A680A08095C58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596561   (169844) от 10.12.2022
+
+Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon (03:06)
+02. Unsichtbar (03:42)
+03. Wer weiss (03:32)
+04. Seit du nicht mehr da bist (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344505   (169725) от 11.12.2019
 
 VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -600,151 +745,6 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432973   (162077) от 19.12.2020
-
-Олег Винник - 3 Альбома (2013- 2018) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як жити без тебе
-02. Біла голубка
-03. Золота
-04. Мати каже правду(   Читать дальше...   )Жанр: РорПродолжительность: 02:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517846   (161582) от 17.12.2021
-
-Lian Ross - The Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s up to You (Love Call Version)
-02. Magic Moment
-03. I Need You by My Side
-04. Hurt(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886F138368D37C0801AF603CE8661A7064E9891B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433317   (161422) от 20.12.2020
-
-Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161422.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rio
-2. Hbls Mucho
-3. Al Fondo de Mi
-4. Puro Pasado(   Читать дальше...   )Жанр: Latin, Indie, Folk, PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433305   (161077) от 20.12.2020
-
-Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier of Love (6:17)
- 02. Skin (3:57)
- 03. Kiss of Life (5:04)
- 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518125   (161047) от 18.12.2021
-
-Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Forbidden City
-02.For You
-03.Dark Angel
-04.One Day(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB923C561E4F036126B297B0216D1451429EE524
 ```
 
 https://mybot314.ru/tekegram_catalog/

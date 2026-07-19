@@ -1,119 +1,3 @@
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551089   (590784) от 14.05.2022
-
-Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944) 2CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590784.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Boogie Woogie Stomp [3:38]
-02. Chicago In Mind [4:03]
-03. Suitcase Blues [3:52](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 02:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F785AB0201367671B5733150257A4B73F52C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916540   (590496) от 09.07.2015
-
-Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jazz, Contemporary Jazz, Jazz fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Jon Jon [06:28]
-02. Pain [07:27]
-03. Peyotl [08:10]
-04. Moods [06:18](   Читать дальше...   )Жанр: Jazz, Contemporary Jazz, Jazz fusionПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A2F24E5ECAE86EC450C45C9403042B49A3750A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551264   (590246) от 15.05.2022
-
-Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Island [4:52]
-02. Three [4:19]
-03. Rue de la Vega [5:26]
-04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551267   (590245) от 15.05.2022
 
 Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -748,6 +632,122 @@ Sadao Watanabe - Pastoral (1969) Remaster, 2014, Sony Music[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F99F74283850D66DB427738D386DEA0F4CC91ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040165   (587467) от 04.08.2016
+
+Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Jazz, ChillOut>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catwalk (4:08)
+02. Kaleidoscope (4:43)
+03. Constellation (6:17)
+04. A Method To The Madness (5:14)(   Читать дальше...   )Жанр: Crossover Jazz, ChillOutПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1F66788E84C726C889585CF51DE4179FBD7070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918342   (587030) от 15.07.2015
+
+Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Griots [06:05]
+02. Black Monday [08:56]
+03. Duplicity [06:12]
+04. Le Serpent Qui Danse [06:56](   Читать дальше...   )Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F9FC470F41667CC5661038299154EF90327C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918590   (587029) от 15.07.2015
+
+Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Jazz-Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving This Planet [07:32]
+02. Red Clay [07:10]
+03. Warp Factor 8 [06:20]
+04. Brown Eyes [11:46](   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Soul JazzПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4482272BFD467FA34CE04174575F075DF02C6B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918466   (587028) от 15.07.2015
+
+Stanley Turrentine - Another Story (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It [07:54]
+02. The Way You Look Tonight [09:16]
+03. Stella By Starlight [05:37]
+04. Quittin' Time [06:54](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840877EBF985229BA6EF9B2CB993202E902CF5D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

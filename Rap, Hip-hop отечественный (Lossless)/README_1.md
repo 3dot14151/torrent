@@ -1,32 +1,3 @@
-###  Публикация: 1646661   (231463) от 19.07.2023
-
-АК-47 - Третий (2015) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая дама [00:03:29]
-02. Дай 5 [00:04:48]
-03. No Pasaran!!! [00:04:14]
-04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646669   (227694) от 30.07.2023
 
 АК-47 - Третий (2015) [FLAC|44.1/16,24|tracks|WEB-DL] <Rap, Hip-Hop>
@@ -745,6 +716,35 @@ VA - Рэп со знаком качества 6 (2010) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73473454A4B2B84016FD4FC5BEAA88C1F0035FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597881   (164932) от 16.12.2022
+
+Руставели - МАГМА (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Магма [00:02:32]
+02. Моя страда [00:02:31]
+03. Из тьмы [00:02:16]
+04. Стрела [00:03:13](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C709BA8C3AD0CC2CB4BE4159C2F365F8750BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

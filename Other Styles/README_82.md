@@ -1,3 +1,183 @@
+###  Публикация: 1143345   (629502) от 21.06.2017
+
+Ива - Сновидения (2005) [TAK|Lossless|image + .cue] <Easy Listening, Other>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - intro
+02 - Колыбельная
+03 - Во мне
+04 - Летящая(   Читать дальше...   )Жанр: Easy Listening, OtherПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581A08D9F63DBDA47D7544FD258EEF5EBFD278FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144142   (629362) от 21.06.2017
+
+Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629362.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Celtic Paths (8:07)
+2. At the Cliffs (7:07)
+3. The Hunt (8:09)
+4. Coming Home (7:05)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908496   (629290) от 16.06.2015
+
+Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:46)
+02. Blood of the Dragon (01:34)
+03. House of Black and White (05:09)
+04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7CC80107C8CF2AA2D3415802A0EC47091AA3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520904   (629093) от 10.07.2012
+
+Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Night Sky Song
+03. Village Child
+04. Traveler's Story
+05. Edge of the World
+06. Faces in the Smoke
+07. Dance for the Gods
+08. Longing Heart
+09. Message from the Past
+10. Secret Love(   Читать дальше...   )Жанр: New age,EnigmaticПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035199   (628637) от 16.07.2016
+
+Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence (3:34)
+02. Lullaby (3:29)
+03. Heart Song (4:57)
+04. Pirates And Poets (3:53)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035239   (628613) от 16.07.2016
+
+John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Age Collision Course Main Title (00:15)
+02. Cosmic Scrat-tastrophe (02:42)
+03. Earthbound Acorn (00:41)
+04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035221   (628535) от 16.07.2016
 
 Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
@@ -580,180 +760,6 @@ Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83FDD83595B7688500A775CBD1605D783592C103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035668   (624720) от 18.07.2016
-
-Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drift and Fall Again (feat. Lola Marsh) (4:07)
-02. Criminal (Madsonik Remix) (3:55)
-03. Pope (3:17)
-04. Division (4:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4907639295B96BAC5657E56EE3D7AE080999BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035719   (624662) от 18.07.2016
-
-Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Before You Orchestral (07:14)
-02. Will Goes to Work (00:56)
-03. The Castle (01:34)
-04. Walk Home (00:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043E4B142E544F18F7D2323C03C0585901CFF38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035708   (624583) от 18.07.2016
-
-VA - Me Before You / До встречи с тобой (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Jury - Numb (04:06)
-02. HOLYCHILD - Happy With Me (02:48)
-03. X Ambassadors - Unsteady (Erich Lee Gravity Remix) (03:24)
-04. Jessie Ware - Till The End (03:00)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859D07FD392A2A1F17B9F95875FD6D2E8B69911D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035716   (624576) от 18.07.2016
-
-Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Before You Orchestral (07:14)
-02. Will Goes to Work (00:56)
-03. The Castle (01:34)
-04. Walk Home (00:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414FE1B84ABC93094A0256B3B67F534A6D91FF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035707   (624489) от 18.07.2016
-
-VA - Me Before You / До встречи с тобой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Jury - Numb (04:06)
-02. HOLYCHILD - Happy With Me (02:48)
-03. X Ambassadors - Unsteady (Erich Lee Gravity Remix) (03:24)
-04. Jessie Ware - Till The End (03:00)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281AEF1FBE9369D024B13D9612273BBF45E7360E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295022   (624117) от 10.04.2019
-
-Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touched by Love (3:23)
- 02. Childhood Hour (4:31)
- 03. Walking through Clouds (2:40)
- 04. Deep Green Summer (2:57)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,117 +1,3 @@
-###  Публикация: 1778957   (70773) от 10.02.2025
-
-VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Colour (Remix) (5:47)
-02.  Dj Ebreo - Boliban (5:19)
-03.  Belladonna - Tangent (4:05)
-04.  Bantukemistry - Zoma (3:49)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C402DE95F964CA677AB9BD678A436449BE9E5CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778975   (70771) от 10.02.2025
-
-VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Papik, The Soultrend Orchestra & Anna Fondi - Summer Madness (5:01)
-02.  Montefroid - The Way You DoЖанр: Smooth JazzПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778981   (70770) от 10.02.2025
-
-VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Curtis Mayfield - Move On Up (2:46)
-02.  The Spinners - Working My Way Back to You (4:03)
-03.  CHIC - Good Times (8:15)
-04.  George Benson - Give Me the Night (3:43)(   Читать дальше...   )Жанр: Jazz, Soul, R&B, FunkПродолжительность: 03:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778876   (70765) от 10.02.2025
-
-Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Around [4:55]
-02. Pusherman/Superfly [7:16]
-03. Wichita Lineman [6:04]
-04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778881   (70764) от 10.02.2025
 
 Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -743,6 +629,122 @@ Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD110E0C43D7E5219749FD2FA8D4C5725613D51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780523   (70460) от 18.02.2025
+
+Tape Five - Best of ... Swing Edition (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tape Five feat. Henrik Wager - Bad Boy Good Man (Aerophon Mix) (4:15)
+02.  Geraldines Routine (3:09)
+03.  Crazy Little Thing Called Swing (2:50)
+04.  Dixie Biscuit (Tonight Josephine Mix) (3:46)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2564EE76CDECC7E5C60023EFF11F1790BC8CC665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780546   (70456) от 18.02.2025
+
+VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chillaxonic - Nowhere to Somewhere (5:02)
+02.  eJazz Artistry - Come Share My Love (4:31)
+03.  Chillaxonic - Oasis (4:58)
+04.  Love Suggestions - Treasure (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C988251502788FD45404F1790C4B253947CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780534   (70454) от 18.02.2025
+
+VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boney James - Stop, Look, Listen (To Your Heart) (4:56)
+02.  Kenny G - Ritmo y Romance (7:11)
+03.  Peter White - Always, Forever (Album Version) (5:08)
+04.  Gerald Albright - Because Of You (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780526   (70439) от 18.02.2025
+
+VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
+02.  Lo Greco Bros - Crooked Hip (5:33)
+03.  Avex - Ain't Talking Sugo (2:29)
+04.  Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1EE2EFC25781B6010F8AC8C950FE79C321749C
 ```
 
 https://mybot314.ru/tekegram_catalog/

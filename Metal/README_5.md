@@ -1,3 +1,90 @@
+###  Публикация: 1454001   (1026621) от 13.03.2021
+
+Suncrown - Invincible (2021) [MP3|320 Kbps] <Symphonic Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Eternal Way [00:04:10]
+02 - Lost Memories [00:05:35]
+03 - Never Again [00:06:00]
+04 - Step out of the Shadows [00:04:55](   Читать дальше...   )Жанр: Symphonic Epic MetalПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B47984C072748F73DF51DEE75032B18C6C99BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454076   (1026613) от 13.03.2021
+
+Red Eye Temple - Vortex (2021) [MP3|320 Kbps] <Progressive Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pareidolia [00:05:03]
+02 - Mind and Matter [00:03:52]
+03 - Flow [00:05:24]
+04 - Vortex [00:06:01](   Читать дальше...   )Жанр: Progressive Metal, Female VocalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BDC7C3419373D091C32CF11FF5142DA47FFE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454310   (1026436) от 14.03.2021
+
+Stefan Petanovski - Eros (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tanaka [00:03:00]
+02 - New Moon [00:07:15]
+03 - Eros [00:05:10]
+04 - Resltess Mind [00:04:17](   Читать дальше...   )Жанр: Instrumental Progressive Metal, ShredПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F550786FD657C672019F2BA102DFDE462622AC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454199   (1026416) от 14.03.2021
 
 Daemon Grey - Follow Your Nightmares (2021) [MP3|320 Kbps] <Modern Metal>
@@ -658,93 +745,6 @@ Cannibal Corpse - Violence Unimagined (2021) [MP3|320 Kbps] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4BC36D625B20755219D584FCB55E2C890FD6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462755   (1021030) от 15.04.2021
-
-Infinite & Divine - Silver Lining (2021) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Alive (03:53)
- 02. Infinite & Divine (03:54)
- 03. Keep On Moving (04:11)
- 04. Not Too Late (04:32)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D776D92370F4E6EB0F88AB701533AC72BBFE668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465232   (1019326) от 25.04.2021
-
-Eleine (Madeleine Liljestam) - 4 Albums (2015-2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemies [00:05:22]
-02. Dancing in Hell [00:05:07]
-03. Ava of Death [00:04:06]
-04. Crawl from the Ashes [00:04:02](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 4 CD, 02:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17B4B35449CA72E4B1BA091D2151EE9A3E5DA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465592   (1019169) от 26.04.2021
-
-Bad Absalom - Bad Absalom (2021) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Captain Caveman's Unhealthy Habit [00:02:31]
-02 - Greys [00:03:21]
-03 - Don't Talk To Strangers [00:04:18]
-04 - Bullet [00:03:37](   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3358F2F206015EFB3F2E8B0D80620381C0752759
 ```
 
 https://mybot314.ru/tekegram_catalog/

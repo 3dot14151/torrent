@@ -1,3 +1,90 @@
+###  Публикация: 1805134   (12581) от 04.07.2025
+
+VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12581.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.D.A.M. Music Project - Raiding The Tomb (02:55)
+ 002. Tethra - Like Water (06:19)
+ 003. Landfall - When The Curtain Falls (05:45)
+ 004. Whip - Reason To Fight (04:22)(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 13:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF39E9233EDE90B67FEF4268285DEEF3B613E53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805687   (12160) от 08.07.2025
+
+Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, Jazz fusion, Progressive rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12160.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gut Reaction (Naked Thunder | 1990)
+002. Gassed Up (Toolbox | 1991)
+003. When A Blind Man Cries (& Jeff Healey & Tommy Z & Jon Lord) (Gillan's Inn | 2006)
+004. Holy Water (& Tony Iommi) (WhoCares | 2012)(   Читать дальше...   )Жанр: Hard rock, Jazz fusion, Progressive rockПродолжительность: 07:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E20B8624791AA85DADA6B3097B12CF6621B824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806782   (11412) от 15.07.2025
+
+Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Temple Of The King (& Rainbow) (Dancer & The Moon | 2013)
+02. Wish You Were Here (& Rednex) (Shadow Of The Moon | 1997)
+03. Home Again (Fires At Midnight | 2001)
+04. Moonlight Shadow (& Mike Oldfield) (All Our Yesterdays | 2015)(   Читать дальше...   )Жанр: Folk rock, Medieval rockПродолжительность: 06:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA11AA0131A89F43B3B879796BE5B6DCA07D2D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807948   (10822) от 21.07.2025
 
 VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
@@ -658,64 +745,6 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766009   (128) от 29.09.2025
-
-AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock & Roll, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.N.T. {Live} 1992
-02. Two's Up {Blow Up Your Video} 1988
-03. Play Ball {Rock Or Bust} 2014
-04. Anything Goes {Black Ice} 2008(   Читать дальше...   )Жанр: Hard rock, Blues rock, Rock & Roll, Heavy metalПродолжительность: 05:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CABD328E99C9D70AAACBFAFD00CC887641CA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760875   (108) от 29.09.2025
-
-3 Doors Down - Compilation (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative, Post grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away From The Sun {Away From The Sun} 2002
-02. Back To Me {Time Of My Life} 2011
-03. Be Like That {The Better Life} 2000
-04. Be Somebody {Seventeen Days} 2005(   Читать дальше...   )Жанр: Hard rock, Alternative, Post grungeПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75AE6C264886297A5A5B4F8E2689F80949FA68A
 ```
 
 https://mybot314.ru/tekegram_catalog/

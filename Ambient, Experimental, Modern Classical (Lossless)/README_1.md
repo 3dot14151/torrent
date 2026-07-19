@@ -1,32 +1,3 @@
-###  Публикация: 1459586   (1023134) от 02.04.2021
-
-Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sentience of Touch (04:51)
- 02. A Skein for Skin (04:42)
- 03. Fabric Improvisations (13:30)
- 04. Transpiration (04:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36113857D9E96AB19BC495BEACEDB9126E48262E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459344   (1022605) от 05.04.2021
 
 Faber - Universal Flow (2012) [FLAC|Lossless|image + .cue] <Traditional Electronic, Berlin School>
@@ -737,6 +708,35 @@ Max Corbacho - Discography 27 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF4E9F76286E62CFA3938554F812B818F81C217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479457   (1009595) от 24.06.2021
+
+Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brainroot (05:17)
+ 02. Pneuma (04:32)
+ 03. Omeostasi (07:08)
+ 04. The Human Vector (08:18)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Experimental, Field RecordingПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

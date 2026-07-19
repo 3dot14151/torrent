@@ -1,3 +1,173 @@
+###  Публикация: 1045738   (557732) от 24.08.2016
+
+Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Blowin' In The Wind [02:48]
+ 2 - The Times They Are A-Changin' [03:14]
+ 3 - Don't Think Twice, It's All Right [03:40]
+ 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045533   (557724) от 24.08.2016
+
+VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grease [03:25]
+ 2. Summer Nights [03:36]
+ 3. Hopelessly Devoted To You [03:05]
+ 4. You're The One That I Want [02:49](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045709   (557723) от 24.08.2016
+
+Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New Age,Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hymn (05:44)
+02 - (Everything I do) I do it for you (05:45)
+03 - Yesterday (05:02)
+04 - Deep Prayer (04:25)(   Читать дальше...   )Жанр: New Age,EnigmaticПродолжительность: 04:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262307204CC92B7A7D10634A8D63649D27CDFD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924813   (557535) от 04.08.2015
+
+Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Didge Playa Musica para la Relajacion
+02. Didge Cielo Musica para SanacionЖанр: New Age, Relax |Продолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB31CC58BEB610A33519AE4A843BCE14FE8565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924598   (557477) от 04.08.2015
+
+VA - Southpaw (2015) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. James Horner – Cry For Love (Part 1)
+2. Eminem ft. Gwen Stefani – Kings Never Die
+3. Rob Bailey & The Hustle Standard ft. Busta Rhymes, Kxng Crooked & Tech N9ne – Beast (Southpaw Remix)
+4. Denaun – This Corner(   Читать дальше...   )Жанр: OSTПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147FF249638B0E8EB9F27D4F0F3021A953F274BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235697   (557323) от 13.07.2018
+
+Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557323.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cirlces of Light (37:53)
+2. Temple Trance (25:09)Жанр: New Age, Meditative, RelaxПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5470585B8BF05D70FE5E9F177427697AE44DF817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235633   (557295) от 13.07.2018
 
 Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -568,180 +738,6 @@ Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010DA8A58F4DA7FED9B88A065EC3BDDD8B35157F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858369   (555337) от 07.06.2019
-
-VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire of the Sun - Alive
-02. Natural Child - She Got A Mind
-03. Franz Ferdinand - Right Action
-04. Eels - Mistakes of My Youth(   Читать дальше...   )Жанр: SountrackПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306964   (555220) от 08.06.2019
-
-Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Snakes
-02. Baby Wave
-03. Goose Song
-04. Never Known(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC620BBF5653FFC39A5156C9EA6410B23C2C1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306905   (555173) от 08.06.2019
-
-Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gap (08:08)
-02. Dark (04:28)
-03. Frameshift (08:16)
-04. Amity (05:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080B977798C437DC8BA206EE651517836326CBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307386   (555013) от 09.06.2019
-
-Armik - Alchemy (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Alchemy 04:19
-2 Sueno 04:30
-3 Tonight 04:44
-4 Cruising To Moorea 04:25(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D491EA9B3B637429497DBEF1500EBDF2CA8ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307709   (554900) от 10.06.2019
-
-Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burials Foretold
-02. Pilzentanz
-03. She Binds Away The Night
-04. Night Is Coming Soon(   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA866423B80D1FE9898101BBFFDF61FFE7B339C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307710   (554885) от 10.06.2019
-
-Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Living in a Coma                                                   [06:25]
-02. Letter from Choco to Melody                                            [03:12]
-03. Alone (words Edgar Allen Poe)                                          [03:28]
-04. I’m Too High                                                           [05:13](   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A00F9A9F5C2D423210DAC6BC1C782DD9A46CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

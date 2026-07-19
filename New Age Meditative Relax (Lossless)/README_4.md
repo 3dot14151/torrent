@@ -1,3 +1,32 @@
+###  Публикация: 235773   (908437) от 20.03.2020
+
+VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Akram - Surrender     (06:43)
+02. Isaac Shepard - Before Dawn   (03:58)
+03. Robin Spielberg - Circle of Life   (04:10)
+04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 292382   (907002) от 07.02.2011
 
 Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
@@ -714,35 +743,6 @@ Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43B33A898C68C94F781C4447141FB095F7D53082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371160   (885382) от 03.04.2020
-
-Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|tracks + .cue] <World, Tibetan Flute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagination (18:36)
-02. Faires (14:34)
-03. The Bliss (14:48)
-04. Maitighar (9:33)(   Читать дальше...   )Жанр: World, Tibetan FluteПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F706956393DBF179BC9B6B0EF512D5633BDD321
 ```
 
 https://mybot314.ru/tekegram_catalog/

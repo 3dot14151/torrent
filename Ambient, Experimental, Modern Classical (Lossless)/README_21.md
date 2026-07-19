@@ -1,32 +1,3 @@
-###  Публикация: 1433434   (161267) от 20.12.2020
-
-Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mickey Mouse Strut (7:58)
-02. The Prairie (7:36)
-03. Words Of Wonder (3:30)
-04. Theme From (4:19)(   Читать дальше...   )Производство: Mélodic - 5060168041739Жанр: Ambient, Dark Jazz, Post Rock, Electronic, InstrumentalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA723AD7FA4C2BB0922CC8E5AC2EE15FEC3EB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599567   (159624) от 24.12.2022
 
 Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <Experimental, Electroacoustic>
@@ -736,6 +707,35 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D390B4BB1CF0E181A9F325E3B1B72D0233067C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738408   (106310) от 23.07.2024
+
+Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Trance, Fusion, New Age>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Twilight [00:06:45]
+02. Chakra Dance [00:05:33]
+03. Spirit Rising [00:05:22]
+04. As the Eagle Flies [00:05:45](   Читать дальше...   )Жанр: Ambient, Trance, Fusion, New AgeПродолжительность: 2 CD, 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6967FA48EF8B7A19482940A48D355E3F6970A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1629916   (254715) от 28.04.2023
+
+Hollywood Undead - Hotel Kalifornia (2022) Deluxe Version, 2023, BMG Rights Management [MP3|320 Kbps] <Rap Rock, Alt.Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CHAOS (3:02)
+02. World War Me (3:10)
+03. Ruin My Life (3:03)
+04. Hourglass (2:43)(   Читать дальше...   )Жанр: Rap Rock, Alt.Rock, ElectronicПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFF31DEA863258F930BFC28C77BB348118E9EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497852   (253828) от 17.05.2012
+
+Florence And The Machine - Ceremonials (Deluxe Edition) (2011) [MP3|320 кб/с]<Pop Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253828.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1.Only If For A Night - 4:59
+2.Shake It Out - 4:38
+3.What The Water Gave Me - 5:33
+4.Never Let Me Go - 4:31
+5.Breaking Down - 3:49
+6.Lover To Lover - 4:03
+7.No Light, No Light - 4:35
+8.Seven Devils - 5:03
+9.Heartlines - 5:02(   Читать дальше...   )2011Жанр: Pop Rock, FolkПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D99D4E9B6798A8D26DEE0A44158F63BE840B697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497449   (253808) от 17.05.2012
 
 Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<Industrial Rock / Electronic>
@@ -596,6 +660,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636287   (239130) от 29.05.2023
+
+Avery Watts - Death Ground (2023) [MP3|320 Kbps] <Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_239130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Countdown
+02 - Here to Stay
+03 - Burn
+04 - The One(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204E22402060047508271A843FA1BC56F2DA7890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636807   (238779) от 01.06.2023
+
+Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_238779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maid 03:15
+02. Faithful 03:38
+03. Death Rattle 04:42
+04. Muddled Man 04:53(   Читать дальше...   )Жанр: Alternative, Post PunkПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96AB523A0BFB606A7DC78C0153FA4DADA9A848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580033   (238533) от 30.09.2022
 
 Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, Hardcore>
@@ -647,122 +769,6 @@ Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3DCAA60F5D5DD6CEFA29D8A6A4DBAA99E824B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625963   (237804) от 13.04.2023
-
-Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bechtold [00:01:55]
-02. Hart Island [00:01:47]
-03. The Keeper and the Kept [00:02:29]
-04. Boxed In [00:02:28](   Читать дальше...   )Жанр: Alternative, HardcoreПродолжительность: 2 CD, 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82091BC0FBA4E5D96EA3E9515EE89534571C7AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639462   (237016) от 13.06.2023
-
-White Denim - Relaxed (2023) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bounce Back [00:03:27]
-02 - Crystal Bullets (feat. Andy Pickett) [00:03:23]
-03 - King Tears [00:03:39]
-04 - Hired Hand [00:03:19](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B051B4110D51349B38497D62F168E11A500E5623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504788   (236804) от 24.10.2021
-
-The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition, 4CD, 2021, Rhino [MP3|320 Kbps] <Garage Rock, Punk Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takin a Ride (2021 Remaster) [00:02:23]
-02. Careless (2021 Remaster) [00:01:08]
-03. Customer (2021 Remaster) [00:01:29]
-04. Hangin Downtown (2021 Remaster) [00:02:07](   Читать дальше...   )Жанр: Garage Rock, Punk Rock, Indie RockПродолжительность: 4CD, 03:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF82229DF47F645D70D34E2AC1A1F231D6B24A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458194   (235651) от 28.03.2021
-
-Purity - Animus (2021) EP [MP3|320 Kbps] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enmity (feat. John Vetter & Silenus) [00:03:53]
-02. Animus [00:01:03]
-03. Serpentine [00:05:10]
-04. Mirrors [00:03:45](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46461B515B816F1AE198376E865724977F74F8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

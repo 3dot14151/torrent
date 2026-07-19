@@ -1,148 +1,3 @@
-###  Публикация: 1529301   (732705) от 06.02.2022
-
-Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полёт в поясе астероидов (6:58)
-02. Дальний космос (6:36)
-03. Одинокий спутник (5:56)
-04. Мерцающая звезда (7:48)(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03019D6CDFB41B0E4F273F6275578102F5C54BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529703   (732577) от 07.02.2022
-
-Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Indian Dance (Original Mix) (7:41)
-02. Christmas Choir (Original Mix) (5:42)
-03. From Depth To The Sky (Original Mix) (5:18)
-04. New Magic Place (Original Mix) (7:23)(   Читать дальше...   )Жанр: Chillwave, Ambient, DowntempoПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3281280C8D24A950CE7CE55F2ADF3F3D62279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529708   (732571) от 07.02.2022
-
-Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnosis Of Happiness (6:20)
-02. Plutonius (2:37)
-03. Love Of Life (5:22)
-04. Free Flight (7:03)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529709   (732559) от 07.02.2022
-
-Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillwave>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайны жизни (7:59)
-02. Небесный работник (5:55)
-03. В лунном свете (3:56)
-04. Двигаясь по звёздам (5:31)(   Читать дальше...   )Жанр: Ambient, ChillwaveПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DD9581086A7B225375D44E41E4D461ACB24F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283759   (732046) от 18.02.2019
-
-Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarre Love Triangle (02:48)
-02. Sorry for Laughing (03:11)
-03. Wishing (If I Had a Photograph of You) (02:43)
-04. Shack Up (03:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529977   (729914) от 10.02.2022
 
 VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -745,6 +600,151 @@ GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535426   (686712) от 06.03.2022
+
+GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmosphere (5:00)
+02. Mysterious (5:38)
+03. Levitation (4:42)
+04. Signal (5:20)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535433   (686709) от 06.03.2022
+
+GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (4:48)
+02. Final Frontier (4:28)
+03. Summer Calm (4:34)
+04. Different Reality (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403875   (686326) от 22.08.2020
+
+VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beloved - The Sun Rising (Gentle Night) (2:46)
+02. Kinobe - Slip into Something More Comfortable (Stephen Hague 2016 Mix) (4:47)
+03. Ballistic Brothers - Portobello Café (5:48)
+04. 4hero - Morning Child (4:35)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 02:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029024   (684427) от 25.06.2016
+
+Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etoile (4:50)
+02. Belafia (5:42)
+03. Essarai (5:50)
+04. Belafia - Etoile (5:07)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028764   (682134) от 26.06.2016
+
+VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bliss - Sleep Will Come 05:39
+02.Afterlife- Speck Of Gold 05:31
+03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
+04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
 ```
 
 https://mybot314.ru/tekegram_catalog/

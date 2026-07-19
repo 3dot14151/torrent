@@ -1,29 +1,3 @@
-###  Публикация: 1201776   (791505) от 26.01.2018
-
-Растровый клипарт - Shutterstock - Ballerina on the background of the city [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балерина на фоне города с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 1697x2500-5760x3840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E6DC188BE608E7D793188945B91FA4975148D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510277   (791375) от 16.11.2021
 
 Растровый клипарт - Cities And Architecture Large Selection Of Stock Photos [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:039767D3B61FE745C0A6777B155A28308B08FC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207203   (780819) от 17.02.2018
+
+Растровый клипарт - Wedding Cakes 20 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадебный торт, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x3992-8000x5333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D44B9EDD5DE60B510B9D1B9DC3DA451A74AFF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

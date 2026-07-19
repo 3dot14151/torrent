@@ -1,259 +1,3 @@
-###  Публикация: 1372012   (887050) от 02.04.2020
-
-The Starkillers - Дикий Восток (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Мазу-Рaшу! [04:51]
-02. Дикий Восток [04:00]
-03. Часть команды, часть корабля [03:26]
-04. Пусть твоя могила... [03:13](   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C10AAA25B69B0104480FC7C8CD572B19E96687B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372088   (886704) от 02.04.2020
-
-Земфира - Крым (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. КрымЖанр: RockПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BF954CAFC76D2E2935026F8A0520BAB89E1C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103581   (885906) от 12.02.2017
-
-Бригадный Подряд - Реинкарнация 2 (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уроки панк-рока
-02. Мослы
-03. Скамейка
-04. Школьное любовище(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C783EBCD6518D3762483C138D253D7A32B9E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103425   (885668) от 12.02.2017
-
-VA - Александр Башлачёв. Серебро и слёзы. Трибьют (2014) [FLAC|lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Ревякин - Время колокольчиков (05:30)
-02. Юрий Шевчук - Лихо (04:53)
-03. Александр Васильев - Петербургская свадьба (04:21)
-04. Эдмунд Шклярский - Спроси, звезда (04:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5D4E62A46531756A64DB2275990D456A87AA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372664   (885039) от 03.04.2020
-
-Браво - The Best Of (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жёлтые ботинки
-02. Кошки
-03. Ленинградский рок-н-ролл
-04. Старый отель(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A693926902D9A1B01F3764BBA595DD1A65E72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995381   (884045) от 11.03.2016
-
-VA - Romantic Collection: Русский рок (1999) [FLAC|Lossless|tracks + .cue] <Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Макаревич - Перекрёсток (4:46)
-02. Nautilus Pompilius - Прощальное письмо (3:39)
-03. ДДТ - Дождь (5:04)
-04. Браво - Старый отель (3:56)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E74FE953098FEF940B5365D75734FC5DD54FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870994   (882475) от 20.02.2015
-
-Линда - Life @ (2015) [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цепи и кольца
-02. Паранойя
-03. Северный ветер
-04. Меченая(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1DEA2916DDC607748BE551043DB83932E0F041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495490   (880810) от 12.09.2021
-
-Башаков Band - #ПатроновДоХрена (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Патроны - Сергей Галанин, Сергей Чиграков, Евгений Маргулис, Алексей Романов (04:28)
-02. Быть знаменитым - Сергей Чиграков (03:45)
-03. Богиня - Алексей Романов (04:43)
-04. Карман - Сергей Галанин (05:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114198   (880145) от 06.04.2020
-
-Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreword [00:48]
-02.Жанр: Symphonic Black Metal, Melodic Death MetalПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7497148A1A85E7F7FDE982D2797FD7CABB752E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 641824   (878743) от 11.04.2013
 
 Amatory - 5 альбомов (2003-2010) Дискография [FLAC|Lossless]<Alternative Rock|Nu-Metal>
@@ -737,6 +481,263 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:620CE4B79C1ACCFA86D9BDD109FDE88D9F982796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998525   (870309) от 19.03.2016
+
+Маврин - Альтаир (2016) Maxi-Single [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альтаир
+02. Звёздная пыль
+03. Безвременье
+04. Le heros de l'Asphalte (bonus track)Жанр: Heavy MetalПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAA04ED112BE4B2B5A907E88EF6FE701ACA08C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998058   (869821) от 19.03.2016
+
+Гарик Сукачев - Избранное (1994-2002) 2CD, 2002 Пролог Мьюзик [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оглянись (если лают собаки) (5:50)
+02. Белый колпак (5:29)
+03. 10.000 км (5:24)
+04. Это был ангел (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4493028972671C896D8D6FBB5E8FB314C2271E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998140   (869803) от 19.03.2016
+
+Аквариум и Борис Гребенщиков - Песни нелюбимых (2016) EP [FLAC|Lossless|tracks] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песни нелюбимых (03:38)
+02. Собачий вальс (04:17)
+03. Пыль (03:50)
+04. Собачий вальс (Euroversion) (04:08)Жанр: РокПродолжительность: 00:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C413400C5827BDBEDE039927292796702CFEB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188747   (867812) от 02.04.2010
+
+Эдуард Артемьев - Преступление и наказание (2007) [FLAC|Lossless]<Рок Опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок Опера, Полустилистика :)Продолжительность: 02:26:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998063   (867798) от 20.03.2016
+
+Виктор Зинчук - Триумф гитары (2015) Compilation [FLAC|Lossless|image + .cue] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Попурри на темы В.А. Моцарта и Л.В. Бетховена (03:18)
+02. Итальянская полька (С. Рахманинов) (03:09)
+03. Марш Радецкого (И. Штраус) (03:56)
+04. Полька (М. Глинка) (03:26)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999646   (864625) от 22.03.2016
+
+Ольга Арефьева и Ковчег - Джейн (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клоун Зло
+02. Алабама
+03. Женщина с синей рукой
+04. Домик красных фонарей(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9796C42AAD5F4A78CE37E064237BDCF0573A66EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999181   (864080) от 22.03.2016
+
+Би-2 - Би-2 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полковнику никто не пишет (4:54)
+02. Варвара (5:00)
+03. Никто не придёт (5:14)
+04. Мой друг (4:50)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D02FA77C052345BA8D7295727E5CB44BC95DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999928   (862548) от 23.03.2016
+
+Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг лучше всех играет блюз
+02. Шанхай-блюз
+03. Дороги наши разошлись
+04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376048   (862172) от 16.04.2020
+
+Ауткаст - 3 Singles (2019-2020) [FLAC|Lossless|tracks] <Alternative, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862172.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2019) Пустота (Single)
+(2019) Феникс (Single)
+(2020) Один из нас (Single)Жанр: Alternative, Nu-MetalПродолжительность: 00:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7375B4FD102FE2A1D1E43C4E5156079AC60F5F86
 ```
 
 https://mybot314.ru/tekegram_catalog/

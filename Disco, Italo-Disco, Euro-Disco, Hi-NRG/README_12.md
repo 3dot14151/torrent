@@ -1,32 +1,3 @@
-###  Публикация: 1020238   (746602) от 25.05.2016
-
-Madleen Kane - 5 Albums (1978-1994) [MP3|320 кб/с] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская модель и певица, работала с 17 лет для немецкого модного журнала  Burda Moden. Побывала в двух выпусках Playboy, а так-же выпустила ряд альбомов принесших пять, вошедших в горячие десятки США и Европы, танцевальных хитов. Альбом 1981 г.- совместная работа с Giorgio Moroder и Pete Bellotte.Список альбомов:
-01. 1978 - Rough Diamond
-02. 1979 - Cheri
-03. 1980 - Sounds Of Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A407802357E1D3EC06C93F621C8395638A94D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282215   (746089) от 11.02.2019
 
 Irene Cara - 3 Albums (1982-1987) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Synth-pop>
@@ -745,6 +716,35 @@ The Soul Affair Orchestra - оркестр под управлением бел�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB688F71E3BFCFFD1327B012C02D8F00F4DB230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128984   (726447) от 26.04.2017
+
+VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy Marton - People From Ibiza (4:17)
+02. Rofo - You've Got To Move It On (4:11)
+03. Savage - Don't Cry Tonight (3:58)
+04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
 ```
 
 https://mybot314.ru/tekegram_catalog/

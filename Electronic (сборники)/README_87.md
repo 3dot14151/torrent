@@ -1,3 +1,235 @@
+###  Публикация: 1133254   (696708) от 11.05.2017
+
+VA - Keep Moving: 100 Progressive Mix (2017) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afterboy A.K.A. Joseph Pecsvari - Girls In Deep 6:16
+002. Akrosonix - Casualties Of Love (Original Mix) 5:37
+003. Al - B - Give Me Your Love 4:26
+004. Alex Mel - Summer Skies (Feat. Michaelangelo) 4:11(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 10:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77529BA4A9DFC224AC9D86E9ACE5811F59EA3378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027558   (696666) от 19.06.2016
+
+VA - Your Temptation: Downtempo Mediterranean Mix (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonoric Academy - Under Dress - Water Mix
+02. Meadowlark - Eyes Wide
+03. Oblique Style - Relax Yourself (Baia Mix)
+04. Interior Beats - Green Blink - Nigh O' Phonic Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51917B927E8C80B7BAF557111D7C76C47DED88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027428   (696665) от 19.06.2016
+
+VA - Chill House Diamonds Vol.5 (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill Rhythms - Chill Possession - Possession Mix
+02. Antigua Blue - Blue Comodo - Deep Ocean Mix
+03. Anthony Maserati - Find the Piano - Quattroporte Deep Mix
+04. Brooklyn Lovers - Caster - Brooklyn Lovers Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4333B71B12A87EB8FD0E881592AA5BA436638120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027416   (696664) от 19.06.2016
+
+VA - Chill House Diamonds Vol 4 (2016) [MP3|320 кб/с] <House, Future Jazz, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Vibe Orchestra - In the Choose (Night Voice Mix) [04:02]
+ 02. Diego Dee - Sweet on My Suite (Dee Dee Mix) [03:46]
+ 03. Fresh Fusion - Gentre Free (Original Mix) [03:40]
+ 04. Electric Fantasy - Farfiza (Onda Nueva Chill Mix) [03:56](   Читать дальше...   )Жанр: House, Future Jazz, DowntempoПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD60DBF136A9E6ED1D0DE9B86311F92A90249F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027682   (696652) от 19.06.2016
+
+VA - Twisted Up: Bass Buster Vol.06 (2016) [MP3|320 кб/с] <Dubstep, Drumm and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire, State Of Mind - Twisted Up (Original Mix)
+02. Pegboard Nerds & NGHTMRE - Superstar (feat. Krewella)
+03. Bensley - Tiptoe (Original Mix)
+04. Marshmello - Alone(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 05:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A966669B8E1DAB6E2EC1B490060B2DF24A2E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403035   (695826) от 17.08.2020
+
+VA - Beatport Electro House: Sound Pack #144 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mayank & Virtu - Allume
+002. Abel Ramos - Hola Mi Amor
+003. Luke Db - Never Have To Run
+004. Wildknights - Burn(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7E7C6723C5F006701C97C4D9B1EBD1F36E9614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288310   (695671) от 11.03.2019
+
+VA - Empire Records - Trance 90's (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind-X - Love Freedom Tolerance (Fridge vs Mind-x Edit)
+02. Photographer, Roman Messer - Infinity (Roman Messer Radio Edit)
+03. The Space Brothers - Shine (Jorn van Deynhoven Remix)
+04. Tanya Zigar - Puzzle Piece(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324D98621C5559624E79EA683E49791412F6B84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288313   (695660) от 11.03.2019
+
+VA - Empire Records - Trance 90's 2 (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interphace - Dr Feelgood (Radio Edit)
+02. Aural Project - Fine Tune (Radio Cut)
+03. Quench - Dreams (Nicholsons Cathedral Remix)
+04. DJ Denis Juice - Infinity & Beyond (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD70C76C2E265BA36D94775BCD2BAEA21DD4BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221366   (695138) от 24.04.2018
 
 VA - Fresh Party Spring Break (2018) [MP3|320 Kbps] <Funky House, Hardstyle, Hands Up>
@@ -513,238 +745,6 @@ VA - Inner Harmony (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20BF2D307ED70B0F740F787FA17DCD3464DEFC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133949   (691553) от 14.05.2017
-
-VA - Cosmotronica Vol.1 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dub House, Dub Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691553.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klartraum - Flight To Berlin (Feat Thalstroem - Vynyard Dub Mix) 11:21
-002. Vadim Lankov - Peky Park 25 8:17
-003. Paul Moore - Hollow Inside (Feat Little Mouse) 7:09
-004. Nikosf. - Our Road Home 7:42(   Читать дальше...   )Жанр: Dub House, Dub TechnoПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5988111E4EAFF67172F01421A81C2E89ACD803EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133935   (691539) от 14.05.2017
-
-VA - Deep & Dark Dubstep Vol.17 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691539.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unicorn Fukr, Quickie Mart & Werd2jah - Dem Man (Truth Remix) 4:38
-002. C-side & Talabun Mc - Last Of Us 4:31
-003. Olie Bassweight - Primal Feat. Mc Messinan 6:10
-004. Resonata - Returned To Dust (Phelian Remix) 5:34(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6D925ACF3CE0A1F21E516D3756808700A3CA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221679   (691457) от 26.04.2018
-
-VA - Best Vocal Trance 2018 vol.3 [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix)
-02. Akcess & Venetica - So Are You The One (Venetica Remix)
-03. Kaimo K & Jess Morgan - In A Whisper - (Extended Mix)
-04. 4 Strings & Fenna Day - Everybody's Gotta Learn Sometime (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57860BFFEBB15CB3CAAE59A061855E6D9FC112E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133928   (691405) от 14.05.2017
-
-VA - Record Super Chart #486 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Nash - Know My Love  4:23
-02.  Martin Garrix & Brooks - Byte  4:45
-03.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
-04.  Bougenvilla & LZRZ - No Sleep  4:26(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46566370739C6775DF79D94C38AB18E6EB059955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133945   (691304) от 14.05.2017
-
-VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691304.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
-002. Ilkay Sencan - Back To Life 3:11
-003. Gregor Salto Feat. Chappell - Your Friend (Nando Fortunato Edit) 6:35
-004. Rag'n'bone Man - Human (Andrey Exx & Sharapov Remix) 4:59(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133950   (691175) от 14.05.2017
-
-VA - Melodic Techno [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691175.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karada & Pedro Mercado - Our Vision 7:44
-002. Midnight Pulse - Mirror Lake 6:29
-003. Anders. - Mr. Holmes 4:59
-004. Mininome - Ordinary Day 5:50(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAF2B913B7B02E48B8471E57CA05D6964650DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028454   (690875) от 22.06.2016
-
-VA - African Daydreamer: Relax Set (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690875.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Le Voyage - African Daydreamer (Ethno Mix)
-002. Petit Prince - Demi tour
-003. Jive Ass Sleepers - Cafe Electronique
-004. Joachim Pastor - Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:31:41 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB332ECAB2428351131090C4727FADC0270A3669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028249   (690779) от 22.06.2016
-
-VA - Music For Easy Running (2016) [MP3|320 кб/с] <Uplifting, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aero 21 - Mallorca (Original Mix)
-002. Dan Stone - Venezuela
-003. Cosmic Gate - Exploration of Space (Cosmic Gate Third Contact Remix)
-004. Ellie Lawson with Adrian&Raz - A New Moon (MozQe Bootleg)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 11:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5890FFEC801B0F14D06B490EFCF549E6D210BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

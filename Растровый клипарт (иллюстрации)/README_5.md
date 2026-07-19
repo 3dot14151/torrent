@@ -1,29 +1,3 @@
-###  Публикация: 583267   (314863) от 01.12.2012
-
-Растровый клипарт - Скрап-набор Street Of Love [PNG, JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый рисованный романтический скрап-набор. Птички, кошка, зонтик, лавочка, скрипка, кораблик из бумаги, лунный месяц с окошками, птичья клетка, лесенка, фонарик, домики, облака, звездочки, фоны и другие элементы.Формат: PNG, JPEGРазрешение файлов: от 462х311 до 3600х3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67266A4CCD97CED3D202D0384C0CAE4525308F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186629   (283588) от 26.11.2017
 
 Растровый клипарт - Scrapbookgraphics - Bearrie & Foxter's, Fishing Shanty and Studio Storybook Collection (With everything in it!) by Lorie [PNG, JPG, PSD]
@@ -674,6 +648,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE5BD3D93382AF08FFCA591979593A3F9DD1253D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797286   (66562) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Hot Air Balloon Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с воздушными шарами на пасхальную тему.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5AECEBE253EED783699C69F5F953FB8A5E8F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

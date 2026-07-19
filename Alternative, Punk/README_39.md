@@ -1,90 +1,3 @@
-###  Публикация: 1806237   (11818) от 11.07.2025
-
-Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop, Leftfield, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - M1A1 (Live) [00:04:08]
-02 - Tomorrow Comes Today (Live) [00:03:52]
-03 - Slow Country (Live) [00:03:58]
-04 - 5_4 (Live) [00:03:02](   Читать дальше...   )Жанр: Alternative-Rock, Trip-Hop, Leftfield, ElectronicПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FF2B269544C2FB241B027517AE9DF9A0841067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806911   (11286) от 16.07.2025
-
-Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fever [00:03:59]
-02. Duplicity [00:03:30]
-03. On My Knees [00:03:16]
-04. Haunted [00:03:23](   Читать дальше...   )Жанр: Alternative Rock, MrtalcoreПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878942151624E1E833C3C9E396730190BD3CBCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813623   (6778) от 20.08.2025
-
-Deftones - Private Music (2025) [MP3|320 Kbps] <Nu-Metal, Shoegaze, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Mind Is A Mountain [00:02:50]
-02 - Locked Club [00:02:52]
-03 - Ecdysis [00:03:28]
-04 - Infinite Source [00:03:32](   Читать дальше...   )Жанр: Nu-Metal, Shoegaze, Alternative MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DB87C298A69F0607D844AD52F114C8855B759B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798696   (5177) от 30.08.2025
 
 Green Day - Saviors (2024) edition de luxe, 2025, Reprise [MP3|320 Kbps] <Alternative Rock, Indie Rock, Rock>
@@ -93,7 +6,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [MP3|320 Kbps] <Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5177.jpg" />
 </div>
 
 
@@ -122,7 +35,7 @@ Julien-K - DRK|MODE (2025) [MP3|320 Kbps] <electronic rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4296.jpg" />
 </div>
 
 

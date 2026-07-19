@@ -1,3 +1,177 @@
+###  Публикация: 1845942   (1051088) от 04.01.2026
+
+Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever And Ever
+02. Les matins d'hiver
+03. Le peintre des étoiles
+04. Les volets clos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C45C74AC150A508E2B7A7D8BEA68B043479D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845206   (1050748) от 
+
+The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - The bright star raised (Взошла звезда ясная) ( (2007) [FLAC|Lossless|tracks + .cue] <Духов ...
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Nativity, Our Christ
+02. With the lightful Feast
+03. The Nativity of Christ
+04. This night is holy(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620EDB6524C2FFE16E6722773687554FE7E3D0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845464   (1050661) от 31.12.2025
+
+VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <The Orient Collective>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Essence of Time (Original Mix) (7:31)
+02. Marga Sol, Darles Flow, Tibetania - Sizzla (Original Mix) (5:04)
+03. Discojack, Fecky Farris, Tibetania - Wojira (Original Mix) (5:59)
+04. Elias Fassos, RisK (Gr), Tibetania - Safe (Original Mix) (6:30)(   Читать дальше...   )Жанр: The Orient CollectiveПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138E31F132F2A66C20A74C88F7758C14BB1860A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 127930   (1047128) от 04.12.2025
+
+Учим соседей! | Для мести соседям (звуковые эффекты) Часть 2 [2009] [MP3]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это диск для мести соседям, которые слишком громко слушают музыку, кричат или шумят любым другим способом. CD. В комплект также входят затычки для ушей. Как сказано в рекламе: "они нужны для того, чтобы защитить вас и сохранить вам рассудок". Достаточно лишь включить один из шумовых эффектов на полную мощность и заткнуть уши (или выйти погулять на полчаса). (   Читать дальше...   )1. A10 Attack Jet 01 (0:18)
+2. A10 Attack Jet 02 (0:30)
+3. A10 Attack Jet 03 (0:20)
+4. Propeller Plane Pass By (0:26)(   Читать дальше...   )Жанр: Юмор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603131   (1045731) от 09.01.2023
+
+VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Bach - Transcending (Original Version) (3:48)
+02. Loveseed - The Infinite Source (3:42)
+03. Landside - Desert Lake (Original Mix) (4:32)
+04. Five Seasons - River Talk (Original Mix) (5:15)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603564   (1045672) от 10.01.2023
+
+Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun of Inspiration
+02. My Devotion
+03. Kissing the Spirit Awake
+04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604340   (1045374) от 13.01.2023
 
 Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Session) (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
@@ -566,180 +740,6 @@ VA - Soul, Original Motion Picture Soundtrack - (2020) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A34FADD5C1C316D5BCBCEF8CDE91D67BA28CB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614825   (1038307) от 23.02.2023
-
-Вокально-инструментальный ансамбль "Песняры" (1971) 2023, АО "Фирма Мелодия" [FLAC 2.0|24/44.1|WEB-DL|tracks] <Pop, RockPop, Rock, Folk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты мне весною приснилась
-2. Косил Ясь конюшину
-3. В поле верба
-4. Ой, рано на Ивана(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B704D5C58141D77EAC98276B0B4AD0CDC13728ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615055   (1038102) от 24.02.2023
-
-VA - Top Country Soul of a Nation (2023) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zach Bryan, Maggie Rogers - Dawns (feat. Maggie Rogers) [04:51]
-02. Ashley McBryde, Brandy Clark, Caylee Hammack, Pillbox Patti - Bonfire at Tina's [03:41]
-03. Blake Shelton - No Body [03:08]
-04. Cole Swindell - Drinkaby [03:03](   Читать дальше...   )Жанр: CountryПродолжительность: 03:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B758E35CB45F1E6986B2F38DF0B74F48449AB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614945   (1038099) от 24.02.2023
-
-Heidevolk - Wederkeer (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Black-metal, Folk-metal, Viking-metal>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hagalaz (5:31)
-02. Drink met de Goden (Walhalla) (5:06)
-03. Klauwen Vooruit (5:28)
-04. Schildenmuur (1:46)(   Читать дальше...   )Жанр: Black-metal, Folk-metal, Viking-metalПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B8AE87B89A50E9B28E705CE63E4997B08D3F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441638   (1037437) от 22.01.2021
-
-Steve Hackett - Under A Mediterranean Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mdina (The Walled City)
-02. Adriatic Blue
-03. Sirocco
-04. Joie De Vivre(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF1D15E6294230953C3EC1AC2F4C9533648298E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615131   (1037276) от 27.02.2023
-
-Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Purnamada
-02. Gayatri Mantra
-03. Prem Hari
-04. Sarve Bhavantu(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEC5661B5775981E031785695202086247DE213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442227   (1036933) от 24.01.2021
-
-Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragrance (5:29)
-02. Moreza;Lorenzo de Medici - King Of Guitarras (4:45)
-03. Love Story (4:30)
-04. Miss Guitar (Deep Lounge Mix) (5:43)(   Читать дальше...   )Жанр: Chillout, Nuevo FlamencoПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

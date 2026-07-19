@@ -1,3 +1,261 @@
+###  Публикация: 1288539   (693413) от 12.03.2019
+
+Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Buzzy Bus - You Don't Stop (G Love & Igor Frank Remix Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2D01718E1E665E5447AF006C8BEFF53B8D9B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333284   (693313) от 07.05.2011
+
+VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP3|256 kbps]<Рок, Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_693313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, ПопПродолжительность: 06:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397AAC1271739DD12517A65CB9ED2D812BC1D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221491   (692775) от 25.04.2018
+
+VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka)
+Продолжительность: 12:16:26
+
+001. Sean Paul & Major Lazer - Tip Pon It(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 01:34:43
+
+01. K.Melody - Не Зови
+02. Plu-Ton - Harmony Of Silence (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36212E8E078FE17CF6A7E1430B8FACF4C423A246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403341   (692226) от 19.08.2020
+
+VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lily Allen - Smile
+002. Clean Bandit - Rather Be (feat. Jess Glynne)
+003. Coldplay - Viva La Vida
+004. Aretha Franklin - Respect(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E90AD836F896612E8D3B7AE208A9D4102D0DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288784   (691845) от 13.03.2019
+
+VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Chainz, Marsha Ambrosius - Forgiven (5:23)
+02. Adamant - Маршмелоу (3:28)
+03. ALEKSEEV - НЕ МЕД (3:32)
+04. Alesso - TIME (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91FE00A362B11FEDB2440B4E7FB99B47F55FD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288831   (691844) от 13.03.2019
+
+VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alvin Lее - Mоving Thе Bluеs
+002. Alvin Lее - Jеnnу, Jеnnу
+003. Dаvе Evаns - Whеrе Shе Gоеs I Gо
+004. Bеn Prеstаgе - Sоmеdау Bаbу(   Читать дальше...   )Жанр: Blues Rock, Country, Rock And Roll, FolkПродолжительность: 10 :10 :48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761280981458F73BE2EF42E652A37A3E9E01BABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133599   (691552) от 14.05.2017
+
+VA - Tropical House Vol.3 (2017) [MP3|320 Kbps] <House , Tech House , Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Namito - Dropkick (Wally Lopez Remix) 6:24
+002. Fg - Purified Dream 5:17
+003. Simone Cristini - Flutter (Simone Cerquiglini Remix) 5:42
+004. Mkrkc - Sunwaves (DJ Viva & Md DJ Remix) 4:21(   Читать дальше...   )Жанр: House , Tech House , TropicalПродолжительность: 06:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B85792FCB778796AD85ED226A61CFF00E1608BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133589   (691480) от 14.05.2017
+
+VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shanghai - Ballerina 3:22
+002. Creative Connection - Dont You Go Away 5:32
+003. Tony Caso - Motorcycle Madeness 5:28
+004. Torrevado - Living in the Shuttle 5:08(   Читать дальше...   )Жанр: Disco, Pop, Italo DiscoПродолжительность: 08:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD813C1E4270ED6C1454D024B504725E8FE8C98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133911   (691473) от 14.05.2017
+
+VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jah Cure Feat. Gyptian - More Thanks For 4:09
+002. Capleton - Caan Tan Yah 3:46
+003. Martha Pasch - La Revolution (Kingston Jam Mix) 3:51
+004. Anthony B - Change 3:57(   Читать дальше...   )Жанр: Reggae, LyricПродолжительность: 06:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E83FB51AA0017C4740A8780EEED535A3F9B6E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133591   (691414) от 14.05.2017
 
 VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
@@ -492,279 +750,6 @@ VA - Дискотека 2016 Dance Club Vol. 153 (2016) [MP3|320 кб/с] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71B440F1B3D2B831F657A079EDCE2FE60FC9FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506297   (687797) от 06.06.2012
-
-VA - Звёзды Шансона - Избранное (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Женя Томилин - Водила, трогай
-02 - Афина - Сердце напополам
-03 - Андрей Бандера - Любимая
-04 - Михаил Шуфутинский - Третье сентября
-05 - В.Высоцкий - Милицейский протокол
-06 - В.Захаров - Любовь моя
-07 - А.Розенбаум - Зима
-08 - Алексей Брянцев - Я буду рядом
-09 - А.Полотно - Купола
-10 - Михаил Шелег - За тебя (За глаза твои карие...)(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 05:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87271457C4F6D1D9036CC75E8371A521C56BE11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222273   (687372) от 28.04.2018
-
-VA - The Official UK Top 40 Singles Chart 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Ariana Grande - No Tears Left to Cry
-03. Drake, Big Freedia, 5thward Weebie - Nice For What
-04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: Pop, Dance, Other
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EE3C0F9C63B59C755D9FFEB382FCBD3BD9BF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222117   (687361) от 28.04.2018
-
-VA - Billboard Hot 100 Singles Chart (28.04.2018) (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687361.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - God's Plan
-003. Bebe Rexha, Florida Georgia Line - Meant to Be (feat. Florida Georgia Line)
-004. Post Malone, Ty Dolla $ign - Psycho(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D26C35EF7C4AC6460E447E822C5103338B9FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222227   (687253) от 28.04.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-02. Justin Timberlake - Say Something (ft. Chris Stapleton)
-03. Jax Jones - Breathe (Ina Wroldsen)
-04. Burak Yeter - Crash(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3C3EB0D4431497550FC2B8A6AA2161DBA4023B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134712   (687232) от 16.05.2017
-
-VA - Music For Sports Games Vol. 3 (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687232.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bodybangers - Sunglasses At Night
-002. Jetty Racher & James Bell - Ready For The Bass (Radio Edit)
-003. Vijay & Sofia Zlatko - Le Jardin
-004. Jam Feat. Solamay - One Of Us(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044F2E23E1CE3A9877CB95B69242DF5B2C9D984B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134585   (687227) от 16.05.2017
-
-VA - Italo & Space Vol.36 (Special Long Edition) (2017) [MP3|320 Kbps] <Italo-Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SpaceQuake - Let's Fly  5:42
-02.  Stylove - Carry On  5:27
-03.  Oblivion - Dreams Come True  5:42
-04.  X-Plosion - Atmosphere  6:23(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 05:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D541DCA0B3B85D2AB91BEF864450EE0360B4EF43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028755   (686644) от 24.06.2016
-
-VA - Загорелое лето №1 (2016)  [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Женя Юдина - Испытание
-002. Иракли Feat. Dj Nejtrino & Dj Baur - Не Верь Слезам
-003. Гейдар Багиров - Мы Сильные
-004. Мулат - Моя Самая Дюбимая(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E0F9CF236B497110071EF329D6D2DBF1F841A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289346   (686464) от 16.03.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Peep & XXXTentacion - Falling Down
-02. Denis First & Reznikov feat. Bright Sparks - Shameless
-03. Rita Ora - Let You Love Me
-04. Ariana Grande - 7 Rings(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C89C6757BEDBCD317142E166747FEBB040EAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507077   (686416) от 07.06.2012
-
-VA - Клубные Новинки Vol.86 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boral Kibil - The Day We Died (Original Mix)
-02. Armin van Buuren feat. Cathy Burton - Rain (Cosmic Gate Remix)
-03. MatricK - The Broken Love (Invisible Brothers Remix)
-04. Headstrong ft. Shelley Harland - Here In The Dark (Aurosonic Progressive Mix)
-05. Francesco Gomez - Conga feat Lety (Original Club Edit)
-06. Etienne Ozborne & Zoltan Kontes & Polina Griffith - I Really Want to Say (Nick Mentes & Tony Romera Remix)
-07. Progressive Thrust - Circles (DJ Chuggs Remix)
-08. DJ DED - Autumn is Back
-09. Offer Nissim & Itay Kalderon feat. Maya - Over & Over (Club Mix)
-10. Falko Niestolik, Roter & Lewis - Grid (Drauf & Dran Remix)2012Жанр: Club, DanceПродолжительность: 04:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9364206837517450F4CF89899899B8270BBA645
 ```
 
 https://mybot314.ru/tekegram_catalog/

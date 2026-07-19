@@ -1,54 +1,25 @@
-###  Публикация: 1525683   (129128) от 21.01.2022
+###  Публикация: 1776718   (71202) от 02.02.2025
 
-VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream One - Southern Light (Original Mix) (4:50)
-02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
-03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
-04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525787   (129109) от 21.01.2022
-
-VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Italo Strikes Back Vol. 2 (1998) [AAC|320 Kbps] <Electronic, Euro House, Synth-pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wermuth - Intertwining Lives (5:46)
-02. Élan Vital - Extravagance (5:55)
-03. Fascinating Case - Immersive Experiences (5:40)
-04. Lovers in Motion - A Matter of When (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:28
+01. J.V.P. - Rofo's Theme
+02. Xenon - Firewalker
+03. Matura - Commanchero
+04. DJ Jacques - Malestripper(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:24:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7511A94659F37F9E16232FA6CB83B2D900DE8A6
+magnet:?xt=urn:btih:E3B0ED4C1B98553485457A7C8C8B01DF9BAF1350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525543   (129108) от 21.01.2022
+###  Публикация: 1776941   (71121) от 04.02.2025
 
-VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+VA - The Best Of Italo Disco Vol. 8 (1987) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. But & Memo - Black Betty (Alexander Metzger Chillout Mix) (6:30)
-02. Alexandru Florea - Secrets from Your Lips (Ancient Culture Mix) (6:16)
-03. Arshia Alipour - Waiting for You (3:00)
-04. Five Seasons - Floating Spell (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:14
+02. Linda Jo Rizzo - Heartflash (Tonight) (Just One Word)
+03. Silver Pozzoli - Pretty Baby
+04. Mike Mareen - Agent Of Liberty
+05. Albert One - For Your Love(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:02:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DD0F953676F2650497361D5F374DAD3C1C9D87D
+magnet:?xt=urn:btih:C0F2DC2F0CCE39CC7DE658D0867206125C5A9955
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525783   (129107) от 21.01.2022
+###  Публикация: 1777475   (70979) от 07.02.2025
 
-Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
+VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything Will Rise Again (6:19)
-02. I'll Never (4:11)
-03. Merlin (4:14)
-04. When The Day Came (3:57)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 01:03:33
+01. Spagna - Call Me
+02. Interface - Plastic Age
+03. Eddy Huntington - Meet My Friend
+04. Morgana - Ready For Love(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:09:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:260A39EECD911D209C1D923FF5C83792727F14EF
+magnet:?xt=urn:btih:822021F3C640FF7E2F73C20EE6B918B3C40E5D84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525718   (129105) от 21.01.2022
+###  Публикация: 1778357   (70906) от 08.02.2025
 
-VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ray Maddison - Maldives Night (4:31)
-02. Yantra Mantra - Raga Sundara (4:07)
-03. Djadi - Open Sesame (3:06)
-04. Katoey - Pattaya Hood (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:55
+01. Scotch - Man To Man
+02. Linda Jo Rizzo - Perfect Lover
+03. Chester - Hold The Line
+04. Chip Chip - So Close To Heaven(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:09:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBFA26418821B3E7FA00E8DD96340D6685EDDC8C
+magnet:?xt=urn:btih:86D4081794AD0EA4B384B7D2E92C5912B7187408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525685   (129103) от 21.01.2022
+###  Публикация: 1781907   (70132) от 26.02.2025
 
-VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Modern 80's - The Best Of Discopop Vol.4 (1999) [AAC|320 Kbps] <Electronic, Rock, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Thai Connection - The Red Deluxe Intro (1:46)
-02. Katoey - Pattaya Hood (3:42)
-03. Euphonic Traveller - Pacifica (8:38)
-04. Michael e - Downtown (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:34
+01. Modern Talking - Atlantis is Calling (S.O.S. for Love)
+02. Rick Astley - Together Forever
+03. Kylie Minogue - Got to Be Certain
+04. Fancy - Flames of Love(   Читать дальше...   )Жанр: Electronic, Rock, Italo-DiscoПродолжительность: 02:37:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18886950B68812A68EE0517F13263E2FC32E78F5
+magnet:?xt=urn:btih:B958F08C6B98236275BFC4FFD5DC1F58BD110B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525708   (129101) от 21.01.2022
+###  Публикация: 1782242   (70063) от 27.02.2025
 
-VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joey Lina - Future is Past (2:28)
-02. Lemongrass - Supergalactic (3:59)
-03. Airwave, DJ Fire - Without Roots (Audio Noir Zen Mix) (4:50)
-04. Michael e - Sandman (5:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:57
+01. Atlanta - Romantic Break
+02. Modern Talking - You're My Heart, You're My Soul
+03. Spagna - Easy Lady
+04. Baltimora - Woody Boogie(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:672B597E2B915D92B1912E5231FC7C6E047BC038
+magnet:?xt=urn:btih:13D80233AAEA8F6FAE6F46E84E158897D06C1615
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,137 +172,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533992   (127145) от 19.12.2023
+###  Публикация: 1400524   (63330) от 11.03.2024
 
-Scorpions - Rock Believer (Deluxe) (2022) [AAC|~355 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127145.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Gas In The Tank (3:40)
-1.02. Roots In My Boots (3:17)
-1.03. Knock 'em Dead (4:11)
-1.04. Rock Believer (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9475D93AABED323611172957FF31C70B3B5FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687010   (125573) от 26.12.2023
-
-Dan Ogus - Scattering The Christmas Roots 20-12-23 (2023) [AAC|192 Kbps] <Blues, Country, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. California Guitar Trio - On Christmas Tree
-2. Shane MacGowan & The Popes - Christmas Lullaby
-3. Blackmore's Night - Christmas Eve
-4. Clive Gregson - Another Christmas Song(   Читать дальше...   )Жанр: Blues, Country, RockПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7684DE5A11B3AC6268629CA689B68A95F64A0D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478422   (87041) от 07.04.2012
-
-Правосудие Декстера / Dexter (Сезон 1, 12/12) (2006) BDRip [H.264 | iPod]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я — Декстер. Декстер Морган. Я работаю судмедэкспертом в полиции Майами. Я не понимаю любви, мне безразличен секс, и у меня нет чувств. А еще я серийный убийца.
- Мой отец был полицейским и прекрасно обучил меня прятать улики. Обычным гражданам не стоит меня бояться, я убиваю только преступников, подонков, до которых почему-либо не смогла или не захотела добраться полиция. Я убиваю их, аккуратно распиливаю на части и избавляюсь от трупов. Убийство для меня — творческий акт, искусство.
- Но однажды… В Майами появляется некто, равный мне. Даже превзошедший меня. Сумевший меня заинтересовать. Предложивший мне своего рода товарищеское состязание. Кто этот загадочный и неуловимый «икс»?..Жанр: криминал, драмаРежиссёр: Джон Дал / John Dahl, Роберт Либерман / Robert Lieberman, Ник Гомез / Nick GomezВ ролях: Майкл С. Холл, Дженнифер Карпентер, Лорен Велес, Дэвид Зайас, Джеймс Римар, К.С. Ли, Джули Бенц, Десмонд Харрингтон, Кристина Робинсон, Престон Бэйли и д.р.Перевод: профессиональный: многоголосый закадровый, двухголосый закадровыйФормат: *.mp4Продолжительность: ~ 0:53:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472027   (84302) от 25.03.2012
-
-Кувалда / Sledge Hammer! (Сезон 1-2) (1986-1988) DVDRip [H.264 | iPad]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инспектор Хаммер самый неисправимый недотёпа во всей Американской полиции! Что он и доказывает на протяжении всего сериала, но, на удивление, всегда с легкостью находит выход из любой самой сложной ситуации. Например, в одной из серий побежденный злодей решается на последнее в своей жизни злодейство. Обвязавшись динамитом, он поджигает бикфордов шнур. Все в ужасе, и только наш находчивый инспектор Хаммер принимает единственно возможное решение — тушит огонь жвачкой…Жанр: Комедия, БоевикРежиссер: Алан СпенсерАктеры: Девид Раш, Анна-Мария Мартин, Гаррисон ПейджПеревод: Двуголосый закадровыйПродолжительность: 41 серия по 23 минуты
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453635   (77604) от 21.02.2012
-
-Монстр в Париже / Un monstre à Paris / A Monster In Paris (2011) BDRip [ATV2/iPad | H.264/720p]
+Грязные прелести / Dirty Pretty Things (2002) BDRip [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Париж. 1910 год. Ужасный монстр, напоминающий гигантское насекомое, нагоняет страх на всю Францию. Застенчивый киномеханик и неутомимый изобретатель начинают охоту на него. В этой погоне они знакомятся со звездой кабаре, сумасшедшим ученым и его умной обезьянкой и, наконец, самим монстром, который оказывается совсем не страшным. Теперь безобидное, как блоха, чудовище ищет у своих новых друзей защиты от вредного начальника городской полиции.Жанр: Анимация, Фэнтези, КомедияРежиссер: Бибо БержеронАктеры: Ванесса Паради, Матье Шедид, Гад Эльмалех, Франсуа Клюзе, Людивин СаньеПеревод: ДублированныйПродолжительность: 01:29:59
+Подпольный мир Лондона. Здесь все продается и покупается. Молодой человек и девушка работают в одном отеле, очаге преступной деятельности.
+Они практически незнакомы до того момента, пока один из них не делает леденящее душу открытие. Герои не могут сообщить об этом ни коррумпированному боссу, ни полиции. Они будут счастливы, если им удастся остаться в живых.Производство: Великобритания / BBC Films, Celador Films, Jonescompany ProductionsЖанр: Триллер, драма, криминалРежиссер: Стивен ФрирзАктеры: Чиветель Эджиофор, Одри Тоту, Серхи Лопес, Софи Оконедо, Бенедикт Вонг, Златко Бурич, Крисс Досанж, Исраель Адурамо, Йеми Аджибаде, Низвар КаранжПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский одноголосыйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:37:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5B09D6319A61166A4B5261B7229EF4FD858DED50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,136 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 452939   (77414) от 20.02.2012
+###  Публикация: 1771726   (31455) от 09.01.2025
 
-Кокаин / Blow (2001) BDRip [ATV2/iPad | H.264/720p]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история, в которой все крутится вокруг наркотиков, секса и безудержных вечеринок. В ней рассказывается о переходе от невинности к цинизму, от марихуаны к кокаину. И это очень личная история, потому что расцвет Пабло Эскабара, Джорджа Джанга и торговли кокаином затронул очень многих известных людей. Джордж Джанг, обыкновенный парень из пригорода, решил осуществить американскую мечту своим способом – стать первым американцем, импортирующим кокаин в больших объемах. Он создал себе рынок сбыта, подсадив на кокаин самых знаменитых людей Америки. Вскоре он уже купался в деньгах и роскоши, о которых многие только мечтают. Ему удавалось обводить вокруг пальца не только ФБР, но и страшных колумбийских наркодельцов. Однако настоящий кайф он получал от опасности и риска, нуждаясь в адреналине больше чем в наркотиках.Жанр: КриминалРежиссер: Тед Демми /Ted Demme/Актеры: Джонни Депп /Johnny Depp/, Пенелопа Круз /Penelope Cruz/, Франка Потенте /Franka Potente/, Рэйчел Гриффитс /Rachel Griffiths/, Рэй Лиотта /Ray Liotta/, Пол Рюбенс /Paul Reubens/Перевод: ДублированныйПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453587   (76953) от 18.02.2012
-
-Охотники за разумом / Mindhunters (2004) [ATV2/iPad | H.264/720p]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семеро кандидатов в элитный отряд ФБР, где работают так называемые «профайлеры» (агенты, ведущие охоту за маньяками-убийцами), проходят максимально приближенные к реальности тренировки под руководством безжалостного специалиста Джейка Хэрриса, которого впору заподозрить в издевательстве над своими воспитанниками.
-И когда они попадают на опустевший остров около побережья Каролины, чтобы в экстремальных условиях сдать последний экзамен на человеческую выдержку и профессиональную смекалку, то начинают воспринимать ужасы происходящего как намеренно подстроенные происки Хэрриса или же винят во всём «чужака» — афроамериканца Гейба Дженсена, который представился проверяющим из отдела по расследованию убийств из Филадельфии.
-Но кто на самом деле устроил череду кровожадных преступлений?Жанр: Триллер, Детектив, ДрамаРежиссер: Ренни ХарлинАктеры: Эйон Бэйли, Клифтон Коллинз мл., Уилл Кемп, Вэл Килмер, Джонни Ли Миллер, Кэтрин Моррис, Кристиан Слэйтер, LL Кул Джей, Патрисия Веласкес, Кассандра БеллПеревод: Профессиональный (многоголосый, закадровый), ДублированныйПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452640   (76741) от 17.02.2012
-
-Мания величия / La folie des grandeurs (1971) BDRip [H.264 | iPad]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луи Де Фюнес в роли жадного сборщика налогов, обворовывающего короля. Его слугу Рюи Блаза играет Ив Монтан. Разбитной веселый мошенник постоянно издевается над хозяином и строит ему козни.
-Так он использует неописуемую алчность и жажду лести человека, считающего, что «бедные должны быть бедными, а богатые должны стать еще богаче», и подбивает Де Фюнеса соблазнить (   Читать дальше...   )Производство: Франция, Испания, Италия, Германия (ФРГ) /  Gaumont International, Mars Film, Coral FilmsЖанр: КомедияРежиссер: Жерар УриАктеры: Луи де Фюнес, Ив Монтан, Алис Саприч, Карин Шуберт, Альберто де Мендоса, Дон Хайме де Мора-и-Арагон, Эдуардо Фахардо, Антонио Пика, Хоакин Солис, Венантино Венантини и др.Перевод: ДублированныйСубтитры: Английские, Русские, ФранцузскиеПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447781   (75545) от 11.02.2012
-
-Мерлин / Merlin [сезон 4, эпизоды 13 из 13] (2011) BDRip [720p] ATV2/iPad
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история юного мага, ставшего впоследствии самым знаменитым и могущественным волшебником из всех, когда-либо живших на земле.
- Действие начинается с того дня, когда юный волшебник впервые оказывается в королевстве Камелот, и повествует о событиях, предшествующих легендарной истории о Мерлине и короле Артуре. Действующий король Камелота уже более двадцати лет ведет (   Читать дальше...   )Жанр: Фантастика, Драма, ПриключенияРежиссер: Джеймс ХоузАктеры: Джон Хёрт, Колин Морган, Брэдли Джеймс, Ричард Уилсон, Энджел Колби, Кэти МакГрат, Энтони Хэд, Руперт Янг, Оуэн Мэкен, Адетомива Едун и другиеПеревод: Многоголосый закадровыйЯзык субтитров: Русские АнглийскиеПродолжительность: 13 серий по ~ 43 минуты
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772415   (71773) от 11.01.2025
-
-VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
+Secret Service - Top Secret* (*Greatest Hits) (2000) [AAC|320 Kbps] <Electronic, Synth-pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Summer - I Feel Love
-02. Gary's Gang - Keep On Dancin'
-03. Eddy Rosemond - Wake Up And Move...Funky
-04. Village People - Y.M.C.A.(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 02:30:51
+01.  Oh Susie
+02.  The Dancer
+03.  Ten O'Clock Postman
+04.  Cry Softly (Time Is Mourning)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:13:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D78AB5A80CC05917AC0BC0E72C6940D39E8701
+magnet:?xt=urn:btih:B15B74AA6A372D54DA01563379BF0F66366CE850
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772588   (71751) от 12.01.2025
+###  Публикация: 1772992   (31047) от 13.01.2025
 
-Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
+The Flirts - Castle Gold Collection, Vol. 18 (1991) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Stop
-02. Get Up, Do You Wanna Funk (Special Effects Mix)
-03. Go Go Yellow Screen
-04. Steppin' Out (Special Mix)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:17:25
+01. Passion
+02. Helpless
+03. Calling All Boys
+04. DangerЖанр: Electronic, Pop, Synth-popПродолжительность: 00:22:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
+magnet:?xt=urn:btih:897FD5D830D632F51013D24FF54061C1C85F92AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774208   (71536) от 21.01.2025
+###  Публикация: 1773033   (30946) от 14.01.2025
 
-VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
+The Flirts - The Best Of The Flirts (1991) [AAC|320 Kbps] <Electronic, Pop, Hi NRG>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kiki Gaida - Virginal Mystery
-02. Parsifal - Carillon (English Version)
-03. Tenere - Moon Destination (Vocal English Version)
-04. Zener - New Generation(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 01:19:40
+01. Passion
+02. Calling All Boys
+03. Juke Box (Don't Put Another Dime)
+04. Boy Crazy(   Читать дальше...   )Жанр: Electronic, Pop, Hi NRGПродолжительность: 01:04:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36A92A5C5398167646378855B26D0E9B42B6CB4C
+magnet:?xt=urn:btih:99C383E9A0E1D0E9206F8E5F73610A2F6FB9A8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775105   (71490) от 25.01.2025
+###  Публикация: 1773041   (30938) от 14.01.2025
 
-VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+Secret Service - Spotlight (1988) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+01. Oh Susie '79  82' Remix
+02. L.A. Goodbye '80
+03. Flash In The Night '80 82'Remix
+04. Ye-Si-Ca '80 82'Remix(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42616DFA38CE1BA1A41885CD7EF39BDEEAEDA959
+magnet:?xt=urn:btih:B20CDCA059C88E34120312E8FA26EB2941E86752
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +315,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775220   (71489) от 25.01.2025
+###  Публикация: 1773296   (30835) от 15.01.2025
 
-VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth-pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+01. Sheila Stewart - It's You
+02. Jackie Touche - Watch Out
+03. Gina - Let Me Free
+04. Rygar - Star Tracks(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:14:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E481A51F6E88BD5274986FCF8D1B56099130E1AA
+magnet:?xt=urn:btih:E62FC4BCEDCF0E83B06ED8A5A6752DB27F03EB34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775306   (71439) от 26.01.2025
+###  Публикация: 1773633   (30218) от 21.01.2025
 
-VA - Dance Classics Gold 4 (1993) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+VA - The Best Of Made Up Records Vol. 2 (1999) [AAC|320 Kbps] <Electronic, Euro-Disco, Eurodance, Eurobeat>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Summer - Could It Be Magic
-02. Earth, Wind & Fire - September
-03. Anita Ward - Ring My Bell
-04. The Three Degrees - Dirty Ol'man(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:27:17
+01. Debby Jason - Day By Day
+02. Gina - Baby Baby Baby
+03. Sheila Steward - No 1 Emotion
+04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Eurodance, EurobeatПродолжительность: 01:03:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E849EFEA6976582A6BAD9A9D57B4864847F2D243
+magnet:?xt=urn:btih:37F620DE25A4F056153532537830E6B684BB186C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775433   (71418) от 27.01.2025
+###  Публикация: 1774783   (30001) от 23.01.2025
 
-VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
+VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johnny ''Guitar'' Watson - A Real Mother For Ya
-02. Boz Scaggs - Lowdown
-03. Brothers Johnson - Strawberry Letter 23
-04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
+01. Ken Laszlo - Tonight
+02. Spagna - Easy Lady
+03. Koto - Jabdah
+04. Fancy - Bolero (Hold Me In Your Arms)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:02:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F56536C8C0F1EC5DC1C3B618C4D1D69CD24C98E
+magnet:?xt=urn:btih:6547D2D00B63F2477C3F20D3B8CD3ECAE8988E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775633   (71402) от 28.01.2025
+###  Публикация: 1774781   (30000) от 23.01.2025
 
-VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Jacksons - Blame It on the Boogie
-02. McFadden & Whitehead - Ain't No Stoppin' Us Now
-03. The Gap Band - Say Oops Upside Your Head
-04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:17:02
+01.  Silver Pozzoli - Around My Dreams
+02.  Ivan - Fotonovela
+03.  Steve Allen - Letter From My Heart
+04.  Moses - We Just(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10125E28A5E5E3C2589857712280504A0FC66841
+magnet:?xt=urn:btih:FB1E12D1E8B5666B54D83CB672012E1EB03EE9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775484   (71321) от 31.01.2025
+###  Публикация: 1774935   (29894) от 24.01.2025
 
-VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
+VA - Italo Dance Classics Volume 4 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. James Brown - Sex Machine
-02. Peoples Choice - Do It Anyway You Wanna
-03. Earth, Wind & Fire - Saturday Nite
-04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:17:15
+01. Righeira - Vamos A La Playa
+02. P. Lion - Happy Children
+03. Valerie Dore - The Night
+04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AEC3A758557053B72E54BF57B59288194C639B0
+magnet:?xt=urn:btih:90F39BFC3A8AD7CBF45D26D8F7FA7458DB053F35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +460,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775500   (71297) от 31.01.2025
+###  Публикация: 1775030   (29892) от 24.01.2025
 
-VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+VA - Dance Classics Gold (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29892.jpg" />
 </div>
 
 
 ###  Подробнее
 
 01. Dan Hartman - Relight My Fire
-02. Gwen McCrae - Keep The Fire Burning
-03. Lipps Inc. - Funkytown
-04. Lakeside - Fantastic Voyage(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:15:53
+02. Chic - Le Freak
+03. Gloria Gaynor - I Will Survive
+04. Earth Wind & Fire - Boogie Wonderland(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:09:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C5010AB44AA09EB37FB50892082D00260A59FB
+magnet:?xt=urn:btih:5547D1426BAC27CFEF3FEDCB5DDCBC88DA1E0ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774897   (29890) от 24.01.2025
+
+VA - Italo Dance Classics Volume 3 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Pozzoli - Step By Step
+02. Fun Fun - Happy Station
+03. Ken Laszlo - Hey Hey Guy
+04. Sabrina - Sexy Girl(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B61308A333060B19938652AC93FFAAF4AECF537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775690   (29375) от 29.01.2025
+
+VA - Dance Classics Vol. 5 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritchie Family - The Best Disco In Town
+02. Gloria Gaynor - Never Can Say Goodbye
+03. Kool & The Gang - Celebration
+04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1852FB5C824F3D34C67DB21D60DF0CF41A3D6A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775900   (29372) от 29.01.2025
+
+VA - Dance Classics Vol. 6 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinners - Working My Way Back To You Babe
+02. Real Thing - Can You Feel The Force
+03. Instant Funk - I Got My Mind Made Up
+04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C886991AC6A9A3665835EA85907ABB9B935FE5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775991   (29364) от 29.01.2025
+
+Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm So I'm So I'm So
+02. If You Need Me
+03. Don't You Know Don't You Know
+04. Turn To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9EE58E54E3595997BDDCB555F3F78F3914B404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776291   (29124) от 31.01.2025
+
+Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NRG, Synth-pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellites
+02. If I Do
+03. Different
+04. Eyes Are Talking(   Читать дальше...   )Жанр: Electronic, Pop Rock, Hi NRG, Synth-popПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68911E71C669E17575239848D2633F5E1A4A51D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776242   (29118) от 31.01.2025
+
+Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop, Synth-pop, New Wave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night City
+02. Let Us Dance Just A Little Bit More
+03. Special Songs
+04. Do You Remember(   Читать дальше...   )Жанр: Electronic, Pop, Synth-pop, New WaveПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A602EF5837F99AAEEC30085769C588283F488C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776847   (28671) от 04.02.2025
+
+VA - The Best Of Italo-Disco Vol. 7 (1986) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Mareen - Love Spy (The Badman Mix)
+02. Ken Laszlo - Don't Cry (Vocal)
+03. K.B.Caps - Do You Really Need Me
+04. Grant Miller - Doctor For My Heart(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1474DDBD912EBEB1AED75E13BD5B868CE3385601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781473   (26659) от 23.02.2025
+
+VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You Can Win If You Want
+02. Fancy - Slice Me Nice
+03. C.C. Catch - I Can Lose My Heart Tonight
+04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F558C030EEEF9D1961283CC06291BC82634EF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781577   (26568) от 24.02.2025
+
+VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Gibb - Juliet
+02. Samantha Fox - I Surrender (To the Spirit of the Night)
+03. Bros - When Will I Be Famous
+04. Sabrina - Boys(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D79607761DB2971D2745A35D788DCA14580B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,133 +1,3 @@
-###  Публикация: 499966   (256947) от 22.05.2012
-
-Fletcher Henderson - Fletcher Henderson and His Orchestra (1937-1938) (1990) [FLAC|Lossless]<Dixieland, New Orleans Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Wearin' Me Down (2:54)
-02. Slumming On Park Avenue (2:30)
-03. Rhythm Of The Tambourine (2:42)
-04. Stampede (3:09)
-05. Back In Your Own Backyard (2:34)
-06. Rose Room (In Sunny Roseland) (3:01)
-07. Great Caesar's Ghost (2:24)
-08. If You Ever Should Leave (3:03)
-09. Posin' (2:48)
-10. All God's Chillun Got Rhythm (2:43)(   Читать дальше...   )1990Жанр: Dixieland, New Orleans Jazz, Big Band, SwingПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499021   (256462) от 21.05.2012
-
-Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Fishin' (with Bing Crosby)
-02. (I'll Be Glad When You're Dead) You Rascal You (with Louis Jordan)
-03. La Vie En Rose
-04. My Sweet Hunk O'Trash (with Billie Holiday)
-05. Blueberry Hill
-06. (What Did I Do To Be So) Black and Blue
-07. Do You Know What It Means To Miss New Orleans?
-08. I Wonder
-09. When It's Sleepy Time Down South
-10. I'm Confessin' (That I Love You)(   Читать дальше...   )2006Жанр: Jazz, BluesПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499690   (256454) от 21.05.2012
-
-Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498503   (256271) от 21.05.2012
-
-Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. The Tribute
-03. Turnaround
-04. That Time Of The Year
-05. Home
-06. You Will Be Missed
-07. European Summer
-08. Two Flies With One Hit
-09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498501   (256260) от 21.05.2012
 
 Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
@@ -816,6 +686,127 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494547   (250764) от 10.05.2012
+
+Alex Hutton Trio - Legentis (2012) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.J.
+02. The Legentis Script
+03. Clouds
+04. Then There Were Four
+05. Hymn II (We The People)
+06. Farewell 296
+07. Wonder Why
+08. Crying Wolf
+09. A Norsk Tale (piano solo)2012Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619107   (249821) от 14.03.2023
+
+Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgia on My Mind [3:04]
+02. Rockin' Chair [3:09]
+03. Carolina Shout [2:22]
+04. Honeysuckle Rose [3:26](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76C58AC0E9CF12E4F67F0CD5CCCFE6C682A50A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619206   (249767) от 15.03.2023
+
+Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embraceable You [4:40]
+02. Nobody But You [3:56]
+03. Love Is Here to Stay [4:14]
+04. Do It Again [4:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EE96B5DEAF311E488EECF16B29CE000294D6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564700   (249632) от 20.07.2022
+
+Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coronado [19:49]
+02. You Go to My Head [17:15]
+03. Caravan [15:12]
+04. Autumn in New York [21:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23AB0E6A57B5FC13BDE16286DFA052060F17301
 ```
 
 https://mybot314.ru/tekegram_catalog/

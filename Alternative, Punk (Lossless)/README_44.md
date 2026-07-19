@@ -1,3 +1,119 @@
+###  Публикация: 1178569   (353696) от 29.10.2017
+
+Weezer - Pacific Daydream (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mexican Fender (3:10)
+ 02. Beach Boys (3:51)
+ 03. Feels Like Summer (3:16)
+ 04. Happy Hour (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D550FC31E4048E498270887C5232734047ACDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577724   (352554) от 20.09.2022
+
+Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inferno [00:02:37]
+02. The Haunted [00:03:26]
+03. Interlude [00:00:32]
+04. Fade Out [00:03:06](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 2 CD, 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF8984A21152E3F52A53450F7D553F5453AC853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577718   (352311) от 20.09.2022
+
+Maggie Lindemann - Suckerpunch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Punk, Female Vocal,  Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro / welcome in (1:16)
+02. take me nowhere (2:54)
+03. she knows it (2:36)
+04. casualty of your dreams (3:17)(   Читать дальше...   )Жанр: Alt.Rock, Pop-Punk, Female Vocal,  ElectronicПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721FD5291473247B19B3832D641C24AEA6D8B6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329436   (352263) от 05.10.2019
+
+Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Tell (04:16)
+02. One Eye Open (04:43)
+03. Daily Driver (03:54)
+04. Feels (04:42)(   Читать дальше...   )Жанр: Indie-Rock, ElectronicПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DACF67FAECC3C3E8FB1CEAA96F1DD5C42BE4986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329420   (352248) от 05.10.2019
 
 Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -627,122 +743,6 @@ Ghost Town - Evolution (2015) [FLAC|tracks|WEB-DL]<Post-Hardcore, Electronic, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5609A327E4862A255289B6425E1AFC32A0996302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579238   (336609) от 27.09.2022
-
-Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asura [00:03:47]
-02. Nibiru [00:03:34]
-03. Dansez sur ma tombe [00:03:17]
-04. Prototype [00:03:53](   Читать дальше...   )Жанр: Groove Metal, MetalcoreПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914E14128CAB3D2AE2FAA95E05224C7ECA8C4E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579183   (336487) от 27.09.2022
-
-Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiveness I + II
-02. Reckless Paradise
-03. I Beg To Differ (This Will Get Better)
-04. The Wolf(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B937C5DAF248E9DD2A6B3D14E758E1068F00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579447   (336486) от 27.09.2022
-
-Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Villain [00:03:13]
-02. Demons [00:04:01]
-03. Say Something [00:02:01]
-04. I Wanna Fight And You Know It [00:03:46](   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73C745A39B12D6CD90E0AEF1ED30FC77F949B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024725   (336478) от 12.10.2019
-
-Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLAC|Lossless|image + .cue]<Acid Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds
-02. Cough Syrup
-03. Pepper
-04. Thermador(   Читать дальше...   )Жанр: Acid PunkПродолжительность: 01:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018857316AD2EB903193EF307A9E2635DE8AC44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

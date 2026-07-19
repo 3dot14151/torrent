@@ -1,87 +1,3 @@
-###  Публикация: 1041872   (581429) от 10.08.2016
-
-VA - Супер популярный летний Русский (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Билан - В Твоей Голове
-002. Единое Братство Feat. David Argunetta - По Волнам
-003. Наталья Подольская - Сердечко
-004. Оля Полякова - Плавочки(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF4066660D1416C84BC7FF83856E5186969DF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041732   (581419) от 10.08.2016
-
-VA - German Top №8 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - This One's For You (feat. Zara Larsson)Жанр: PopПродолжительность: 05:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528691E1B24E072AF988D4D8A4C147C45726EB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041895   (581236) от 10.08.2016
-
-VA - Молодёжная 100-ка. Презент Летних Новинок (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mnek - More Than A Miracle
-02. Ваня Чебанов - Все Хорошо
-03. Evgen Dia - Меланхолия
-04. Лиза Хегай - Наполовину(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A9D093CD846CB6AC73A905F0EF07C3C03B2184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359838   (581161) от 07.07.2011
 
 VA - Улётные новинки граммофона - хитовая авиация (2011) [MP3|160 kbps]<Pop>
@@ -697,6 +613,90 @@ VA - Billboard Hot 100 Singles Chart 20.08.2016 (2016) [MP3|128-320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B75E21838CFC556274FB493FB50CC6BD74B9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042172   (579406) от 12.08.2016
+
+VA - Новинки С Разных Популярных MР3 Сайтов Выпуск 51 (2016) [MP3|256~320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artik & Asti  -  Я Твоя (Kolya Dark & Mickey Martini Radio Edit)  3:05
+002. Kristina Si  -  Космос (Reznikov & Denis First Remix)  5:12
+003. Инфинити  -  Таблетка (Dj Noiz Remix)  3:23
+004. Alexander Popov Feat. Christian Burns  -  One More Time  3:12(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 07:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050C48CAFAA755228E6D8B8FD1203B6437D11828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361111   (578964) от 09.07.2011
+
+VA - Забавная Штучка (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 6:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2DB855BC89CD3EBA74531D17CA00201B130ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554121   (578934) от 29.05.2022
+
+VA - German Top 100 Single Charts 27.05.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano - Beautiful Girl
+02. Harry Styles - As It Was
+03. Ion Miles, Siraone & Bhz - Powerade
+04. T-low & Miksu - We Made It(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFCCB099158C740EF3949D647384125BCDA06B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

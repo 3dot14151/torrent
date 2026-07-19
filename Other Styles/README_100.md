@@ -1,3 +1,189 @@
+###  Публикация: 926128   (535475) от 09.08.2015
+
+Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anam Cara Reprise
+02. Love Conquers All
+03. Spin of the Reel
+04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365220   (535411) от 24.07.2011
+
+Dhikr y Sama - Musica Sufi Andalusi (1999) [MP3|128 kbps]<world ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535411.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:49] 01.  I. Iftitahiyya (preludio)
+[06:33] 02.  I. Iftitahiyya (preludio)
+[02:15] 03.  I. Iftitahiyya (preludio)
+[04:51] 04.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[01:37] 05.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[09:05] 06.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[03:50] 07.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[07:33] 08.  III: al-Imara, Danza Sufн o Hadra (Extasis o Trance)
+[02:37] 09.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y Hamdan
+[26:45] 10.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y HamdanЖанр: world ethnic musicПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90095AC8E47FBC0622DC79432D2E8A2A0E850318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367329   (535408) от 24.07.2011
+
+VA - France: Accordeonistes en Aubrac (1999) [MP3|320 kbps]<Folk, France accordeon>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Perrier & Didier Pauvert - Los pastres
+02. Cyprien Dominge - Lo moridon cotet
+03. Didier Pauvert - L'echo des montagnes
+04. Cyprien Dominge - Lo Valentinou
+05. Jean Vaissade & M. Bernard - Ma petite bouree
+06. Louis Pruniere - Mazurka des familles
+07. Cyprien Dominge - Le rossignol
+08. Jean Perrier - Lo crosado
+09. Jean Perrier - Amount sus la montanha
+10. Marcel Pelat - Lа-bas le long de la riviere(   Читать дальше...)Жанр: Folk, France accordeonПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B03B6216B72B07E1FCE64DECD7B377960987EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154766   (535186) от 02.08.2017
+
+Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Walk The Line
+02. Folsom Prison Blues
+03. Cry! Cry! Cry!
+04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926078   (535158) от 09.08.2015
+
+Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Talk About It (feat. King Mez & Justus)
+03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
+04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312181   (534387) от 03.07.2019
+
+Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track 1 (02:15)
+02. Theme from Child's Play (04:25)
+03. Birth of Chucky (02:41)
+04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819506   (533682) от 07.09.2014
 
 V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
@@ -603,180 +789,6 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312331   (530821) от 05.07.2019
-
-Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doll Opening (00:49)
-02. cemetery pulls (01:16)
-03. it's the Doll (02:23)
-04. Doll container (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312205   (530816) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312200   (530814) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051996   (530789) от 12.09.2016
-
-Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Waltz [00:06:07]
-02. Once Upon a Time [00:04:35]
-03. Say You Love Me [00:04:25]
-04. Chance Encounter [00:04:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312325   (530727) от 05.07.2019
-
-Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From Home Suite Home (08:28)
-02. It's Perfect (00:31)
-03. World's Worst Water Feature (07:31)
-04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312712   (530719) от 05.07.2019
-
-Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Of Change (3:14)
-02. Careless Whisper (3:09)
-03. Honesty (3:46)
-04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

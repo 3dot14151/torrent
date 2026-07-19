@@ -1,3 +1,29 @@
+###  Публикация: 1621013   (245121) от 23.03.2023
+
+Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.5 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245121.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F5CECED102410E0A6F5F600935F2CBABF68DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609068   (245095) от 02.02.2023
 
 PrivaZer Pro 4.0.63 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -646,32 +672,6 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A2EB8DC741DFF69A3DA5430FB8E3512FDA7819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621931   (244915) от 26.03.2023
-
-MAGIX Sound Forge Pro 17.0.0 Build 81 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244915.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D552A7816A9F78EC7ED39F079DAE2FA9ADD5505
 ```
 
 https://mybot314.ru/tekegram_catalog/

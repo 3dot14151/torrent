@@ -1,116 +1,3 @@
-###  Публикация: 956204   (331142) от 13.11.2015
-
-Tommy Flanagan - Jazz Poet (1989) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Raincheck [05:01]
- 02.Lament [05:10]
- 03.Willow Weep For Me [06:05]
- 04.Caravan [06:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5200CEA8B2E34EBCAECCFB2B423AE2DFD6B9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260336   (330692) от 20.11.2010
-
-Billie Holiday - Collection (5 альбомов) (1956 - 2002)[FLAC, APE|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956249   (330392) от 14.11.2015
-
-Alex Pangman - New (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fit As A Fiddle (3:39)
-02. I'll Never Smile Again (3:05)
-03. It's Never Enough (3:34)
-04. Rhythm Is Our Business (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D361A85CD2E5DEAAD7E1FD1177B50FE8F05DF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956417   (330391) от 14.11.2015
-
-Ronnie Mathews Trio - Selena's Dance (1988) 2015, Timeless Records[FLAC|tracks+.cue]<Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Sentimental Mood [10:05]
- 02.My Funny Valentine [06:29]
- 03.Stella By Starlight [05:24]
- 04.Selena's Dance [06:51](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E85A240CD3EEC6F2FCBA37AAB34E8980C849FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956541   (330390) от 14.11.2015
 
 Shorty Rogers and His Giants - Jazz Waltz (1962) 2013, Warner[FLAC|tracks+.cue]<West Coast Jazz, Cool>
@@ -744,6 +631,120 @@ Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47844F7D524F0DEBCFE392863165E59F4C9DE619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581984   (325587) от 07.10.2022
+
+The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morena [4:38]
+02. Boogaloo to You [3:54]
+03. The Unsaid [8:19]
+04. Hercules [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860471   (325370) от 07.10.2022
+
+Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 - 1981) 2000, EMI[APE|Lossless]<Jazz, Swing, Chamber Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [02:17]
+02. Soon [03:46]
+03. Summertime [04:22]
+04. Nice Work If You Can Get It [02:29](   Читать дальше...   )Жанр: Jazz, Swing, Chamber MusicПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714602166E241B5BA02C489AA216DB848F99E71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262508   (325234) от 26.11.2010
+
+Kenny G - Greatest Hits (2CD) (2009) [APE|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, Smooth JazzПродолжительность: 01:19:24; 01:19:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958577   (324040) от 21.11.2015
+
+Shelli LaTorre - Full Circle (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Little It Matters (How Little We Know)
+02. Retrato em Branco e Preto
+03. New Coat of Paint
+04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:07
+Издатель (лейбл): Shelli LaTorre
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BF23699C4DAC1436C96875FB128CBB484BC816
 ```
 
 https://mybot314.ru/tekegram_catalog/

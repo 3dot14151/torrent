@@ -1,3 +1,148 @@
+###  Публикация: 963284   (288949) от 07.12.2015
+
+Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holiday>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Wonderland (Feat.Rick Astley) (2:47)
+02. Hope (3:56)
+03. One (3:30)
+04. Have Yourself a Merry Little Christmas (3:14)(   Читать дальше...   )Жанр: Pop, HolidayПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1EBD79D85380CBA2947B9D295510D7DD4CB854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263376   (287807) от 19.11.2018
+
+VA - BRAVO The Hits 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynoro & Gigi D'Agostino - In My Mind (3:03)
+02. Calvin Harris & Dua Lipa - One Kiss (3:33)
+03. Rudimental feat. Jess Glynne, Macklemore & Dan Caplen - These Days (3:31)
+04. DJ Snake feat. Selena Gomez, Ozuna & Cardi B - Taki Taki (3:32)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 02:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5069137C11219A31AD5161562B0C83FE3558E41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335340   (287544) от 02.11.2019
+
+Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell [04:08]
+02. Mariners Apartment Complex [04:07]
+03. Venice bitch [09:37]
+04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963387   (287443) от 08.12.2015
+
+Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Ya Gettin Down (Live) (3:12)
+02. Keep On Movin' (Live) (4:01)
+03. Don't Wanna Let You Go (Live) (2:55)
+04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335379   (287358) от 02.11.2019
+
+Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287358.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. The Sign (3:11)
+2. All That She Wants (3:32)
+3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263731   (286303) от 20.11.2018
 
 SX - Eros (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -595,151 +740,6 @@ Patricia Kaas - Scene De Vie (1990) [FLAC|tracks+.cue]<Jazz, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E35AAF52270AA484C5291E554AE71694B5DFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264343   (281083) от 23.11.2018
-
-Rita Ora - Phoenix (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rita Ora – Anywhere (03:35)
-02. Rita Ora – Let You Love Me (03:11)
-03. Rita Ora – New Look (02:34)
-04. Avicii – Lonely Together (feat. Rita Ora) (03:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3371C10BB100C00B27B296D5B4B29EBD28E8158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336480   (279057) от 07.11.2019
-
-Simply Red - Blue Eyed Soul (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking Of You (03:12)
-02. Sweet Child (03:18)
-03. Complete Love (03:28)
-04. Take A Good Look (03:19)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D99AFCDBE5D6D59F958DFC51F77FA87B40C37E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082392   (278886) от 12.12.2016
-
-Supermax - Terminal 2002 (2001) [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuckoo-Nation (5:00)
- 02. Voodoo Asses (4:47)
- 03. Vision (5:30)
- 04. Push Me Up (6:01)(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187579   (278596) от 29.11.2017
-
-Albano & Romina Power - Золотая коллекция Радио 7 DISCO 80 (2005) [APE|Lossless|image + .cue] <Pop, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicita (03:16)
-02. Ci Sara (03:28)
-03. Magic Oh Magic (03:37)
-04. Anche Tu (03:28)(   Читать дальше...   )Жанр: Pop, Italo DiscoПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED1905C8D9D2EDD0EBD3628CFFDE5E78BFA4E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264864   (277707) от 25.11.2018
-
-Eros Ramazzotti - Vita Ce N'e (2018) Universal Music Group [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Per Il Resto Tutto Bene (3:26)
- 02/15. Vita Ce N’é (3:12)
- 03/15. Vale Per Sempre | Feat. Alessia Cara (3:25)
- 04/15. Siamo (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4938E7CAC76E3C6F215D1E5DFDBD51C4715AA877
 ```
 
 https://mybot314.ru/tekegram_catalog/

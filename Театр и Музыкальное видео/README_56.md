@@ -1,32 +1,3 @@
-###  Публикация: 1026368   (703689) от 15.06.2016
-
-The Alan Parsons Symphonic Project - Live In Colombia '2013 (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт THE ALAN PARSONS SYMPHONIC PROJECT, состоявшийся 31 августа 2013 года в Колумбии.01. I Robot
-02. Damned If I Do
-03. Don’t Answer Me
-04. Breakdown(   Читать дальше...   )Производство: earMUSICЖанр: Progressive RockРежиссер: earMUSICАктеры: Alan Parsons & bandПеревод: ОтсутствуетПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F24404F57F046B7AA84DF2398D78AF4061D9A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401603   (703392) от 13.08.2020
 
 Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2020) WEBRip [H.264/1080p]
@@ -717,6 +688,34 @@ Brian Setzer - Brian Setzer's Rockabilly Riot! Osaka Rocka! Live In Japan (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45008C6D85F64077202D40E768B1992642C806C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896407   (693780) от 09.05.2015
+
+Праздничный концерт на Поклонной горе (08.05.2015) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693780.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 мая в 20:00 на НТВ – трансляция праздничного концерта на Поклонной горе, который станет итогом масштабных совместных акций НТВ и «Авторадио»: «Песни военных лет» и «Письма с фронта». Известные артисты исполнят самые любимые и популярные песни военных лет.
+
+Полную версию концерта зрители смогут увидеть в эфире НТВ 9 мая в 23:50.Производство: НТВЖанр: КонцертПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC4105D106306F961FCD239596F493F963CC21F
 ```
 
 https://mybot314.ru/tekegram_catalog/

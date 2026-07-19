@@ -1,3 +1,119 @@
+###  Публикация: 1294832   (624121) от 10.04.2019
+
+Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <Alt. Metal, Industrial Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Systematic Chaos	(03:30)
+02.	Sonic Bionic	(04:08)
+03.	Electro-Mechanical	(04:23)
+04.	Cellophane Nation	(04:01)(   Читать дальше...   )Жанр: Alt. Metal, Industrial Rock, Female VocalПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2672FD1B74CF9FCFE8958EF4F5E75E91788EA6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036079   (622827) от 19.07.2016
+
+Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Learn In School
+2. Gone With The Wind
+3. Respect
+4. Balloon(   Читать дальше...   )Жанр: Punk Rock, IndieПродолжительность: 0:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E922A404323BE6543EF31765699F58163441A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910252   (621783) от 20.06.2015
+
+Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, Indie Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn To Dust (3:08)
+02. Bros (3:45)
+03. Your Loves Whore (4:57)
+04. You're A Germ (2:53)(   Читать дальше...   )Жанр: Rock, Alternative, Indie Rock, Adult Alternative, Post GrungeПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9846F5CAD302EABBFDDB78779BBE1E91882EE542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295228   (620769) от 12.04.2019
+
+Priests - The Seduction of Kansas (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus’ Son (4:00)
+02. The Seduction Of Kansas (3:35)
+03. Youtube Sartre (4:07)
+04. I'm Clean (3:58)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6631794A391B8B618461F277810F74E7401EEE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145568   (619832) от 26.06.2017
 
 Hollerado - Born Yesterday (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -628,122 +744,6 @@ Haim - Something to Tell You (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock,  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C7040A4B85046AB19F57CC356EEB31DDDDAF15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298409   (601916) от 27.04.2019
-
-Band of Skulls - Love Is All You Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnivorous
-02. That's My Trouble
-03. Love Is All You Love
-04. Not the Kind of Nothing I Know(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Pop RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2509F2B45A00C91CCD02695FAFB4654AFE66C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298933   (601637) от 29.04.2019
-
-Steve Mason - About the Light (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Trip-Hop,Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America Is Your Boyfriend (03:42)
-02. Rocket (04:58)
-03. No Clue (03:10)
-04. About The Light (04:26)(   Читать дальше...   )Жанр: Indie Rock, Trip-Hop,DowntempoПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905521F0AAACBB1F2DB85A8F8F140A25A513B097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298956   (601632) от 29.04.2019
-
-Du Blonde - Lung Bread for Daddy (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Coffee Machine (03:22)
-02.Take Out Chicken (02:09)
-03.Peach Meat (04:04)
-04.Holiday Resort (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8022220989266180AE4068EF95411D86E103242D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298798   (601611) от 29.04.2019
-
-King Gizzard And The Lizard Wizard - Fishing for Fishies (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fishing for Fishies (05:01)
-02. Boogieman Sam (04:41)
-03. The Bird Song (04:24)
-04. Plastic Boogie (03:03)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5A9D1CFA8C6A7FF084CEBADD2493DDA5833A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

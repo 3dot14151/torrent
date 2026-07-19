@@ -1,3 +1,90 @@
+###  Публикация: 1461242   (1022075) от 08.04.2021
+
+VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitsou - Rock 'N' Roll Is Back Again (4:16)
+02. Heather Parisi - Disco Bambina (5:14)
+03. La Flavour - Mandolay (5:29)
+04. Rinder & Lewis - Willie And The Hand Jive (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461202   (1021998) от 08.04.2021
+
+VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - It's Over (5:03)
+02. Bellatrix - Vector (5:37)
+03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
+04. DJ Con-T - Space Adventure (Vanello Remix) (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461313   (1021953) от 09.04.2021
+
+Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blind (Long Version) (3:57)
+02. Return to Neon (Alternate Ending) (4:37)
+03. King Without a Crown (6:12)
+04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461409   (1021943) от 09.04.2021
 
 Various Artists - Supermix - [El Primer Megamix... Ilustrado] Cap. #1 (2019) [WavPack|Lossless|image + .cue] <Italo-Disco>
@@ -658,93 +745,6 @@ VA - Ultimate NRG Party (2004) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Hi-N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1BFECF8D3C579DB17E7460BDDAF5DD36BDBD7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470935   (1015412) от 18.05.2021
-
-Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin [00:03:41]
-02. Daddy Cool [00:03:28]
-03. Rasputin [00:03:06]
-04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471201   (1015296) от 19.05.2021
-
-AlimkhanOV A. - Right Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Time (Album Version) (5:24)
-02. Eyes Of Delight (Album Version) (5:55)
-03. Lonely (Album Version) (6:05)
-04. Hot Nights In The City (Album Version) (7:00)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831EB4ED7D483ECA994A5E333E3E7BCDC960891E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472482   (1014359) от 25.05.2021
-
-TQ - Out Of The Shadows - The Album (2014) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi NRG, Synth-pop, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TQ feat. Linda Jo Rizzo - Out Of The Shadows (4:46)
-02. TQ - Let The Night Remain Forever (4:17)
-03. TQ - Let's Go To Tokyo (4:18)
-04. TQ feat. Trans-X - My Fascination (3:35)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-pop, EurodanceПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949A2F08EC2410944D2BDD314CE19D609D3081F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

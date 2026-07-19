@@ -1,179 +1,3 @@
-###  Публикация: 1114744   (829871) от 16.03.2017
-
-Jillzay - Open Season (2017) EP [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829871.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом году группа из Павлодара Jillzay, идейным лидером которой выступает Скриптонит, выпустила мощный микстейп «718 Jungle». Новый EP – это своего рода продолжение, в треклисте которого по-прежнему нет места посторонним.
-
-Если понравился прошлогодний релиз, непременно послушайте и «Open Season». @ rap.ru1. Не пропаганда (ft. Six-O)
-2. Мечта (ft. Truwer)
-3. Расскажи им, где ты всё это взял (ft. Banz, Niman, Скриптонит)
-4. Бар «2 лесбухи» (ft. Magg ’98, Cheenah, Benz, Скриптонит, 104, Truwer, Kolyaolya)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AA37FAD37033ECD69393A4FB1D57C543005E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380964   (829296) от 05.05.2020
-
-Guf & Murovei - Дом, который построил Алик (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [01:14]
-02. На ветер [03:20]
-03. Яблоко Адама (feat. DEEMARS) [03:40]
-04. Ураган (feat. V $ X V PRiNCE) [04:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3548213DD76599AFC7BDCF44D2B856DB2BBCF20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006698   (826895) от 12.04.2016
-
-Сомали в Снегу (Dino MC 47) - ГРИМУАР (2016) [MP3|~245 кб/с (V0)] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Чистосердечное
-02 - Сомали в Снегу
-03 - Радиоактивный пепел
-04 - Зрелище без хлеба(   Читать дальше...   )Жанр: RapПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929242F3A78630AA01BDCCBD227AF553E0A650D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007515   (821070) от 15.04.2016
-
-Сява - На битах (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НаБитах (Интро)
-02. Катит
-03. Ненавижу Измену
-04. Телефон Пи Дидди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117348   (818551) от 22.03.2017
-
-ATL - Лимб (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Священный рейв
-02. Шаман
-03. В унисон
-04. Майк(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B1CA74B56458403A08B22704C88E2E9BDD5BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197867   (811772) от 09.01.2018
-
-L'One - Концерт с симфоническим оркестром (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (Live)
-02 - Дорога feat. Jasmine (Live)
-03 - Буду молодым (Live)
-04 - Мой путь, Ракета (Live)(   Читать дальше...   )Жанр: RapПродолжительность: 01:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227F1A74D2037CD03555A3CDB78E4F94FA3836AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383727   (810244) от 16.05.2020
 
 NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -747,6 +571,180 @@ Loc-Dog - Счастье в простом (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81784306FC438182F92F4EC3654EC790E48E8582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511211   (789314) от 20.11.2021
+
+Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Потерян [02:54]
+02. Помолчи [02:57]
+03. Рахманинов [02:56]
+04. Плач гитары [03:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420190CAF7ED2EB3935779ADFB71BABBDE0A9D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511207   (789311) от 20.11.2021
+
+ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цитрус [03:00]
+02. Лимб [03:47]
+03. Карантин (feat. СД) [02:40]
+04. Насквозь [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDDB4DB85C237FEC95D5508A3FF0D0CBF9BDAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511214   (789310) от 20.11.2021
+
+SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO [02:03]
+02. FLOWJOB [01:58]
+03. МИКРОЗАЙМ [03:28]
+04. МНОГА ТРОЕК [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436FEA215CD80968C05B7015B6EBE6A0A0B46827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511206   (789309) от 20.11.2021
+
+Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Картина мира [02:49]
+02. Голгофа [03:51]
+03. Монархия 2.0 [03:05]
+04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511200   (789304) от 20.11.2021
+
+VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звони Эмилю (prod. by shawtyglock, Roks, Waves B) [03:05]
+02. Исповедь (feat. TVETH) (prod. by GloryKeyz., fonkyfake) [03:24]
+03. Что он за демон (prod. by GloryKeyz.) [02:22]
+04. Вампирский щит (prod. by GloryKeyz., kaguya, enoughsleep) [02:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A45968A8E0B4812B8D34F7B6B5D70AE51811D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511209   (789301) от 20.11.2021
+
+Паша Техник - 264.1 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ногти (prod. by fd vadim) [02:50]
+02. Я е**л в рот (prod. by fd vadim) [03:00]
+03. Суперсила (prod. by low pulse) [03:03]
+04. Тварь (prod. by fd vadim) [02:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57400C94D6F7A44BFBF147358FB18CCF9C5BD52D
 ```
 
 https://mybot314.ru/tekegram_catalog/

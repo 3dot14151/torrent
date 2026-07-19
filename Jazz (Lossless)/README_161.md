@@ -1,119 +1,3 @@
-###  Публикация: 1240534   (524473) от 12.08.2018
-
-Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away
-02. Sail
-03. I Can Only Imagine
-04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559425   (524417) от 25.06.2022
-
-Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Crucible for Crisis [12:08]
-02. The Struggle Is in Your Name [8:59]
-03. Affective Affinities [8:05](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4878F9015F8FC0579792FF32730A4DFBA1DF2B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927739   (524130) от 14.08.2015
-
-The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Nancy [13:18]
-02. Elaborations [04:24]
-03. Midnite Train [03:44]
-04. Freedom Swing Song [04:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E3E1E7BF9CA113885EF4B965888B6BD4246736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927829   (524129) от 14.08.2015
-
-George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1960) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's A Plenty [07:12]
-02. I Ain't Got Nobody [07:25]
-03. September In The Rain [04:05]
-04. Undecided [07:49](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83806BF94F8F5C6108E04862ACF64A8EC633485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927731   (524128) от 14.08.2015
 
 Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Jazz, Jazz-Funk>
@@ -746,6 +630,122 @@ Joan Chamorro & Andrea Motis - Feeling Good (2012) [FLAC|tracks+.cue]<Vocal Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FF9EB044B9AA4A95FE9EA3567F296AC417CBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313847   (522358) от 11.07.2019
+
+John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie Roundabout [8:23]
+02. Labor Day [5:31]
+03. Time Window [8:43]
+04. Parts Unknown [5:31](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7EDC345AD80657B218956EA9DC41F95D7575E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241094   (522202) от 15.08.2018
+
+Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Schroon [5:14]
+02. Metro [10:36]
+03. Parc La Fontaine Blues and Greens [9:38]
+04. Aylmer [8:19](   Читать дальше...   )Жанр: Post-Bop, Trumpet JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2714366E1BB3656A93025976D2B6EB051B9716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313842   (522174) от 11.07.2019
+
+Tommy Dorsey And His Orchestra Featuring Jimmy Dorsey - Three Classic Albums Plus (1954 - 1956) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522174.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nevada [3:28]
+02. Yesterdays [3:16]
+03. It's Started All Over Again [3:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6435E7D842C824493E85B419FA6365D386759D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928811   (521796) от 17.08.2015
+
+Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade For a Wealthy Widow [02:42]
+02. Bob's Gallery [22:52]
+03. Morribreuk [03:31]
+04. Jazz II (from 'Thanks, your Majesty') [08:10](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772124C257BE89AEB7FED6B1D2558E14EFA9C47F
 ```
 
 https://mybot314.ru/tekegram_catalog/

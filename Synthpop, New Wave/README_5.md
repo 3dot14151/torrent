@@ -1,32 +1,3 @@
-###  Публикация: 1293413   (635657) от 04.04.2019
-
-Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arpology (4:19)
-02. Tierra Del Fuego (4:33)
-03. No Escape (6:09)
-04. Realism (4:13)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293402   (635506) от 04.04.2019
 
 Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
@@ -746,6 +717,37 @@ The Midnight - Endless Summer (2016) [MP3|320 Kbps] <Electronic, Synthpop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C1E0C57A4DC91FD6E7944DF516ED523A1A41B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041138   (584331) от 07.08.2016
+
+Tears For Fears - 7 Album (1983-2006) [MP3|320 Kbps] <Electronic, Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская синти-поп-рок группа, созданная в 1981 году Куртом Смитом и Роландом Орзабалом.
+После трех платиновых альбомов и синглов, дуэт начинает распадаться в 1991 году. Орзабал под названием группы, выпускает  сольные альбомы  'Elemental' (1993) и 'Raoul and the Kings of Spain' (1995), в то время как Смит переехал в США и начал свою сольную карьеру.
+В 2000 году (   Читать дальше...   )Список альбомов:
+1983 - The Hurting
+1985 - Songs From The Big Chair
+1989 - The Seeds Of Love(   Читать дальше...   )Жанр: Electronic, Synth-pop, Pop Rock, New WaveПродолжительность: 05:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF448115D57D45D0EA428DDD37FA1CA4A0E3C5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

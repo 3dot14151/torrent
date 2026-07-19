@@ -1,3 +1,29 @@
+###  Публикация: 599429   (999271) от 06.01.2013
+
+Фотография - Фотограф Руслан Лобанов
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Руслан ЛобановРазрешение файлов: ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAF615A80A97952EB32B6DF2885519083AFEE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598979   (999261) от 06.01.2013
 
 [mp4 640x272] Семь психопатов / Seven Psychopaths (2012) DVDRip
@@ -703,32 +729,6 @@ CD 1. Будь, что будетЖанр: Easy Listening, WaltzesПродолж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F09C6A71D76BD1C4C227B4AD9D36B4C4D8F79164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599676   (999117) от 07.01.2013
-
-Фотография - Photos from Paolo Candian
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Paolo Candian.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB5174027A8F829E5C18AF78872BC7699878332
 ```
 
 https://mybot314.ru/tekegram_catalog/

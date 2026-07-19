@@ -1,119 +1,3 @@
-###  Публикация: 1519714   (147456) от 25.12.2021
-
-Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Second Time You Meet That Matters [2:19]
-02. New Fangled Tango [2:18]
-03. What Can I Say, After I Say I'm Sorry [2:19]
-04. Love and Marriage [2:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78FD560239AA1144C8B14394F687330FA8EFF92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678125   (147397) от 20.11.2023
-
-VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - You Are The Best Thing (4:18)
-02. Papik - Wave (3:15)
-03. Papik - Sweet Love (3:37)
-04. Soulstance - Je Sto Vicino A te (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519711   (147134) от 25.12.2021
-
-Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Music Goes 'Round And Around [3:24]
-02. (If I Had) Rhythm In My Nursery Rhymes [2:44]
-03. Lovely Lady [3:10]
-04. Weary [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087174   (147114) от 27.12.2016
-
-Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thou Swell [04:51]
- 02.I Wished On The Moon [04:17]
- 03.Knee Deep [04:03]
- 04.Fond Memories [04:22](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087345   (147109) от 27.12.2016
 
 Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3E13999A302CF3AAB1F969BF6117B05F33D4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087661   (145263) от 28.12.2016
+
+Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145263.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Worktime:
+01.There's No Business Like Show Business [06:21]
+02.Paradox [05:01]
+03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272381   (144838) от 27.12.2018
+
+Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144838.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Romeo's Gone Now [6:30]
+02. Over the Rainbow [11:09]
+03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272384   (144790) от 27.12.2018
+
+Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ultra [4:38]
+02. Blues from 'An American in Paris' [4:10]
+03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435471   (144737) от 28.12.2020
+
+Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E lucevan le stelle [3:52]
+02. Tosca: Extraits du 1er Acte [5:14]
+03. Tosca: Extraits du 3eme Acte [5:40]
+04. Tosca: Improvisation sur le 3eme Acte [4:48](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00288127ECC5564D8F3D4B0C02F1F7CAB95A11D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

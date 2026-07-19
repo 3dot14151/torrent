@@ -1,183 +1,3 @@
-###  Публикация: 1653037   (192663) от 03.09.2023
-
-Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192663.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-1 I Believe
-DVD-2 Only Time Will Tell
-DVD-3 Holy War
-DVD-4 Never Again(   Читать дальше...   )Производство: Frontiers Records – FR CDVD 580, ItalyЖанр: Pop Rock, Prog RockРежиссер: Bernhard BaranАктеры: Asia: Steve Howe, Carl Palmer, Geoffrey Downes, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5932C622218B41B7A633D93AE0BCC0BDDDE9CEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653108   (192586) от 03.09.2023
-
-Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency Ballroom)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192586.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-1 Introduction
-DVD-2 Only Time Will Tell
-DVD-3 Wildest Dreams
-DVD-4 Face On The Bridge(   Читать дальше...   )Производство: Frontiers Music SRL – FR CDVD 694, ItalyЖанр: Pop Rock, Prog RockРежиссер: Paul BillingsАктеры: Geoffrey Downes, Steve Hove, Carl Palmer, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361310   (159684) от 23.12.2022
-
-Воскресение - Не торопясь. Live (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеозапись «живой» версии альбома «Не торопясь» с концерта, состоявшегося 5 марта 2003 года в УСЗ «Дружба». Видеозапись позволит Вам погрузиться в «живую» атмосферу концерта этой легендарной группы. Группа «Воскресение» как появилась в конце 70-х, так сразу и заимела привычку воскресать. Первый же альбом «79» сделал ее известной по всему Союзу, было отыграно множество (   Читать дальше...   )01. Все сначала
-02. Посмотри, как я живу
-03. Сотворю тебе мир
-04. Ветер (дыхание доброго неба)(   Читать дальше...   )Жанр: Blues, RockРежиссер: ООО «Продюсерский центр Игоря Матвиенко»Актеры: Алексей Романов, Андрей Сапунов, Евгений Маргулис, Михаил ШевяковПродолжительность: 01:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588186   (156501) от 13.12.2012
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156501.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )1. One Vision
-2. Tie Your Mother Down
-3. In The Lap Of The Gods... Revisited
-4. Seven Seas Of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, СШАЖанр: RockСубтитры: English, Français, Deutsch, Español, Portugês, ItalianoФормат: DVD videoПродолжительность: 01:31:15 + 00:26:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270620   (155442) от 20.12.2018
-
-Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступлений французско-бельгийского коллектива Franck Carducci Band, состоявшихся 20-21.11.2015 в зале Climax Club Legend, Riotord, Auvergne, (Франция).Не слишком известная группа (в наших местах) исполняет добротный "олд-скульный" прогрессивный рок. Как отмечал лидер коллектива Franck Carducci, сильное влияние на его музыку оказало творчество (   Читать дальше...   )01. Torn Apart
-02. Closer to Irreversible
-03. Artificial Paradises
-04. Mr. Hyde & Dr. Jekyll(   Читать дальше...   )Производство: Franck CarducciЖанр: Crossover prog / art-rockРежиссер: Greg BonnierАктеры: Franck Carducci & BandСубтитры: отсутствуютПродолжительность: 01:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACECF52AEF06CF9461E7444B8CE61271FBF3910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588839   (148897) от 15.12.2012
-
-Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живое выступление Erik Truffaz 4tet
-на джазовом фестивале в  Montreaux 11.07.2011 Miles Davis Hall !1. The Secret Of The Dead Sea
-2. Miss Kaba
-3. In Between
-4. Mechanic Cosmetic
-5. Fujin
-6. BC One feat. Sly Johnson
-7. Dirge Feat. Sophie Hunger
-8. Let Me Go! Feat. Sophie Hunger
-9. Lost In Bogota Feat. Sly JohnsonЖанр: Contemporary JazzРежиссер: Blue NoteАктеры: Erik Truffaz QuartetПеревод: ОтсутствуетПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589446   (148001) от 15.12.2012
 
 Porcupine Tree - Octane Twisted (2012) DVD5
@@ -756,6 +576,186 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
  08. Orjan Nilsen – Between The Rays (Armind)
  09. Setrise vs Johann Stone – Icesave (Original Mix)
  10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475623   (85395) от 30.03.2012
+
+Пикник - 30 световых лет (2012 ) DVD9
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант на ходулях, и Кукла с человеческим лицом, и Танцующий шаман. Не обошлось и без эксклюзивных инструментов, таких как Живая виолончель (в песне «Глаза (   Читать дальше...   )Жанр: RockФормат: DVD VideoПродолжительность: 02:14:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473432   (84515) от 26.03.2012
+
+Iron Maiden - En Vivo! (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84515.jpg" />
+</div>
+
+
+###  Подробнее
+
+EMI 26 марта выпускают новый концертный релиз IRON MAIDEN, "En Vivo!", который будет доступен на Blu-Ray, 2-DVD и 2-CD. Его съемки состоялись на выступлении 10 апреля в Сантьяго перед 50 000 поклонниками, которое проходило в части "Round The World In 66 Days" из "The Final Frontier World Tour", достойно запечатлев как небывалый энтузиазм и самоотдачу чилийских поклонников, так и отразив всю суть IRON MAIDEN образца 2011 года.
+Концерт снимался на 22 HD-камеры и октокам (летающая камера над толпой перед сценой), записан в стерео и 5.1-формате, сведение которого осуществил Kevin "Caveman" Shirley, каждый из них только подчеркивает невероятную атмосферу выступления. Особым моментом релиза станет возможность близкого наблюдения за каждым музыкантом на разделенном экране, а сет-лист плавно варьируется от классических произведений до номеров с последнего альбома.Жанр: Heavy MetalПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472504   (84295) от 25.03.2012
+
+Angel Voices. Libera in Concert(2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы постоянно слушаем музыку, но мы даже не задумывались о том, что есть церковный хор, который как показалось на первый взгляд не отличается от остальных. Но, что мы видим это не просто кучка подростков поющих церковные песнопения, это группа детей профессионально занимающихся музыкой и вокалом. Они дают понять нам, что музыка это не просто слова и мелодия, а это отголоски нашей души. Ив каждой новой песне мы слышим их по разному. Libera — это то к чему стремится каждый 2-ой человек планеты — спокойствие и душевный покой.
+
+Этот концерт дает понять нам, что все к чему мы стремимся это покой и мир в наших сердцах.
+Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАктеры: Jonathan Barrington, Tiarnan Branson, Oliver Cole, Tom Cole, Liam Connery, Ben Crawley, Tom Cully, Edward Day, Steven Geraghty, Michael Horncastle, Michael Horncastle, Alexander Leggett, Sam Leggett, Zack Lockett, Joshua Madine, Conor O'Donnell, Callum Payne, Fiona Pears, Benedict Philipp, Robert Prizeman, Joseph Snelling, Michael Vereycken, Jakob WoodПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 0:55:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471867   (83746) от 22.03.2012
+
+Monsters of Metal Vol.8 (2012) 2хDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83746.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1
+01 Nightwish — Storytime
+02 Deathstars — Metal
+03 Pain — The Great Pretender
+04 Amorphis — You I Need
+05 Opeth — The Devils Orchard
+06 Lacuna Coil — Within Me
+07 Therion — Kali Yuga Part 3: Autumn Of The Aeons
+08 Leaves Eyes — Take The Devil In Me
+09 Tristania — Year Of The Rat(   Читать дальше...   )Жанр: Heavy / Power /Gothic /Symphonic / Death and more MetalПродолжительность: 03:05:40+03:08:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471786   (83711) от 22.03.2012
+
+Протоиерей Олег Скобля. Московский концерт / Протоиерей Олег Скобля. Московский концерт (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снег
+2. Клинопись
+3. Нательные крестики
+4. Блудный сын
+5. Ангел хранитель
+6. Господи. Слава Тебе
+7. Господи, Тебе пою
+8. Поиграй в любовь
+9. Небесный ЧеловекЖанр: Православная авторская песняРежиссер: Чирсков АлексейПеревод: ОригинальныйПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470204   (83095) от 19.03.2012
+
+Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria
+02. Silent Night
+03. When A Child Is Born
+04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
 
 ## Скачать торент
 ```bash

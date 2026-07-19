@@ -1,119 +1,3 @@
-###  Публикация: 1313847   (522358) от 11.07.2019
-
-John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie Roundabout [8:23]
-02. Labor Day [5:31]
-03. Time Window [8:43]
-04. Parts Unknown [5:31](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7EDC345AD80657B218956EA9DC41F95D7575E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241094   (522202) от 15.08.2018
-
-Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, Trumpet Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Schroon [5:14]
-02. Metro [10:36]
-03. Parc La Fontaine Blues and Greens [9:38]
-04. Aylmer [8:19](   Читать дальше...   )Жанр: Post-Bop, Trumpet JazzПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2714366E1BB3656A93025976D2B6EB051B9716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313842   (522174) от 11.07.2019
-
-Tommy Dorsey And His Orchestra Featuring Jimmy Dorsey - Three Classic Albums Plus (1954 - 1956) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522174.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nevada [3:28]
-02. Yesterdays [3:16]
-03. It's Started All Over Again [3:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6435E7D842C824493E85B419FA6365D386759D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928811   (521796) от 17.08.2015
-
-Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade For a Wealthy Widow [02:42]
-02. Bob's Gallery [22:52]
-03. Morribreuk [03:31]
-04. Jazz II (from 'Thanks, your Majesty') [08:10](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772124C257BE89AEB7FED6B1D2558E14EFA9C47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928720   (521707) от 17.08.2015
 
 Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Hard Bop, Piano Jazz>
@@ -753,6 +637,122 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5F7B7261B5615EDE8D125F9D179DB2A5324269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929609   (518524) от 20.08.2015
+
+Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As I Live [05:39]
+02. Love Come Back To Me [06:11]
+03. St. Louis Blues [11:25]
+04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929613   (518523) от 20.08.2015
+
+Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vino, Oh Vino! [05:51]
+02. Serenade To A Planet [07:52]
+03. Expectation [06:46]
+04. H&T Blues [06:06](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C0A3A2997A96BA1904BC9BB55282E679F6EDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929676   (518519) от 20.08.2015
+
+Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recuerdo [05:35]
+02. Big Foot [04:26]
+03. I Had The Craziest Dream [06:24]
+04. Solar [04:20](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B581992A7ED29353C9B4931FA5D056D697C33EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929474   (518512) от 20.08.2015
+
+Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unexpected
+02. Black And White Thinking
+03. Remember The Love
+04. Blue Light(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
 ```
 
 https://mybot314.ru/tekegram_catalog/

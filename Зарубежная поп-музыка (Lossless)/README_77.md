@@ -1,3 +1,148 @@
+###  Публикация: 965484   (226242) от 14.12.2015
+
+Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affirmation (4:56)
+02. Hold Me (4:50)
+03. I Knew I Loved You (4:10)
+04. The Best Thing (4:19)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965134   (226104) от 14.12.2015
+
+Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Of Me (2008 Version) [03:25]
+02. Sexy Girl (2008 Version) [03:30]
+03. Funky Girl (2008 Version) [03:50]
+04. My Chico (2008 Version) [04:09](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735C9C2C44E98CA2E5AEC85342EBC2A2F6B947E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342079   (225984) от 01.12.2019
+
+Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa claus is coming to town (2:17)
+02. Have yourself a merry little Christmas (3:14)
+03. Jingle bells (2:32)
+04. Everybody  loves somebody sometime (3:01)(   Читать дальше...   )Жанр: Acapella, Pop, FolkПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818BD7AD47B28A706FE36B7F8B109DAC2A3D7F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965510   (225964) от 14.12.2015
+
+Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .cue] <Electro, Euro House, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scream If You Wanna Go Faster (3:38)
+02. Shake Your Bootie Cutie (4:04)
+03. Calling (4:23)
+04. Feels Like Sex (3:24)(   Читать дальше...   )Жанр: Electro, Euro House, BalladПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C019E2FDD7A05CF7217880D144C69D092918B21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342343   (225952) от 01.12.2019
+
+Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Christian Men Rejoice-Here We Come A-Wassailing-I Believe in (2:43)
+02. Rockin' Around the Christmas Tree-Mary Had a Baby-Jingle Bell (4:45)
+03. The Twelve Days of Christmas (3:57)
+04. Hark! Herald Angels Sing-O Come All Ye Faithful; Once in Royal David's (4:39)(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587074   (225888) от 09.12.2012
 
 V.A. - Суперхиты дискотеки 90-х - Золотые баллады (2011) [FLAC|Lossless]<Pop>
@@ -604,151 +749,6 @@ Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084240   (220778) от 18.12.2016
-
-Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fading Shades (Part I) (1:03)
- 02. Nights In White Satin (3:36)
- 03. Son Of A Time Machine (5:07)
- 04. Won't Run Away (4:17)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425668   (220446) от 21.11.2020
-
-Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Show Me How To Love You
-02. Nella Fantasia
-03. There For Me
-04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966191   (220392) от 17.12.2015
-
-Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad (4:08)
-02. The Way You Make Me Feel (4:58)
-03. Speed Demon (3:59)
-04. Liberian Girl (3:55)(   Читать дальше...   )Жанр: Pop Rock, Ballad, DiscoПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585696   (220252) от 23.10.2022
-
-Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender My Heart
-02. Joshua Tree
-03. Talking to Yourself
-04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651807   (220209) от 08.08.2023
-
-Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One By One (3:37)
-02. I Watch My City Sleep (3:14)
-03. Mega-Millionare (4:26)
-04. You Are The Only One (3:32)(   Читать дальше...   )Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
 ```
 
 https://mybot314.ru/tekegram_catalog/

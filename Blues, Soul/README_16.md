@@ -1,3 +1,61 @@
+###  Публикация: 1143555   (635395) от 18.06.2017
+
+Get The Cat - Four (2016) [MP3|320 Kbps] <Blues, RnB, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Pocket Full of Change  (04:25) 
+02. I've Seen It All on TV  (03:43) 
+03. Nothing to Worry  (03:47) 
+04. Blinded by Love  (04:59) (   Читать дальше...   )Жанр: Blues, RnB, AmericanaПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D14F71F51DAEC04142F92FE410B706D99DC430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143414   (635256) от 18.06.2017
+
+Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Too Late  (03:42) 
+02. Running Away  (04:12) 
+03. Men on a Mission  (04:26) 
+04. Nothing Wrong  (08:33) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034578   (634317) от 13.07.2016
 
 Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
@@ -711,72 +769,6 @@ CD4 - New York & East Coast States 1943-1953 Rub a Little BoogieЖанр: Blues�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0DBDFDDCC2338B2187C7E4246ED71D446D4548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521940   (625155) от 12.07.2012
-
-VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD [MP3|320 кб/с]<Blues, West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC Douglas - Mercury Blues (2:27)
-02. Sidney Maiden - Eclipse Of The Sun (2:34)
-03. Little Son Willis - Bad Luck And Trouble (2:42)
-04. Little Son Willis - Operator Blues (3:29)
-05. Black Diamond - T P Railer (2:42)
-06. Black Diamond - Lonesome Blues (2:27)
-07. Sonny Boy Johnson - Dessert Blues (2:56)
-08. Sonny Boy Johnson - Come And Go With Me (2:49)
-09. Willie B Huff - Beggar Man Blues (3:00)
-10. Willie B Huff - I've Been Thinkin And Thinkin (3:06)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 02:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6987C871C7E0E964A8C3772AF018253143AABC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521950   (625149) от 12.07.2012
-
-VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-CD1 - Blow Wind Blow
-CD2 - Big World
-CD3 - Tough Times
-CD4 - Korea BluesЖанр: Blues, Chicago BluesПродолжительность: 04:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB057B0D2ED384D62E1FEEAE84975CAA816F7600
 ```
 
 https://mybot314.ru/tekegram_catalog/

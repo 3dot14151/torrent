@@ -1,32 +1,3 @@
-###  Публикация: 1274476   (793058) от 07.01.2019
-
-Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory (05:06)
-02. R O Y G B I V (04:31)
-03. Dot (05:00)
-04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274566   (793056) от 07.01.2019
 
 Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
@@ -742,6 +713,35 @@ Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896C520FBC8598D1C700B35EBD70B726DB283C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206655   (781740) от 15.02.2018
+
+VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telefon Tel Aviv - Something Akin to Lust (6:37)
+02. Deru - The Roar and the Dust (3:45)
+03. Before Tigers - Backwards Rituals (5:55)
+04. Rafael Anton Irisarri - Certainty (5:43)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4C06B0C6E552B303E9757D3C6D080C977E905F
 ```
 
 https://mybot314.ru/tekegram_catalog/

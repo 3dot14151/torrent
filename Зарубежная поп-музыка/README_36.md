@@ -1,3 +1,33 @@
+###  Публикация: 1036732   (619094) от 21.07.2016
+
+Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в Западной Германии дуэт, который состоял из британцев Брюса Хаммонда  и Дугласа Уилгроува.
+Наиболее известен по своей песне 1986 гола «Geil» (англ.), которая в Германии мгновенно стала хитом, проведя 4 недели на 1 месте. Немецкое слово «geil» в данном контексте имеет значение «крутой» или «классный» (на молодёжном (   Читать дальше...   )01. Intro (0:30)
+02. Geil (Edited Mix) (5:37)
+03. Monkey Dance (4:22)
+04. Fussganger (5:00)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523147   (618850) от 15.07.2012
 
 Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
@@ -737,35 +767,6 @@ Christina Aguilera - Liberation (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296390   (611851) от 17.04.2019
-
-VA - Ballermann Schlagersommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611851.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Frenzy Blitz - Wir sind wir (Mallorcastyle)
-02. Tobee - Cordula Grün
-03. Honk! - Joana(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4168B7CE63FA53D31E5FD16401348BDC92695C
 ```
 
 https://mybot314.ru/tekegram_catalog/

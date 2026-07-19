@@ -1,3 +1,235 @@
+###  Публикация: 978731   (962612) от 24.01.2016
+
+VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manos Hadjidakis - The Waltz of Lost Dreams
+02. Vasilis Saleas - The Honeymoon Song
+03. Vasilis Saleas - Prelude
+04. Yanni - Carol's Theme(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978854   (962525) от 24.01.2016
+
+VA - Chillhouse Winter Beats (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salvatore Stallone - Silvia's Element
+2. White Beach (Crystal Blue Sea mix) - Best Of Chillout Lounge
+3. Erdinc Erdogdu - Enjoy The Silence
+4. I Live My Life (Beach Lounge Session) - Pearls Of Ibiza(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1EF17A18DE30977BD7399BC924D21E5F2A77CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979006   (961159) от 25.01.2016
+
+VA - I Love House Music 2016: The Finest and Deep House Music Collection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ajad Samskara - Wine and Chocolate
+02. Andy Conan - XxSex
+03. Stefano Lot - Black Mamba
+04. Denny Lee - Tango and Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0C086E1C6B4401BC35D15B5E8D06F9CFEF315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979225   (961057) от 25.01.2016
+
+VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961057.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimitri Vegas & Like Mike Feat. Ne-Yo - Higher Place (Afrojack Instrumental Remix) [05:58]
+002. Toby Green - Move [02:32]
+003. Twenty Feet Down Feat. Krista Richards - Love Right Here (Omr & Adry Remix) [05:33]
+004. Gabriele Giudici - Revolve [04:22](   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 10:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD1C35E9F86F09CC919000B713118A84524D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979575   (959963) от 26.01.2016
+
+VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell & Armin van Buuren - Off the Hook (Radio Edit)
+002. Kollektiv Turmstrasse - Sorry I Am Late
+003. Sander Van Doorn & Sunnery James & Ryan Marciano - ABC (Extended Mix)
+004. Technasia, Green Velvet - Suga(   Читать дальше...   )Жанр: Tech, Deep, Progressive HouseПродолжительность: 09:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979297   (959962) от 26.01.2016
+
+VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7 Baltic - Gold Rusch (David Gate Remix)
+002. Hi Profile - Archangel
+003. Memory Loss - Fugue State (Original Mix)
+004. Artisan, Linnea Schossow - You & I (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979378   (959959) от 26.01.2016
+
+VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Moore - In the Sunshine - Original Mix
+02. Scott Navarro - Tell Me Why - Original Mix
+03. Nigel Scott - Disco Salsa - Original Mix
+04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979918   (957459) от 28.01.2016
+
+VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957459.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Waas Van Siem - Cold Sun
+002. Blue Dolphin - Dreams
+003. Black Pulsar - Searching 4 Love
+004. ViDs - Passion Spills (DJ Brush vs Darren Tech Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 11:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980133   (957411) от 28.01.2016
 
 VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
@@ -525,238 +757,6 @@ VA - Creative Music Box 9 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6CAF5D20B88E3455EEAFB1227DD4E7CD2DA0526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981093   (953068) от 31.01.2016
-
-VA - House Lounge (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastixs - Muzik - Boeton Remix
-02. Stradivarius - Chill 2
-03. Michael Ruland - Spectre - Club Mix
-04. Joseph Christopher - Blue Rain - Classic Extended Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 03:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58528E465CBE0C5B58817A9B032F0AC53C5E3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981220   (952965) от 31.01.2016
-
-VA - Trance Traveling 73 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix) (06:15)
-02. Headstrong feat. Stine Grove - Love Until It Hurts (Aurosonic Progressive Mix) (06:01)
-03. Luke Bond vs CARTEL - Once More (Extended Mix) (05:40)
-04. DRYM - Generation (Extended Mix) (03:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48913438916C4B51CB385C368C7E8E1A440B012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981441   (952879) от 31.01.2016
-
-VA - Music For The Soul Vol. 1 - 4 (2016) [MP3|256-320 кб/с] <New Age, Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1
-
-01 Chris Spheeris - Culture
-02 Frederic Delarue - Flying over the Canyons(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 15:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922C379A0FE8E8655532950A7DB4DF70EF9711D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089305   (951945) от 03.01.2017
-
-VA - Noire Flawless Deep House (2017) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juan M - Lost Beach 6:53
-002. Jaques Le Noir - Mabui 5:23
-003. Jack Jonaz - Every Morning 6:22
-004. Roberta Gato - Wipe Down 4:41(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5BE36F71C4536D16439F388F9AE4635E15ABC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089357   (951932) от 03.01.2017
-
-VA - Empire Records - Chill Out 7 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aatlas - Make Love (Lovejet & Bonnie Rabson Remix)
-02. Alex Dee Gladenko - Attraction (Original Mix)
-03. Paul Rays - Moon (Ciro Parcheri & Vincenzo Lanzara Remix)
-04. J. Lisk Feat. Jessi D - Champagne(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99D06CC7B3D0556D5E733EC39727D8E9FE0AFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089369   (951928) от 03.01.2017
-
-VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Thammer - First - Chill Mix
-02. Eli Escobar - Can't Stop Dancing (feat. Nomi Ruiz)
-03. Danny O - Destiny (feat. Mira)
-04. Bernd Filz - Sungarden(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089302   (951924) от 03.01.2017
-
-VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mazelo Nostra - Boogie Nights 5:03
-002. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) 8:10
-003. The Boogeyman - All Music To Me (Original Mix) 8:32
-004. Drone In Ibiza - Back In That Days - Original Mix 6:09(   Читать дальше...   )Жанр: Nu Disco, Funky House, ElectroПродолжительность: 11:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981482   (951739) от 01.02.2016
-
-VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronogramm - Plexus
-02. Sixteenth Pulse - Crossing Thoughts
-03. Christian Hornbostel - Elective Affinities
-04. Self Explanatory - Voice Recognition(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF1EF57BCF229672BF1CB4FCD44B1135A56F433
 ```
 
 https://mybot314.ru/tekegram_catalog/

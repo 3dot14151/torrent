@@ -1,119 +1,3 @@
-###  Публикация: 1152782   (563746) от 24.07.2017
-
-Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563746.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bag's Groove [04:47]
-02. Memory Of Dick [05:38]
-03. Milestones [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D9573E3676D0F2F347BCD525DC94956EA94E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152777   (563745) от 24.07.2017
-
-Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonder Why [05:26]
-02. My Funny Valentine [04:41]
-03. Moonray [05:06]
-04. The Nearness Of You [04:05](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769C291230E3431E80BD358400F82ED0C2541F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152548   (563742) от 24.07.2017
-
-Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Future Jazz, Leftfield>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumbler (feat. Mara von Ferne) (4:35)
-02. Break Loose (feat. Mara von Ferne) (3:59)
-03. The Sphere (5:02)
-04. Mice in Kindergarten (5:41)(   Читать дальше...   )Жанр: Electronic, Future Jazz, LeftfieldПродолжительность: 00: 41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E0BCFEF4378DD27C2C7FAB78DB9B6569B58462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152679   (563635) от 24.07.2017
-
-Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Songs Without Words:
-01. Songs Without Words: I. Aria [07:04]
-02. Songs Without Words: II. Ballad [06:00]
-03. Songs Without Words: III. Tango [05:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 03:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2AD587E4DCFA8BF7C1A7AF98C112E2AA62F1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152858   (563620) от 24.07.2017
 
 Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -757,6 +641,122 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E05ECE9E8F4CE3A8F336FCF5978C0B6225EFF786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923772   (561045) от 02.08.2015
+
+OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non C'e Niente Da Lavare
+02. S'Ou Abbattadu
+03. Nochdenada
+04. Destiny Sneezed(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180B107583BC26D069E9B6133E90107A01A5D7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924052   (561044) от 02.08.2015
+
+Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Might As Well Be Spring [05:47]
+02. You Stepped Out Of A Dream [06:10]
+03. Softly As In A Morning Sunrise [03:11]
+04. Lover Man [04:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 00:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC284870256F1A523E1098C7546A7996715CDC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923899   (561043) от 02.08.2015
+
+Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolivia [10:11]
+02. Naima [08:39]
+03. 5/4 Thing [07:55]
+04. Bittersweet [06:55](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2DDD0A92FBEE665E71FD598BA2779CA3542E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364932   (560958) от 18.07.2011
+
+Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, Neoclassical, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кетил Бьорнстад (Ketil Bjørnstad) уже в течении 30 лет работает в импровизационной музыке. Получив классическое музыкальное образование (в Осло, Лондоне и Париже), Бьорнстад в 1969 году стал солистом Филармонического оркестра Осло. Однако, познакомившись с альбомом Майлса Дэвиса (Miles Davis) In A Silent Way, пианист обратил свои музыкальные устремления в сторону (   Читать дальше...   )Список альбомов:
+1990 - The Shadow
+1993 - Water Stories
+1995 - The Sea (with David Darling, Terje Rypdal, Jon Christensen)(   Читать дальше...   )Жанр: Contemporary Jazz, Neoclassical, PianoПродолжительность: 22:26:21
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

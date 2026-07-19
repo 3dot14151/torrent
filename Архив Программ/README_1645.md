@@ -1,3 +1,29 @@
+###  Публикация: 1341703   (228797) от 29.11.2019
+
+Icecream Video Editor 1.48 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Video Editor - простая и бесплатная программа для монтажа видео, которая позволит редактировать видео и создавать новые ролики из фото и видео за несколько минут. Обрезайте видео, добавляйте визуальные переходы и музыкальное сопровождение, титры и видео эффекты. Можно также вращать, ускорять, "размывать" видео и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D76734EE0943CFCD5F5E5F94CEFCFD6525A1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268110   (228793) от 09.12.2018
 
 Change MAC Address 3.3.1 Build 129 Portable by PortableAppC [Multi/Ru]
@@ -644,32 +670,6 @@ R-Studio - лучшее на сегодняшний день программн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0280477424D1F63E2F6CE3624E42C09C174D7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583536   (228494) от 15.10.2022
-
-EZ CD Audio Converter 10.2.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228494.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08D4969ECD3AE859B7FF97D6F03547C9BD11E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

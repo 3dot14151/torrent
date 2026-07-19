@@ -1,3 +1,32 @@
+###  Публикация: 1598077   (161263) от 21.12.2022
+
+Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Among Us
+02. Breathe
+03. Calling (Feat Sophie Barker)
+04. Desert Sun(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967290   (158600) от 20.12.2015
 
 VA - 100 Super Enigmatic (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
@@ -722,35 +751,6 @@ Green Sun - Compilation (2024) [MP3|320 Kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1E66C9B890BAA47AF0D27E88B3FB74F981D8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823054   (121486) от 10.10.2025
-
-Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Костёр
- 02 - Ночной Город
- 03 - На Струнах Души
- 04 - Лёгкая Волна Моря(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA6691EA0566133FFEA076596362B1B61AF9758
 ```
 
 https://mybot314.ru/tekegram_catalog/

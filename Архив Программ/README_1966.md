@@ -1,3 +1,29 @@
+###  Публикация: 968823   (150979) от 25.12.2015
+
+CoolUtils Total PDF Converter 5.1.89 Portable by PortableAppC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0054EE83B9157DC6F4162C90A1B137F2C15B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968658   (150963) от 25.12.2015
 
 Aiseesoft Video Converter Ultimate 9.0.16 [Multi/Ru]
@@ -648,32 +674,6 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63BDA8B4B8A747ED6EBF65D011514508BF7460B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677363   (150616) от 17.11.2023
-
-Audacity 3.4.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390D7AD7B595227683681AE867E38C2DCCB23F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

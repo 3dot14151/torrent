@@ -1,3 +1,32 @@
+###  Публикация: 1519023   (151118) от 22.12.2021
+
+VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - 24K Magic (3:45)
+02. Starship - Nothing's Gonna Stop Us Now (4:30)
+03. Cher - Dancing Queen (3:42)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37147A51A7F38BEA4DEA0439D5AAECFB50D14943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518895   (150853) от 22.12.2021
 
 VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
@@ -713,35 +742,6 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678238   (145978) от 21.11.2023
-
-VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Capital Sound feat. Rocko T. Bello - Feel The Rhythm
-02.  Unknown - Follow Me
-03.  D.F.S. - Me Lay Lo
-04.  Nadia - Live On Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
 ```
 
 https://mybot314.ru/tekegram_catalog/

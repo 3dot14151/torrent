@@ -1,3 +1,198 @@
+###  Публикация: 379558   (502423) от 25.08.2011
+
+VA - The Rough Guide To Bellydance (2002) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502423.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:38] 01. Jalilah feat. Ihsan Almounzer - Tahia's Dance
+[01:41] 02. Reda Darwish - Marhaba
+[03:06] 03. Ahmad Fouad Hasan - Dimashq
+[12:02] 04. Fadl, Mahmoud - Aament Bellah
+[05:29] 05. Jalilah feat, Mokhtar Al Saïd - Enta Omri
+[05:37] 06. Setrak Sarkissian - Ala Jsrel Low Ziyyi
+[04:37] 07. Mohamed Matar - Adawar
+[03:56] 08. Omar Faruk Tekbilek - Laz
+[06:21] 09. Kemanî Cemal Çinarli - Kirkpinar Çiftetellisi
+[01:52] 10. Jalilah feat. Mokhtar Al Saïd - Rakiya's Tabla(   Читать дальше...   )2002Жанр: world, ethnicПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379468   (502348) от 25.08.2011
+
+VA - The Rough Guide To The Music Of Cumbia (2000) [FLAC|Lossless] <world, latin, cumbia>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502348.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:21] 01. Alberto Pacheco - Cumbia Cienaguera
+[03:07] 02. Romulo Caicedo - La Luna Y El Pescador
+[03:02] 03. Henry Castro - Cumbia De Colombia
+[02:36] 04. Lucho Bermudez Y Su Orquesta - Colombia Tierra Querida
+[03:01] 05. Tamara - Maria Candela
+[03:08] 06. Leonor González Mina - Yo Me Llamo Cumbia
+[03:22] 07. Alfredo Gutierrez Y Sus Estrellas - La Banda Borracha
+[02:52] 08. Chico Cervantes - Fiesta En Corraleja
+[02:18] 09. Corraleja 71 - La Pollera Colora
+[02:49] 10. Romulo Caicedo - Guepa Je(   Читать дальше...   )2000,Жанр: world, latin, cumbiaПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379190   (502344) от 25.08.2011
+
+VA - The Rough Guide To The Music Of Hawaii (2007) [FLAC|Lossless] <hawaii ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502344.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:57] 01. Gabby Pahinui - Ku'u Pua Lei Mokihana
+[03:40] 02. Sonny Chillingworth - Moana Chimes Pa'ahana
+[03:11] 03. Sol Hoopii - I Like You
+[02:47] 04. Alfred Aholo Apaka - Na Moku Eha
+[05:13] 05. Genoa Keawe - Alika
+[02:44] 06. Lena Machado - Ku'u Wa Li'ili'i
+[04:19] 07. Dennis Kamakahi - Ulili' E
+[02:36] 08. The Gabby Pahinui Hawaiian Band - I'm Livin on a Easy
+[02:41] 09. Sol K Bright Hollywaiians - Tomi Tomi
+[02:30] 10. Sam Ku West - St. Louis Blues(   Читать дальше...   )2007,Жанр: hawaii ethnicПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379559   (502338) от 25.08.2011
+
+VA - The Rough Guide To Bollywood gold (2007) [FLAC|Lossless] <folk, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502338.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:43] 01. Jolly Mukherjee & Sridevi - Chandni O Meri Chandni
+[04:20] 02. Kishore Kumar - Zindagi Ek Safar Hai Suhana
+[03:28] 03. Rahul Dev Burman - Mehbooba Mehbooba
+[05:42] 04. Asha Bhosle - In Aankhon Ki Masti
+[06:42] 05. Asha Bhosle & Mohd. Rafi - Aaja Aaja Main Hoon Pyar Tera
+[04:53] 06. Kishore Kumar & Lata Mangeshkar - Tere Chehre Se Nazar Nahin
+[03:31] 07. Mohd. Rafi - Chahe Mujhe Koi Junglee Kahen
+[03:06] 08. Mukesh - Awaara Hoon
+[01:19] 09. Nagin - Theme Instrumental
+[07:07] 10. Lata Mangeshkar & Shailendra Singh - Chabi Kho Jaye(   Читать дальше...   )2007Жанр: folk, ethnicПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379841   (502072) от 25.08.2011
+
+Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pan Flute>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гео́рге Замфи́р (рум. Gheorghe Zamfir,01. Only Love 			(05:04)
+02. Elvira Madigan 		(05:15)
+03. Themanuel 			(04:31)
+04. Cent Mille Chansons 	(04:50)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379933   (501945) от 25.08.2011
+
+Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317259   (501384) от 31.07.2019
 
 David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
@@ -625,207 +820,6 @@ VA - The Rough Guide To Irish Music II (2005) [FLAC|Lossless] <world, celtic, ir
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540755   (498149) от 03.09.2012
-
-Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Ropes, Ribbons And A Ball
-02. Far Behind The Skies
-03. Fly Away
-04. Shiva's Dance
-05. White Flower, Blue Flower
-06. We'll Be With The Stars Tonight
-07. Brahmane's Prayer
-08. Miracle Of Love
-09. Take Me Higher
-10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542568   (498148) от 03.09.2012
-
-VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498148.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:37) 01. Chinmaya Dunster - Moonsong
-(8:00) 02. Terry Oldfield & Soraya - Om Shanti
-(5:23) 03. Cybertribe - Across The Magic Mountains
-(8:18) 04. Terry Oldfield - Earth And Sky
-(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
-(7:12) 06. Terry Oldfield - Aum
-(7:32) 07. Rasa - He Krishna
-(8:16) 08. Rasa - Jaya Radha
-(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
-(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541284   (498090) от 03.09.2012
-
-Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498090.jpg" />
-</div>
-
-
-###  Подробнее
-
-(9:48) 1. Root - Embodiment
-(9:21) 2. Sacral - Home of the Self
-(9:48) 3. Solar Plexus - Inner Sun
-(6:42) 4. Heart - Compassion
-(6:07) 5. Throath - Stillness
-(9:16) 6. Brow - Perception
-(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380943   (498067) от 29.08.2011
-
-Форсаж 5 Ремикс / Fast and Furious 5 Remix from AGR (2011) [MP3|320 kbps]<Dance>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Assembling the Team (Short)
-02. Chiddy Bang - Under the Sheets (Chiddy Bang) Ellie Goulding
-03. Don Omar Feat. Lucenzo - Danza Kuduro (Blood Dance Project Electro Remix)
-04. Don Omar Feat. Lucenzo - Danza Kuduro (CJ LeRoY Remix)
-05. Don Omar Feat. Lucenzo - Danza Kuduro (club)
-06. Don Omar Feat. Lucenzo - Danza Kuduro (Dance remix)
-07. Don Omar Feat. Lucenzo - Danza Kuduro (Dave Dee! vs. DJ Harddanzor Bootleg Mix)
-08. Don Omar Feat. Lucenzo - Danza Kuduro (Dfm edit)
-09. Don Omar Feat. Lucenzo - Danza Kuduro (Dj Amor Remix)
-10. Don Omar Feat. Lucenzo - Danza Kuduro (Dj DupiC Mix)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:50:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542373   (498048) от 03.09.2012
-
-Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. музыка к к-ф ''Ночные забавы'' (4:16)
- 2. музыка к к-ф ''Летние люди'' (1:48)
- 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
- 4. музыка к к-ф ''Воровка'' (1:13)
- 5. музыка к к-ф ''Летние люди'' (5:20)
- 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
- 7. музыка к к-ф ''Ночные забавы'' (2:56)
- 8. музыка к к-ф ''Воровка'' (2:06)
- 9. музыка к к-ф ''Русский регтайм'' (1:23)
- 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317935   (497678) от 04.08.2019
-
-Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful
-02. I Told You So
-03. Girl You Confuse My Mind
-04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 998443   (870271) от 19.03.2016
-
-Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLAC|Lossless|image + .cue] <Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonie Nr. 25 g-moll, KV 183: I. Allegro con brio (8:30)
-02. Symphonie Nr. 25 g-moll, KV 183: II. Andante (4:59)
-03. Symphonie Nr. 25 g-moll, KV 183: III. Menuetto (3:32)
-04. Symphonie Nr. 25 g-moll, KV 183: IV. Allegro (5:39)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0EDFB5F19452C155644D86876A94F56A0FF680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 145698   (870233) от 11.04.2020
 
 Александр Бородин - Опера "Князь Игорь" (1969) [MP3|192 kb/s]<Опера>
@@ -743,6 +714,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C58F980DDAB420F7E3A9FF5B3C0D3441622E002D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999685   (862179) от 23.03.2016
+
+Glenn Gould - The Sound of Glenn Gould (Bach, Mozart, Beethoven, Haydn, Brahms, Sibelius, Strauss) (2015) [FLAC 2.0|44.1/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Sebastian Bach (1685-1750)
+Aria with 30 Variations "Goldberg Variations" BWV 988
+01 - Aria
+02 - Variation 1 a 1 Clav.(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CE93B4AB4869D3F6A7F50B6A632BA0BD4030B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

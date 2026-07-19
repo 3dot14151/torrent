@@ -1,3 +1,32 @@
+###  Публикация: 875839   (855963) от 07.03.2015
+
+VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и второй диск из описанных мною ранее NRJ Hit. Вы сами можете убедиться - насколько они не похожи, а вместе составляют, пожалуй, 90% того, что сегодня крутиться на радиостанциях и показывается в клипах.CD1:
+01. David Guetta Feat. Emeli Sandu - What I Did For Love  (3:25)
+02. Christine And The Queens - Christine  (3:54)
+03. Soprano - Clown  (4:29)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221F9514A7A68C13E37D2E34DABDFA5C84E35264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875609   (855842) от 07.03.2015
 
 VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
@@ -720,35 +749,6 @@ Adriano Celentano - Grand Collection (2001) [MP3|320 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2452B14B5335C82780D9DE696E225BC924EEAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003821   (841865) от 04.04.2016
-
-Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Park
-02. Gravity
-03. Unseen
-04. Darker in the Morning(   Читать дальше...   )Жанр: 80's Retro Pop, SynthpopПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49247427E8ABDED75FA4AC57F630EC29F9ED50FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

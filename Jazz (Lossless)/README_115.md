@@ -1,119 +1,3 @@
-###  Публикация: 1030762   (672409) от 01.07.2016
-
-Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Lossless|tracks + .cue] <Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chiapas [08:30]
- 02.Theme From 'Love Story' [06:11]
- 03.The Peanut Vendor [09:01]
- 04.Rhapsody In Blue [07:14](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030775   (672405) от 01.07.2016
-
-Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Of Love [04:55]
-02. Paradise [04:49]
-03. The Only One [04:41]
-04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291134   (672231) от 23.03.2019
-
-Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Islands in Tranquility
-02. Sublime You
-03. So Divine
-04. Morning Mist(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792F70432F471B768874DCBB57BD1D77C189ED5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291064   (671926) от 23.03.2019
-
-VA - Smooth Jazz n Chill (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebron - Kiss And Tell
-02. Oli Silk - Get Out Claws
-03. Randy Scott - Kisses
-04. Jaared - Jamaican Winds(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3C43AE6C1D710B6860F925FB4557696A9220CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223851   (671650) от 06.05.2018
 
 Eleanor Dubinsky - Soft Spot Of My Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
@@ -745,6 +629,122 @@ Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E71D3006AFDB00F3160ABBFE13008364BD279D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137148   (669395) от 25.05.2017
+
+Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delete You (4:06)
+02. Ninja (3:27)
+03. She Knows (3:44)
+04. No Axe To Grind (3:02)(   Читать дальше...   )Жанр: Jazz, Pop, RnBПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291553   (668914) от 25.03.2019
+
+Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When [4:38]
+02. Lucky 13 [4:47]
+03. Suzanne [6:13]
+04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291557   (668912) от 25.03.2019
+
+The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walking Stomp [5:23]
+02. The Legendary Profile [6:45]
+03. Willow Weep for Me [7:38]
+04. The Cylinder [5:33](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE79A8C4BB84EFEF6B6288859057E0A2AED62D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291554   (668911) от 25.03.2019
+
+Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherokee [9:01]
+02. All the Things You Are [6:11]
+03. Lover Man [4:08]
+04. Special Club [3:37](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E188ECD5289FCDDFF9C14DD3CCAA7E064AB22D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

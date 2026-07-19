@@ -1,177 +1,3 @@
-###  Публикация: 1403731   (684172) от 23.08.2020
-
-Карандаш - Американщина III (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Косплей (Intro)
-2. КТО
-3. Голод
-4. Мечтать и любить (feat. ЛСП)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B836E521CEB487778FC2E42D9BE14BCDB486A866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291270   (682958) от 14.05.2015
-
-Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-Хоп>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Budz (Москва) - Деньги
-02. Переходный Возраст (С.-Петербург) - Темы Для Разговоров (Feat. DJ Птиц, Т-42 & La Cuuda)
-03. Злой Дух (Казань) - Ангел
-04. EK. Playaz (Екатеринбург) - Кома(   Читать дальше...   )Жанр: Рэп, Хип-ХопПродолжительность: 09:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD99D8BE8CE060D639CB647D37659B5EFA1A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290339   (680226) от 19.03.2019
-
-L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680226.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сакартвело
-2. К счастью
-3. Весь мир для нас
-4. Молодость (feat. Kawaii San)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5A34F9B0DE212DEEA0E118D9B2B5B812C97C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290439   (676317) от 21.03.2019
-
-Гарри Топор - Визморианские хроники (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зверь (2:50)
-02. Индиго (3:15)
-03. Безруков (2:55)
-04. Волчок (2:42)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E9B228F11813C25AAF166BE977DE12EDB7E5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224506   (664019) от 12.05.2018
-
-Артём Лоик - На поле в Курукшетре (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ключевая вода
-02. Меняем
-03. Бег
-04. Мысли вслух(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C7979F396164829FC0750A603A8A59813E4FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224524   (664002) от 12.05.2018
-
-Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снова в деле
-02. Мало огня (feat. Линда)
-03. Клоуны (feat. Нуки)
-04. Тёлки(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8147E1A39057E2BDA1B62B29111BE01289755F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224513   (664000) от 12.05.2018
 
 Дино (Триада) - Новый 3 (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
@@ -743,6 +569,178 @@ Noize MC - XV (2019) Live [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:073382ABC49D359C8E8A3A63C2AE006E9316190B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036581   (618624) от 21.07.2016
+
+Каспийский Груз - the ВесЪ (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. По лбу
+03. До вечера (feat. Гансэлло)
+04. Афганистан (feat. Xpert)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C64D0025E2483D6391BC4C6157EBBF75C498721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146801   (612463) от 30.06.2017
+
+Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Умшакалака (feat. Amigo)
+02. Райзап (feat. Amigo)
+03. Be My Sky (feat. Amigo)
+04. Отцу отсыпь (feat. Amigo)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E717B6D68D5A9E204D65DCF1E6BEEB331ACBB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546425   (605933) от 24.04.2022
+
+TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:02:04]
+02 - Как свинец [00:02:24]
+03 - OG [00:02:58]
+04 - Винтики [00:02:53](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A25F66B90EB52D772F8AAB7E199D23A38DB3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298360   (601665) от 28.04.2019
+
+25/17 - Вспомнить Всё. Часть 1. Чтиво (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2-5-1-7
+02. Вспомнить всё
+03. Всё так же на волне
+04. Голова, чтобы думать(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110F862B46B1FCDB066D211DCE574B346B56E9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551222   (590625) от 14.05.2022
+
+25/17 - Комнатный. Новоселье (2022) Акустика [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полёты (Акустика)
+2. Осень (Акустика)Жанр: Rap, Hip-HopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471260458BE65B3D02D42C915A94E48F14F7D517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917079   (589814) от 10.07.2015
+
+Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Музыка Мафия (feat. Смоки Мо)
+02. Баста - С Надеждой на Крылья (feat. Женя Мильковский ex. Нервы)
+03. АК-47 - Делай Добро
+04. Триагрутрика - Мою Машину Украшает Рэпак(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD70CC2DBB85DC8A0741555DFC6D64E5E6256D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

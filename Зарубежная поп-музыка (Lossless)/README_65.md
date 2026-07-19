@@ -1,3 +1,147 @@
+###  Публикация: 953418   (349431) от 04.11.2015
+
+Tom Jones - Tom Jones And Friends (2005) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Jones & Tina Turner - Hot Legs
+02. Tom Jones & Donny Osmond - Girl From New York City
+03. Tom Jones & Dusty Springfield - Upside Down
+04. Tom Jones & Rita Coolidge - Something 'Bout You Baby I Like(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403D2C73599F573A7C990DE34F5DBCD720714642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953390   (349429) от 04.11.2015
+
+Gerard Joling - Eye To Eye (1992) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Promises Of Love
+02.Can't Take My Eyes Off You
+03.Waiting For The Rain
+04.Love In The Wildest Places(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A0CF2A657A485E2D657DA51E9AD871BCC94BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329994   (347852) от 07.10.2019
+
+Луна - Транс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Золотые Лепестки (4:31)
+ 02. Лунные Гипнозы (3:35)
+ 03. Подружка (4:38)
+ 04. Сиреневый Рай (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A489337AFE8D2827E7059D8C6D31CC31C1FF159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257253   (347617) от 25.10.2018
+
+Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Time
+02. Little White Secrets
+03. I Wasn't The OneЖанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E823819A1740C8C99064B1CDABD646378CFB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073236   (347529) от 15.11.2016
+
+Pixie Geldof - I'm Yours (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ethereal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Thing
+02. I'm Yours
+03. So Strong
+04. Woman Go Wild(   Читать дальше...   )Жанр: Alternative Pop, EtherealПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073279   (347411) от 15.11.2016
 
 Michael Jackson - Off The Wall (1979) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -598,151 +742,6 @@ Dean Martin - Greatest Hits (2013) [FLAC|Lossless|tracks + .cue] <Vocal Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD56CF7C058C52DB034E350D2B885EF3B2576E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258896   (333029) от 01.11.2018
-
-Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetized (3:56)
- 02. Man With No Name (4:00)
- 03. The Road Not Taken (4:59)
- 04. You Belong To You (4:27)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597C7A1005188AB29BC10B4D76B4324CB9954161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667491   (332978) от 14.10.2019
-
-VA - The Best Pop Music Of The 20th Century: The Millenium Collection (1998) 20CD [FLAC|Lossless]<Pop, Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю Вашему вниманию интереснейший проект, выполненный голландской фирмой Disky Communications Europe в конце прошлого тысячелетия. Взяв по 40 композиций от каждого пятилетия (наши пятилетки не дают никому покоя), издатель постарался по-возможности полностью охватить весь спектр популярной музыки (не pop, а именно популярной из разных жанров). За исключением (   Читать дальше...   )Список альбомов:
-01. Millennium - 1950-1954 (2CD)
-02. Millennium - 1960-1964 (2CD)
-03. Millennium - 1965-1969 (2CD)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 25:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D509BD32446FF3719BA6B0C6C2B2B35BC4236DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420392   (332601) от 01.11.2020
-
-VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Let It Snow, Let It Snow, Let It Snow (Capitol Version / Remastered 1998) (02:01)
-02. Bing Crosby - White Christmas (1947 Version) (03:05)
-03. Ella Fitzgerald - Sleigh Ride (02:55)
-04. Jackson 5 - Santa Claus Is Coming To Town (02:24)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420206   (332435) от 01.11.2020
-
-Bonnie Tyler - The Ultimate Collection (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332435.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Total Eclipse Of The Heart
-02. Holding Out For A Hero
-03. Faster Than The Speed Of Night(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 03:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AADC518161972748C92F266E1A991891D1AD546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954700   (332336) от 12.11.2015
-
-Ricky Martin - Ricky Martin (1999) [FLAC|image + .cue]<Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Livin' La Vida Loca
-2. Spanish Eyes
-3. She's All I Ever Had
-4. Shake Your Bon-Bon(   Читать дальше...   )Жанр: Pop/LatinПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BB3E4A05B33719AAB71FC8C48CDFA92903DFD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

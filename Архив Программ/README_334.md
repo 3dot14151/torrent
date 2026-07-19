@@ -1,3 +1,29 @@
+###  Публикация: 995285   (886524) от 10.03.2016
+
+USDownloader 1.3.5.9 (10.03.2016) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C74609DF94B90E62960BD3272D5D7782B814BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995344   (886520) от 10.03.2016
 
 Mozilla Firefox 46.0 beta 1 (x86/x64) [Ru]
@@ -648,32 +674,6 @@ Adobe® Flash® Player - плагин для браузеров Internet Explore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7B89F18216B271075D40057A3660AE163CF3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494845   (885816) от 09.09.2021
-
-CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED6498AFED75739F0BC4DD8BC883138C0CDEFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

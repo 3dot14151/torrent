@@ -1,119 +1,3 @@
-###  Публикация: 1675478   (159908) от 10.11.2023
-
-Randy Crawford - Through The Eyes Of Love (1992) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Crying Now (4:33)
-02. It's Raining (5:09)
-03. When Love Is New (4:40)
-04. If I Were (In Your Shoes) (3:52)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5537F29F4E0E9B84E3D8383808C2FD8241CB188A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599402   (159874) от 23.12.2022
-
-Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh Start [7:19]
-02. Budelli Island [11:11]
-03. In These Hallways [7:34]
-04. Movement at the Coral Reef [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39072495B6EE5FDD6DBD3129AB214BEEBE99CFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599698   (159663) от 24.12.2022
-
-Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Come Eleven [2:48]
-02. Wholly Cats [3:05]
-03. Good Enough to Keep (Air Mail Special) (first version - alternate take) [2:57]
-04. Flying Home (alternate take) [3:17](   Читать дальше...   )Жанр: Swing, Bop, Guitar JazzПродолжительность: 00:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE52CE632A9AF6DAD5FD48DE39234B7A48948B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599405   (159662) от 24.12.2022
-
-Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Tho't You Ought to Know [2:55]
-02. It Only Happens Once [2:57]
-03. Black Market Stuff [2:46]
-04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599625   (159660) от 24.12.2022
 
 Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -744,6 +628,122 @@ Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCD40809EA2366AF2920D6833752D54046A1F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194272   (157923) от 24.12.2017
+
+Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persona [06:07]
+02. Don't Forget The Poet [04:58]
+03. Child Of The Real And Ideal [05:41]
+04. Coralie [05:40](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600452   (157853) от 27.12.2022
+
+Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Si tu savais [2:47]
+02. Eveline [2:16]
+03. Diminishing [3:18]
+04. Mike [2:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA50B69916341DF5DD0BE92F455E1357A697A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676426   (157728) от 13.11.2023
+
+Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Here [2:24]
+02. Salsa For Luisito [6:56]
+03. The Dirty Ground [4:50]
+04. New Muse [6:06](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333F54659EC55D7AD6B593CD790F74F1008BD03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433686   (157434) от 21.12.2020
+
+Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power to Spirit (07:11)
+02. Funktokomatik (04:26)
+03. Truth to Power (05:24)
+04. The Radiance of Pure Reality (05:36)(   Читать дальше...   )Жанр: Eclectic FusionПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

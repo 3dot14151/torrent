@@ -1,3 +1,177 @@
+###  Публикация: 1018615   (755677) от 20.05.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride [5:49]
+ 02. Eagle And Condor [4:52]
+ 03. Cool Breeze [6:59]
+ 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017963   (755591) от 20.05.2016
+
+VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Pop, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Shelton - Friends
+02. Demi Lovato - I Will Survive
+03. Matoma - Wonderful Life (Mi Oh My)
+04. Imagine Dragons - On Top of the World(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7B009A6B8A15A86123EA36FCE89EA022D6B644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395055   (755402) от 10.07.2020
+
+Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Earth [02:55]
+02. Planet of Life [03:30]
+03. Vast Landscape [02:50]
+04. Gift of Life [02:40](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E37D94F455E3F5FA04AEB60B3736E6E2BF72CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522131   (755290) от 09.01.2022
+
+Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haibe Ajike Amar Sakal
+02. Be Brave
+03. Dure Aji Bahu Dure
+04. My Silence Speaks(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395269   (755275) от 10.07.2020
+
+Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ennio Morricone - Morricone: Jill's Theme (2016 Version)
+02. Ennio Morricone - Gabriel's Oboe (From "The Mission")
+03. Ennio Morricone - Morricone: On Earth As It Is In Heaven (2016 Version)
+04. Ennio Morricone - Morricone: Chi Mai (2016 Version)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B487499C709E0864C859B1C0481F70DD59BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395059   (755191) от 10.07.2020
+
+Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyborg [03:05]
+02. Savior of the World [02:17]
+03. Firestorm [02:37]
+04. Xavier [02:49](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0528A4B33CB44D67AA7F825CB0306635A79FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663023   (754996) от 31.05.2013
 
 Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
@@ -571,180 +745,6 @@ VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E47E5F85C3BAE2D5362B2AD90EB7C05A8F8082A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217096   (744865) от 03.04.2018
-
-Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karmic Harmonic (3:09)
-02. Coming Home (3:29)
-03. Ambient Neon (3:39)
-04. Cool Waters (3:37)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE661458007C569EDD56E0C4BB87B0E9C48ACF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217053   (744450) от 03.04.2018
-
-Ennio Morricone - Conducts Morricone - His Greatest Hits (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movie Theme (From "Cinema Paradiso") [02:14]
-02. Love Theme (From "Cinema Paradiso") [03:12]
-03. Investigation of a Citizen Above Suspicion [03:00]
-04. Ricordare (From "A Pure Formality") [03:29](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026F6ABA9A8446B7D7C9F3CF548AEE0491F1929F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396935   (744147) от 17.07.2020
-
-Thierry David - Yoma (1996) [FLAC|Lossless|tracks + .cue] <Tribal, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yomasol (5:14)
-02. Kasubason (4:12)
-03. Nyimarev (5:39)
-04. Sanoftob (4:03)(   Читать дальше...   )Жанр: Tribal, New AgeПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1961C72F2014C8C9164D489028D191D5D792E522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396937   (744133) от 17.07.2020
-
-Thierry David - Ocean Rhapsody (2007) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves Of Bliss (9:34)
-02. Aquamarine (7:02)
-03. Ocean Rhapsody (6:53)
-04. Lost Atlantis (5:08)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15389AC87CF5EBE18F0707F3DED2D3F513A43C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396942   (744132) от 17.07.2020
-
-Thierry David - The Veil of Whispers (2011) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scene Through the Mist (3:08)
-02. L'Invitation Au Mystere (5:47)
-03. Attraction Beckons (6:14)
-04. Ecstasy (6:06)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEB17333F6C85D0E7BC48AA62A0DD5FFF3079A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396717   (744083) от 17.07.2020
-
-Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom's Alluring Call (5:05)
-02. Mesmerizing Spirals (5:33)
-03. Exploring Boundaries (5:50)
-04. Endless Corridors (6:24)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA65296B3F2B173BFBAFF7B00FA9A4FEE17BA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

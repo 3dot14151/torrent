@@ -1,32 +1,3 @@
-###  Публикация: 1333400   (305401) от 24.10.2019
-
-VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arwelone - Everlasting Journey (4:45)
-02. Richard Alfaro - Eon (3:24)
-03. Kameron - Furnace (3:56)
-04. Tune Crashers & Starblaster - Angel of Attack (3:53)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333370   (304948) от 24.10.2019
 
 VA - Future City Records Compilation Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
@@ -738,6 +709,35 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D845D57435C1E3556DD79786736D9FAA954157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337175   (276314) от 09.11.2019
+
+VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stilz - Undercover (2:52)
+02. Beckett - Play (3:57)
+03. Nina - Counting Stars (4:38)
+04. Dana Jean Phoenix feat. Tape Loader - Breathe in Outer Space (6:33)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

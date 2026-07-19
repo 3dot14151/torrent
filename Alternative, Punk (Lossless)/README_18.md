@@ -1,3 +1,119 @@
+###  Публикация: 1215746   (756491) от 27.03.2018
+
+Incubus - Morning View (2001) Epic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice to Know You (4:44)
+02. Circles (4:09)
+03. Wish You Were Here (3:35)
+04. Just a Phase (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD894C2B5F2157BA8C45186F1A72A544013FA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662144   (752461) от 01.06.2013
+
+Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alternative Rock, Synth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming (Minutes To Midnight Demo) (3:08)
+02. Points Of Authority (Demo) (3:05)
+03. Clarity (Minutes To Midnight Demo) (3:05)
+04. Asbestos (Minutes To Midnight Demo) (1:55)(   Читать дальше...   )Жанр: Alternative Rock, Synth RockПродолжительность: 19:43:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281431   (752083) от 08.02.2019
+
+Jessica Pratt - Quiet Signs (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Night (01:39)
+02. As the World Turns (03:11)
+03. Fare Thee Well (04:05)
+04. Here My Love (02:54)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB366881D4B4BC4D71ADB4C780B0158EB464401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281027   (752082) от 08.02.2019
+
+Nina Nesbitt - The Sun Will Come Up, The Seasons Will Change (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred (02:37)
+02. The Moments I'm Missing (03:47)
+03. The Best You Had (02:56)
+04. Colder (03:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337504E3FC40DDF7ECF7C692B2DB6003B3964D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281401   (751973) от 08.02.2019
 
 Mercury Rev - Bobbie Gentry's the Delta Sweete Revisited (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
@@ -627,122 +743,6 @@ The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CD3F6366D473F88F89392D4FF17142D094C5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526674   (738157) от 25.01.2022
-
-Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Said It Was Easy (2:10)
- 02. Shame On You (3:20)
- 03. Fade (4:27)
- 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527053   (737390) от 27.01.2022
-
-Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden Fiya (1:46)
- 02. Diamond (3:48)
- 03. Queen (2:26)
- 04. High Beams (feat. Nafets) (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527323   (736906) от 28.01.2022
-
-Alice Glass - PREY//IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Electropunk, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PREY (1:50)
- 02. PINNED BENEATH LIMBS (1:56)
- 03. LOVE IS VIOLENCE (2:38)
- 04. BABY TEETH (2:26)(   Читать дальше...   )Жанр: Electronic, Electropunk, ExperimentalПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752F80F85371CF605EA2AB832B21D01931A08F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399355   (733419) от 31.07.2020
-
-Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smiling (04:17)
-02. Ablaze (03:57)
-03. Reasons I Drink (03:36)
-04. Diagnosis (04:46)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
 ```
 
 https://mybot314.ru/tekegram_catalog/

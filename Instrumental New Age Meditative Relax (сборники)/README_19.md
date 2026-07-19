@@ -1,3 +1,32 @@
+###  Публикация: 1823054   (121486) от 10.10.2025
+
+Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Костёр
+ 02 - Ночной Город
+ 03 - На Струнах Души
+ 04 - Лёгкая Волна Моря(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA6691EA0566133FFEA076596362B1B61AF9758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700824   (116895) от 18.02.2024
 
 VA - Ambient Winter Feeling (2024) [MP3|320 Kbps] <Ambient, Relax, Meditation>
@@ -689,35 +718,6 @@ Chris Spheeris - Compilation (2024) [MP3|320 Kbps] <Instrumental, New Age, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F46B20A41293EDB310D16DCE80CF7E70EE2E714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726287   (54685) от 01.06.2024
-
-VA - The Mysterious music of the World vol.1 (2024) [MP3|320 Kbps] <Enigmatic, New Age, Electro>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Renga Weh - Solitude [06:56]
-002. Valdi Sabev - Endless Sky [04:12]
-003. Twins In Mind - Fallacy Of Faith [05:18]
-004. Flaer Smin - Catharsis [07:07](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 12:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AFED80A13CF89D156633431F2F484A0856FA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

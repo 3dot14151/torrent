@@ -1,3 +1,235 @@
+###  Публикация: 1029058   (684756) от 25.06.2016
+
+VA - Global Club Anthems Vol.5 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leventina -  Grenoble (Radio Mix) 3:00
+02. Jochen Miller -  Flashback (Gregori Klosman Remix) 5:46
+03. Oscar Sanchez -  Tromp 5:21
+04. Tony Romera -  Drakarta 5:15(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595472B37EF1D4D1AD4A2F0B0E09F8D17BC4070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134928   (684585) от 17.05.2017
+
+VA - Chill Melodic Dubstep (2017) [MP3|320 Kbps] <Dubstep, Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684585.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Govinda - Bright Star Ft.Laura Hahn 5:07
+002. Morillo - Jungle Patrol Ft. Pawz 3:41
+003. Drrtywulvz - Black Hole 4:20
+004. Filastine - Halcyon 4:04(   Читать дальше...   )Жанр: Dubstep, ChillstepПродолжительность: 05:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D2B1D6A4EAE823FB59C4B1CE09D1AF60F8C43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029164   (684537) от 25.06.2016
+
+VA - 85 Dance Summer Hits (2016) [MP3|254-320 кб/с] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Moss & Gandalf Bosch -  Wanted (Extended Version) 5:21
+02. Finger & Kadel -  Kalinka (Radio Edit) 3:20
+03. Ferry Sander feat. Eira G -  Stay 3:30
+04. Jorn Van Deynhoven -  We Can Fly (Extended Mix) 6:52(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0703641931CD79A43686C374136739A1512A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289565   (684458) от 17.03.2019
+
+VA - Electro House Without Framework (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684458.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gareth Emery - Call To Arms
+002. Dash Berlin Feat. Bo Bruce - Coming Home
+003. Luke Bond - Clockwork
+004. Super8 & Tab - Blockchain(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B7E16113226AAFD57CC34E99B22AC895F5C5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289570   (684331) от 17.03.2019
+
+VA - It's Spring Disco Party (2019) [MP3|320 Kbps] <Disco, Electro Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy P - Sos
+02. Dj Rocca - Channa Six
+03. Dr Packer - Power
+04. Hurlee - Paradise Disco(   Читать дальше...   )Жанр: Disco, Electro DiscoПродолжительность: 08:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09017221A1A594A69950084EA1BBC710AB161587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289640   (684328) от 17.03.2019
+
+VA - Record Super Chart 578 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  David Guetta - Better When You're Gone (feat. Brooks & Loote)
+03.  Ilkay Sencan - Do It
+04.  Going Deeper - Broken(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DEADFE029F4F7F101C533B5C3391EEA3B6B2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403988   (684275) от 23.08.2020
+
+VA - Candy Beach: Deep House Tropical Theme (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684275.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gruw Frequency - Another Day
+002. Giuseppe Gatti - Talk With Me
+003. Supertons - S Man
+004. Chrisoper Torres - Prodigious(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0C4FC452655DF8ABA303E8455E84F6302C8FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403992   (684274) от 23.08.2020
+
+VA - EDM Electro Vibe (2020) [MP3|320 Kbps] <EDM, Club, Dance, House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benn And Mervius - No Mercy
+002. Cale Jera - Feel The Force
+003. Harry Hard - Be Free
+004. Armin Van Buuren - Blah Blah Blah(   Читать дальше...   )Жанр: EDM, Club, Dance, House, TechnoПродолжительность: 10:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08D31C80CC21281C27A26397D6745C40D82EF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403977   (684167) от 23.08.2020
 
 VA - Beatport Funky House: Electro Sound Pack #150 (2020) [MP3|320 Kbps] <Funky, Disco House>
@@ -525,235 +757,6 @@ VA - Trance Hot June Paradise (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8339ABF974C2BAF03E6BAC56F984A2CC0C717047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290202   (680306) от 19.03.2019
-
-VA - YR Best Chillout Vol.43 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kittyangel - Wonder Original Mix Not On Label 5:71
-002. JES - Let Him Go (Original Mix) 3:31
-003. The Grand Lounge & Ladivax - The Lounge (Chillout Mix) 3:33
-004. Tara Minton - Do What You Do (Moonnight Remix) 4:00(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Lounge, ElectronicaПродолжительность: 07:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D32224842E088E11D9F036411E27988B7799FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135816   (679420) от 20.05.2017
-
-VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zeologic - Intelligence 6:43
-02.  Skyline - Waves 7:57
-03.  Psydog - Mushroom Recipe (141 BPM) 6:56
-04.  Vertigo Records - Wtich Technology (Remix) 7:49(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 05:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222915   (679302) от 02.05.2018
-
-VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шёлковый песок, тёплое море, шум волн накатывающихся на берег, крики чаек и приятное одиночество на морском пляже - всё это в новом сборнике релакс музыки под названием "The Real Silent Mode".001. Remundo - Soupire
-002. The Ghetto Project - The Ghetto (Alternative Mix)
-003. Enrico Donner - Through Your Eyes
-004. Don Coppens - Bizzy Trent (Original Chill Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A580EA3A2AA78E01F511A62E71C6A1B0D24028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135844   (678854) от 20.05.2017
-
-VA - Electronic Toys (A Retrospective Of 70's Synthesizer Music) (1996) CD [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник - электронные игрушки: ретроспектива 70-х Синтезаторной музыки. Ретро - подборка от Фреда Вайнберга электронной и синтезаторной музыки, звуковых эффектов, звучавших в старых британских сериалах для школ и колледжей, фильмах, рекламе на радио и т. д.01. Cecil Canterburn - Catching Game (2:01)
-02. Rex Brown Company - Round Up (0:45)
-03. Dave Vorhaus - The Diy Machine A (1:03)
-04. Dave Richmond - Movin' Along (1:56)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E30A4EEF42FC0FE1CC1FA6DA767367E055D977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029831   (678612) от 28.06.2016
-
-VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
-02. Digital Department -  Enzox 6:54
-03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
-04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029816   (678611) от 28.06.2016
-
-VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
-02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
-03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
-04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029544   (678608) от 28.06.2016
-
-VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laidback Luke - Bae (Feat. Gina Turner)Жанр: Club, HouseПродолжительность: 08:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029504   (678605) от 28.06.2016
-
-VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica, Tropical, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
-02. Dimaro - Summer (Original Mix) 04:22
-03. Djerem - Never Look Back (Dave202 Remix) 04:40
-04. Dim Sum - High Love (Original Mix) 03:56(   Читать дальше...   )Жанр: Electronic, Disco, ClubПродолжительность: 09:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

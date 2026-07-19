@@ -1,119 +1,3 @@
-###  Публикация: 1087035   (148816) от 26.12.2016
-
-Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Ow [13:00]
-02.There's A Small Hotel [13:10]
-03.Ballad Medley: Darn That Dream / Where Or When / In Love In Vain / Stardust [10:05](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD700C5494B8CBCA404694F3B871598D92BBF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086852   (148768) от 26.12.2016
-
-Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Imagine [04:28]
- 02.Herman's Helmet [04:36]
- 03.Changing With The Times [03:05]
- 04.Night Creature [03:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086790   (148761) от 26.12.2016
-
-The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Django [05:08]
- 02.Wait 'Till You See Her [02:19]
- 03.0500 Blues [03:50]
- 04.More Bass [02:33](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63830F6700AFD1AC4DC890C2C9ABB1F3323A5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087030   (148752) от 26.12.2016
-
-John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rehearsin' For A Nervous Breakdown [02:39]
- 02.Undecided [02:59]
- 03.It Feels Good [02:48]
- 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087085   (148746) от 26.12.2016
 
 The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -744,6 +628,122 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519714   (147456) от 25.12.2021
+
+Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Second Time You Meet That Matters [2:19]
+02. New Fangled Tango [2:18]
+03. What Can I Say, After I Say I'm Sorry [2:19]
+04. Love and Marriage [2:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78FD560239AA1144C8B14394F687330FA8EFF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678125   (147397) от 20.11.2023
+
+VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - You Are The Best Thing (4:18)
+02. Papik - Wave (3:15)
+03. Papik - Sweet Love (3:37)
+04. Soulstance - Je Sto Vicino A te (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519711   (147134) от 25.12.2021
+
+Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Music Goes 'Round And Around [3:24]
+02. (If I Had) Rhythm In My Nursery Rhymes [2:44]
+03. Lovely Lady [3:10]
+04. Weary [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087174   (147114) от 27.12.2016
+
+Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thou Swell [04:51]
+ 02.I Wished On The Moon [04:17]
+ 03.Knee Deep [04:03]
+ 04.Fond Memories [04:22](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

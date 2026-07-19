@@ -1,29 +1,3 @@
-###  Публикация: 1776629   (71086) от 05.02.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Electro - Free 3D Lettering - 32078 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница в виде начинки электроники. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776625   (71085) от 05.02.2025
 
 Растровый клипарт - Dealjumbo.com - Deeezy - Cable - Free 3D Lettering - 31204 [PNG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5153826C59DC24CEEF988CFCC0C2621721B54990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783250   (69831) от 05.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Free Deco Geometry - 3D Lettering - 16762 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6117DD34D74770DF6BD9183BD6B61447C9AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

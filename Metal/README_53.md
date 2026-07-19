@@ -1,3 +1,101 @@
+###  Публикация: 1231215   (608847) от 16.06.2018
+
+Megadeth - Killing Is My Business...And Business Is Good - The Final Kill (1985) Remastered, 2018, Legacy [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Rites / Loved to Deth (Remastered) (4:52)
+ 02. Killing Is My Business...And Business Is Good! (Remastered) (3:05)
+ 03. The Skull Beneath the Skin (Remastered) (3:44)
+ 04. Rattlehead (Remastered) (3:40)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A259B228C294B7AD76A4224D31233F2A6ADAB622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525245   (607489) от 21.07.2012
+
+Avantasia - Tobias Sammet's (2СD) (2010) [MP3|320 кб/с]<The Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: The Metal OperaПродолжительность: 00:59:08
+
+01. Stargazers
+02. Angel Of Babylon
+03. Your Love Is Evil
+04. Death Is Just A Feeling
+05. Rat Race
+06. Down In The Dark
+07. Blowing Out The Flame
+08. Symphony Of Life(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5C7C25DE21DD98C1F8D1CCAB05FDD109E09FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525257   (607395) от 21.07.2012
+
+Ayreon - 01011001 (2008) [MP3|320 кб/с]<Sympho Progressive Metal/Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Sympho Progressive Metal/Rock OperaПродолжительность: 00:52:04
+
+01. The Fifth Extinction
+02. Waking Dreams
+03. The Truth Is In Here
+04. Unnatural Selection
+05. River Of Time
+06. E=MC2
+07. The Sixth Extinction
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4556B63561B74ADAC5AE269AF99AEB95FEF2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913186   (607229) от 28.06.2015
 
 Kimera - Faceless Mirror (2015) [MP3|320 кб/с]<Symphonic Metal, Female Vocal>
@@ -652,93 +750,6 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [MP3|320 кб/с]<Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997FACAC8D2A1AF6E6459990A5A7A917EED07A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150005   (596615) от 13.07.2017
-
-Decapitated - Anticult (2017) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impulse
-02. Deathvaluation
-03. Kill the Cult
-04. One-Eyed Nation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE20AFCC7F1E457F34BD58AC01B2ED7198CE6A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915014   (595195) от 04.07.2015
-
-No Return - Fearless Walk to Rise (2015) [MP3|320 кб/с]<Melodic Death/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent
-02. Stronger Than Ever
-03. Submission Falls
-04. Sounds of Yesterday(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B05054432C1F7715452AE1D7FE68A19354D6D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150209   (595078) от 14.07.2017
-
-Cradle Of Filth - Cryptoriana - The Seductiveness Of Decay (2017) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exquisite Torments Await
-02. Heartbreak And Seance
-03. Achingly Beautiful
-04. Wester Vespertine(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C46B2A7061066B927CA70D7B65940764ED4AE3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

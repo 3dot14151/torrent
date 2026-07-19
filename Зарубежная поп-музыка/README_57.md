@@ -1,3 +1,32 @@
+###  Публикация: 1256085   (359036) от 20.10.2018
+
+VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi D'Agostino & Dynoro - In My Mind
+02. El Profesor - Bella ciao (HUGEL Remix)
+03. Maroon 5 - Girls Like You
+04. Felix Jaehn - Jennie(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256083   (359035) от 20.10.2018
 
 VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
@@ -728,35 +757,6 @@ Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398D2EC4D312F61DDDB732E3727397C0E78263E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953994   (343820) от 06.11.2015
-
-Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellaires
-02. Stolen Car (en duo avec Sting)
-03. À Rebours
-04. C'est pas moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

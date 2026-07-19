@@ -1,3 +1,119 @@
+###  Публикация: 1102151   (890565) от 09.02.2017
+
+Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph (4:20)
+ 02. How You Remind Me (3:44)
+ 03. Burn It to the Ground (3:31)
+ 04. Rockstar (4:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371318   (890189) от 31.03.2020
+
+The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – No One Falls Alone
+02 – Going Back To Stockholm Syndrome
+03 – Clementine
+04 – Straight Into The Bridge(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102668   (889456) от 10.02.2017
+
+R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harborcoat (3:54)
+02. 7 Chinese Bros. (4:18)
+03. So. Central Rain (3:16)
+04. Pretty Persuasion (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435922   (889258) от 08.03.2016
+
+Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (0:30)
+02. Theater (2:42)
+03. Make A Move (3:04)
+04. Get Well (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371876   (888709) от 01.04.2020
 
 Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -628,122 +744,6 @@ We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22DAFE4682CEE05E21730B791C5E5E65F4061EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498011   (857805) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problems (Chris Spedding Session / 1976) [00:04:11]
-02. Pretty Vacant (Chris Spedding Session / 1976) [00:03:38]
-03. No Feelings (Take 1 / Chris Spedding Session / 1976) [00:02:52]
-04. No Feelings (Take 2 / Chris Spedding Session / 1976) [00:02:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376949   (857011) от 19.04.2020
-
-Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything & More (04:39)
-02. Atlas Please (02:49)
-03. Heavenly Maybe (03:26)
-04. Never A Low (03:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498765   (854533) от 28.09.2021
-
-Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Middle Fingers Up (2:37)
- 02. Hellraiser (2:56)
- 03. Rageaholics (3:00)
- 04. Backtalk (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EE105AFC7F77367B771D17862BBD4695EC75B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498711   (854531) от 28.09.2021
-
-Attila - Guilty Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pizza, Sex and Trolls (1:54)
- 02. Hate Me (3:42)
- 03. Rebel (3:18)
- 04. Guilty Pleasure (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69FD39069196A3F76392B2D8CCA4F57A7D6A278
 ```
 
 https://mybot314.ru/tekegram_catalog/

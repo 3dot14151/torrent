@@ -1,3 +1,177 @@
+###  Публикация: 1347560   (148755) от 24.12.2019
+
+VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead-Tones - For The World To Know About (original mix) (7:38)
+02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
+03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
+04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519790   (147182) от 25.12.2021
+
+VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakou Mizik – Ogou (Pran Ka Mwen) (Mixed) (04:32)
+02. Il:lo – Meliadi (Mixed) (02:38)
+03. lycoriscoris – Shizumu (Mixed) (06:48)
+04. Qrion – Your Love (Mixed) (04:36)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F33320B699BBC9E4DA5347BDDAEB9E08F86FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087282   (146572) от 27.12.2016
+
+VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuits D'Etoiles feat. Noemie - Un Autre Monde [4:24]
+02. Niklas Ibach feat. Dan Reeder - The Blues [2:23]
+03. Florian Paetzold - Easy [4:12]
+04. Autograf - Heartbeat (Alex Schulz Remix) [2:52](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685A0219C1E2DEA38BF64328007A3DB08DC09853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520107   (145509) от 26.12.2021
+
+VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lange – Rift (Alex O'Rion remix) (07:59)
+02. Jordin Post – Azure (04:42)
+03. Above & Beyond & Andy Moor – Air For Life (Dosem remix) (04:38)
+04. PROFF & Mokka – Your Light (Mixed) (06:32)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FE198DFB38E15D84FC0C1CA72F65CDA42E3128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272450   (144809) от 27.12.2018
+
+Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetario (07:28)
+ 02. Ultra Follow Up (07:29)
+ 03. Level On (06:25)
+ 04. The Love of Ocean (07:21)(   Читать дальше...   )Жанр: Techno, Tech House, Progressive HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E878B2AF0028F04704E524F5BD6046A015198CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272457   (144800) от 27.12.2018
+
+Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orithyia (Re Mastered) (06:17)
+ 02. Orithyia (Asfa Side) (06:29)
+ 03. Orithyia (Charles Lcc Side) (07:00)
+ 04. Orithyia (Saebius Side) (06:31)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AF5C46C2805C32070500B7DA7676A284ECB5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195318   (144443) от 28.12.2017
 
 My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -569,176 +743,6 @@ VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA79C557672A072D289AD8B5C0C9842D471B27B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349112   (138187) от 31.12.2019
-
-VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K Loveski & Ewan Rill – Jala (06:26)
-02. Yoni Yarchi & Daniel van der Zwaag – Utopia (09:50)
-03. Artfaq – Lost Cosmonaut (08:11)
-04. LeSonic & White Leaf – Kalopsia (07:04)(   Читать дальше...   )Жанр: Progressive House, Tech House, MinimalПродолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D511DC2D84AEE0D3C64A496CB27AB7B4462665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349260   (138159) от 31.12.2019
-
-Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Overture (3:15)
-02. Ascension (3:29) 123.78 bpm
-03. Lonely Shore (Album Mix) (feat. RNX & Arielle Maren) (4:00)
-04. Senshi (7:40)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679569   (138064) от 25.11.2023
-
-Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273354   (138046) от 31.12.2018
-
-Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature (06:03)
- 02. Air High (06:30)
- 03. Feel (06:41)Жанр: Tech House, MinimalПродолжительность: 00:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679544   (138044) от 25.11.2023
-
-VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BATO - Thoughts (Original Mix) [7:36]
-02. Boy with Boat - Who Said (Original Mix) [6:34]
-03. DMTRI - Let Go (Original Mix) [6:24]
-04. Doshpot & FRANTZ (AUS) - Allure (Original Mix) [7:39](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088650   (137955) от 31.12.2016
-
-VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ran Salman - Zephyr [6.42]
-02. Soul Button & Nick Devon - Fading Light [7.29]
-03. Dahu & MPathy - Shattered [7.54]
-04. Nick Devon & BLANCAh - Harmstring [8.02](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

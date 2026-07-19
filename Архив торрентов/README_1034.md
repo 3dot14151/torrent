@@ -1,140 +1,3 @@
-###  Публикация: 1009007   (812051) от 20.04.2016
-
-Джой / Joy  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Po Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волнующая история четырех поколений семьи. В центре сюжета - девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: США, Annapurna Pictures, Davis Entertainment, Fox 2000 Pictures, TSG Entertainment, Direct Dimensions (DDI)Жанр: драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Даша Поланко, Вирджиния Мэдсен, Изабелла Росселлини, Изабелла Крамп, Элизабет Рём, Ондреа Гадсби, Гия Гадсби, Томас ЭлизондоПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, португальскийПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB8FB90210993E54C0846AAF23265B3F01C80D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197722   (812026) от 09.01.2018
-
-VA - Above All Records - The Best Of 2017 (2018) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Damien S  -  Soaking Up The Sky (feat. Molly Bancroft) (Radio Edit)  3:32
-02.  Steven Liquid  -  Spin Around  6:10
-03.  Miguel Angel Castellini  -  Sailing Towards The Sun (Vince Forwards Remix)  8:02
-04.  David Thulin  -  Sun Is Rising (feat. Charmaine) (Jay Hubbard Remix)  6:47(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA42E94E850438014B098F750A3287DCA72133D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197846   (812025) от 09.01.2018
-
-Briana Marela - Call It Love (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be In Love (04:27)
-02. Give Me Your Love (04:09)
-03. I’m Sorry (04:46)
-04. He Knows (04:21)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B95FD091151175A5FE89A400C8EB0AD58689054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504440   (811988) от 23.10.2021
-
-4K Video Downloader 4.18.2.4520 RePack (& Portable) elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811988.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478DC9F90F48007EB55D56ACEAEA0CCF387EF6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504496   (811987) от 23.10.2021
-
-Internet Download Manager 6.39 Build 7 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE45DC4862FCC9F32997E44185E3A142AD581D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504629   (811986) от 23.10.2021
 
 Internet Download Manager 6.39 Build 7 RePack by elchupacabra [Multi/Ru]
@@ -707,6 +570,149 @@ InstaBro это простой инструмент для Mac, с которы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0760F1A4F24335C3EBE02993DE68DE6B748D0A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197804   (811888) от 09.01.2018
+
+Buggles - Adventures In Modern Recording (1981) Reissue, 1997, Japanese Edition, Flavour [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adventures in Modern Recording (3:46)
+ 02. Beatnik (3:39)
+ 03. Vermilion Sands (6:48)
+ 04. I Am a Camera (4:57)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D25C74AF42F89EDDC7B3DDE55D9C0D06DCC568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197350   (811885) от 09.01.2018
+
+VA - Goa Psychedelic Trance Vol.2 (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2pot  -  Lucifer (Devils Club Mix)  6:24
+02.  Sense Deception  -  Real Live (Original Mix)  7:53
+03.  Fre3 Fly  -  Headshot (Original Mix)  3:48
+04.  Henix-R  -  Murder (Original Mix)  8:04(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAA256D833DEAB84B75303615180C9B1FED9C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197321   (811882) от 09.01.2018
+
+VA - Tech Size Prog 2018, Vol. 1 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralph Souza - Hot Club (Original Mix) 05:33
+02. Daviddance - Life (Original Mix) 06:56
+03. Project 99 - Spitting Electro (Original Mix) 07:30
+04. Andy Pitch - Nobody Here To Move It (Original Mix) 06:02(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108A7B55ECD5E235C10197A6145E6EF4FC0E3FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198098   (811876) от 09.01.2018
+
+Various Artists - Рок-опера Мавзолей (2017) [MP3|192 Kbps] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811876.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мавзолей" – cобрав целую плеяду звезд тяжелой сцены, он создал монументальную мистическую рок-оперу об идеальном тиране, борьбе за власть, и конечно же, о любви и предательстве. В проекте приняли участие: Евгений Егоров (Эпидемия), Дария Ставрович (Слот, Нуки), Петр Елфимов, Андрей “Vortex” Лобашев, Владимир Холстинин (Ария), Ольга Дзусова, Анна Среда, (   Читать дальше...   )01 - Увертюра (2:59)
+02 - Великая страна (3:14)
+03 - Банкет в Мавзолее (1:47)
+04 - День погребения (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11553E597C00468F8B603F7569D782758974322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383447   (811848) от 15.05.2020
+
+Scrutiny 9 v9.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394998DF00A84BB3A79E3C8D935D177C15AF3530
 ```
 
 https://mybot314.ru/tekegram_catalog/

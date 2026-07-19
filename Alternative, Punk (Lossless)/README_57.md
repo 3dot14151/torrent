@@ -1,3 +1,119 @@
+###  Публикация: 1586134   (218392) от 25.10.2022
+
+Amarionette - Gemini (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple (3:37)
+02. Monster (2:47)
+03. Criminal (3:37)
+04. Peaches (3:29)(   Читать дальше...   )Жанр: Post-Hardcore, Progressive RockПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E52EBD64AC2229E36C8954E78B9DB99120D6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586105   (218335) от 25.10.2022
+
+Rabbit Junk - Apocalypse for Beginners (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Digital Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy
+02. Stone Cold (Feat. Amelia Arsenic)
+03. Nostromo
+04. Love Is Hell(   Читать дальше...   )Жанр: Industrial Metal, Digital HardcoreПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F134070D69E31CD01E548C594B599419CAF48E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966146   (218270) от 18.12.2015
+
+Iggy Pop - Avenue B (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Shit (1:20)
+02. Nazi Girlfriend (2:59)
+03. Avenue B (5:21)
+04. Miss Argentina (4:14)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AB795002486E9054003F05BA43F5FC93B39F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586109   (218242) от 25.10.2022
+
+Lost in Kiev - Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are (6:49)
+02. Prison of Mind (feat. Loic Rossetti) (4:30)
+03. Squaring the Circle (5:49)
+04. Another End is Possible (4:59)(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362E9461F3AE4932F5FDE3100FE3EE8C1FF144BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652619   (217171) от 12.08.2023
 
 To Kill Achilles - Recovery (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore>
@@ -629,122 +745,6 @@ The Word Alive - Hard Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FC89D239EFEE384773BB641E415CDAE12CD1CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655402   (204248) от 26.08.2023
-
-Hot Milk - A Call To The Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WELCOME TO THE... [00:01:16]
-02. HORROR SHOW [00:03:15]
-03. BLOODSTREAM [00:03:09]
-04. PARTY ON MY DEATHBED [00:03:28](   Читать дальше...   )Жанр: Alt.Rock, Female VocalПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35500306C7B678767670D317F3C4131C4620DEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655482   (204217) от 26.08.2023
-
-a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Avalonia [00:04:46]
-02. Happiness Awaits Inside [00:03:15]
-03. I Believe [00:03:21]
-04. In Destiny [00:02:44](   Читать дальше...   )Жанр: glam-punkПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E590AF829D6CBCBA698349EB0D022AF4E5FE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655473   (204205) от 26.08.2023
-
-Wreckless Eric - Leisureland (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Rock [00:03:14]
-02. Inside the Majestic [00:03:34]
-03. Badhat Town [00:02:39]
-04. Intermission [00:00:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419F0E825C5E052FC8F0DE23F047AC6BE015C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655514   (204046) от 27.08.2023
-
-Holding Absence - The Noble Art Of Self Destruction (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Prison Blues [00:04:34]
-02. A Crooked Melody [00:03:53]
-03. False Dawn [00:03:48]
-04. Scissors [00:04:39](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB956214624B4596E0225D4F6BA3E1692D79596C
 ```
 
 https://mybot314.ru/tekegram_catalog/

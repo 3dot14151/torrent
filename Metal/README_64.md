@@ -1,3 +1,96 @@
+###  Публикация: 937159   (489904) от 14.09.2015
+
+My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. And My Father Left Forever
+2. To Shiver In Empty Halls
+3. A Cold New Curse
+4. Feel the Misery(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7988D8DF0B85FE40A051F2E15DB98FC2D5A1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404906   (489377) от 27.08.2020
+
+John Petrucci - Terminal Velocity (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminal Velocity (06:08)
+ 02. The Oddfather (06:25)
+ 03. Happy Song (06:01)
+ 04. Gemini (06:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4272C237BAE6416B2547474F4EA152AF3142190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538980   (489137) от 08.09.2012
+
+Katatonia - Dead End Kings (2012) Limited Edition [MP3|320 кб/с]<Doom, Depressive, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Parting (4:52)
+02. The One You Are Looking For Is Not Here (3:52)
+03. Hypnone (4:06)
+04. The Racing Heart (4:05)
+05. Buildings (3:28)
+06. Leech (4:23)
+07. Ambitions (5:06)
+08. Undo You (4:55)
+09. Lethean (4:39)
+10. First Prayer (4:27)(   Читать дальше...   )Жанр: Doom, Depressive, Progressive MetalПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886DA4369E401B8899E6443E8E7DE3D3154EAE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319154   (488869) от 09.08.2019
 
 Finsterforst - Zerfall (2019) [MP3|320 Kbps] <Folk Metal>
@@ -670,93 +763,6 @@ Killing Machine - 2 Albums (2000-2005) [MP3|320 kbps]<Heavy Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964289   (482112) от 21.08.2017
-
-Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482112.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:44] 01. Manifesto
-[05:56] 02. Stomp The Haunted Crown
-[05:11] 03. Boundless
-[07:19] 04. The Masked Ball(   Читать дальше...   )Жанр: Experimental Progressive Metal, InstrumentalПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15EC8DE8B99DB4F5D226079D42D909A649DBD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938356   (481603) от 18.09.2015
-
-Annihilator - Suicide Society (2015) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadlock
-02. Set The World On Fire
-03. Knight Jumps Queen
-04. Ambush(   Читать дальше...   )Жанр: Thrash Metal |Продолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBDE5F23B89A10738F6C7C52B1DBA08F5F0A4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405845   (481497) от 31.08.2020
-
-Triumvir - Triumvir (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imperium Et Gloria (02:00)
- 02. Sons of the Wolf (03:03)
- 03. The History of Rome (03:42)
- 04. Cartago Delenda Est (04:59)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490260860DEB7F23DEAC568B19102CE670EB83F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

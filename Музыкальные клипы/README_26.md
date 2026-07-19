@@ -1,3 +1,112 @@
+###  Публикация: 1412526   (413464) от 01.10.2020
+
+Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
+В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947680   (411098) от 20.10.2015
+
+VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
+02. Bielfield - Frequency (Official Video) (00:03:21)
+03. Corina Smith - La Difícil (Official Video) (00:03:16)
+04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559270   (409693) от 12.10.2012
+
+Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559503   (409588) от 12.10.2012
+
+Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличнейший сборник  клипов (heavy metal, hard / glam rock) ...
+( Некоторые клипы ну ОЧЕНЬ редкие!)Жанр: Музыка,Heavy Metal, Hard , Glam RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C874A0D9299E562FBC635FA96609BAE96FFD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168284   (408562) от 24.09.2017
 
 Облака плывут над головой (2017) WEB-DLRip [H.264/720p-LQ]
@@ -595,120 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A09C366959208CBC3D1D40AF5B249BEC74A8526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715908   (395617) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry - Memphis
-02. Brian Pool & The Tremeloes - Do you love me
-03. Gerry & The Pacemakers - I like it
-04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715926   (395610) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petula Clark - Downtown
-02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
-03. Them - Baby please don't go
-04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567576   (394688) от 31.10.2012
-
-Сборник клипов - VA - Various Music part. 36 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E57B1A2ECAE76A3B5196B9DAC3DBE937BD9207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171967   (394595) от 06.10.2017
-
-Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394595.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз.
-Да прибудет с нами качественная музыка! Все лучшее для вас! ALEXnROCK000 Intro
-001 La Bouche - Be My Lover
-002 Backstreet Boys - Everybody
-003 Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E7EE9261D561B1B70CE66DFE76E64553C8FDE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

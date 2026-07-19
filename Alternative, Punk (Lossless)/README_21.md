@@ -1,3 +1,119 @@
+###  Публикация: 1025170   (711872) от 11.06.2016
+
+Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes
+02. Empty
+ 03. Blackout
+ 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F0120D7A4BE7A1573E4AC7BA2ECEC3F1C8E7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025434   (711764) от 11.06.2016
+
+Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It From Me (3:11)
+02. The World Would Run Better (3:00)
+03. I Want It Free (3:45)
+04. Underground (3:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C002870A892F5613C72003CCB8B4DFADBFE5F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401260   (711607) от 09.08.2020
+
+Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Melodic Hardcore, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tempest (3:45)
+02. Sunlifter (3:56)
+03. River King (5:03)
+04. Through Vales of Blue Fire (2:03)(   Читать дальше...   )Жанр: Metalcore, Melodic Hardcore, ProgressiveПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F61305AC1F4A5242FAA30BB10EF9C573D52DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401112   (711494) от 09.08.2020
+
+Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Heaven (4:09)
+02. The Door in the Wall (3:28)
+03. 无为 (4:39)
+04. Toska (4:16)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286582   (711350) от 03.03.2019
 
 Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
@@ -629,122 +745,6 @@ Alex Napping - Mise En Place (2017) [FLAC|Lossless|tracks] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D8B4BBC03F900E61BAA002C61E2D5CA0C54227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132219   (700980) от 09.05.2017
-
-Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 30000 Megatons (04:02)
-2. Sweep Me Off My Feet (03:29)
-3. Paint Me Silver (03:44)
-4. Colder Than Ice (03:10)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131972   (700844) от 09.05.2017
-
-Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let It Rain (03:07)
-2. Come Undone (feat. Patty Walters) (03:30)
-3. Slipping Away (03:34)
-4. Atlantic (03:53)(   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026899   (700196) от 17.06.2016
-
-The 1975 - I Like It When You Sleep, for You Are So Beautiful Yet So Unaware of It (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Indie rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700196.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The 1975 (1:23)
-2. Love Me (3:42)
-3. UGH! (3:00)
-4. A Change of Heart (4:43)(   Читать дальше...   )Жанр: Alternative rock, Indie rock, AmbientПродолжительность: 01:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9511BB49F040E89A9E1F3F95F41A7031EE04F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027111   (699961) от 17.06.2016
-
-Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Witch (3:40)
-02. Daydreaming (6:24)
-03. Decks Dark (4:41)
-04. Desert Island Disk (3:44)(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D3B6BF5F1FFF5D1E4A10356DAFF9061972D201
 ```
 
 https://mybot314.ru/tekegram_catalog/

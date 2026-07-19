@@ -1,3 +1,32 @@
+###  Публикация: 1282570   (744923) от 12.02.2019
+
+VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744923.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zivert - Life 3:08
+002. Звонкий - Голоса 3:26
+003. Don Diablo feat. Emeli Sande & Gucci Mane - Survive 3:10
+004. Arnon feat. Killua - Te Molla 3:16(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B335BEB33A60935DFAF9F1F8BE026FBF13B3962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217100   (744869) от 03.04.2018
 
 VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 28.01.2022 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BE7ED148E6DA90A8A5E4B52367E61F70F1BF503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398479   (735548) от 26.07.2020
-
-VA - Лето на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Клава Кока, NILETTO - Краш (2:51)
-2. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)
-3. Dua Lipa - Break My Heart (3:41)
-4. twocolors - Lovefool (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3E046395692EA51D9ACDEE7387605686C6A3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

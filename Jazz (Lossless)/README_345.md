@@ -1,134 +1,3 @@
-###  Публикация: 484821   (89381) от 19.04.2012
-
-Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punta Del Soul (5:31)
-02. Southwest Passage (5:50)
-03. First-time Love (4:05)
-04. Western Women (4:40)
-05. Dancing in the Township (6:07)
-06. Old Bones (6:14)
-07. In the Middle of the Night (5:52)
-08. T. K. O. (5:48)
-09. Polina (6:56)
-10. Lupita (1:08)(   Читать дальше...   )1989Жанр: Jazz, Contemporary, Crossover JazzПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483547   (88949) от 17.04.2012
-
-Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [FLAC|Lossless]<Classical, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88949.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 Oct 2004Жанр: Classical, JazzПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481960   (88157) от 13.04.2012
-
-Аня Чайковская & Acoustic Quartet - OljnDvir (2012) [FLAC|Lossless]<pop-jazz, contemporary jazz-art, female vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Легко (4:46)
-02. Никто не знает (6:30)
-03. Пьеро (3:49)
-04. Жестокий романс (3:52)
-05. Весна (5:19)
-06. Не беги (3:52)
-07. Тону (4:47)
-08. Мерилин (4:16)
-09. Я с тобой (3:51)
-10. Ad libitum (3:19)2012Жанр: pop-jazz, contemporary jazz-art, female vocalПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482073   (87975) от 12.04.2012
-
-The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  The Crusaders -  Stomp And Buck Dance  (5:50)
-02..  Down to the Bone -  Staten Island Groove  (6:46)
-03..  The Crusaders -  Creepin'  (6:57)
-04..  Down to the Bone -  The Zodiac  (7:49)
-05..  The Crusaders -  Soul Shadows  (6:21)
-06..  Down to the Bone -  Black Choice  (5:53)
-07..  The Crusaders -  Honky Tonk Struttin  (4:23)
-08..  Down to the Bone -  Gotta Get Back To You  (5:11)
-09..  The Crusaders -  Spiral  (6:10)
-10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477275   (87372) от 09.04.2012
 
 Игорь Бутман  - (2 альбома) (2007-2011) [FLAC|Lossless]<Jazz>
@@ -866,6 +735,138 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455898   (77495) от 21.02.2012
+
+Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The Music of Pink Floyd (2008) [FLAC|Lossless]<Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (6:29)
+02. On the Run (Part1) (3:43)
+03. Time (11:00)
+04. Any Colour you like (2:18)
+05. The great Gig in the Sky (8:42)
+06. Money (6:49)
+07. Us and Them (6:23)
+08. Brain Damage (6:20)
+09. On the Run (Part 2) (3:45)2008Жанр: Cool JazzПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455937   (77475) от 21.02.2012
+
+Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Lossless]<Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot House (5:31)
+02. Mode VI (8:14)
+03. Another Tango (6:52)
+04. Turn Out The Stars (9:19)
+05. Rhapsody (8:12)
+06. Very Early (7:02)
+07. But Beautiful Part I (3:41)
+08. But Beautiful Part II (9:13)
+09. Puccini's Walk (5:24)2012Жанр: Jazz, BopПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452862   (76463) от 16.02.2012
+
+Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let the Stars Get in Your Eyes
+02. I Left My Heart in San Francisco
+03. Hawaiian Wedding Song
+04. Seattle
+05. Days of Wine and Roses
+06. Beyond Tomorrow
+07. Ivy Rose
+08. More
+09. We've Only Just Begun
+10. Papa Loves Mambo(   Читать дальше...   )2001Жанр: Vocal JazzПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770620   (71960) от 02.01.2025
+
+Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust/Skylark [6:09]
+02. It Might as Well Be Spring [4:09]
+03. My Funny Valentine [4:37]
+04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

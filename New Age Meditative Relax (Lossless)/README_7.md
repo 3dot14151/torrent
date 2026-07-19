@@ -1,3 +1,32 @@
+###  Публикация: 1114700   (832069) от 15.03.2017
+
+Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face to Face
+02. Melancholy Morning
+03. Love's Light
+04. With You, in Spirit(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600AAEC338D93BBA4D451536ABB903BA6341921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380275   (831572) от 04.05.2020
 
 Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,33 +745,6 @@ Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117633   (817047) от 23.03.2017
-
-Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nights in Black Satin (30:01)
-2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

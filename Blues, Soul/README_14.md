@@ -1,3 +1,61 @@
+###  Публикация: 904851   (653550) от 04.06.2015
+
+Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Put A Spell On You (3:04)
+02. Because Of You (2:40)
+03. Don't Deceive Me (3:47)
+04. I Don't Know (3:35)(   Читать дальше...   )Жанр: Blues Soul, R&BПродолжительность: 01:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8D860C8578339C9AF4F16498A5004FA0E0A7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905071   (653545) от 04.06.2015
+
+Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Working (3:49)
+02. Steppin' Out (Unplugged) (3:28)
+03. Down Home Blues (Unplugged) (5:10)
+04. Mustang Sally (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD27301AB0BC96E455E9D0364A0ED1A34AEEA782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904721   (653543) от 04.06.2015
 
 Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
@@ -688,64 +746,6 @@ The Gil Correia Band - Tattoos & Blues (2011) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B4D6E78B873AF114FE2035961265034C61FD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906769   (643714) от 09.06.2015
-
-Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]<Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time (4:17)
-02. Hold On A Little Bit Longer (4:32)
-03. Special Lady (3:30)
-04. Love You In Every Way (2:53)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038AA4FC339139A5702D414F39FA15AB69AA34B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905958   (643711) от 09.06.2015
-
-Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/с]<Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booguiebuck (2:06)
-02. Mannish Boy (Feat. Mud Morganfield, Daniel De Vita & Juan Codazzi) (3:41)
-03. Little Blue Girl (Feat. Catuto García & Rafo Grin) (4:02)
-04. You're The One (Feat. Eddie Taylor Jr) (3:09)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA4557A2B8FD2CFD53DF99AA3B0D3927A87D6A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

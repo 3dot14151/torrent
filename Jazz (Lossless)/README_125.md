@@ -1,119 +1,3 @@
-###  Публикация: 1033376   (640289) от 10.07.2016
-
-Carles Denia - El Paradis De Les Paraules (2011) Comboi Records[FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tot i Que Em Creia Fort i Ferm Como Una Roca [02:42]
-02. Era Un Jonc Emocionat [04:21]
-03. Quina Plaent Vesprada al Llit [05:02]
-04. Si De Vora Meu un Dia [03:46](   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, FlamencoПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FCFBF93A385FBD77F8E0A60E61FAB237FCFA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033088   (640288) от 10.07.2016
-
-Jack Teagarden - Father Of Jazz Trombone 1928-1947 (2004) 3CD, Avid Entertainment[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640288.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Makin' Friends [03:06]
-02.I'm Gonna Stomp Mr. Henry Lee [03:36]
-03.That's A Serious Thing [03:34](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 03:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78601ECAB8C1EBEACA185123876E0EB1260AD8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033218   (640286) от 10.07.2016
-
-Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011, Pacific[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [04:52]
-02. When Johnny Comes Marching Home [05:15]
-03. Deep River [05:42]
-04. Till We Meet Again [04:18](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206F5D701EAD1EA56B9F74BDD6B3BCB37BA60B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033244   (640277) от 10.07.2016
-
-Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Feeling
-02. Morning Dew
-03. Last Night
-04. Mutation(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FE864630BC74A4E19611B232169E4BB7409662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907391   (639933) от 11.06.2015
 
 Andrew Hill - Dance With Death (2012) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative>
@@ -753,6 +637,122 @@ Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF1310CBE2E15C189C023E5B36401DB5CED3790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293347   (637669) от 03.04.2019
+
+Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637669.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Wheatleigh Hall [8:52]
+02. Sumphin' [10:29]
+03. Con Alma [9:28](   Читать дальше...   )Жанр: BopПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DD596B4158E2404645AB284CCAC96D5FEB5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293314   (637664) от 03.04.2019
+
+Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Doom Jazz, Modern Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malignant Cloud (9:40)
+02. The Round-Up (7:45)
+03. Frank and the Girl (9:43)
+04. The Forbidden Border (6:25)(   Читать дальше...   )Производство: Veal Records - Veal0001Жанр: Experimental Jazz, Doom Jazz, Modern ClassicalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862F2C524A13B237BDBF74AF6EE4AD91E41F92FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143094   (637576) от 17.06.2017
+
+Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Off to See the Wizard [01:21]
+02. Over the Rainbow [03:02]
+03. The Jitterbug [03:18]
+04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228323   (637529) от 31.05.2018
+
+McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crescent [10:32]
+02. Monk's Dream [9:35]
+03. Darn That Dream [8:18]
+04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

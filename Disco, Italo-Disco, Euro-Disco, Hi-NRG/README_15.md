@@ -1,31 +1,3 @@
-###  Публикация: 1221049   (698602) от 22.04.2018
-
-VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birizdo I Am - I Love Italo Disco (Extended Version) (6:49)
-02. D. White - All the Story Is History (Extended Version) (7:09)
-03. Romantic Avenue - Disease (feat. Heaven42)Жанр: Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 12:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F2A503206C49F93E25B37CFCD3C7DDF554D7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221211   (696804) от 23.04.2018
 
 Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -744,6 +716,35 @@ Crystal Grass With Kristi B. - Love Train (1978) LP [MP3|320 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA623B01681171E47B1AD8A978A84740707A92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290075   (682082) от 18.03.2019
+
+Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (7:51)
+02. Standing In The Shadow Of Love (6:06)
+03. Living A Lie (6:03)
+04. Mexican Taxi Man (4:34)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
 ```
 
 https://mybot314.ru/tekegram_catalog/

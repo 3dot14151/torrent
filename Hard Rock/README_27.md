@@ -1,3 +1,61 @@
+###  Публикация: 1080779   (288479) от 07.12.2016
+
+Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Yeah
+02. Day And Night
+03. New Orleans Rain
+04. Inside Of Me(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5DF27F51DAD4710E0DECBE39074F327DB3395E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335251   (287707) от 02.11.2019
+
+Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Fallen Angels [3:39]
+ 2 - Hail the End of Days [4:14]
+ 3 - Tying You Down [4:41]
+ 4 - Save Me from Myself [4:38](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D1A498001F0F98F941CDF19F392F862882568D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186084   (287132) от 24.11.2017
 
 Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [MP3|320 Kbps] <Hard Rock>
@@ -682,64 +740,6 @@ Stripwired - Another Shot (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28DB3D3F4B0EA2B74105D75F7F985AE269A7E58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190736   (265974) от 11.12.2017
-
-Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Shadows (5:26)
- 02. White Eclipse (3:29)
- 03. In the Sand (5:36)
- 04. Misspent Youth (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE97872C7BF87B39435D7F8C1546455FCC93AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267600   (265802) от 07.12.2018
-
-Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard Rock, Heavy Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Traitor
-2. It's Yesterday
-3. The Quiz
-4. Circling(   Читать дальше...   )Жанр: Hard Rock, Heavy PsychedelicПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265D0EAC2B7EFC20CD1C7F32D117A7E56D91B4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

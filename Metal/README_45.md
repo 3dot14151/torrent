@@ -1,3 +1,90 @@
+###  Публикация: 903472   (657993) от 31.05.2015
+
+Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salvation
+2. Speed Of Time
+3. 30 Years
+4. Never Look Back(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E08EABACFD1C4C651B1A1561126098649959EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139778   (657931) от 04.06.2017
+
+Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of The Ring
+02. We The People
+03. The Killer's Inside
+04. Bleeding Hands(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7661DDE57E28F35338107816E38E7FC2C6882B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139553   (657912) от 04.06.2017
+
+ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana 07:28
+02. Holy Diver (DIO Cover) 04:39
+03. Domineer 04:12
+04. Lost In A Dream 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352827FEC1CD91E1B02B77DA8CA68FA019FC288E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139966   (657815) от 04.06.2017
 
 Accept - The Rise Of Chaos (2017) Single [MP3|320 Kbps] <Heavy Metal>
@@ -685,93 +772,6 @@ Shadowicon - Empire In Ruins (2011) [MP3|320 кб/с]<Symphonic Power Metal, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B55BB3B172E4BF0AD35E9A1CE670D183A7E7823F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905255   (651932) от 05.06.2015
-
-Metal Inc. - Traces of the Past (2015) [MP3|320 кб/с]<Heavy Metal / Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise up!
-02. Deceiver
-03. Follow Me
-04. The Cost(   Читать дальше...   )Жанр: Heavy Metal / ThrashПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EAFEEC0F557CE29B28F9FB1586BDDD2A0AC4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905162   (651926) от 05.06.2015
-
-Crow's Claw - Fair Judgement (2015) [MP3|320 кб/с]<Instrumental Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inchlings Of The Shining Needle
-02. Hartmann’s Youkai Girl
-03. Lonesome Werewolf
-04. Night Falls(   Читать дальше...   )Жанр: Instrumental Power MetalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597DF7F34892B61A57F21C12D08A175B434D3F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905020   (651922) от 05.06.2015
-
-Hell-Us. - Monster Piece (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Nasty
-02. Mr. Rusty
-03. My Tomb
-04. Under The Knife(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A2C3FEBB235AF07D051663631BABD6E7C48EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

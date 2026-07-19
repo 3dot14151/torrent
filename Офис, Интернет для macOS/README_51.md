@@ -1,29 +1,3 @@
-###  Публикация: 1680152   (134615) от 28.11.2023
-
-Cisdem OCRWizard 5.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem OCRWizard с улучшенным механизмом оптического распознавания символов (OCR) может легко конвертировать любые PDF-файлы, отсканированные документы или файлы изображений (включая изображение визитной карточки) на 49 языках в доступные для поиска и редактирования PDF, Word, Pages, HTML, Excel, Keynote, и ePub и т. д. на Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A58F32C2B550966BB8AA3D5EEEA7902302853B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680095   (134605) от 28.11.2023
 
 Word Count Popup 2.56 [En]
@@ -676,6 +650,32 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECF1B1096B6ED6630ECF5CEBACFF04F1AC2F429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692542   (122359) от 17.01.2024
+
+Chain - Study & Workout Timer 10.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Chain Timer – это удобный мультитаймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © Roman SevastyanovПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6E45D0CA098EAC8D12D4D5970816D3576C947E
 ```
 
 https://mybot314.ru/tekegram_catalog/

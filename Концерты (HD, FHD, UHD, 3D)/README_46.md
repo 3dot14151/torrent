@@ -1,3 +1,32 @@
+###  Публикация: 1789770   (67931) от 12.04.2025
+
+Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
+02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
+03. Tritonal - Sky nights (David Forbes rmx)
+04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792647   (67638) от 20.04.2025
 
 Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
@@ -699,37 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95EA13AD38237DDC2D3DC0E0793C636E2D01E075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719707   (58048) от 30.04.2024
-
-Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись второго и последнего концертного тура «Two Steps From Hell», прошедшего в 2023 году, перед распадом музыкального проекта Томаса Бергерсена и Ника Феникса.
-Относительно состава группы на сцене изменения в сравнении с гастролями, прошедшими в 2022 году, не слишком значительные.
-Зрителям была представлена виолончелистка Марико Муранака, (   Читать дальше...   )01. Empire Of Angels
-02. Cannon In D Minor
-03. Protectors Of The Earth
-04. Unbreakable(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBEFA9CCCD88A95011AF8170459A587B7D66CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

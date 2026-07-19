@@ -1,3 +1,29 @@
+###  Публикация: 1014856   (776117) от 08.05.2016
+
+Anvir Task Manager 8.0.4 Final RePack (& Portable) by KpoJIuK [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776117.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F98EF1EB7F80B30A90D0BEADF241D148F6A176A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014737   (776106) от 08.05.2016
 
 Anvir Task Manager 8.0.4 Final + Portable [Ru]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6FED3DFBEBBC7F74756C7D76288CB9542498970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212504   (775669) от 12.03.2018
-
-TurbulenceFD v1.0 build 1435 Repack by soyv4 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для создания огня и дыма в Cinema 4D. Реалистичная симуляция дыма в анимированных сценах. TurbulenceFD делает качественное моделирование огня, дыма, пыли и других газообразных явлений доступных непосредственно в CINEMA 4D. TurbulenceFD исключительно проста в использовании.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335D81498BA54BEADC2CCBE139B3DBEF7521DD95
 ```
 
 https://mybot314.ru/tekegram_catalog/

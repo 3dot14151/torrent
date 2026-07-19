@@ -1,3 +1,189 @@
+###  Публикация: 938458   (481605) от 18.09.2015
+
+Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Our Yesterdays
+02. Allan Yn n Fan
+03. Darker Shade of Black
+04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, CelticПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECFE265080D9AE7D3D3796C024F01EEB82DAEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056217   (481109) от 25.09.2016
+
+Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered, 2CD [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around (Northern Lights Club Mix)
+02. Age Of Loneliness (Enigmatic Club Mix)
+03. Push The Limits (ATB Remix)
+04. Gravity Of Love (Judgement Day Club Mix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DCA6B0CEC8FEF08D16919F0290531805E01B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384328   (480882) от 07.09.2011
+
+Can Atilla - 1453 Sultanlar Askina (2006) [APE|Lossless] <ambient, new age, turkish>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480882.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:09] 01. Once Gunes Tutuldu
+[04:45] 02. 1453 - Fetih
+[05:29] 03. Constantinopole
+[05:22] 04. Bogazici Ruyalari
+[04:57] 05. Yeni Hayat
+[04:48] 06. Gulbahar
+[05:01] 07. Rumeli Hisari'nin Yapilisi
+[03:30] 08. Zeynep Hatun'un Gizli Aski
+[04:50] 09. Kahramanlarin Hikayesi
+[03:23] 10. Bellini Portreyi Yaparken(   Читать дальше...   )2006Жанр: ambient, new age, turkishПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545932   (480451) от 12.09.2012
+
+VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Марш.
+002-Мар'янко.
+003-Маки червонi.
+004-Мої сни.
+005-На перонi.
+006-Перевал.
+007-Прийдеш не прийдеш.
+008-Задивлюсь.
+009-У лузi.
+010-Зустрiчаймо любов на свiтаннi.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 07:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2D68A169A64051610A4697AF6B71642132AD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244624   (480034) от 02.09.2018
+
+Fiona Joy Hawkins - Story of Ghosts (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Song for Dunnie
+02 – Story of Angels
+03 – Contemplating (Solo)
+04 – Blue Dream (Solo)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C5D5E13E4CEA973061CA5BB4F341F58266A77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317973   (479961) от 30.07.2022
+
+Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)
+03. Emiliana Torrini - White Rabbit (05:09)
+04. Queen with Armageddon a.k.a Geddy - I Want It All/We Will Rock You (05:09)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244741   (479924) от 02.09.2018
 
 Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
@@ -579,180 +765,6 @@ Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566577   (474325) от 02.08.2022
-
-Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gateway to Paradise
-02. Rim of the World
-03. The Circle Within
-04. Ejiogbe Revealed(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701625   (474277) от 19.09.2013
-
-Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equinoxe Part 1 (2:26)
-02. Equinoxe Part 2 (5:00)
-03. Equinoxe Part 3 (5:10)
-04. Equinoxe Part 4 (6:59)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701718   (473930) от 19.09.2013
-
-The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<Instrumental, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai: Love Story  [06:12]
-02. Georges Auric: Moulin Rouge  [02:28]
-03. Charles Chaplin: Limelight  [03:01]
-04. Max Steiner: A Summer Place  [03:03](   Читать дальше...   )Жанр: Instrumental, ScoreПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFDED7411F4489E857DBF32CFEC538AE0346C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160669   (473914) от 25.08.2017
-
-The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always on My Mind (3:51)
-02. The Greatest Love of All (5:00)
-03. Theme From Hill Street Blues (3:25)
-04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27516B3EB9699352697EAFB43763507F0702E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245261   (473890) от 05.09.2018
-
-VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental, Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yogiriyo Konya Mo Arigatō - Satoru Oda
-02. Otaru No Hitoyo - Teruo Yoda
-03. Shiankyō Blues - Teruo Yoda
-04. Minatomachi Blues - Teruo Yoda(   Читать дальше...   )Жанр: Easy Listening, Instrumental, SaxПродолжительность: 04:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E09CAAEE9B183F891127868D80A5923EB0FCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939410   (473564) от 22.09.2015
-
-Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Heartache (03:27)
-02. I've Been Drinkin' More (03:34)
-03. Hot Mouth Mama (02:32)
-04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1277090   (784911) от 21.01.2019
+
+VA - Piano Music Vol.1 (1978-2016) 250 tracks [MP3|192-320 Kbps] <Classical Crossover, Neoclassical, Фортепиано>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784911.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amy Lauren - Carry This Soul
+002. Amy Lauren - Cedar Rush
+003. Amy Lauren - Dragonfly Blue
+004. Amy Lauren - Fire and Flint(   Читать дальше...   )Жанр: Classical Crossover, Neoclassical, ФортепианоПродолжительность: 15:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3268377C47F02168C22A89AB08D9AC131EFF2955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204502   (784616) от 06.02.2018
 
 VA - Earth Mass: New Age Compilation (2018) [MP3|256-320 Kbps] <New Age>
@@ -721,35 +750,6 @@ VA - Guitar World: Instrumental Collection (2018) [MP3|320 Kbps] <Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC6FD8BDE860EE24204F5F5EE53D2A995D775F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215697   (756214) от 27.03.2018
-
-VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditative>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aithra - Shadow Play
-002. Gilberto Medda - Flying High in the Sky
-003. Howe Gelb - Terribly So
-004. Narcotic Chill - On The Last(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 09:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

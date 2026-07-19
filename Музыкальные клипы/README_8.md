@@ -1,3 +1,196 @@
+###  Публикация: 630203   (928018) от 15.03.2013
+
+Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивых 4 клипа от Энигма.01. MMX Social Song (First version)
+02. Page of Cups
+03. Gravity of Love (Selina)
+04. Sitting On The MoonЖанр: Музыка, New Age, Electronic, EnigmaticПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F2C747D1A5A16DF2E71DDF78A3A6463A5E1722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986955   (927318) от 16.02.2016
+
+VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
+0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
+0003_2 Brothers On The 4Th Floor - Never Alone.avi
+0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987652   (925751) от 17.02.2016
+
+VA - Зимний марафон № 224: Зимняя Волна Новинок (2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (17.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Aurora - Conqueror (Official Video) (00:03:32)
+02. Claudia Pavel ft. Dante Thomas - A Guy Like You (Official Video) (00:03:23)
+03. Dvj Bazuka - U (Episode 377) (00:02:05)
+04. EDX ft. Mingue - Missing (Official Video) (00:03:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Techno, Relax, Chill OutПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42CCE6D037682F687EE6838CB31F791E219433D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631329   (924873) от 17.03.2013
+
+Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3EA53975A29F4B70C39D11CEE3CF55F1D986EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631332   (924846) от 17.03.2013
+
+Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72C028D6923FAF7725E773D4C769EBFCA5DEF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631280   (923621) от 18.03.2013
+
+Blank & Jones - The Videos (2007) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance
+
+Официальный сборник видеоклиповПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ED5D03B5EB58CB5860DF1C7BCABB855BF9DE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632150   (923002) от 18.03.2013
+
+Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2CA0A30CE6831CDD84B91C1B2402F6A67A0B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366407   (922344) от 12.03.2020
 
 Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Gothic Metal, Industrial>
@@ -509,192 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E78EDD360F17F70D4ADDEAE08F7D25534A7F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635445   (909706) от 26.03.2013
-
-Stooshe - Slip (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635447   (909525) от 26.03.2013
-
-Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635452   (909505) от 26.03.2013
-
-Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864509   (909481) от 04.02.2015
-
-Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635441   (909438) от 26.03.2013
-
-Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635343   (909339) от 26.03.2013
-
-London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990820   (909286) от 26.02.2016
-
-VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов для любителей рок и метал.
-Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
-A Sound of Thunder - Murderous Horde.avi
-AC-DC - Are You Ready.avi
-AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

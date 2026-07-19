@@ -1,3 +1,90 @@
+###  Публикация: 1203878   (787696) от 03.02.2018
+
+Ocean Of Grief - Nightfall's Lament (2018) [MP3|320 Kbps] <Doom-Death Metal, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Bleakness
+2. Eyes Of Oblivion
+3. Mourning Over Memories
+4. Fiend Of The Overlord(   Читать дальше...   )Жанр: Doom-Death Metal, Melodic MetalПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6145C0556F67AA3C901ED7080B0F6BB70C8C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276757   (787577) от 17.01.2019
+
+Arch Enemy - Covered In Blood (2019) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout (Tears For Fears)
+02. Back To Black (Pretty Maids)
+03. Shadow On The Wall (Mike Oldfield)
+04. Breaking The Law (Judas Priest)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34F4B8109944FFAFFEF93AD6BEC36D21ABEDCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512651   (787112) от 25.11.2021
+
+Hypocrisy - Worship (2021) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worship
+02. Chemical Whore
+03. Greedy Bastards
+04. Dead World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492191384CB7D64E9C002ADA9CBE5015A9A7879B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512653   (787064) от 25.11.2021
 
 Rhapsody of Fire - Glory for Salvation (2021) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -664,93 +751,6 @@ Eleine - Until the End (2018) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3441ED8675488F39DF4F48C04B3C046144E44A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208565   (779801) от 23.02.2018
-
-Dream Ocean - Lost Love Symphony (2018) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inception (1:57)
- 2. Beyond the Greed (6:10)
- 3. Hain (4:53)
- 4. Everstorm (4:13)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72D4F21D3E619F738218545F61ACEE1901872A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208309   (779674) от 24.02.2018
-
-MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ballad Of The Goddess (Skyward Sword)
-02 - Song Of Storms (Ocarina Of Time)
-03 - Hyrule Castle (A Link To The Past)
-04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209070   (779665) от 24.02.2018
-
-MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thunder Thrash (Title And Bosses Medley), Thunder Force IV
-02 - Metal Squad, Thunder Force IV
-03 - Rising Blue Lightning, Thunder Force V
-04 - Stand Up Against Myself, Thunder Force IV(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
 ```
 
 https://mybot314.ru/tekegram_catalog/

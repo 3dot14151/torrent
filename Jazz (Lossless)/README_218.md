@@ -1,119 +1,3 @@
-###  Публикация: 1181790   (322033) от 08.11.2017
-
-Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe [02:09]
-02. Trees [03:24]
-03. Summertime [02:40]
-04. The Piccolino [02:50](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958818   (321974) от 22.11.2015
-
-Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Another Star [07:16]
- 02.Goodbye [02:59]
- 03.Mertensia [04:57]
- 04.You Don't Know What Love Is [04:01](   Читать дальше...   )Жанр: Jazz Funk, Soul JazzПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844166   (321652) от 24.11.2014
-
-Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей Кузнецов) - True Friends (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [05:15]
-02. Spain [09:07]
-03. Django [07:18]
-04. 500 Miles High [04:32](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAAFB3CD74FAFF3DF34465817BB0BB904BB4B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181791   (321592) от 08.11.2017
-
-Christian Sands - Reach (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armando's Song [05:12]
-02. Song of the Rainbow People [06:21]
-03. Pointing West [06:08]
-04. Freefall [06:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF2ED61968EBB5A0A53B945530A8BBEB6765C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259319   (321527) от 03.11.2018
 
 Sahib Shihab - Complete Sextets Sessions 1956-1957 (2008) 2CD, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -744,6 +628,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828DFB1593FAC56393B7B6C1198DB0C9D659CB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421605   (317874) от 05.11.2020
+
+Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's New [7:15]
+02. Willow Weep for Me [6:30]
+03. There Will Never Be Another You [6:50]
+04. D & E [5:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421600   (317759) от 05.11.2020
+
+Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.T.A. [5:07]
+02. Trapped [6:01]
+03. Twilight Mist [6:57]
+04. Our Man Higgins [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CF996D430EBA68D5948D554D2071203E24EF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959431   (317399) от 24.11.2015
+
+The Phil Woods Quartet - Woodlore (1955) 2013, Universal [FLAC|tracks+.cue]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Woodlore [05:25]
+ 02.Falling In Love All Over Again [04:45]
+ 03.Be My Love [05:38]
+ 04.On A Slow Boat To China [05:05](   Читать дальше...   )Жанр: BopПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AEE8CE30975418C5ED553715EF88EE23866EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959170   (317394) от 24.11.2015
+
+Azar Lawrence - People Moving (1976) 2014, Universal[FLAC|tracks+.cue]<Soul Jazz, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Theme For A New Day [05:22]
+ 02.The Awakening [06:47]
+ 03.Kickin' Back [06:46]
+ 04.People Moving [05:51](   Читать дальше...   )Жанр: Soul Jazz, Jazz FunkПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258B52C4C54E1298194DB51E393D700A3C5F3B44
 ```
 
 https://mybot314.ru/tekegram_catalog/

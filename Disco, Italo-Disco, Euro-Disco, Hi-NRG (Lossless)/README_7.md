@@ -1,3 +1,90 @@
+###  Публикация: 1197024   (818778) от 05.01.2018
+
+Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch (3:50)
+02. Kisses Are The Doctor's Order (3:29)
+03. Chinese Girls (3:40)
+04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503774   (817632) от 20.10.2021
+
+Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerrone's Paradise (Long Version Instrumental)
+02. Je Suis Music (Long Version Instrumental)
+03. Give Me Love (Long Version Instrumental)
+04. Midnite Lady (Long Version Instrumental)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6312ABF591B7A8ADA8D4B52D443D861080B90BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117621   (816897) от 23.03.2017
+
+Mr. Zivago - Tell By Your Eyes (Covers) (1993) [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell By Your Eyes 6:24
+02. Say Yes 4:23
+03. Alive 4:17
+04. Show The Love 4:54(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0085B98A3874257369F26DBC06D2412AFE913D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197577   (815675) от 07.01.2018
 
 VA - Venti Compilation 4 (2016) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
@@ -655,93 +742,6 @@ Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122954   (793296) от 06.04.2017
-
-Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Disco, 70's>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Robin Fly (5:32)
-02. Save Me (4:19)
-03. Ooh What A Night (5:16)
-04. Spend The Night With Me (4:19)(   Читать дальше...   )Жанр: Disco, 70's |Продолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510850   (790147) от 18.11.2021
-
-Modern Talking - Original Album Classics (2011) 5xCD, Box Set, Compilation, Reissue, Sony Music [FLAC|Lossless|image + .cue] <Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1985 - The First Album
-1985 - The Second Album - Let's Talk About Love
-1986 - The Third Album - Ready for Romance
-1986 - The Fourth Album - In the Middle of Nowhere(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 03:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5513A9D074D42627611945E3F252EB56781F08A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806441   (787334) от 24.11.2021
-
-Mike Mareen - Dance Control (2006) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am 5:12
-02. Cecilia (Remix) 6:47
-03. Double Trouble 5:20
-04. Peace To Mankind 4:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
 ```
 
 https://mybot314.ru/tekegram_catalog/

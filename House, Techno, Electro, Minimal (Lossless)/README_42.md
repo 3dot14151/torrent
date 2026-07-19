@@ -1,3 +1,180 @@
+###  Публикация: 1241676   (519284) от 18.08.2018
+
+VA - Ello (2016) aliēnus [FLAC|Lossless|tracks+.cue] <Techno, Dub Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wil - Vatnajokull (64°24′N 16°48′O) (06:35)
+ 02. Sraunus - ien ma (09:07)
+ 03. Dubatech - Circa (06:35)
+ 04. Regulus Rex - Schwarzwasser (09:43)(   Читать дальше...   )Жанр: Techno, Dub Techno, Deep TechnoПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058688B353A824FA2502BFF897854CD03B528E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534386   (517758) от 15.08.2012
+
+VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314781   (517271) от 16.07.2019
+
+El Choop - render_series (2019) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. render_001_primer (06:06)
+ 02. render_002_proximity (05:15)
+ 03. render_003_untitled (06:40)
+ 04. render_004_nue (06:23)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C89C3692C86EAFD77CFDE3C6C3F7C00510429A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242483   (515123) от 22.08.2018
+
+Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation (8:31)
+ 02. Toes in the Sand (6:48)
+ 03. Venice Beach (6:09)
+ 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314747   (513887) от 19.07.2019
+
+Sonny Fodera - Rise (2019) [FLAC|Lossless|tracks] <Electronic, House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moment (feat. Lilly Ahlberg)
+02. Scratch My Back (feat. Biscits)
+03. Give Me a Reason (feat. Janai)
+04. Been a Long Time (feat. Kideko & Alex Mills)(   Читать дальше...   )Жанр: Electronic, House, Tech HouseПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290CFD8672F7CAC6ABD3B1634581667FE50B1C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375679   (513340) от 14.08.2011
+
+VA - Fabric 59 (2011) [FLAC|Lossless]<Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_513340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Natured feat. Ali Love & Kenny Glasgow - Time Intro (00:28)
+ 02. Sebastien Tellier - La Ritournelle (Metronomy Mix) (02:04)
+ 03. James Teej - Don't Appear (Redux) (03:16)
+ 04. Coat Of Arms - Is This Something (Jones Fly Edit) (03:08)
+ 05. White Lions - DePalma (03:55)
+ 06. Karen Pollack - You Can't Touch Me (Murk Remix - Jones Fly Edit) (02:05)
+ 07. Cajmere feat. Jamie Principle - God Sent (’10) (03:38)
+ 08. Felix Da Housecat - Madame Hollywood (03:41)
+ 09. Waifs & Strays - Body Shiver (03:31)
+ 10. jennygoesdirty - Amoureux Solitaires (03:31)(   Читать дальше...   )2011Жанр: Deep House, Tech House, MinimalПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932113   (509989) от 28.08.2015
 
 Moonbeam - Atom (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
@@ -577,180 +754,6 @@ VA - Global Underground: Adapt (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A2DDA155876A60772B53D0AB0A54A62D426A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055429   (488429) от 22.09.2016
-
-VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lissat & Voltaxx - Sweet Love (feat Jenniffer Kae - Lexer remix)[06:26]
-02. Milk & Sugar - Canto Del PilAnn (feat Maria Marquez - Kellerkind remix)[06:17]
-03. Rober Gaez - Lay On You (Mark Lower dub) [06:07]
-04. Lissat & Voltaxx - Will You Be Gone (feat Jenniffer Kae)[05:52](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E7A6086A86D3E1A27D89FB966E0A67EA297C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243778   (488195) от 29.08.2018
-
-Primal Code - La Via Della Seta (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie's Diaries (08:14)
- 02. White River (06:18)
- 03. Morgana (06:39)
- 04. Varanasi (07:37)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCADF71C6C37738D666D16AE2D796FA2A132396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243855   (488070) от 29.08.2018
-
-VA - Deep & Melodic Techno #01 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viktor Gerk – Dilated Pupils (10:32)
-02. Sasha P – My Lovely Noise Horse (05:52)
-03. Konstantin Samoylyuk – Azure (08:44)
-04. S-Jay Soprano – Uncover (05:21)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16223269E1573DAB441D17A4763BB8715720E97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404995   (487246) от 28.08.2020
-
-Lane 8 - Cross Pollination (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And We Knew It Was Our Time (feat. Massane) (09:23)
-02. Shatter (feat. OTR) (02:54)
-03. Buggy (feat. yotto) (05:00)
-04. Run (feat. Kasablanca) (03:50)(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B06D2CC80D24E0602957C6955A08DE72949729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319181   (486822) от 10.08.2019
-
-Jude Frankum - Yther (2019) BLCR Laboratories [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Drum n Bass, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifting Me Up (05:24)
- 02. You Have My Heart (03:49)
- 03. Movement (05:28)
- 04. Hop Break (06:39)Жанр: Leftfield, Drum n Bass, Techno, AmbientПродолжительность: 00:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22A8C995A63BE21DD105F5D1443130EF1F7376C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566155   (486403) от 27.07.2022
-
-VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Indie Elephant -  Retro Heaven Forest  (6:26)
-02.  2JOHN'S, SevenEver -  Stop & Stay  (6:12)
-03.  magic.made.by.r -  Absurdum  (6:59)
-04.  Redspace, GarryG -  Funny Rave  (6:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep House, Indie DanceПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65188775F66C424EAAE65480DD59E7019789E40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

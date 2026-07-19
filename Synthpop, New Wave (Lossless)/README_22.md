@@ -1,32 +1,3 @@
-###  Публикация: 1513336   (225357) от 28.11.2021
-
-VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Chase (3:51)
-02. U2 - New Year's Day (3:57)
-03. Vangelis - Pulstar (3:51)
-04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E47E44865036DF70CD0F0C86875751CA865D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650825   (224633) от 03.08.2023
 
 Yota - Room 412 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Disco>
@@ -746,6 +717,32 @@ Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E2FE3E6284A529B75E9DCE5733E0DDD0D27A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611091   (202870) от 10.02.2023
+
+Depeche Mode - Ghosts Again (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts AgainЖанр: SynthpopПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A77ED3CDEF201D2F868119D1AF5D1E1E22F26BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

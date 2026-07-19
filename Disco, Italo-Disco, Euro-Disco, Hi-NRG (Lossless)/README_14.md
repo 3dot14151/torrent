@@ -1,3 +1,100 @@
+###  Публикация: 811577   (579459) от 09.08.2014
+
+King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom Dollar (Red Monster Mix) 5:54
+02. Walkie Talkie 3:59
+03. Love & American Dollars 5:27
+04. Lies 4:15
+05. Bingo 6:34
+06. Love Of The Angel 5:41
+07. Gimme Gimme Gimme 6:04
+08. Panic In New York 6:29
+09. It's So Funny 2:53
+10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35D278F72A487C321BBD1D2833FB3A6BD3F08B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303273   (575996) от 19.05.2019
+
+VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GusGus - Add This Song (Patrick Chardronnet Mix Remix) (7:54)
+02. Gui Boratto & Nathan Berger - The Phoenix (4:00)
+03. Matt Sassari - Dope Safari (Natch & Dothen Remix) (6:15)
+04. Superpitcher - Disko ! (You Don't Care) (7:17)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D324EF886E225BAEAF419569513FA9D4E03B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812314   (574962) от 12.08.2014
+
+Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esatto ! 3:44
+02. C'e' Da Spostare Una Macchina 3:45
+03. Il Lupo 4:33
+04. Universal Love (Speaker's Corner) 4:31
+05. Taxi 4:20
+06. Son Contento 4:26
+07. Maionese 4:09
+08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812380   (574840) от 12.08.2014
 
 Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
@@ -699,93 +796,6 @@ Modern Talking - Die Erfolgreichsten Hits (2016) Compilation, Remastered [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53AA015E8636EAB1B712FF62A80DD2510DBB6963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925791   (539100) от 07.08.2015
-
-VA - From Russia With Italo Disco (2012) [FLAC|mage+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Touch Your Body Now (Extended Version) (Magic System D.J.) [06:44]
-02. Flute Cries (Maxi Version) (Siberian Heat) [08:11]
-03. Harsh Wind (Duro Mix) (Dyva) [07:01]
-04. When I Close My Eyes (Squash Gang) [06:16](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6639E56136E67D098D396D1010296809D2CEC45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926008   (537106) от 08.08.2015
-
-Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Serenata (Overture)
-02. Lucifer
-03. Testamente D'Amelia
-04. Is She Really Going Out With Him? (Live In Leningrad 05. Autumn 1990)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050706   (536191) от 09.09.2016
-
-Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. All We Need Is Love
-02. Game Of Love
-03. You're My Heart You're My Soul ft. Big Daddi(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
 ```
 
 https://mybot314.ru/tekegram_catalog/

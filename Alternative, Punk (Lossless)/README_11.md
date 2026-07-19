@@ -1,3 +1,119 @@
+###  Публикация: 1498011   (857805) от 26.09.2021
+
+Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problems (Chris Spedding Session / 1976) [00:04:11]
+02. Pretty Vacant (Chris Spedding Session / 1976) [00:03:38]
+03. No Feelings (Take 1 / Chris Spedding Session / 1976) [00:02:52]
+04. No Feelings (Take 2 / Chris Spedding Session / 1976) [00:02:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 04:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376949   (857011) от 19.04.2020
+
+Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything & More (04:39)
+02. Atlas Please (02:49)
+03. Heavenly Maybe (03:26)
+04. Never A Low (03:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498765   (854533) от 28.09.2021
+
+Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Middle Fingers Up (2:37)
+ 02. Hellraiser (2:56)
+ 03. Rageaholics (3:00)
+ 04. Backtalk (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EE105AFC7F77367B771D17862BBD4695EC75B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498711   (854531) от 28.09.2021
+
+Attila - Guilty Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pizza, Sex and Trolls (1:54)
+ 02. Hate Me (3:42)
+ 03. Rebel (3:18)
+ 04. Guilty Pleasure (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69FD39069196A3F76392B2D8CCA4F57A7D6A278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498785   (854415) от 28.09.2021
 
 Attila - Outlawed (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
@@ -628,122 +744,6 @@ Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0EB15A21E8E4EFB7C9D739C7959BE42FB54A1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379951   (836393) от 01.05.2020
-
-Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weightlifters (05:40)
-02. Can't Cool Me Down (05:09)
-03. Deadlines (Hostile) (04:21)
-04. Hollywood (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB814A0DB7679961B864487E02DDD8BB4EE8765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113697   (835169) от 13.03.2017
-
-Temples - Volcano (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Psychedelic Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Certainty
-02. All Join In
-03. I Wanna Be Your Mirror
-04. Oh! The Saviour(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Psychedelic Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3959512127B3AC86897DD1313DFE3339763C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380583   (833177) от 03.05.2020
-
-VA - NOW Alternative Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.E.M. - The One I Love (3:16)
-02. The Killers - All These Things That I've Done (5:02)
-03. The Wallflowers - One Headlight (5:12)
-04. Massive Attack - Protection (4:54)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081200767872C5CEFE27339496FB811D03BACFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879974   (831860) от 21.03.2015
-
-Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Diamond Days (3:20)
-2. The Ship (5:28)
-3. The Forest (4:45)
-4. Harbour Lights (3:32)(   Читать дальше...   )Жанр: Pop-Rock, IndieПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F389886B06E9F3BE39598910FC616699510F50
 ```
 
 https://mybot314.ru/tekegram_catalog/

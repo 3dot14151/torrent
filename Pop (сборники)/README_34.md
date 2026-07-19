@@ -1,3 +1,32 @@
+###  Публикация: 1124476   (785660) от 12.04.2017
+
+VA - Любимые хиты весны выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Митя Фомин - Звезды Вселенной 3:42
+002. Kaminski & Platon - Круговорот 4:20
+003. Витольд Петровский - Память Из Прошлого 3:26
+004. Нюша - У Меня Появился Другой 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C049461E27B894E9738D09F97B40F8E0C83D523B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124478   (785659) от 12.04.2017
 
 VA - Весенние заводные хиты. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 02.03.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6565444CA90B1BE9B82FF55C4D8DB9A02AEDDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012388   (778377) от 02.05.2016
-
-VA - May Discotheque - Holiday Hit Parade N1 (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dekku - Rescue Me (Feat. Juliana Chahayed)
-02. Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit)
-03. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
-04. Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza)(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C671616A971E96F20DD466B4AE9F1ECE13C8FDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 600184   (998476) от 09.01.2013
+
+Ricochet Infinity (2007) [Ru/En] (3.0.62) Unofficial
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ricochet Infinity вобрала в себя все сливки из Xtreme, Lost Worlds и Recharged - потрясающее оформление, невероятный драйв, бесподобная анимация, атмосферный саундтрек, тонны уровней от фанатов игры по всему миру, собственный редактор и масса нововведений.Тип издания: UnofficialРазработчик: Reflexive EntertainmentЖанр: Аркада, АрканоидЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8309F580A78ACCFA8E4B50E83F5D0804BC0E6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602635   (997358) от 13.01.2013
 
 Closure [En] (RePack) 2012 | R.G. Механики
@@ -646,32 +672,6 @@ Rocketbirds 2 Evolution (2017) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B7AA0FCB25CCC1E2CD492763446D638DEC8FD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098385   (909672) от 29.01.2017
-
-Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909672.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Самый интригующий петух в мире» снова с нами в своем первом сиквеле Rocketbirds 2: Evolution! Крутосваренный оказывается вовлеченным в таинственный и зловещий план пингвина под названием «Part 1: The Cockup», а тем временем пернатые коммандос в рамках кампании «Part 2: The Rescue» формируют сверхэффективный ударный отряд, чтобы вызволить пленников из глубокого тыла (   Читать дальше...   )Тип издания: RepackРазработчик: Ratloop AsiaЖанр: Arcade (Platform), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE582DF8AD8958FB4CB42AF3DD34F28DB887293D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1693182   (121994) от 19.01.2024
+###  Публикация: 1694442   (120932) от 25.01.2024
 
-Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and Positive Vibes  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Last December (3:39)
-02. Play Me Like a Guitar (3:16)
-03. Her Hazle Eyes (3:29)
-04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+01. Conundrum (1:31)
+02. Victory is Assured (Alla Breve) (2:39)
+03. Technically Acceptable (4:19)
+04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
+magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693177   (121983) от 19.01.2024
+###  Публикация: 1694657   (120814) от 26.01.2024
 
-Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Blues, Female Vocal>
+Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mr. Fella [00:02:56]
-02. Malign and I [00:02:30]
-03. Gloo Canoe [00:03:28]
-04. Today [00:03:20](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Blues, Female VocalПродолжительность: 00:30:03
+01. Runaway (3:52)
+02. Roulette (4:41)
+03. She Don't Know Me (4:02)
+04. Shot Through The Heart (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
+magnet:?xt=urn:btih:0C1B5E390542E2F570FC618ECB65201F7CC7AC22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693481   (121833) от 20.01.2024
+###  Публикация: 1694651   (120799) от 26.01.2024
 
-Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Pop>
+Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Unica rosa (00:02:23)
-02 - Anche un uomo (00:05:29)
-03 - Amor mio (00:05:14)
-04 - Ancora ancora ancora (00:04:05)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:57:10
+01 Stay Alive [00:03:46]
+02 Z0mbie [00:03:11]
+03 Jic Boi [00:02:58]
+04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC1B835842CB06C7E846B486F5E2964A56AC11DF
+magnet:?xt=urn:btih:5AA173B8BA7C78514785241100BA7D4C898EFE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,27 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693618   (121708) от 21.01.2024
+###  Публикация: 1694642   (120797) от 26.01.2024
 
-30 Seconds to Mars - Stuck (TroyBoi Remix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative rock>
+Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stuck (TroyBoi Remix) [00:02:54]
-02. Seasons [00:02:47]
-03. Stuck [00:03:02]Жанр: Alternative rockПродолжительность: 00:08:43
+01. Overdrive [00:03:58]
+02. Stone Heart [00:04:42]
+03. Blame It on Me [00:03:33]
+04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC6EDDBD80D7A6AAB5F57B13FD62B3A468B74751
+magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693709   (121688) от 21.01.2024
+###  Публикация: 1694659   (120788) от 26.01.2024
 
-Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop rock, alternative rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pyramidion (6:44)
-02. Waltz for Mr Diamond (6:28)
-03. The Storm is Approaching (0:59)
-04. Dunning-Kruger Effect (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:45
+01. Golden (3:27)
+02. Wild (3:01)
+03. Dayglow (3:31)
+04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop rock, alternative rockПродолжительность: 00:50:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ACAA1FBE490977F762C49B8715273094F3E970A
+magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693690   (121685) от 21.01.2024
+###  Публикация: 1694658   (120770) от 26.01.2024
 
-Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Pop, Folk, World, Country>
+The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Think Of You [00:03:17]
-02. High [00:03:47]
-03. This Town Is Killing Me [00:03:46]
-04. Do You Think About Me [00:03:32](   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 00:54:39
+01. Aurora - Interlude (1:34)
+02. Queens (3:12)
+03. Send Me To The Wolves (3:10)
+04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96906B7FCCFFBA2999FA7257EB08183AA67AA9BD
+magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693703   (121666) от 21.01.2024
+###  Публикация: 1694570   (120769) от 26.01.2024
 
-Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. For Toninho (5:19)
-02. Dahill Road (6:02)
-03. Moving Clouds (7:01)
-04. Wild Rooster (6:20)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:12
+01. Wind Dancer (4:14)
+02. Bum In The Sun (3:36)
+03. Larger Than Life (4:12)
+04. Seven Mountain High (5:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:750EB53EC2B4A473BD20809A80E59C84F1A2B9D9
+magnet:?xt=urn:btih:DB6EAF8B96F920E6F6582072FB9804A8B01C2F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823242   (121517) от 10.10.2025
+###  Публикация: 1695092   (120655) от 27.01.2024
 
-Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
+Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let It Shine (Live) [4:45]
-02 - Mellow My Mind (Live) [3:13]
-03 - Too Far Gone (Live) [3:16]
-04 - Only Love Can Break Your Heart (Live) [3:05](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 14:03:09
+01. Rockstar (4:37)
+02. World On Fire (4:21)
+03. Every Breath You Take (4:23)
+04. Open Arms (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 02:57:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F2705BDA712B6A1D91E2E280AE30B6B732B97DD
+magnet:?xt=urn:btih:046BCD8AD0AAF36879F7CD1581B1FB099925E23B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693783   (121497) от 22.01.2024
+###  Публикация: 1694913   (120632) от 27.01.2024
 
-Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lucky Man (2:57)
-02. The River (3:51)
-03. Wait (3:03)
-04. Love And Titanium (3:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:15
+01. Love On My Brain (4:33)
+02. Make Love (3:48)
+03. Right By Your Side (4:20)
+04. How Did We Get To Goodbye (4:39)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF970C02C6CB6FB724DB7F8E79A252B51B89C6C2
+magnet:?xt=urn:btih:8442648FF846146649095589CB3654E119AC566D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693779   (121495) от 22.01.2024
+###  Публикация: 1694695   (120623) от 27.01.2024
 
-Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop, Dance-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Catfish Blues (3:03)
-02. Runaway Girl (Radio Edit) (3:59)
-03. Burn (3:58)
-04. Runaway Girl (Extended Mix) (6:16)Жанр: BluesПродолжительность: 00:17:16
+01. Intro (Joe 90) (Live) [00:00:52]
+02. Chorus (Live) [00:04:43]
+03. Hey Now (Think I Got A Feeling) (Live) [00:03:50]
+04. Fill Us With Fire (Live) [00:03:14](   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 01:27:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7313216450A018E8BF6CE3DF0EB1D7B2E17046
+magnet:?xt=urn:btih:42E0E85B9CF5CAE509200897551A1B87895E4885
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693174   (121487) от 22.01.2024
+###  Публикация: 1694918   (120617) от 27.01.2024
 
-Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmonies of Evening Gatherings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Always and Always (3:33)
-02. We'll Meet Again (3:19)
-03. Prelude to a Kiss (3:27)
-04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
+01. Funny boy (2:13)
+02. That rage inside (2:26)
+03. They're sick (4:02)
+04. Decent man (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
+magnet:?xt=urn:btih:495CE40EC59501E29D44946D850A7B4F8D03D883
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693838   (121479) от 22.01.2024
+###  Публикация: 1694916   (120614) от 27.01.2024
 
-L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Hard-Rock>
+Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overdrive (3:56)
-02. Rewind (4:46)
-03. The Dark Horse (4:07)
-04. Somebody Save Me (5:57)(   Читать дальше...   )Жанр: Glam-Hard-RockПродолжительность: 00:45:57
+01. Mission Start (0:32)
+02. UR R´N`R (2:56)
+03. Move (3:54)
+04. Remedy (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93A9DCF848F7D4CFE9522502F8F2C6E6DCF7AE2
+magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693790   (121470) от 22.01.2024
+###  Публикация: 1694713   (120611) от 27.01.2024
 
-Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Pop-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crossroads OG (5:08)
-02. Far From The Delta (4:22)
-03. Runnin' (4:47)
-04. Gone In The Morning (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:45
+01. Hell [00:03:14]
+02. Needlessly Wild [00:02:51]
+03. Say It Like You Mean It [00:03:44]
+04. Hunt You Down [00:03:32](   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 00:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B031B0C105477046758EDE6621DD7BA0DF13982A
+magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693784   (121464) от 22.01.2024
+###  Публикация: 1694716   (120610) от 27.01.2024
 
-KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic, Doom, Alternative-Metal, Male-Female-Vocals>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Be a pioneer (5:01)
-02. Walk in the moonlight (4:36)
-03. Annie (3:56)
-04. This is high (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:07
+01 - The table [00:02:07]
+02 - Elements [00:02:20]
+03 - Blackwood [00:04:18]
+04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
+magnet:?xt=urn:btih:7E7F55300749D043FCE75F921D03F19A43AD0633
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693791   (121457) от 22.01.2024
+###  Публикация: 1694690   (120608) от 27.01.2024
 
-Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Doghouse daddy (3:34)
-02. Blues on my mind (3:13)
-03. She left me this morning (3:03)
-04. Long and winding road (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:32
+01 - Loser (00:07:32)
+02 - River of Pain (00:03:53)
+03 - The Devil Made Me Do It (00:05:21)
+04 - Low Life in High Places (00:05:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D484C7CE0FF4AB036C315608FD0F9EAFB895EA3
+magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693851   (121450) от 22.01.2024
+###  Публикация: 1694907   (120607) от 27.01.2024
 
-Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Black, Doom, Death Metal>
+Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Волчок (00:04:38)
-02 - Змей (00:04:47)
-03 - Ледокол (00:04:10)
-04 - Серп (00:04:21)(   Читать дальше...   )Жанр: Post-Black, Doom, Death MetalПродолжительность: 00:41:39
+01. Mama Said (3:51)
+02. Get it On (3:24)
+03. Your Man (3:53)
+04. Devil Calling (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
+magnet:?xt=urn:btih:C65134935EE4494FDC58A7E970DEB81D7A35A51E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693781   (121448) от 22.01.2024
+###  Публикация: 1695070   (120599) от 27.01.2024
 
-Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal, Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hunter (5:19)
-02. Breed (5:50)
-03. Ji (3:46)
-04. Gently Walking the Himalayas (4:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:34:07
+01. Ceremonial Vigour (3:13)
+02. A Brain Dead Memoir (4:13)
+03. Chiselled in Stone (3:57)
+04. Introspection (4:09)(   Читать дальше...   )Жанр: Technical Melodic Death Metal, DeathcoreПродолжительность: 00:41:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
+magnet:?xt=urn:btih:BD9670441D28AE0F61C487B350FA9FDFC7DC4ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693777   (121445) от 22.01.2024
+###  Публикация: 1695252   (120449) от 28.01.2024
 
-Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Wheels (4:31)
-02. Runaway Train (5:42)
-03. The Letter (Telegram to Monica) (5:38)
-04. Reach Out (6:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:07
+01 - Betty's Too Tight (00:05:41)
+02 - Tough Kid (00:06:42)
+03 - Subterranean Homesick Blues (00:05:14)
+04 - Bang Bang (00:04:07)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:26:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3AD4C8ADF4CF00B30DDBB5B6B9754A0A60E5AB2
+magnet:?xt=urn:btih:9B285F7865134F5F0133897713502BD29878F933
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693787   (121442) от 22.01.2024
+###  Публикация: 1695119   (120430) от 28.01.2024
 
-Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Runaway Train (4:22)
-02. Slow Down Billy (4:05)
-03. Mostly We Drive (5:23)
-04. It Doesn't Matter (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:00
+1. Questions
+2. Jingle Jangle Jungle
+3. The Proper Gander
+4. Bullfrog(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:31:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBBE6DBC54F3DE12E387FCFEFBFEAF6B4D51A761
+magnet:?xt=urn:btih:6B329A64D5AF84BC1133524AAB09A6738F6C5351
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693854   (121440) от 22.01.2024
+###  Публикация: 1695280   (120427) от 28.01.2024
 
-Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dead End Symphony (00:06:26)
-02 - Don't Look Down (00:04:45)
-03 - Mind Like A Windmill (00:04:51)
-04 - Freedoom (00:05:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:22
+01 - He Dies In The Swamp (00:03:44)
+02 - Dream Chasm (00:06:18)
+03 - Beyond The Soil (00:05:46)
+04 - Undead In Ward 6 (00:06:31)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:34:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C07E85A422C89CD70D5DEDF451A7402C4E65CCE6
+magnet:?xt=urn:btih:F875DDB3E2D1F60EC08600CAC9CF683B095BD452
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693460   (121290) от 23.01.2024
+###  Публикация: 1695120   (120425) от 28.01.2024
 
-Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cozy Inn (4:40)
-02. Morning Brunch (2:59)
-03. Jazz for Boutique Hotels (2:57)
-04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
+01. Me & Mr. Hohner
+02. Sugar Man
+03. Sausalito (The Governors Song)
+04. Song for a Dollar(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
+magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693455   (121289) от 23.01.2024
+###  Публикация: 1695241   (120423) от 28.01.2024
 
-Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar Jazz for Chill and Relax (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Chill Out, Smooth Jazz>
+Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Celtic-Folk-Power Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fly Higher (6:18)
-02. Big Dreams (3:37)
-03. Inspiring me (3:29)
-04. Should We Try (4:03)(   Читать дальше...   )Жанр: Jazz, Chill Out, Smooth JazzПродолжительность: 00:59:34
+01. Alicia en el metalverso (12:01)
+02. El sombrerero loco (4:31)
+03. El metalverso (4:56)
+04. Seremos huracán (4:57)(   Читать дальше...   )Жанр: Celtic-Folk-Power Metal, Hard RockПродолжительность: 00:55:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
+magnet:?xt=urn:btih:F7246EDC2B6D41AB58C4E0DA18C6C53BE3F465D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693456   (121284) от 23.01.2024
+###  Публикация: 1695244   (120408) от 28.01.2024
 
-Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fly Higher (6:18)
-02. Big Dreams (3:37)
-03. Inspiring me (3:29)
-04. Should We Try (4:03)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:59:34
+01. Lightless (5:07)
+02. Labyrinthine Hex (7:11)
+03. Morningstar (6:57)
+04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
+magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694159   (121281) от 23.01.2024
+###  Публикация: 1695414   (120281) от 29.01.2024
 
-Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astro Warrior Anthem [00:06:50]
-02. Doomsday Party (feat. Elize Ryd) [00:05:15]
-03. Power of the Triforce [00:03:53]
-04. Doomsday Party [00:05:14]Жанр: Power MetalПродолжительность: 00:21:13
+01. Cecil (5:42)
+02. Circles (6:45)
+03. Ghost March (5:52)
+04. Son (8:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49898CF6FE0AC4CD526150D86B57EA73F4387584
+magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693178   (121279) от 23.01.2024
+###  Публикация: 1695409   (120280) от 29.01.2024
 
-Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxing Jazz Ambience (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vintage Cafe (3:02)
-02. Chill Jazz Sessions (3:39)
-03. Afternoon Tea (4:37)
-04. Jazz in the Night (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:55
+01. Flea Circus (3:16)
+02. Frickafumyum (4:52)
+03. San Francisco (4:59)
+04. Captain Hook (3:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75BE9CAEC2DB5C40402A2D9834C32E55FBFF4F1A
+magnet:?xt=urn:btih:F41111FEA684BDC1336D301135131BF1741525C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693466   (121257) от 23.01.2024
+###  Публикация: 1695433   (120278) от 29.01.2024
 
-Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner For Two Romantic Unforgetable Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walk by the Moonlight (3:53)
-02. Paris Jazz Night (4:05)
-03. Love Street (4:05)
-04. Soft & Smooth Atmosphere (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:35
+01. Whenever You Smile (03:14)
+02. You Make Me Rock (02:50)
+03. Peaceful Dream (02:57)
+04. Glorious Planet (02:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:366A7B8C62C8CECB2CA4F9E6684D66084EF0781F
+magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1510451   (790813) от 17.11.2021
+
+VA - The Purgatory (Vol.03) (2021) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Primal Age - Adolescent Humanity
+002. Galneryus - Flames Of Rage
+003. Anchors & Hearts - What If God Was One Of Them!
+004. Blood Sermon - Funeral Clown(   Читать дальше...   )Жанр: Hardcore, Metal, Hard RockПродолжительность: 08:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1752D4C60CD27CD813A6AEB34FF8045931D5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388076   (790091) от 04.06.2020
+
+VA - Happy Race: Indie Pop Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790091.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spirit Desire - We Are Everything
+002. Huey Blue - Sugar Mama
+003. Brenn - Ingensteds
+004. Tumppi Varonen - Ihan Sama(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3370D5F52C24912BD121747A7A8020F9CC84A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275653   (789801) от 12.01.2019
+
+VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789801.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wheatus - Teenage Dirtbag
+002. Lynch Mob - Main Offender
+003. Baddiel, Skinner - Three Lions '98
+004. Cherri Rokkett - Do You Want Me(   Читать дальше...   )Жанр: RockПродолжительность: 08:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00E4BAE5CC9EF3D36149DE48D5A081964F9E876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511104   (789358) от 20.11.2021
 
 VA - Rebel Rock Box (CD1) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -664,93 +751,6 @@ VA - Hard Rock Attack Vol.30 (2018) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0891D21A9ECF6EBD9320B686A5166ADF3EB8CCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210470   (778695) от 03.03.2018
-
-VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 The Byrds – Turn! Turn! Turn!
-002 The Hollies - The Air That I Breathe
-003 The Alan Parsons Project - Don't Answer Me
-004 Nazareth - Love Hurts(   Читать дальше...   )Жанр: Classic Rock, Rock & Roll, Blues RockПродолжительность: 03:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C161042EFD835FB818E7CA4EDBEC809447BFE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209826   (778688) от 03.03.2018
-
-VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778688.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. V Sparks - (IRP) Intro
-2. The Magnetic North - A Death In The Woods
-3. Roald van Oosten - A Dream Within A Dream
-4. Cold Weather Company - Another Involved(   Читать дальше...   )Жанр: Indie/RockПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECB016E23063D89CF16F061F3F3976365D6D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210834   (778545) от 04.03.2018
-
-VA - The Last Note Of Life (2018) [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Queensryche  -  Empire  5:24
-002.  Kamelot  -  Silent Goddess  4:14
-003.  Liquid Tension Experiment  -  Acid Rain  6:36
-004.  Threshold  -  Avalon  4:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 08:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFEDD8E4270282F7336B379389D59410B0770B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 936044   (497659) от 10.09.2015
+
+VA - Chicago Blues Masters, Vol. 3 (1997) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything Gonna Be Alright (2:38)
+02.  Hold That Buss Conductor (3:18)
+03.  Strollin' The Strip (2:35)
+04.  Respect Me Baby (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AFF70A8176098D6D2ABA96DFC62AB6BDEA56D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936346   (496488) от 11.09.2015
+
+Luxuriant Sedans - Born Certified (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Out of Automobiles (05:15)
+02. Got to Keep Moving (05:25)
+03. Shake It (02:47)
+04. Cold Turkey (06:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0CCE8C6CA4B3736A874435FBD069CBFFE9EB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936337   (496381) от 11.09.2015
 
 John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
@@ -687,64 +745,6 @@ Lara & The Bluz Dawgs - Devil Moon (2012) [MP3|320 кб/с]<Blues, Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:037B93B6268DD90DA71377EBB6094DF2514190A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938000   (486063) от 16.09.2015
-
-Leslie Blackshear Smith - How Love Works Part 1 (2015) [MP3|320 кб/с]<Blues, Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Love Works (04:06)
-02. Quit You (03:47)
-03. Everybody Stumbles (05:47)
-04. Redemption (04:00)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AE9064CE2952656CC5BAACC5861882E525DB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055600   (485784) от 23.09.2016
-
-VA - The Excello Blues Story (2015) 2CD [MP3|320 Kbps] <Funk , Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485784.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lightnin' Slim - I'm A Rollin' Stone (2:28)
-02. Slim Harpo - Buzz Me Babe (2:16)
-03. Roscoe Shelton - Let Me Believe In You (2:19)Жанр: Funk , Soul, BluesПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CA8CEBFE03F66FD0A36F58EB68989A0DBB3FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

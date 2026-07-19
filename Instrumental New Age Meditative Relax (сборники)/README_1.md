@@ -1,3 +1,32 @@
+###  Публикация: 1365501   (930260) от 07.03.2020
+
+VA - Indian Romance (2020) [MP3|192 Kbps] <Native American, New age, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indians, Mato Grosso, Soul Eternity - Sunquyman
+02. The Indians - Circle Of Fire
+03. Indians, Mato Grosso, Soul Eternity, Salaska - Sunquyman
+04. Indians, Salaska - Ananau(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EDC5C7192CD7244D1639769C0F1A175D56E844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987123   (927772) от 16.02.2016
 
 VA - Acoustic Pop (2016) [MP3|320 kbps] <Downtempo, Chillout, Instrumental>
@@ -713,32 +742,6 @@ VA - New Age Style - Erotic  Lounge 11 (2017) [MP3|320 Kbps] <Chillout, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1FF3A3959AE2F9FAEBF03708FD60929E69703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299987   (877759) от 23.02.2011
-
-VA - The Lounge Legend Ballroom Collection (2009) [MP3|320 kbps]<Instrumental | Dance>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental | DanceПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670DEB0177456238FF382D0DB3EA4B9BA4F812CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

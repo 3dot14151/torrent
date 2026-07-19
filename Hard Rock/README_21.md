@@ -1,3 +1,61 @@
+###  Публикация: 1061486   (448863) от 10.10.2016
+
+ZED - The Invitation (2010) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Me Alone   (04:38)
+02. Lunatics And Liars   (04:23)
+03. Halo   (03:57)
+04. A Drug   (03:49)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5D5BC05300415CE4901EA0D7B6008FD8FB8B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570194   (445104) от 16.08.2022
+
+Sweet - The Answer (1995) Remastered, 2022 [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do As I Say (Remastered 2022) [00:04:57]
+02. X-Ray Spec's (Remastered 2022) [00:04:05]
+03. Am I Ever Gonna See Your Face Again (Remastered 2022) [00:04:01]
+04. Stand Up (Remastered 2022) [00:04:58](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A0EFE0274F5729960DD54836AD679806643705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943324   (444924) от 05.10.2015
 
 Clutch - Psychic Warfare (2015) [MP3|320 кб/с]<Stoner Rock>
@@ -687,64 +745,6 @@ The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36004A23842D33D0080D29EB6FFB6AD30BA0BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325344   (414490) от 14.09.2019
-
-BlackRain - Dying Breed (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414490.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Dying Breed[3:51]
- 2 - Hellfire[4:05]
- 3 - Blast Me Up[3:40]
- 4 - Nobody Can Change[4:20](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9BEAB6CC03312D8946340B2E9DD7BBF5964D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412902   (413731) от 01.10.2020
-
-Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HWY 666
-02. Black Eyes Blue
-03. Samantha's Gone
-04. Meine Lux(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4AC8D39BCDF3473BCFEEC185628C1B5D1F8EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

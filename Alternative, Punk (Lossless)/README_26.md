@@ -1,3 +1,119 @@
+###  Публикация: 1142664   (640787) от 15.06.2017
+
+Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Machine (5:02)
+ 02. Coin For The Ferryman (4:50)
+ 03. Song On Fire (3:51)
+ 04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3CFE8749609DACB608FEF541C34DC2040E4605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033197   (639994) от 10.07.2016
+
+Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves of Winter
+02. Friends and Enemies
+03. Animal Style
+04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907229   (639541) от 11.06.2015
+
+Deftones - The Very Best Of The Deftones (2015) [FLAC|tracks + .cue]<Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639541.jpg" />
+</div>
+
+
+###  Подробнее
+
+(04:06) 01.Bored
+(03:44) 02.7 Words
+(03:26) 03.Engine No. 9
+(03:35) 04.My Own Summer (Shove It) (From The Matrix Soundtrack)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64828AE08A7289F483869F3CB5978D63352A4F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542113   (639244) от 06.04.2022
+
+Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Live at the Hotspot (00:04:35)
+02 - Hot Shot (00:02:26)
+03 - Eight Minute Machine (00:02:26)
+04 - Wild Flowers (00:03:34)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A7199F0D8AE4072C59455EF5907E7425967A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293158   (639207) от 02.04.2019
 
 David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
@@ -629,122 +745,6 @@ Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722977A9D40081F4684603BB9E6605ECC3EB1CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294832   (624121) от 10.04.2019
-
-Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <Alt. Metal, Industrial Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Systematic Chaos	(03:30)
-02.	Sonic Bionic	(04:08)
-03.	Electro-Mechanical	(04:23)
-04.	Cellophane Nation	(04:01)(   Читать дальше...   )Жанр: Alt. Metal, Industrial Rock, Female VocalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2672FD1B74CF9FCFE8958EF4F5E75E91788EA6F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036079   (622827) от 19.07.2016
-
-Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Learn In School
-2. Gone With The Wind
-3. Respect
-4. Balloon(   Читать дальше...   )Жанр: Punk Rock, IndieПродолжительность: 0:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E922A404323BE6543EF31765699F58163441A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910252   (621783) от 20.06.2015
-
-Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, Indie Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn To Dust (3:08)
-02. Bros (3:45)
-03. Your Loves Whore (4:57)
-04. You're A Germ (2:53)(   Читать дальше...   )Жанр: Rock, Alternative, Indie Rock, Adult Alternative, Post GrungeПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9846F5CAD302EABBFDDB78779BBE1E91882EE542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295228   (620769) от 12.04.2019
-
-Priests - The Seduction of Kansas (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus’ Son (4:00)
-02. The Seduction Of Kansas (3:35)
-03. Youtube Sartre (4:07)
-04. I'm Clean (3:58)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6631794A391B8B618461F277810F74E7401EEE73
 ```
 
 https://mybot314.ru/tekegram_catalog/

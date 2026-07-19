@@ -1,125 +1,3 @@
-###  Публикация: 1194089   (261818) от 23.12.2017
-
-Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Told You (4:02)
-02. Hills and Valleys (4:02)
-03. I Feel It Coming (4:39)
-04. Everywhere I Go (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Chillout |Продолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B08A95ADAAA319A1581A07E5FE5833BF6B2EE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193957   (261813) от 23.12.2017
-
-Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath [05:32]
-02. Requiem [07:09]
-03. Lamb of God [02:35]
-04. Martin Was a Man, a Real Man [04:16](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9635221558ECAA43C5004947B5486965B642001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193951   (261812) от 23.12.2017
-
-Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addio Fratello Crudele [07:19]
-02. Mio Caro Dottor Grasler [06:32]
-03. La Voglia Matta [04:47]
-04. Just Beyond The Horizon [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504467   (260758) от 03.06.2012
-
-Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Edge
-02. Mr. Cool
-03. McMinor
-04. Mind Over Matter
-05. Minor Matters
-06. Try Tone Today
-07. Terrabill Blues
-08. Nobody Yet To
-09. It Be FM
-10. Brasilia2005Жанр: Post-Bop, Fusion, Guitar JazzПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501569   (259306) от 29.05.2012
 
 Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
@@ -801,6 +679,136 @@ Bethany & Rufus Roots Quartet - Live a FIP (2009) [FLAC|Lossless]<Folk-Jazz, Voc
 08. Iraq (4:25)
 09. Oh Death (5:15)
 10. St James Infirmary (7:16)(   Читать дальше...   )2009Жанр: Folk-Jazz, Vocal JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499966   (256947) от 22.05.2012
+
+Fletcher Henderson - Fletcher Henderson and His Orchestra (1937-1938) (1990) [FLAC|Lossless]<Dixieland, New Orleans Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Wearin' Me Down (2:54)
+02. Slumming On Park Avenue (2:30)
+03. Rhythm Of The Tambourine (2:42)
+04. Stampede (3:09)
+05. Back In Your Own Backyard (2:34)
+06. Rose Room (In Sunny Roseland) (3:01)
+07. Great Caesar's Ghost (2:24)
+08. If You Ever Should Leave (3:03)
+09. Posin' (2:48)
+10. All God's Chillun Got Rhythm (2:43)(   Читать дальше...   )1990Жанр: Dixieland, New Orleans Jazz, Big Band, SwingПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499021   (256462) от 21.05.2012
+
+Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Fishin' (with Bing Crosby)
+02. (I'll Be Glad When You're Dead) You Rascal You (with Louis Jordan)
+03. La Vie En Rose
+04. My Sweet Hunk O'Trash (with Billie Holiday)
+05. Blueberry Hill
+06. (What Did I Do To Be So) Black and Blue
+07. Do You Know What It Means To Miss New Orleans?
+08. I Wonder
+09. When It's Sleepy Time Down South
+10. I'm Confessin' (That I Love You)(   Читать дальше...   )2006Жанр: Jazz, BluesПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499690   (256454) от 21.05.2012
+
+Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498503   (256271) от 21.05.2012
+
+Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood
+02. The Tribute
+03. Turnaround
+04. That Time Of The Year
+05. Home
+06. You Will Be Missed
+07. European Summer
+08. Two Flies With One Hit
+09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
 
 ## Скачать торент
 ```bash

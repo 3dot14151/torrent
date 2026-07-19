@@ -1,119 +1,3 @@
-###  Публикация: 1282859   (741237) от 15.02.2019
-
-Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellotone [6:01]
-02. The Midgets [9:25]
-03. Whirly-Bird [4:07]
-04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283105   (741236) от 15.02.2019
-
-Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Walked Bud [4:43]
-02. All in Love Is Fair [4:45]
-03. Lovesick Blues [3:28]
-04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283104   (741235) от 15.02.2019
-
-Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming Home [4:21]
-02. Burst in with the Dawn [4:37]
-03. Come in from the Rain [4:17]
-04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283107   (741234) от 15.02.2019
-
-Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Jackle [12:25]
-02. Melody for Melonae [10:52]
-03. Jossa Bossa [9:20]
-04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282876   (741233) от 15.02.2019
 
 Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -745,6 +629,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A62CF4BB83F32D68371FC2052D4CEF9FE91DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283612   (739846) от 17.02.2019
+
+Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739846.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Opus 1 [4:15]
+02. Teapot [4:34]
+03. Like Someone In Love [4:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 02:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9331210DEC4A974B85F1210F120D80B31BB8504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283500   (739844) от 17.02.2019
+
+Acker Bilk - The Love Album (1989) Pickwick Music [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love [5:02]
+02. A Groovy Kind of Love [3:25]
+03. Velvet Nights [4:05]
+04. Could've Been [3:34](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D564ADBB972F22B653C9FEF73DDADAAD1D4234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283499   (739842) от 17.02.2019
+
+Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger on the Shore [2:50]
+02. I Want to Know What Love Is [4:04]
+03. I Just Called to Say I Love You [4:22]
+04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283502   (739837) от 17.02.2019
+
+Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stranger On The Shore [3:20]
+02. Sailing [3:18]
+03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

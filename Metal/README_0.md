@@ -1,3 +1,90 @@
+###  Публикация: 1847816   (1052494) от 14.01.2026
+
+Drowned in Silver - Mothers (2025) [MP3|320 Kbps] <Black Doom Gothic Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Living Gardens
+2. Waves of Sorrow
+3. Mothers
+4. Disillusion(   Читать дальше...   )Жанр: Black Doom Gothic Metal, GrindcoreПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04207E22C53CE423007CE5BFA8BB065CA9FB152C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847842   (1052487) от 14.01.2026
+
+Kiljin - Far Too Gone (2026) [MP3|320 Kbps] <heavy metal old-school>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Life [00:06:08]
+2. Disjointed [00:03:02]
+3. Erased [00:05:33]
+4. What Are You Looking For [00:03:19](   Читать дальше...   )Жанр: heavy metal old-schoolПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FE881C27707DADE45BFE12C1C6EC69412FDDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847978   (1052395) от 15.01.2026
+
+Soen - Reliance (2026) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primal(4:34)
+02. Mercenary(4:10)
+03. Discordia(3:55)
+04. Axis(4:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC081E3CBA267C3A2064BBC67A7CE7008742615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847982   (1052392) от 15.01.2026
 
 Kreator - Krushers of the World (2026) [MP3|320 Kbps] <Thrash Metal>
@@ -659,93 +746,6 @@ facebook
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87882F9C772BC413EE67FEAAB95803C7320E6240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606940   (1044078) от 26.01.2023
-
-Almach - Don't Look Back (2023) [MP3|320 Kbps] <Atmospheric Black, Oriental Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Path of the Night (Intro) [00:02:54]
-02 - Wolf [00:05:10]
-03 - Three Steps Beyond the Horizon [00:04:55]
-04 - Don't Look Back [00:06:20](   Читать дальше...   )Жанр: Atmospheric Black, Oriental Metal, Folk MetalПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A07EB5820F107871322F54DF28C08A13576396A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607428   (1043976) от 27.01.2023
-
-Walg - 3 Albums (2021-2023) [MP3|320 Kbps] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Walg
-2022 - II
-2023 - IIIЖанр: Melodic Black MetalПродолжительность: 3 CD, 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84563FD8F02333DE774A929731B59917C01FD9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607614   (1043973) от 27.01.2023
-
-Turbid North - 2 Albums (2015-2023) [MP3|320 Kbps] <Death, Groove Metal, Doom Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Dying [00:04:19]
-02. The Oppressor [00:03:13]
-03. Slaves [00:03:39]
-04. Life over Death [00:04:10](   Читать дальше...   )Жанр: Death, Groove Metal, Doom Metal, StonerПродолжительность: 2 CD, 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686EB69E0A7275C58F1346D7BA29CA33EFEA92F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1619290   (201223) от 15.03.2023
+
+Microsoft Visual C++ 2015-2022 Redistributable 14.36.32502.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распространяемый компонент Visual C++ устанавливают компоненты среды выполнения, необходимые для выполнения приложений C++, которые разработаны с помощью Visual Studio.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EFC48D0EC0F285939955D76FDC7CAEE3DA7230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619681   (201222) от 17.03.2023
 
 Allavsoft Video Downloader Converter 3.25.6.8475 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -650,32 +676,6 @@ feb_2023_x64_dvd_909defc0.iso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5C2EEAB922ACB6634E9DFAF2B4F0C26A39F6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620771   (201024) от 21.03.2023
-
-VueScan Pro 9.7.99 (20.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201024.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8E59863694D599B359BBD4AD2C70262418086
 ```
 
 https://mybot314.ru/tekegram_catalog/

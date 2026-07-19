@@ -1,3 +1,32 @@
+###  Публикация: 1751044   (104137) от 22.09.2024
+
+VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Band - Sweet Dreams
+02. Fanny Cadeo - Pecame
+03. The Dancers - Never Alone
+04. Martine - Tough Girl(   Читать дальше...   )Жанр: Electronic, Eurodance, ItalodanceПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756125   (103564) от 19.10.2024
 
 VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
@@ -845,41 +874,6 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467257   (82049) от 14.03.2012
-
-Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (4:39)
-02. Down The Rabbit Hole (2:41)
-03. Ring Of Fire (2:06)
-04. Fever (3:32)
-05. Tribal Segment (1:24)
-06. Sleepwalker (5:00)
-07. Whataya Want From Me (4:26)
-08. Soaked (4:37)
-09. Aftermath (5:01)
-10. Jamming With Lazers (4:59)(   Читать дальше...   )2011Жанр: Pop-RockПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E420CD46C53959C325C4CE299CB3A779412E18EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1728044   (54250) от 05.06.2024
+
+VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N-Trance feat. Ricardo Da Force - Stayin' Alive
+02. 2 Unlimited - Do Whats Good For Me (edit version)
+03. Alexia Feat. Double You - Me And YouЖанр: Electronic, Euro House, EurodanceПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728227   (54133) от 06.06.2024
 
 VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -718,32 +746,6 @@ VA - Bravo Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:143A95BEA42EEE324E543EF57E46DA585CAFADC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749351   (43563) от 14.09.2024
-
-VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCDA33D72B9D210ABF4EAA677283BE9A526AA97
 ```
 
 https://mybot314.ru/tekegram_catalog/

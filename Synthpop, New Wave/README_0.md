@@ -1,32 +1,3 @@
-###  Публикация: 1457303   (1024626) от 25.03.2021
-
-Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Telemark [00:05:56]
-02 - Chevrolée [00:05:50]
-03 - Orbit Anthem [00:05:32]
-04 - Europa Supersaw [00:05:57](   Читать дальше...   )Жанр: Nu Disco, SynthpopПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B481CE72AB9DC951E2F0D7B5598B7989A0A78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460529   (1022446) от 06.04.2021
 
 Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
@@ -751,6 +722,35 @@ Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A2135698760E51E0D48E5AAAF3E8FBCB5EFCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997135   (868208) от 20.03.2016
+
+Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP3|320 кб/с] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yellow Magic Orchestra (YMO) — музыкальный коллектив из Токио (Япония). Группа была образована в 1978 году, и является одним из пионеров японской электронной музыки.
+1978 - Yellow Magic Orchestra
+1979 - Solid State Survivor
+1980 - Public Pressure (Live)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 21:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F5DE7BD838C96607ED1BB6B8893C7AB4AFB861
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1323729   (431693) от 06.09.2019
-
-Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431693.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Portrait In Jazz:
-01. Come Rain or Come Shine [3:21]
-02. Autumn Leaves [5:59]
-03. Autumn Leaves (mono) [5:24](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Piano JazzПродолжительность: 02:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581E25A9591259AE5F0AB67F1AEBF2738AC4B782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553033   (431587) от 03.10.2012
-
-Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless]<Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluma/Smoke on the Water  (5:39)
-02. The Medley Purple Haze/The Third Stone from the Sun/Teen Town (17:36)
-03. Star Spangled Banner  (5:01)
-04. Reza (5:36)
-05. Honestly (6:28)
-06. Invitation (7:43)
-07. Broadway Blues (12:31)Жанр: Jazz-Rock, FusionПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553324   (431579) от 03.10.2012
-
-Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Felicidade (Happiness) [05:15]
-02. Correnteza [02:28]
-03. So Tinha De Ser Com Voce [03:45]
-04. Medo De Amar (Surrender The Soul) [03:43]
-05. O Morro Nao Tem Vez (Favela) [06:20]
-06. Estrada Branca (This Happy Madness) [04:49]
-07. Outono (Stay) [05:02]
-08. Double Rainbow [05:33]
-09. Imagina [02:55]
-10. Desafinado (Slightly Out Of Tune) [05:13](   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555291   (431513) от 03.10.2012
-
-Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, Rock, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (To Your Heart) [05:21]
-02. Goin' Down to Monte Carlo [08:12]
-03. Born to Sing [04:39]
-04. End of the Rainbow [04:36]
-05. Close Enough for Jazz [03:46]
-06. Mystic of the East [04:56]
-07. Retreat and View [06:51]
-08. If in Money We Trust [08:02]
-09. Pagan Heart [07:52]
-10. Educating Archie [05:44]Жанр: Jazz, Blues, Pop, RockПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 129689   (431413) от 23.09.2020
 
 Blue Note Trip - Volumes 1-7 (2003-2008) [FLAC/WavPack|Lossless|image + .cue] <Jazz>
@@ -760,6 +629,124 @@ Arni Egilsson, Ray Brown, Pete Jolly - Basses Loaded (1996) Cambria [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7074C53580F8AFEA699F40FFB57EAA4DEBEEC27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166359   (426920) от 16.09.2017
+
+Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [04:14]
+02. Anything Goes [03:14]
+03. Easy To Love [03:17]
+04. It's Alright With Me [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEEC4863AB38A3D40E959345679058BD0482E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245943   (426521) от 17.10.2010
+
+Basia - The Best Remixes / Clear Horizon (The Best Of Basia) (1990, 1998) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_426521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruising For Bruising (Extended Mix)
+02. From Now On (Band Version)
+03. Run For Cover (Extended Remix)
+04. Promises (Extended French Mix)
+05. New Day For You (Extended Version)
+06. Baby You're Mine (Street Version)Жанр: Jazz, Smooth JazzПродолжительность: 00:31:35 + 01:13:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064535   (426397) от 20.10.2016
+
+Sun Ra and The Arkestra - Sound of Joy (1957) 2003, Delmark[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Experimental Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Is a Sound of Joy [04:05]
+ 02.Overtones of China [03:25]
+ 03.Two Tones [03:42]
+ 04.Paradise [04:31](   Читать дальше...   )Жанр: Avant-Garde Jazz, Experimental Big BandПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942A4928ED8618B0568C3240B8B6D7AF59C79DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064561   (426395) от 20.10.2016
+
+Joey Alexander - Countdown (2016) Motema Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.City Lights [05:47]
+ 02.Sunday Waltz [05:24]
+ 03.Countdown [08:49]
+ 04.Smile [04:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4799E3D33A0834C2781E85D71F6D6DCD4E5CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

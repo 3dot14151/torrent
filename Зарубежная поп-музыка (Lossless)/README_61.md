@@ -1,3 +1,177 @@
+###  Публикация: 947573   (417979) от 17.10.2015
+
+VA - Very Best Of Jeans Hits (1994) 2CD [FLAC|tracks + .cue]<Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lee Hooker / Boom Boom [0:02:41.70]
+02. Lee Dorsey / Working in the Coalmine [0:02:46.40]
+03. Sam Cooke / Wonderful World [0:02:07.27]
+04. Desmond Dekker / You Can Get It If You Really Want [0:02:43.63](   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF571EA3BBB464A2B3A35B6A237E98DD55E3B9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167349   (417340) от 20.09.2017
+
+Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dama Fina
+02. HelL.A. (featuring Siobhan Fahey)
+03. Tchaikovsky
+04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065742   (417210) от 24.10.2016
+
+Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barfu. bis ans Ende der Welt
+02. Liebe gibt und Liebe nimmt
+03. Urlaub fur die Seele
+04. La Isla Felicita(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D365E0990B09EF6E862B753544A6D4C21FD4B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573046   (417121) от 29.08.2022
+
+Lucio Battisti - Umanamente uomo: il sogno (1972) remaster 1989 [FLAC 2.0|192/24|WEB-DL|tracks] <Soft Rock, Chanson, Canzone italiana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I giardini di marzo [00:05:31]
+02. Innocenti evasioni [00:03:47]
+03. E penso a te [00:04:25]
+04. Umanamente uomo: il sogno [00:03:18](   Читать дальше...   )Жанр: Soft Rock, Chanson, Canzone italianaПродолжительность: 00:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D609323B96E6886B3862B94A7B977CEB855B2E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066026   (416657) от 24.10.2016
+
+Olivia Newton-John - Greatest Hits (1976) Japanese Edition, 1984, EMI [WavPack|Lossless|image + .cue] <Pop, Country Rock, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Home Country Roads   (03:19) 
+  02. If Not For You   (02:55) 
+  03. Changes   (02:32) 
+  04. Let Me Be There   (03:01) (   Читать дальше...   )Жанр: Pop, Country Rock, WorldПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA6B08C239F9A18BF94EE94EE578F960DE94B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065991   (416652) от 24.10.2016
+
+Tom Chaplin (Keane) - The Wave (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Post-Britpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Waiting
+02. Hardened Heart
+03. The River
+04. Worthless Words(   Читать дальше...   )Жанр: Pop, Post-BritpopПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB7ED17512EF4CE2293ABD15038AE5718FEA1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065789   (416342) от 24.10.2016
 
 The Radio Dept. - Running Out Of Love (2016) [FLAC|Lossless|tracks] <Indie Pop, Synthpop, Dream Pop>
@@ -569,183 +743,6 @@ VA - Love Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8580267B8D1AE9D9111B5032D0C386D74A587760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414137   (406738) от 06.10.2020
-
-Secret Service - Secret Mission (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret MissionЖанр: PopПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023329AA6983093AB15AFDFF7333306ED0894160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414014   (406732) от 06.10.2020
-
-Patricia Kaas - Patricia Kaas (2016) Warner Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406732.jpg" />
-</div>
-
-
-###  Подробнее
-
-О выходе нового альбома певица объявила в 2015 году, сказав, что она возвращается к своему привычному стилю. Это фактически первый за 13 лет альбом, где присутствуют только новые и оригинальные песни. Позже певица рассказала, что альбом личный и отражает события последних событий её жизни, также Каас заявила, что решила затронуть на альбоме остросоциальные темы, (   Читать дальше...   )01. Adele (03:07)
-02. Cogne (03:34)
-03. Madame tout le monde (02:48)
-04. Sans tes mains (03:34)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C38F1ACBFAA8B34666EAFBECE63FE3B76E0499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564303   (402701) от 23.10.2012
-
-Taylor Swift - Red (2012) [FLAC|Lossless]<Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_402701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Grace
-02. Red
-03. Treacherous
-04. I Knew You Were Trouble
-05. All Too Well
-06. 22
-07. I Almost Do
-08. We Are Never Ever Getting Back Together
-09. Stay Stay Stay
-10. The Last Time (ft. Gary Lightbody of Snow Patrol)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169994   (400441) от 30.09.2017
-
-Belinda Carlisle - Wilder Shores (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adi Shakti (7:19)
- 2. Ek Ong Kar Sat Gur Prasad (6:32)
- 3. Light of My Soul (4:29)
- 4. Rakhe Rakhan Har (4:51)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836895E4B7A18A93D5C8EEEC9EC93245A9F537C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714351   (399509) от 23.10.2013
-
-Helene Segara en duo avec Joe Dassin - Et Si Tu N'existais Pas (2013) [FLAC|image + .cue]<Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Et Si Tu N'existais Pas   (3:35)
-02.  Salut Les Amoureux   (4:00)
-03.  Les Champs-Elysees   (3:11)
-04.  Salut   (3:14)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A629A7EE40D964E3FC341374A56FAA02B99FD03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171083   (397618) от 03.10.2017
-
-VA - Legacy: A Tribute To Fleetwood Mac's Rumours (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonic - Second Hand News [3:31]
-02. The Corrs - Dreams [4:02]
-03. Matchbox 20 - Never Going Back Again [3:45]
-04. Elton John - Don't Stop	[4:39](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F053FE083C33110BC2211EE5BA6FD65297A50147
 ```
 
 https://mybot314.ru/tekegram_catalog/

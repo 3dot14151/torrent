@@ -1,119 +1,3 @@
-###  Публикация: 1393411   (767772) от 30.06.2020
-
-Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Es geht los [6:27]
-02. Westwind [7:41]
-03. ICE [7:02]
-04. Sternklar war die Nacht [7:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C9BE85F16404FD824084A7103A5942D33B8A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278866   (767743) от 27.01.2019
-
-Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Don't Be So) Marxist in Bed [5:07]
-02. Where's the Hook [7:08]
-03. Don't Touch My Moustache [5:20]
-04. What Came Before [5:46](   Читать дальше...   )Жанр: Jazz Fusion, Smooth JazzПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A1352B983AD050DFAD562EC5E878A593824C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493592   (767676) от 27.01.2019
-
-Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, Traditional Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait for You (Je Ne Pourrai Jamais Vivre Sans Toi) (Jacques Demy, Norman Gimbel, Michel Legrand) (3:48)
-02. I Got a Name (Charles Fox, Gimbel) (3:52)
-03. Nobody Knows (Alan Bergman, Marilyn Bergman, Legrand) (3:39)
-04. Being a Woman (Larry Grossman, Hal Hackaday) (3:22)(   Читать дальше...   )Жанр: Vocal Jazz, Traditional PopПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212393   (767669) от 27.01.2019
-
-Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .cue] <Jazz, Pop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Windmills Of Your Mind (3:35)
-02. The Summer Of 42 (2:44)
-03. I Still See You (2:49)
-04. Sea And Sky (vocal by Dusty Springfield) (2:15)(   Читать дальше...   )Жанр: Jazz, Pop, Big BandПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200868   (767545) от 27.01.2019
 
 Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Continental Jazz>
@@ -745,6 +629,122 @@ John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279440   (766120) от 29.01.2019
+
+Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fields of Gold (4:42)
+ 02. Wade in the Water (4:02)
+ 03. Autumn Leaves (4:41)
+ 04. Wayfaring Stranger (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Ballad, Easy ListeningПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3029531CF19B6C31A7C8EC322A3F67BB8BBA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521216   (766087) от 01.01.2022
+
+Noah Haidu - Slowly: Song For Keith Jarrett (2021) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Dancing [10:38]
+02. Duchess [9:14]
+03. What a Difference a Day Makes [10:08]
+04. Rainbow/Keith Jarrett [12:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78926D39B7637D13122835EE0A58E377DF56DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279459   (766046) от 29.01.2019
+
+Michael Arthur Holloway (Michael A Holloway) - Guilt Noir (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Doom Jazz, Dark Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift Your Curtain (7:48)
+02. Exposure (5:07)
+03. Dead Weight (6:06)
+04. Bottom Feeder Blues (4:51)(   Читать дальше...   )Жанр: Dark Ambient, Doom Jazz, Dark Jazz, Jazz Noir, CinematicПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A7B2005CB3169084C5EAF96D48EE04B25D7C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214247   (765811) от 20.03.2018
+
+Frank Minion - The Forward Sound (1958) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The “A” Train [03:09]
+02. But Not For Me [03:17]
+03. I've Done My Share [03:58]
+04. Watermelon [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEF83278D1D561D5289B27D7BE5333C3E5770D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

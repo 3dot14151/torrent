@@ -1,3 +1,32 @@
+###  Публикация: 924392   (558963) от 03.08.2015
+
+The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558963.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПервыЙ концерт всемирного тура по случаю 30-й годовщины основания M.S.G., Nakano Sun Plaza, Токио, 13 января 2010 г. Один из лучших составов M.S.G. 1980-x, партнеры Шенкера по дебютному альбому "The Michael Schenker Group" Гари Барден и Саймон Филипс.01. Welcome Howl
+02. Feels Like A Good Thing
+03. Cry For The Nations
+04. Let Sleeping Dogs Lie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477356BFC5439FB6BD7C7C5DD266F495769780B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924684   (557402) от 04.08.2015
 
 Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
@@ -684,35 +713,6 @@ Wacken Open Air в 2014 году.01. Hell Awaits
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8AF17A8514E1BC927997AAA4C4E297F161ABF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926002   (535277) от 09.08.2015
-
-The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Rolling Stones: Let's Spend the Night Together - оригинальное японское blu-ray издание приуроченное к 30-летнему юбилею североамериканского гастрольного тура Rolling Stones начавшегося в сентябре 1981 года и проходившего в поддержку только что вышедшего альбома Роллингов "Tattoo You", в последствии ставшего в штатах четырежды мультиплатиновым. Фильм (   Читать дальше...   )1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
-2. Let's Spend the Night Together - (Tempe, 13 December 1981)
-3. Shattered - (Tempe, 13 December 1981)
-4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: RockРежиссер: Хэл ЭшбиПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A255957CAA6F375584BB419F7E934AC202ECD114
 ```
 
 https://mybot314.ru/tekegram_catalog/

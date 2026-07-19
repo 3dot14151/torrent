@@ -1,3 +1,148 @@
+###  Публикация: 1801918   (66117) от 14.06.2025
+
+Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Night    [0:04:03.52]
+02. Simple as That    [0:03:17.70]
+03. Amazed    [0:04:00.68]
+04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802035   (66115) от 14.06.2025
+
+slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FEBA6DEA84D519DB30B8225ED0AA50BE58A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802705   (65999) от 19.06.2025
+
+Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made For Us [00:03:27]
+02. Nothing Without Your Love [00:03:31]
+03. Good Love [00:02:56]
+04. Hey Kid [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853820F2A72B4270FD5B9C39B803B85886610823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802904   (65882) от 22.06.2025
+
+VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Thinking Out Loud (Radio Version) (4:42)
+02. P!nk Featuring Nate Ruess - Just Give Me A Reas (4:05)
+03. John Legend - All Of Me (Album Version) (4:32)
+04. Pharrell Williams - Happy (From Despicable Me 2 (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653E313DBBA48EB6407F9CEBEED578DD78002DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802835   (65872) от 22.06.2025
+
+VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 / With or Without You    [0:05:00.28]
+02. Kim Wilde / You Keep Me Hangin' On    [0:04:18.72]
+03. Robbie Nevil / C'est la vie    [0:03:27.70]
+04. Aretha Franklin & George Michael / I Knew You Were Waiting (for Me)    [0:04:02.10](   Читать дальше...   )Жанр: Soft Rock, Synth-pop, DiscoПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D460B737B6C42F93C8D5BD67D75934D9084FD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802898   (65854) от 22.06.2025
 
 VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -596,151 +741,6 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ABFB28C59771B1F1A1FB5E2942067AAE78719ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705529   (63490) от 09.03.2024
-
-Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63490.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Really Sayin' Something (with Fun Boy Three) (2:42)
-02. Cruel Summer (3:35)
-03. Robert De Niro's Waiting... (7 Version) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 03:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35F5EF3B3D1AE1EAB1CC3984CB9782CB0337086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705796   (63381) от 10.03.2024
-
-Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotye – Somebody That I Used To Know (04:05)
-02. Maroon 5 – Payphone (03:52)
-03. Avicii – Wake Me Up (Radio Edit) (04:06)
-04. Katy Perry – California Gurls (03:55)(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9E9C91AB378BBC2D9697D2CA4B7CC42228E007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706263   (63161) от 12.03.2024
-
-Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation, Reissue, 2024, Cherry Pop [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот box set, содержащий 52 трека на 3-х компакт-дисках, включает в себя три студийных альбома Cutting Crew, записанных в период с 1986 по 1992 год, номинированный на Grammy дебютный альбом Broadcast (1986), получивший признание следующий альбом The Scattering (1989) и альбом для повторного открытия Compus Mentus (1992), а также B sides, remixes и demos. Cutting (   Читать дальше...   )CD1:
-01. Any Colour (4:42)
-02. One For The Mocking-bird (4:31)
-03. I’ve Been In Love Before (5:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3FA745E897B3DC39B6B84395A29B34E59310F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708509   (62218) от 21.03.2024
-
-VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - Coco Jamboo (Radio Version)                          [03:39]
-   02. Fun Factory - Don't Go Away (Radio Walk)                             [03:28]
-   03. Bluemchen - Kleiner Satellit (Piep, Piep) (Satellite In Der Luft Mix)[04:00]
-   04. Stefan Raab - Hier Kommt Die Maus (Radio Edit)                       [03:18](   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68AD1C76CF04CF15CE29BCE1726F3FE28DC9CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709348   (61941) от 24.03.2024
-
-Army Of Lovers - Sexodus (2023) [FLAC|Lossless|image + .cue] <Pop,	Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus
-02. Love Is Blue
-03. What's That Look
-04. Romanism(   Читать дальше...   )Жанр: Pop,	Europop, Synth-popПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B39853C6AE2BAD02CAE6FC78F78A2E8704503E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 715908   (395617) от 27.10.2013
+
+Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Berry - Memphis
+02. Brian Pool & The Tremeloes - Do you love me
+03. Gerry & The Pacemakers - I like it
+04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715926   (395610) от 27.10.2013
+
+Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petula Clark - Downtown
+02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
+03. Them - Baby please don't go
+04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567576   (394688) от 31.10.2012
+
+Сборник клипов - VA - Various Music part. 36 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E57B1A2ECAE76A3B5196B9DAC3DBE937BD9207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171967   (394595) от 06.10.2017
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз.
+Да прибудет с нами качественная музыка! Все лучшее для вас! ALEXnROCK000 Intro
+001 La Bouche - Be My Lover
+002 Backstreet Boys - Everybody
+003 Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E7EE9261D561B1B70CE66DFE76E64553C8FDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568209   (394462) от 31.10.2012
 
 Линдси Стирлинг / Lindsey Stirling (2010-2012) WEB (1080p)
@@ -592,116 +706,6 @@ Rihanna представляет новое скандальное видео  �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F8D163A3F76EABA38F5D770343B342B33E792D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253463   (379093) от 11.10.2018
-
-Сборник клипов - Best Hits 80 от ALEXnROCK часть 3 (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
-112 Kim Wilde - Never Trust A Stranger
-113 Janet Jackson - Love Will Never Do (Without You)
-114 A-HA - You Are The One(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F833109B713519F3A81C466B505CA7045D576CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573842   (378112) от 11.11.2012
-
-Окарина / Ocarina (сборник) [H.264] Mp4 (2007)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные виды природы под музыку Ocarina...Жанр: Музыка, New Age, RelaxПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B449BCB8C0DF70371E14D2E995B65F448599BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340537   (377111) от 31.10.2011
-
-Akcent / Коллекция видео (2002-2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Akcent — румынская поп-группа.Продолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B20BC4D7220DDDE162E39963930E2DA3CE33E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949575   (377040) от 23.10.2015
-
-VA - Осенний марафон № 199 / Видеоклипы (Свежие Новинки с Мира Хитов) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (23.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ana Criado - Dancing Sea (Moonnight remix) (00:03:29)
-02. Anastacia - Take This Chance (Official Video) (00:04:10)
-03. Andreas - Время (ПРЕМЬЕРА!) (00:03:11)
-04. Aram MP3 ft. The Sunside Band - You're My Sunshine (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55427B2FB958C316B33A97868E2DF2ED90F7F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

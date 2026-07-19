@@ -1,119 +1,3 @@
-###  Публикация: 904722   (653461) от 04.06.2015
-
-Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Note (4:15)
-02. River Crossing (3:36)
-03. The Way It Was (3:49)
-04. Polished (3:30)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D8318A2BE9E5C53DB080CB1A32D0E58CA1FFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904763   (653458) от 04.06.2015
-
-Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evocacao das montanhas (6:03)
-02. Teia de renda (2:43)
-03. Anima (4:12)
-04. Olha (3:13)(   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE44CB98447BE28D850226F184FB0D0322454FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904775   (653380) от 04.06.2015
-
-Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come (2:49)
-02. Come Fly With Me (3:09)
-03. The Lady Is A Tramp (3:27)
-04. Ain't That A Kick In The Head (2:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291754   (652731) от 26.03.2019
-
-Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aulnay Blue [4:16]
-02. You Must Believe In Spring [6:13]
-03. Batida De Coco [6:21]
-04. Cactus Dance [7:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877132A17DC227953249B17FF815F08CA673F9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291752   (652730) от 26.03.2019
 
 Fred Astaire - The Great MGM Stars (1940-e - 1950-e) 1991, EMI Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Soundtrack>
@@ -745,6 +629,122 @@ Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72DBC227B8B3A600C231B2E80E491137C71B60F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291916   (650694) от 27.03.2019
+
+David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650694.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. JasVan (for James VanDerzee) [20:24]
+02. Home [16:36]
+03. Secret Of The Circle [22:00](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE45AB9EEBF9CC041DF97FB75D91C7D12252E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141447   (650561) от 10.06.2017
+
+Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012) Slowfoot [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punjab [14:24]
+02. Smoking My Sad Cigarette [04:27]
+03. The Maids of Cadiz [06:25]
+04. How About You [03:12](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141443   (650559) от 10.06.2017
+
+Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa [03:33]
+02. Cancao De Noite [04:35]
+03. Danzas cubanas: A los tres golpes [01:22]
+04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141448   (650558) от 10.06.2017
+
+Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No brain no pain [05:10]
+02. A wonderful afternoon with Zena-Laure [05:00]
+03. Fema ka [04:47]
+04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

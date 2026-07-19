@@ -1,32 +1,3 @@
-###  Публикация: 993742   (894181) от 06.03.2016
-
-Theander Expression - Wonderful Anticipation (2016) [MP3|320 кб/с] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anticipation Anthem (2:30)
- 02.  You Always Ran Away (4:00)
- 03. Wonderful Anticipation (4:45)
- 04. Ms. Trendy (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BBF199F4453790E6F22F5E4F7A3D34CC04F3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994025   (894143) от 06.03.2016
 
 VA - Brown Acid: The First Trip (2015) [MP3|320 кб/с] <Psychedelic Rock, Hard Rock, Acid Rock>
@@ -747,6 +718,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55F5C261486BB4B6B9CCBBAD8211A761B4EB5D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765328   (876390) от 11.03.2014
+
+Firkin - Finger in the Pie (2014) [MP3|320 кб/с]<Folk-Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donegal Danny
+02. If I Could Be The Pope
+03. Kind And Fine
+04. Molly Malone(   Читать дальше...   )Жанр: Folk-Rock, Punk RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A09AD3D9796D244C1220BF1D2AF455520A069A
 ```
 
 https://mybot314.ru/tekegram_catalog/

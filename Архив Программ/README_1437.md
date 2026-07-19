@@ -1,3 +1,29 @@
+###  Публикация: 1331741   (320880) от 17.10.2019
+
+MediaHuman YouTube to MP3 Converter 3.9.9.25 (1210) RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7B150123C17658E8F3F9F3BFBBD2D2F8B2CD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259358   (320879) от 03.11.2018
 
 YTD Video Downloader PRO 5.9.10.3 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:105EBDBE8B9AFEE10873A9E6EFAE727F3CE7F548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331783   (320651) от 17.10.2019
-
-Apeaksoft Video Converter Ultimate 1.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из DVD и видеофайлов, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные знаки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B8048A6FA5C60D995D57F71BEE83F690371058
 ```
 
 https://mybot314.ru/tekegram_catalog/

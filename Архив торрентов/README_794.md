@@ -1,58 +1,3 @@
-###  Публикация: 1373773   (872827) от 10.04.2020
-
-VA - Cosmophilia Volume 1 (2003) 2CD [MP3|320 Kbps] <Psy-Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872827.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:15:47)
-01. Slugger - Omniwax (08:22)
-02. Teleport - Resumption (09:17)
-03. Amtrax - Cityliner (07:15)(   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 02:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896A2E5FB47DD2CF27E39C16E1A0DF5C4AC7C04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374584   (872826) от 10.04.2020
-
-Tipard Video Converter Ultimate 10.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Video Converter Ultimate - профессиональная программа для комплексной обработки видео, аудио и DVD. Может легко преобразовать все форматы видео, в том числе и HD видео, в другие мультимедиа форматы. Может работать также с аудио файлами, легко извлекает аудио из видео. Программа позволяет загружать онлайн видео на Ваш компьютер, редактировать видео / DVD. Версия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0127AA302499CE9C2E71A13316824262FACEC85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983414   (872800) от 17.03.2016
 
 IObit Driver Booster Pro 3.2.0.698 Final Portable by punsh [Multi/Ru]
@@ -677,6 +622,58 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:785E0764D04FA94E3710FAD9D686BE6F6D53B565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374505   (872580) от 10.04.2020
+
+StardewGuide - Tools For Stardew Valley 1.7 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение-гайд по игре Stardew Valley. С помощью этого удобного и простого с использовании приложения, фанаты знаменитой игры смогут узнать много нового и полезного.Тип издания: PremiumРелиз состоялся: 4.04.2020Разработчик: DevMarkelmПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DDB57CD82DBD3FE97AC93DCBF5552B487DE38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374492   (872576) от 10.04.2020
+
+ON1 Effects 2020.1 (build 14.1.1.8865) [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2020Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C61ADF7B4AF91B021AB1C01169051F7A9524970
 ```
 
 https://mybot314.ru/tekegram_catalog/

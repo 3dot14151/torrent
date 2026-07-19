@@ -1,3 +1,177 @@
+###  Публикация: 1253547   (381762) от 10.10.2018
+
+Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Mani Padme Hum (09:58)
+02. Endless (08:59)
+03. Peace of God (11:55)
+04. El Mie (08:10)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253560   (381760) от 10.10.2018
+
+Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Dawning (08:22)
+02.Darkness of Space (06:38)
+03.Lift Thine Eyes (09:14)
+04.Sunborne (14:58)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253563   (381687) от 10.10.2018
+
+Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of This World (06:57)
+02. Sunborne (04:21)
+03. The Flying Bach (06:09)
+04. Radiance (04:53)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4B05C7B2008C2A160E76BB1740CC300B5DF386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253706   (381605) от 10.10.2018
+
+Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction Commentary
+02. Fly
+03. Gentle Wind
+04. Hikari No Nakade(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67394FE2439EAC76E47F8CC38C21FBA99E126F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253341   (381504) от 10.10.2018
+
+VA - Александр Зацепин: Песни из к-ф 31 июня (1996) [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Анциферова - Мир Без Любимого
+02. Татьяна Анциферова - Он пришел
+03. Михаил Файбушевич - Лунный день
+04. Татьяна Анциферова - Ищу тебя(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AFC9085C91DFC6A759C88BE42DB5854D052813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175303   (381082) от 17.10.2017
+
+Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayatri Mantra
+02. Obstacle Removing Mantra
+03. Moola Mantra (feat. Ashana)
+04. Advaita Vedanta Mantra of Non-Duality(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DDEF204DF14D193DCE80A841DA75707C814591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174882   (381079) от 17.10.2017
 
 Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -565,184 +739,6 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414580   (376166) от 12.10.2020
-
-Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376166.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Intro
-[03:21] 02. Blood Machines Theme
-[03:19] 03. Attack Of The Amazons
-[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414498   (376026) от 12.10.2020
-
-Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kbps] <New Age, Enigmatic, Choral>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Procession
-02. Misereris
-03. Christus factus est
-04. Halleluja I(   Читать дальше...   )Жанр: New Age, Enigmatic, ChoralПродолжительность: 05:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CA38E148FE29903538BD113965F226A0EA5C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415368   (376011) от 12.10.2020
-
-Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069010   (375962) от 03.11.2016
-
-David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Rain [00:03:43]
-02. The Approaching Storm [00:04:53]
-03. Cloud Burst (Interlude) [00:01:31]
-04. And Skies Opened Up [00:04:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABB69AD400C84B3A3CC987BDB1C128C341DAD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574336   (375539) от 12.11.2012
-
-V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FLAC (tracks+cue)|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco Dancer (1982)
-01. Vijay Benedict - I Am A Disco Dancer
-02. Parvati Khan - Jimmy Jimmy Jimmy Aaja
-03. Usha Uthup, Bappi Lahiri - Auva Auva Koi Yahan Nache
-04. Bappi Lahiri - Yaad Aa Raha Hai
-05. Nandu Bhende - Krishna Dharti Pe Aaja Tu
-06. Kishore Kumar - Ae Oh Aa Zara Mudke
-07. Suresh Wadkar - Goron Ki Na Kalon Ki
-Kasam Paida Karne Wale Ki (1985)
-08. Salma Agha - Dance Dance(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574330   (375454) от 12.11.2012
-
-Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Keys / RZA - The Baddest Man Alive
-  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
-  03. Kanye West - White Dress
-  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
-  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

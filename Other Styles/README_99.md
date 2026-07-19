@@ -1,3 +1,183 @@
+###  Публикация: 1311232   (539969) от 30.06.2019
+
+Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fellows (03:51)
+02. Gem (03:57)
+03. Fields of Gold (03:31)
+04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226421   (539753) от 14.08.2010
+
+Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(15:30) 1. Dancing Gallery
+(11:34) 2. Dreams
+(09:50) 3. Sunset
+(06:49) 4. Thea
+(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049600   (539674) от 07.09.2016
+
+Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
+Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366073   (539355) от 22.07.2011
+
+S. Ta`rif & M. Derakhshani - Khialangiz (2007) [MP3|128 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539355.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:33] 01.  Heyran
+[06:20] 02.  Sare Kouhe Boland
+[05:49] 03.  Khaste Bal
+[07:08] 04.  Godazan
+[04:39] 05.  Khialangiz
+[06:20] 06.  Toranj
+[06:28] 07.  Derakht Roshanaii
+[05:32] 08.  Soukhte DelЖанр: arabian ethnic  musicПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EDCDF0C78BAF1C50245D996332336B88E6BFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366077   (539354) от 22.07.2011
+
+Jalaleddin Mohammadian & Mohammad Mousavi - Asheghe Divaneh (2008) [MP3|128 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539354.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:53] 01.  Tasnif Asheghe Divaneh
+[13:54] 02.  Avaz Bayat Esfehan
+[04:14] 03.  Tasnif Asheghe Divaneh
+[05:39] 04.  Tasnif Boti Daram
+[14:04] 05.  Avaz Faeze Dashtestani
+[06:02] 06.  Tasnif Boti DaramЖанр: arabian ethnic musicПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ADC6CC011B3E85D0690B390D3B4ACC0815B44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153152   (538839) от 31.07.2017
+
+Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
+Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
+02. Dining Car [03:07]
+03. Cartanica [04:13]
+04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925668   (538759) от 07.08.2015
 
 The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
@@ -621,192 +801,6 @@ VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926128   (535475) от 09.08.2015
-
-Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anam Cara Reprise
-02. Love Conquers All
-03. Spin of the Reel
-04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365220   (535411) от 24.07.2011
-
-Dhikr y Sama - Musica Sufi Andalusi (1999) [MP3|128 kbps]<world ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535411.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:49] 01.  I. Iftitahiyya (preludio)
-[06:33] 02.  I. Iftitahiyya (preludio)
-[02:15] 03.  I. Iftitahiyya (preludio)
-[04:51] 04.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
-[01:37] 05.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
-[09:05] 06.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
-[03:50] 07.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
-[07:33] 08.  III: al-Imara, Danza Sufн o Hadra (Extasis o Trance)
-[02:37] 09.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y Hamdan
-[26:45] 10.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y HamdanЖанр: world ethnic musicПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90095AC8E47FBC0622DC79432D2E8A2A0E850318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367329   (535408) от 24.07.2011
-
-VA - France: Accordeonistes en Aubrac (1999) [MP3|320 kbps]<Folk, France accordeon>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Perrier & Didier Pauvert - Los pastres
-02. Cyprien Dominge - Lo moridon cotet
-03. Didier Pauvert - L'echo des montagnes
-04. Cyprien Dominge - Lo Valentinou
-05. Jean Vaissade & M. Bernard - Ma petite bouree
-06. Louis Pruniere - Mazurka des familles
-07. Cyprien Dominge - Le rossignol
-08. Jean Perrier - Lo crosado
-09. Jean Perrier - Amount sus la montanha
-10. Marcel Pelat - Lа-bas le long de la riviere(   Читать дальше...)Жанр: Folk, France accordeonПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B03B6216B72B07E1FCE64DECD7B377960987EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154766   (535186) от 02.08.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walk The Line
-02. Folsom Prison Blues
-03. Cry! Cry! Cry!
-04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926078   (535158) от 09.08.2015
-
-Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Talk About It (feat. King Mez & Justus)
-03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
-04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312181   (534387) от 03.07.2019
-
-Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track 1 (02:15)
-02. Theme from Child's Play (04:25)
-03. Birth of Chucky (02:41)
-04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

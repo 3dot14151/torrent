@@ -1,115 +1,3 @@
-###  Публикация: 1511730   (788341) от 22.11.2021
-
-Векторный клипарт - Chinese new year 2022 year of the tiger in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-8 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511717   (788339) от 22.11.2021
-
-Векторный клипарт - Happy chinese new year 2022 vector design [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-8 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511777   (788335) от 22.11.2021
-
-Векторный клипарт - Cute animals for the new year and christmas vector illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-9 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511728   (788334) от 22.11.2021
-
-Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-7 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511781   (788330) от 22.11.2021
 
 Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
@@ -715,6 +603,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3104FE8FDCB28772B8D34DDEE9C46B5FF16503C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206453   (782555) от 13.02.2018
+
+Векторный клипарт - Vector Happy Valentines Day #18 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С Днем Святого Валентина
+25 AI + jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339E72D9DD705587B6BC67D77643C3EF733E4230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206363   (782548) от 13.02.2018
+
+Векторный клипарт - Vector Happy Valentines Day #19 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С Днем Святого Валентина
+25 AI + jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBDE499848338509454EBECABDE1A6F8154913B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206360   (782539) от 13.02.2018
+
+Векторный клипарт - Ambulance [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Скорая помощь
+5 AI, EPSФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C75B7D98F7404E47D1381DF384718DF5831169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206361   (782538) от 13.02.2018
+
+Векторный клипарт - Vector Fantastic Heroes Collection #8 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Коллекция фантастических героев
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7451DE8967F1747A4A69CA9ECD9C892E8BE69A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

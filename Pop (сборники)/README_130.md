@@ -1,87 +1,3 @@
-###  Публикация: 1733815   (51171) от 03.07.2024
-
-VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ms Project - Gimme GimmeЖанр: Dance, EurodiscoПродолжительность: 04:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735214   (50149) от 13.07.2024
-
-VA - Happy Birthday to Me! (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Uriah Heep - Happy Birthday [04:42]
-002. Ислам Итляшев - Кобра [02:53]
-003. Loboda - Tvoi glaza [03:54]
-004. Миша Марвин, Ханна - Французский поцелуй (Red Max Remix) [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D9A47A563B3CA2687BCFB4D9F118059E081A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737444   (49541) от 19.07.2024
-
-ZAZ - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Demain C'est Toi
- 02.  Les Passants
- 03.  On Ira
- 04.  Imagine(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240FD2DBB876BD0D2EB02BD2A78C955BE91518AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737751   (49525) от 19.07.2024
 
 VA - Compilation part 98 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
@@ -742,6 +658,93 @@ Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754828   (40557) от 12.10.2024
+
+VA - Red System Records presents ... CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Flames of Love
+02. Ai Talking - First Date Fears
+03. Modern Talking/  Red System - In 100 Years
+04. Modern Talking/  Red System - Cheri Cheri Lady(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991A4A491E0E9B5A94EA9084BDC3B8F3226A18F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754962   (40482) от 13.10.2024
+
+VA - New Pop Revolution (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Gray - Switch (3:00)
+02. Gracie Abrams - I Love You, I'm Sorry (2:37)
+03. Bea and her Business - Safety Net (3:23)
+04. Tate McRae - It's ok I'm ok (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 04:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E91B88BAFF44BB3662B9169A6F8DD34A0D82B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755444   (40177) от 16.10.2024
+
+VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evgenypt - Hi Love My
+02. Ai Talking - Love Hotel
+03. Evgenypt - To Danger (Continuation)
+04. Evgenypt - Totally Miss You(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

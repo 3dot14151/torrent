@@ -1,3 +1,240 @@
+###  Публикация: 1257409   (345036) от 26.10.2018
+
+VA - Top50: Tracks Deep House Ver.5 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneaky Sound System - Can't Help The Way That I Feel (David Penn Remix) 6:16
+02. Pete Bellis & Tommy - Slow Down (Paul Lock Remix) 4:27
+03. Axwell & Steve Edwards - Watch The Sunrise (Everyonne Extended Remix) 5:59
+04. Jax Jones & Mabel feat. Rich The Kid - Ring Ring (Fly & Sasha Fashion Remix) 5:09(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8446426FFF8F495DB90DC199F859B2731F6AF7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953882   (344795) от 06.11.2015
+
+VA - Trance Serpent Vol. 07 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabio XB - Back To You - Matt Davey Remix (06:54)
+02. Roger Shah - Shine - Pedro Del Mar Dub Remix (05:37)
+03. Dirkie Coetzee - We Are Trance (07:07)
+04. Ferry Tayle - The Most Important Thing - Original Mix (07:44)(   Читать дальше...   )Жанр: Vocal Trance, Progressive TranceПродолжительность: 04:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A659D9BA99B45D0D181087EB4D8384D30442F844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954070   (344767) от 06.11.2015
+
+VA - Collection Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Donner - And You Know It's True (05:46)
+02. FL Acid - Not What I Was Expecting (06:32)
+03. Milfy Cougar - Massive Pads (07:09)
+04. Maremare - I Need Your Love Right Now (06:15)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE6BFF2AF3B9BAC34500BA1A876F2F409CA58D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418405   (344702) от 26.10.2020
+
+VA - Summer Chillout Area (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344702.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marga Sol - Sacred Passage
+002. Stepo Del Sol - Mambo Soul
+003. Dmitry Evgrafov - Humble In Heart
+004. Quiroga - The Zoist (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F7D3883C31D473FCB4F0D79A2C8E92C1B488A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418402   (344701) от 26.10.2020
+
+VA - Urban Inspiration: Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zirenz - Edge Of Space Ultimate
+002. Yvan - The Seeking
+003. York - Lilileaf Ladybell
+004. X Trude - Low Frequency(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D386280F015B9D7F1E416305BC2B4DC2FDDEA521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418956   (344698) от 26.10.2020
+
+VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344698.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danny Hay - Grab A Bite
+002. Electronic DJ - Szahala
+003. Solari - Explod
+004. Kasey Kaotto - Cycles(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6351DAAD6F1B40E34ADE8E754957729D814DD05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580241   (344689) от 24.11.2012
+
+VA - Сборник дабстепа с женским вокалом (2010-2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	501 - Grindhouse
+2.	501 ft. Belle Humble - Headrush
+3.	Above & Beyond feat. Zoe Johnston - You Got To Go (Seven Lions Dubstep Remix)
+4.	Adele vs. Skrillex - Set Fire To Everybody (ca7's Mashup)
+5.	Adventure Club Ft Krewella - Rise & Fall
+6.	Amy Kuney - Kiss me Like You Mean it (Butch Clancy Remix)
+7.	Aelyn - In And Out Of Love (DJ Men Bootleg Mix)
+8.	Bat For Lashes - Daniel (Mt Eden Dubstep remix)
+9.	Big Gigantic - We Are The Sun by Savoy ft. Heather Bright
+10.	Booty Luv - Say It (Nero Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953838   (344666) от 06.11.2015
+
+VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro, Minimal, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantik - Golgiapparat (Mollono.Bass Remix) (07:37)
+02. Christos Fourkis - Houze You (07:34)
+03. Sanil Fenice - Before Dawn (Matthias Freudmann Remix)Жанр: Electro, Minimal, Deep HouseПродолжительность: 02:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954180   (344657) от 06.11.2015
 
 VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
@@ -531,262 +768,6 @@ VA - In Da Club Vol.67 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A479EB3B269B08F91AE97DA6F870172DC7CB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330386   (341318) от 10.10.2019
-
-VA - Jungle Sound Party (2019) [MP3|320 Kbps] <Jungle, Bass, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annix - Only Forever
-02. Duoscience - New York City (Original Mix)
-03. Happy Bandana - Good Marijuana (Original Mix)
-04. Artfckt - Epoch (Original Mix)(   Читать дальше...   )Жанр: Jungle, Bass, DnBПродолжительность: 05:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961ED1F31AE38D99DA7232E2136BB20BCC14966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330409   (341293) от 10.10.2019
-
-VA - Autumn Electro Dance Session (2019) [MP3|320 Kbps] <Dance, Electro, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Marttin - Body Like
-002. Ken Laszlo Duet - What A Lonely Night
-003. Zippers - All Around The World
-004. Sixnautic - Sytze Wierda(   Читать дальше...   )Жанр: Dance, Electro, Dance HouseПродолжительность: 12:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAF164141F8130DFB9072DC96B87731090CFA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330407   (341288) от 10.10.2019
-
-VA - Intermission: Chill House Music (2019) [MP3|320 Kbps] <Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eluana Nakoa - Aveline
-002. Pesco Dj - Crystal Skull
-003. Ben Yoo Suk - Gemini
-004. Gustavo Lobo - Pieces (Original Mix)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 12:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270D0BE58F20DE47DE223E4B7957031E4426D38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258042   (341202) от 28.10.2018
-
-VA - Record Super Chart 559 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaulin - Moonlight 2:54
-02. Fisher - Losing It 4:08
-03. Rompasso - Ignis 3:32
-04. Summer Cem - Tamam Tamam 2:27(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCECB356DFED34EBFF6B29666547A200CC33C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581288   (341107) от 26.11.2012
-
-VA - Клубные Новинки Vol.185 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve Justine, Alexander Xendzov - Breath (Vocal Mix)
-02. Jaco - Club Nasty (Original Mix)
-03. JPL & Jason Van Wyk feat. Cat Martin - Safe (P.H.A.T.T. Remix)
-04. Arkadi - The Box (Original Mix)
-05. Inception - Extracted (Original Mix)
-06. A. Skomoroh - Everything's Become Usual (Original Mix)
-07. DJ Aligator - So Far From Home
-08. Bionix vs DSP - Revolution (Original Mix)
-09. Alex M.O.R.P.H. - Sun Of Ilena (Original Mix)
-10. Coppacabanixx - Absinto (Original Club Mix)Жанр: Club, DanceПродолжительность: 04:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FDF8C3C12AFA851C6605C91B36FF2C1B2E3FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577831   (340819) от 26.11.2012
-
-Dj Parafich [Based on the LAOS project] - Vocal Drum And Base Romantica (2012) [MP3|192 кб/с]<Drum'n Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Jose Gonzales & The Knife - Heartbeats (Solarcube Bootleg)
-02 LAOS - Wish Upon
-03 LAOS - Everything
-04 LAOS - Break My Heart
-05 LAOS - We All
-06 LAOS Feat. Kaleb - GTGD
-07 Rico Tubbs  - Feel It
-08 LAOS - Hold On (2009)
-09 LAOS - Helsinki
-10 LAOS - Beautiful(   Читать дальше...   )Жанр: Drum'n BassПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C285F178829A1C46589623B3CFCA9201FEC39A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580737   (340624) от 26.11.2012
-
-VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinyl Scratch - Drowned In Love
-02. Peace Treaty - In Time (Gnitti Remix)
-03. Dead Audio feat. Jade Harris - Take Me Away (Extended Mix)
-04. Killafoe - Hatorade (J.Nitrous Remix)
-05. WiSkiM - Empty Rivers
-06. DJ Vibes - Sing It Loud (DJ Slim, Bedsit Producers Refix)
-07. Obscenity & Killabyte ft. Messinian - Blitz Crank (Original Mix)
-08. Foxes feat. Matt Wiggins & Ghostwriter - Echo (MONSTA Remix)
-09. Suoy - Final Symphony (Original Mix)
-10. Phaeleh Feat. Soundmouse - The Cold in You (Kahn Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069822792E9043CBE99FDF356499768206B60134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580743   (340621) от 26.11.2012
-
-VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenith - Black Ice
- 02. KOAN Sound, Gemini, Culprate, Asa - Beyond The Shadows
- 03. Angus ft. Julia Stone - Draw Your Swords (Alpha Data Remix)
- 04. ENiGMA Dubz - Walk Good
- 05. Soeloe - High Place (Original Mix)
- 06. Squarzan - Wasted Wish (Original Mix)
- 07. DJ Mutagen & V - The Survivors (Left 4 Dead 2 Mix)
- 08. The Prodigy - Smack My Bitch Up (Noisia Remix)
- 09. Butch Clancy - Xlam (Original Mix)
- 10. Sorrow - Siren's Echo(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A99619A95B85C3C5AF4A6DE27CFC9C11EA2D8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

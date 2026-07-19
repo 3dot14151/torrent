@@ -1,3 +1,62 @@
+###  Публикация: 1504377   (812219) от 23.10.2021
+
+Dead Sara - Ain't It Tragic (2021) [MP3|320 Kbps] <Alternative Rock, Modern Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starry Eyed
+02. Good Times
+03. All I Know is That You Left Me for Dead
+04. Hypnotic(   Читать дальше...   )Жанр: Alternative Rock, Modern Hard Rock, USA Pop Rock, Female VocalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE76DF9FCF2977FF888DB20511C7BA86E73F9C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657051   (812159) от 17.05.2013
+
+MorozMatik - On the way to the Bucketland (2013) [MP3|320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the way to the chicken farm (05:16)
+02. Chicken Rock Air (05:15)
+03. In Search Of The Jam (03:21)
+04. Headed Guardian (05:00)
+05. Escape from Bucketland (04:44)Жанр: AlternativeПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F13E607358486E7CA1C87DE43A7162FDF4B6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883702   (810860) от 01.04.2015
 
 Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alternative Rock, Rapcore>
@@ -683,64 +742,6 @@ Mai Lan - Autopilote (2018) Wagram Music / Cinq 7 [MP3|320 Kbps] <Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B9C2918125C20BA689C9577C5773A890A3861F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512079   (787408) от 24.11.2021
-
-Brothers Till We Die - Collection (2014-2019) [MP3|320 Kbps] <Beatdown Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787408.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - We Will Never Grow Up
-2015 - Blood.Death.Suffering.Pain (EP)
-2017 - The Thin Line Between Death And Immortality
-2019 - Touch These Wounds, I Came Back from DeathЖанр: Beatdown HardcoreПродолжительность: 01:50:36 (4CD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C679AECE89AF115FD592E41218564FE892C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388752   (786596) от 07.06.2020
-
-Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good morning (03:08)
- 02. Atreyu (05:26)
- 03. Parachute (06:14)
- 04. Predawn (feat. Phillip Jamieson) (03:28)(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

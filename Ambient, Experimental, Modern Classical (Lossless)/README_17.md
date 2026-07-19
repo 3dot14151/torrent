@@ -1,32 +1,3 @@
-###  Публикация: 1099608   (309950) от 13.11.2017
-
-Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, Dub Techno, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Conversation (04:38)
- 02. Gravity (03:59)
- 03. Remains of the Day (04:13)
- 04. The End (03:28)Тип издания: CD, WebЖанр: Ambient, Minimal, Modern Classical, Dub Techno, Downtempo •Продолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B518D389EBE343623A72EDDA31E24A5CC0285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367507   (308428) от 09.11.2020
 
 Gamardah Fungus - Collection 8 Releases (2011-2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Drone, Modular Synth>
@@ -745,6 +716,35 @@ Sam KDC - Late Night Innominate, Volume One (2015) Auxiliary [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27C442282B8394B6667C58C573A748C6823C32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191697   (263893) от 15.12.2017
+
+Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9:21 (09:21)
+ 02. 3:29 (03:29)
+ 03. 4:05 (04:05)
+ 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1553460   (577625) от 30.05.2022
+
+Michael Schenker Group - Universal (2022) [MP3|320 kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 emergency [00:03:49]
+02 under attack [00:04:37]
+03 calling baal [00:00:39]
+04 a king has gone [00:04:53](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9729ECC75606E4E48D7FD018870029DC15B680C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303376   (574321) от 20.05.2019
+
+Restless Spirits - Restless Spirits (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Livin' to Live Online [05:28]
+02. Unbreakable [05:04]
+03. I Remember Your Name [04:40]
+04. 'Cause I Know You're the One [04:33](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92175ABDF773B9255304B4E45201F5B315A67170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152028   (568559) от 21.07.2017
 
 Europe - The Final Countdown 30th Anniversary Show (2017) Live At The Roundhouse [MP3|320 Kbps] <Hard Rock, Arena Rock>
@@ -699,64 +757,6 @@ Miss Behaviour - Ghost Play (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CCC5242B57F52EBF72AA907F4B07022DC66623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310958   (544525) от 27.06.2019
-
-Devil's County - Whisky Tango Foxtrot (2019) [MP3|320 Kbps] <Southern, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More 3:37
-02. Hardwood Floors 4:30
-03. More Than Me 3:05
-04. Tomorrow 4:52(   Читать дальше...   )Жанр: Southern, Hard Rock, Blues RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5362F7A175568F5E71B9D5C829FF1B3B609590D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311054   (544521) от 27.06.2019
-
-Tony Mills - Beyond The Law (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Westside [4:12]
- 2. Beyond The Law [4:05]
- 3. Running Guns [4:39]
- 4. F.B.I. [4:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378745354B9255BEDAAE84CEEA7744E679A954A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,135 @@
+###  Публикация: 644050   (873265) от 14.04.2013
+
+Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ReggaeПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374429   (872834) от 10.04.2020
+
+Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374432   (872828) от 10.04.2020
+
+Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Megatherium - God (2020)Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D198ECEFCFA130C4953819247BB22BAFBF6763C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374624   (872579) от 10.04.2020
+
+Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Sodom - 2001 - M-16Жанр: Thrash, Heavy MetalПродолжительность: 00:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222F1EBBFA6262CB6880AE09F178DEA6B0D865F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996784   (871597) от 18.03.2016
+
+Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quebeck Magnetic — концертный видео альбом группы, содержащий 26 композиций и документирующий два концерта состоявшиеся 31 октября и 1 ноября в Квебеке, Канада, на Colisee Pepsi и World Magnetic Tour, включает в себя восьми минутное интервью участников группы и их фанатов.
+
+На концертах были сыграны ставшие классикой композиции с альбомов Kill ’Em All (The Four Horsemen, (   Читать дальше...   )Жанр: Музыка, KонцертРежиссер: Wayne IshamАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert TrujilloПеревод: ОтсутствуетПродолжительность: 03:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571097EC77A13FAD60CFB0AF660B851879C11C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 188099   (871447) от 31.03.2010
 
 Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) DVDRip
@@ -568,142 +700,6 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645366   (863578) от 19.04.2013
-
-Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Гордон Олдфилд (Michael Gordon Oldfield; 15 мая 1953, Рединг, Беркшир) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Дебютный концептуальный альбом Майкла Олдфилда «Tubular Bells», главная тема из которого была использована в мистической драме 1973 года «Изгоняющий дьявола» и получила Grammy за лучшую инструментовку; в 2002 году был включен в рейтинг The 25 Most Influential Ambient Albums Of All Time (25 главных альбомов всех времён в стиле эмбиент). Новаторское использование модифицированных католических трубчатых колоколов и уникальное звучание его немного перегруженных гитар наряду с огромным количеством монтажных склеек и наложений при записи сделало стиль Олдфилда узнаваемым и стало основой его музыкального пути. Tubular Bells была первой пластинкой, выпущенной на новосозданном лейбле Virgin Records. В 2003 году она была заново перезаписана и издана в несравненно лучшем качестве. На последних (   Читать дальше...   )Жанр: Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПеревод: ОтсутствуетПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375595   (863534) от 15.04.2020
-
-Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Юлия Чичерина - ДискотекаЖанр: Альтернативный РокПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690637   (863376) от 18.03.2014
-
-Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 2000
-02. Moment Of Glory
-03. You And I
-04. We Don't Own The World(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50347F462341FC99C618ECF6E440E4D3B24C3F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645736   (861819) от 20.04.2013
-
-Хелло, Долли! / Hello, Dolly! (1969) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк. 1890 год. «Миссис Долли Левай, организует знакомства в атмосфере элегантности и утонченности с целью заключения брака!» Такими словами начинается этот киномюзикл. Простая история о свахе, которая находит всем мужей и жен и не забывает про себя, превращена в феерическое шоу с участием актеров, певцов и танцоров.Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст, Фриц Фельд, Ричард Колье, Луи АрмстронгПеревод: Многоголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D94935AFCE02033D34CAA2DA98A19416BEC57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376099   (861692) от 16.04.2020
-
-Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение лучшего, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop 2 — Intro
-01. Nelly feat. P. Diddy & Murphy Lee — Shake Ya Tailfeather
-02. 2Pac — California Love
-03. Ice Cube feat. Lil’ Jon & Snoop Dogg — Go to Church(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C876F8AF3AEA1456F008C2B74CE4B353C3F6C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,247 @@
+###  Публикация: 1015798   (773265) от 12.05.2016
+
+VA - Trance Desire Vol. 69 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sied Van Riel feat. Alicia Madison - Gravity 7:11
+02. David Forbes, Emma Gillespie - Hurricane (Original Mix) 7:01
+03. Julie Thompson with Super8 & Tab - Your Secrets Safe 7:44
+04. Andain - What It's Like (Sneijder Remix) 6:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722BF522051CC756C4A1D5A803AE09246345C76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391705   (773245) от 21.06.2020
+
+VA - Beatport Disco House: Sound Pack #108 (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zoran - Black Dance
+02. Mflex Sounds - Burned By The Fire
+03. DJ Expertise - Quite
+04. Stranger Danger - Chuggy Lovebottoms(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 06:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDE1FA517725AB5745427A45C46107FDC28E605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015857   (773161) от 12.05.2016
+
+VA - Wоrld Withоut Wаrs (2CD) (2016) [MP3|192-320 кб/с] <Spасеsуnth & Spасеdisсо>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 TDHDriver - Let s Go! (Поехали!) (04:14)
+02 Szmc - Dance Of The Galaxies (04:09)
+03 Digimax Ft. Lilac Sheer - Let It Be Forever (06:56)
+04 Everdune - Flying Chariots (AtmanActive remix) (05:30)(   Читать дальше...   )Жанр: Spасеsуnth & SpасеdisсоПродолжительность: 03:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3FDCB34581BCE7F2A42240C0132705A2EFD616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015968   (773157) от 12.05.2016
+
+VA - Hotel Breez: Night Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cafe du Soleil - Sunset Lounge (Sensuality) 04:14
+002. Lamar Ensemble - About Yesterday 05:47
+003. LastEDEN - Foundation (Original Mix) 03:33
+004. Lazy Hammock - Lost In Dreams (Original Mix) 05:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE424AF5BF1FFB4F18039F2499754A9F9A2FB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391603   (773128) от 21.06.2020
+
+VA - Record Super Chart 641 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+02. Little Big - Hypnodancer 3:08
+03. twocolors - Lovefool 3:11
+04. El Capon - Shut Up Chicken 2:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09539D8ADA81E49DB1F397D4EC325985A1A0733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318519   (772590) от 06.04.2011
+
+VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Tas - Without You (V I F Remix)
+02. Alex Barattini - Let Me Kiss You (Radio
+03. Alisiya - Колыбельная (Dj Pomeha Remix)
+04. Arnej - The Day Will Come (Sied van Riel Remix)
+05. Axwell - Nothing But Love (Radio Edit)
+06. Benassi Bros feat. Dhany - Hit My Heart (DJ Freedom Remix)
+07. Bob Sinclar Feat. Ben Onono - Rainbow Of Love
+08. Candi Lynn - Hopn Popn (Disco Fries Clean Radio Edit)
+09. Cher - You Haven't See The Last Of Me (Almighty Radio Edit)
+10. Coolio - Gangsta's paradise (Bernasconi & Farenthide radio mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EB0761FA3F1E204E1C68EEBBCFB17EC36E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318389   (772582) от 06.04.2011
+
+VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
+02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
+03. Tony Igy - Astronomia (Original Mix) [05:58]
+04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
+05. Avicii - Malo [07:14]
+06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
+07. Black Eyed Peas - The Time [05:09]
+08. Nero feat. Alana - Me & You [04:31]
+09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
+10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125368   (772101) от 14.04.2017
+
+VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772101.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airwave - The Quest For Beauty (Jam El Mar Remix)
+002. Vintage & Morelli - Desire (Dezza Remix)
+003. Set Collins - Strangers
+004. Stan Kolev - Forsaken (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4776F4484F3E59EFAEA7CB047324AC6341E0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213342   (772006) от 16.03.2018
 
 VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
@@ -513,238 +757,6 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392429   (769222) от 26.06.2020
-
-VA - Ibiza Warm Time Trance (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Litchfield Project - Prime Mover
-002. Shedona - Infusions (Extended Mix)
-003. John Aleph - Always Forward
-004. Lydia Delay - Dance The Night Away(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3521D15B9C073F573D814F0331E4193756A740DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392434   (769186) от 26.06.2020
-
-VA - Trance Mission: Fantasy (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769186.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferry Corsten & Ciaran McAuley - Mo Chara (Extended Mix) 6:42
-002. Maria Healy - Clouds 3:31
-003. Leroy Moreno - Aetheria (Original Mix) 6:31
-004. Nikolauss - We Are Not Alone 3:53(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveПродолжительность: 11:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B81239E80A7D249C0B73D4C9778009BC16AE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392774   (768963) от 28.06.2020
-
-VA - Beatport Funky House: Electro Sound Pack #109 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myno My - Break Law
-02. The Familys Jam - Alone
-03. Grooveandyes - Lesyx
-04. Silvano Del Gado - El Flamenco(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 08:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6979A312481755C4E92E65DD5954045313F3648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392776   (768957) от 28.06.2020
-
-VA - Beatport Techno: Electro Sound Pack #114 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768957.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ddeck - Trapped
-002. Mamin - Lost In The Wood
-003. Yan Oxygen - Gold Cobra
-004. Blue Collar - Corktown(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9DDD859EECF2CACD5A16EB018F444D21EF40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392936   (768942) от 28.06.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #113 (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Music Elevation - Universe
-002. Christopher Corrigan - Sleepless Nights
-003. Ariams feat. Arabax - Beatrice
-004. Jaroslav Kral - Dancing Meadow(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD8E46F00272E63AC99BDEDBC0D7CCB02E4A834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125382   (768818) от 14.04.2017
-
-VA - Dominant Interaction Psy Trance Sound (2017) [MP3|320 Kbps] <Psychodelic Trance, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bionic Delay - Dominant Interaction
-02. Lacerta - Ice Planet
-03. Xpiral - Collapsing Galaxy
-04. Yoake - Tel Aviv(   Читать дальше...   )Жанр: Psychodelic Trance, Goa TranceПродолжительность: 10:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1075A5503F529480C77A431057976B890B9F3A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278646   (768534) от 26.01.2019
-
-VA - A State Of Deep V [Compiled by ZeByte] (2019) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rustboy - Infinity Artifact [06:45]
-02. Alessandro Diga - End Of This Road (Marc Poppcke Remix) [07:20]
-03. Dahu - Hesia [06:20]
-04. Luis Sole - Green [07:41](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 05:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A14A2BCFB6DF48174BB706DF09F2E85B65A2D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278576   (768472) от 26.01.2019
-
-VA - Extreme Deep House Project (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Capitan - Renacimientos (Original Mix)
-002. Don Danny - Saturday
-003. Numedian - Balearic Winter (Original Mix)
-004. Gagoled - Sunbath(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 10:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB23348FDA04D893C4CDB669798BBA0A221276F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1607830   (232706) от 28.01.2023
-
-Fats Waller - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Been Reading My Mail [2:25]
-02. To a Sweet Pretty Thing [2:27]
-03. Old Plantation [2:42]
-04. Spring Cleaning [2:29](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4B0D30E192E49125818975E79597B5D6290B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639367   (232694) от 13.06.2023
-
-Kay Starr - Losers, Weepers (1960) 2012, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Always Hurt The One You Love [2:55]
-02. I Should Care [2:24]
-03. I'm A Fool To Care [2:44]
-04. Don't Take Your Love From Me [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A00728CB56B458B022FB083D8EA2B977486D38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643539   (232569) от 02.07.2023
-
-Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [9:52]
-02. Barbara [8:59]
-03. Beautiful Mimi [3:40]
-04. All Blues [9:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6440573E6611753E8675E7F4DCF725FD01F9F589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646115   (232561) от 13.07.2023
-
-Bud Shank - The Pacific Jazz Studio Sessions (1956 - 1961) 5CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Groove [6:47]
-02. The Awakening [4:27]
-03. White Lightnin' [5:23]
-04. Sultry Serenade [7:15](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 04:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F371025F1EC53D563C40566236A632CAB3B493BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645761   (232504) от 11.07.2023
 
 Stan Getz - Four Classic Albums: Fourth Set (1957, 1962) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, Bossa Nova>
@@ -744,6 +628,122 @@ Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE1E757EF49429D9B5CE28A3AE979FF2F3E100D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641977   (231665) от 25.06.2023
+
+Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arianna [6:21]
+02. Bologna d'Inverno [9:32]
+03. Why Cry? [10:55]
+04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647232   (231633) от 18.07.2023
+
+Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself A Merry Little Christmas / I'll Be Home For Christmas [7:19]
+02. Silver Bells / In The Bleak Mid-Winter [3:58]
+03. White Christmas / Let It Snow, Let It Snow, Let It Snow / Winter Wonderland [7:00]
+04. Away In A Manger [2:10](   Читать дальше...   )Жанр: Bop, Swing, Big BandПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFCED622C68870534C4BEAC9AF2E1FF25DE06F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643046   (231608) от 30.06.2023
+
+Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Henderson - The Kicker [4:09]
+02. McCoy Tyner - Song for My Lady [7:33]
+03. Flora Purim - Dindi [3:37]
+04. Jim Hall & Ron Carter Duo - St. Thomas [4:48](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D56249C85DD1B0E124F70AED6B63FBE8B66598B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647789   (231407) от 23.07.2023
+
+Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Brand New Baby [5:28]
+02. Bop City Flamenco [6:06]
+03. Lovely Nights In Spain [3:24]
+04. Spain [4:38](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7016CEA99488C12678018673C8EEDEA7038731BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

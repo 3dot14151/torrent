@@ -1,180 +1,3 @@
-###  Публикация: 577882   (354767) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
-</div>
-
-
-###  Подробнее
-
-A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
-2. Zeppelin Media Moment
-3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577993   (354760) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
-
-01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying
-05. For Your Life
-06. Trampled Under Foot
-07. Nobody's Fault But Mine
-08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255918   (354389) от 08.11.2010
-
-Юрий Антонов - От печали до радости... (2005) DVD-9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
-</div>
-
-
-###  Подробнее
-
-18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329376   (354308) от 04.10.2019
-
-Popa Chubby - Wild (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт американского блюзмена Popa Chubby (настоящее имя - Ted Horovitz), прошедшего 27 марта 2004 года в Le Plan, La Fnac Evry, Meridien Hotel, France.01. Intro
-02. Un-American Blues
-03. I Can't See The Light Of Day
-04. Top Ten Reasons Why I Can't Sleep At Night(   Читать дальше...   )Производство: США,DixiefrogЖанр: БлюзПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C826B06B9767560504BF20387E3F59B19A1F58B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178680   (353297) от 29.10.2017
-
-Iron Maiden - Maiden England '88 (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Iron Maiden записанный 27 и 28 ноября 1988 года в National Exhibition Centre (Birmingham, England). Впервые был выпущен в ноябре 1989 на VHS. В 2013 переиздан на DVD и CD.01. Moonchild
-02. The Evil That Men Do
-03. The Prisoner
-04. Still Life(   Читать дальше...   )Производство: PMI (UK)Жанр: Heavy Metal (NWOBHM)Режиссер: Steve HarrisПродолжительность: 1:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E891CAA5B2017E798288D0A4DA79904748E1C3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072017   (351721) от 13.11.2016
-
-Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gregorian представляет последнюю главу своего прощального тура "Masters Of Chant" в заключительном концерте "Final Chapter".
-То, что началось для продюсера Фрэнка Петерсона и группы в 1999 году, стремительно превратилось в монументальное победное шествие: более 10 миллионов проданных альбомов, а также множество золотых и платиновых наград, делают (   Читать дальше...   )01. Masters of chant
-02. Still haven't found what i'm looking for / only you
-03. Stay
-04. Join me(   Читать дальше...   )Производство: Ear musicЖанр: New Age, Enigmatic, ChoralРежиссер: Мартин МюллерАктеры: GregorianПеревод: ОтсутствуетПродолжительность: 02:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724562   (350234) от 20.11.2013
 
 The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
@@ -725,6 +548,174 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260516   (307108) от 09.11.2018
+
+Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия финального выступления Стивена Уилсона в зале The Royal Albert Hall 28.03.2018г в рамках тура в поддержку альбома «To The Bone». Стивен Уилсон (Steven Wilson) – один из крупнейших представителей прогрессивного рока, выпустивший более пятидесяти альбомов на протяжении трех десятилетий своей карьеры, его последний полноформатный альбом «To The Bone» стал (   Читать дальше...   )01. Intro Truth
+02. Nowhere Now
+03. Pariah
+04. Home Invasion / Regret #9(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: James RussellСубтитры: отсутствуютПродолжительность: 02:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183662   (305413) от 15.11.2017
+
+Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rоb Orlemans & Half Past Midnight - голландское трио, играющее блюз-рок в лучших его традициях. "Лицо" группы - Rob Orlemans, инновационный и интересный гитарист-левша, обладающий своим стилем и неповторимым тембром звучания – динамичным и захватывающим. Группа завоевала популярность и авторитет среди поклонников всего мира за их взрывные, живые концерты (   Читать дальше...   )01. Introduction
+02. Going Down (D.Nix)
+03. Libertyville (R.Orlemans)
+04. Buzzin'King Bee (R.Orlemans / J.Moore)(   Читать дальше...   )Производство: Нидерланды, Silvox RecordsЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:26:38 + 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 158559   (303835) от 14.12.2009
+
+Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) 2*DVD-9
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal/Thrash MetalПеревод: ОригинальныйСубтитры: Английский, испанский, португальскийПродолжительность: 02:25:05 + 01:40:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960701   (303342) от 30.11.2015
+
+Cesaria Evora - Live D'amor (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cesaria Evora - Live D'amor En Concert Au Grand Rex Avril 5, 20041. Nutridinha
+2. Isolada
+3. Vaquinha Mansa
+4. Velocidade(   Читать дальше...   )Производство: BMG RecordsЖанр: Morna, Fado, FolkПеревод: ОтсутствуетПродолжительность: 01:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077840   (302413) от 30.11.2016
+
+Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
+02. See See Baby
+03. Some Other Day, Some Other Time
+04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184364   (301295) от 17.11.2017
+
+Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

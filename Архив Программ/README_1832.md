@@ -1,3 +1,29 @@
+###  Публикация: 1591661   (186800) от 19.11.2022
+
+Insofta Cover Commander 7.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cover Commander позволяет создавать профессиональные виртуальные коробки и упаковки; 3D изображения: DVD-коробка, Книга, 3D текст, Визитная карточка, Буклет, Ноутбук, iMac, iPhone, iPad Pro, Nexus, Blu-ray коробка, Скриншот и т.д. Всего несколько щелчков мыши всё что нужно для выполнения этой работы. Исчерпывающие настройки освещения, камеры, тени, отражения позволяют (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771E8AACF5EFFE04C5478ED31CD40C707648A277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663417   (186792) от 21.09.2023
 
 HiBit Uninstaller 3.1.62 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -649,35 +675,6 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E423F0CDE7D1BD07EBEC0E388BB046D4A6EF4687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591706   (186659) от 19.11.2022
-
-Windows 10 (v22h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
-updated_nov_2022_x64_dvd_3f3d778b.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B325B199AF5D37AA276D6F88BF65589629F1E3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

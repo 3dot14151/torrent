@@ -1,3 +1,90 @@
+###  Публикация: 1579659   (334705) от 28.09.2022
+
+Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stab the Brain [00:03:15]
+02. Final Frost [00:04:09]
+03. The Voracious One [00:04:26]
+04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D27859F952CCB4682EBDB2153681CC8AFDF525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258830   (334596) от 31.10.2018
+
+Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Колискову Співала Зима
+2. Блукав Крізь Тумани Місяць Блідий
+3. Темні Думи
+4. Тужили Ясні Зорі(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0343248DF6A505951EEB9FE93BADD507994E6778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420237   (334009) от 31.10.2020
+
+Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entombed (04:37)
+ 02. Ashenlord (05:37)
+ 03. Revenance (05:11)
+ 04. Abyss (05:31)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420078   (333986) от 31.10.2020
 
 Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
@@ -658,92 +745,6 @@ Sound Of Memories - To Deliverance (2015) [MP3|320 кб/с]<MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FE0A46072887450BECD084575A1E4FCCD01B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957271   (327650) от 17.11.2015
-
-Leather Heart - Comeback (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crow
-02. Destiny
-03. Leather Heart
-04. Depths Of Space(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50DE303899C4AAB6D3D5155FA085A869CD5FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581487   (327294) от 05.10.2022
-
-Tell You What Now - Tell You What Now (2022) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wraith (4:20)
-02. Decay Constant (feat. Alexander Kraft) (3:31)
-03. Extremis Malis (4:12)
-04. Extrema Remedia (2:40)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF9792609FAC202D0D512BF8009934A902740E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957550   (326724) от 18.11.2015
-
-Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatal Illusion
-02. Symphony Of Destruction (Live)
-03. Peace Sells (Live)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
 
 https://mybot314.ru/tekegram_catalog/

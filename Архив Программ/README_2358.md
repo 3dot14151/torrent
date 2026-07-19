@@ -1,3 +1,29 @@
+###  Публикация: 1804730   (12876) от 01.07.2025
+
+Media Player Classic Home Cinema (MPC-HC) 2.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804777   (12842) от 01.07.2025
 
 MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -649,35 +675,6 @@ Double Commander - это свободный, с открытым исходны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E507110B725C57B7D88B47B60E904A96992269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805363   (12470) от 05.07.2025
-
-Windows 10 (v22h2) x64 PRO by KulHunter v25 (esd) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
-updated_june_2025_x64_dvd_aace2d00.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA0B38522F54F878083133DDD6D5E8D64C64DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

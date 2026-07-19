@@ -1,3 +1,206 @@
+###  Публикация: 1118216   (813026) от 25.03.2017
+
+James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Better (3:40)
+ 02. Bartender (3:13)
+ 03. Lose My Number (3:28)
+ 04. Don't Give Me Those Eyes (4:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DE7C5D4944D0FA1F24FAC215A8DF902D821EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504516   (811983) от 23.10.2021
+
+Lana Del Rey - Blue Banisters (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Text Book
+02. Blue Banisters
+03. Arcadia
+04. Interlude - The Trio(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27763ACD4D60F6DFF7BD326D0D2FB399FA3F690B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383511   (811728) от 15.05.2020
+
+T.P.H. Productions  - The Party's Here! With Elvis (2002) [FLAC|Lossless|image + .cue] <Pop, Cover, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Lonesome Tonight (2:46)
+02. Blue Suede Shoes (2:00)
+03. Love Me Tender (2:47)
+04. Hound Dog (2:17)(   Читать дальше...   )Жанр: Pop, Cover, OldiesПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EE67C6A7A2BC0799DDBF5E17B3AE64C48D5F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383514   (811581) от 15.05.2020
+
+T.P.H. Productions - The Party's Here! With The Beatles (2002) [FLAC|Lossless|image + .cue] <Pop, Cover, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude (4:00)
+02. Love me do (2:30)
+03. She loves you (2:20)
+04. Yesterday (2:10)(   Читать дальше...   )Жанр: Pop, Cover, OldiesПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD931062AF298D0377EAD09B701B6DB35CF9B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504775   (810208) от 24.10.2021
+
+ZAZ - Isa (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les jours heureux
+02. Imagine
+03. De couleurs vives
+04. Ce que tu es dans ma vie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B756DE49A16C5D00EEF7AD0A5941EB451F005F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198072   (810121) от 10.01.2018
+
+Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Introduccion: Vivencias
+02. Por el Amor De Una Mujer
+03. Dicen(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383587   (810120) от 16.05.2020
+
+Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Like (03:46)
+02. Shaking (03:33)
+03. Wake UP! (03:35)
+04. Off My Mind (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504473   (810074) от 24.10.2021
 
 Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop>
@@ -541,209 +744,6 @@ Michael Jackson - Xscape (2014) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8115C3C8A96798FE09C93453B88953B2239E924B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505997   (801819) от 29.10.2021
-
-Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pray (00:03:53)
-02 - Scared to Talk To You (00:03:09)
-03 - Lonely Cactus (00:03:11)
-04 - Marching On (00:03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121157   (801245) от 01.04.2017
-
-Harry Belafonte - The Real... Harry Belafonte (2014) 3CD [FLAC|Lossless|tracks + .cue] <Calypso, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Scarlet Ribbons (For Her Hair)
-2. Jump Down, Spin Around
-3. Suzanne (Every Night When The Sun Goes Down)(   Читать дальше...   )Жанр: Calypso, Pop, FolkПродолжительность: 03:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA79CE29719B9E091B42276D39F7E68182209C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120966   (801172) от 01.04.2017
-
-In Memory Of George Michael - Tribute Album (2017) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. George Michael (1963-2016)
-2. Wham Interview (1984)
-3. Careless Whisper (Acoustic Tribute)
-4. Last Christmas (Guitar Tribute)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368FB9CB5379A7EFAB0C60992AC1948F64BCF68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120974   (801147) от 01.04.2017
-
-Jamiroquai - Automaton (2017) [FLAC|Lossless|tracks + .cue] <Pop, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shake It On
-2. Automaton
-3. Cloud 9
-4. Superfresh(   Читать дальше...   )Жанр: Pop, FunkПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9016CD0E73795E290BB9BF0E86B70FB0FF844F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199095   (801024) от 16.01.2018
-
-Poppy - Poppy.Computer (2017) [FLAC|Lossless|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Poppy - 3:06
-02. Let's Make A Video - 2:51
-03. Bleach Blonde Baby - 3:30
-04. My Microphone - 2:52(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C386F3A4137F25860D16C31F832B02CB86EC4858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729984   (800877) от 16.01.2018
-
-VA - Absolute Music 74 (2013) 2CD [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя они уже были на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. Только не отправляйте этот диск в каталог ретро. Пусть не смущает вас цифра 74- это не год издания и не период выхода композиций - это всего лишь номер сборника самых последних "свеженьких" (   Читать дальше...   )01. Avicii - Hey Brother (3:12)
-02. Pitbull feat. Kesha - Timber (3:24)
-03. Jason Derulo feat. 2 Chainz - Talk Dirty (2:57)
-04. Drake feat. Majid Jordan - Hold on Were Going Home (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208264977BA598FCE2F1E525CD01894A1059B3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121580   (800613) от 02.04.2017
-
-Fernando Express - Unser traum darf nicht sterben (2004) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lass mich dein Geheimnis sein
-2. Die Zehn Gebote der Liebe
-3. Vielleicht bis bald, vielleicht fur immer
-4. Unser Traum darf nicht sterben(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8A710F9E414ECC932BCECC26567D868C909559
 ```
 
 https://mybot314.ru/tekegram_catalog/

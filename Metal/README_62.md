@@ -1,3 +1,90 @@
+###  Публикация: 932299   (509544) от 29.08.2015
+
+Arkuum - Trostlos (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509544.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prolog
+2. Trübsinn
+3. Ferne Welten
+4. Interlude(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB89A6626074219684FF2BC793CBB6012F62EEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562237   (508935) от 09.07.2022
+
+Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pray For Me (03:41)
+02. Within Temptation & Annisokay - Shed My Skin (feat. Annisokay) (04:30)
+03. The Purge (04:16)
+04. Entertain You (03:31)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88D1903D985E6964BE001589B72510555D74D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316049   (508827) от 23.07.2019
+
+Through Fire - All Animal (2019) [MP3|320 kbps] <Alternative Metal, Modern Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Animal (03:30)
+02. Medicine (03:37)
+03. Sick and Tired (03:44)
+04. Listen To Your Heart (03:35)(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Post-GrungeПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ACB95CBEFCA1E43C1F16E459D779D88512C7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562612   (507046) от 11.07.2022
 
 Halo Of Catastrophe - Symphony From Ruin (2022) [MP3|320 Kbps] <Melodic Heavy Metal>
@@ -667,93 +754,6 @@ Fellowship - The Saberlight Chronicles (2022) [MP3|320 Kbps] <Symphonic Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880C82ED5C34509593D23DF0763D411C78949151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541703   (501234) от 31.08.2012
-
-Grave Digger - Clash Of The Gods (2012) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charon (2:19)
-02. God Of Terror (4:19)
-03. Hell Dog (4:28)
-04. Medusa (5:39)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3613538320C12E33B0D10DF2BF4EEB87F9B8BE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564433   (500597) от 18.07.2022
-
-Bloodstained Ground - Horrors of a Withered Dimension (2022) [MP3|320 Kbps] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue [00:01:30]
-02 - The City of Pillars [00:05:13]
-03 - Pastorial Grief [00:06:01]
-04 - The Mind's Abyss [00:05:27](   Читать дальше...   )Жанр: MDMПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1A5BB5131A709E1840488E5F061B5187349E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564428   (500596) от 18.07.2022
-
-VA - Napalm Records Prog Sampler 2022 (2022) [MP3|320 Kbps] <Prog-Rock, Prog-Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jinjer - Wallflower 04:17
-2. Evergrey - Call Out the Dark 04:23
-3. God Is An Astronaut - Burial 06:04
-4. Me And That Man - Angel Of Light (ft. Myrkur) 04:17(   Читать дальше...   )Жанр: Prog-Rock, Prog-Metal, MetalПродолжительность: 01:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8003B877C041C19A0BFCFC14391A0EC46C4FD8E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

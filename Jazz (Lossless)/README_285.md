@@ -1,119 +1,3 @@
-###  Публикация: 1343594   (166682) от 15.12.2019
-
-Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daahoud [8:46]
-02. Somewhere in the Night [10:09]
-03. Delilah [13:05]
-04. Brook's Idea [6:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673179   (166506) от 31.10.2023
-
-Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrix [4:25]
-02. Seth Song [6:08]
-03. Collins Street [5:09]
-04. For Erroll [5:58](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673177   (166352) от 31.10.2023
-
-Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 2022, Elemental Music [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arbor Way [18:55]
-02. Strollin' [14:27]
-03. Margerine [9:53]
-04. Lament [15:15](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516427   (166257) от 11.12.2021
-
-Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaslight [10:16]
-02. Red Cross [7:27]
-03. He Pulled A Fast One (Part 1) [2:50]
-04. He Pulled A Fast One (Part 2) [3:42](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516416   (166233) от 11.12.2021
 
 Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|Lossless|image + .cue] <Bossa Nova, Cool>
@@ -742,6 +626,122 @@ J.J. Johnson - The Total J.J. Johnson 1966 (1997) BMG [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D64B65BA42B2CC45992B00260915243637C76D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346224   (164640) от 18.12.2019
+
+Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haze (with Masahiko Togashi) [11:33]
+02. Free Point (with Steve Potts) [9:32]
+03. Epistrophy (with Mal Waldron) [7:57]
+04. Train Going By (with Irene Aebi) [3:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB866FED459B423B63F92FCF2C9DB488B107550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516881   (164636) от 13.12.2021
+
+Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Moon And Empty Arms [3:18]
+02. Frantonality [2:56]
+03. If I Loved You [2:48]
+04. For You [2:59](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346126   (164631) от 18.12.2019
+
+Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haru-No-Umi [7:17]
+02. Stone Garden of Ryoan Temple [14:27]
+03. Tonight [6:13]
+04. Something's Coming [2:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673708   (164600) от 02.11.2023
+
+Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kappa Torai no Chi [4:19]
+02.Mokuhi no Yotabi [4:07]
+03.Bourei no Numa [3:46]
+04.Ougi Denjushiki [2:54](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8657060E2D80E978D1A31CA24585EBA623E639
 ```
 
 https://mybot314.ru/tekegram_catalog/

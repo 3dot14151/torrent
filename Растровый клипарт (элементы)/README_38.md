@@ -1,29 +1,3 @@
-###  Публикация: 1794313   (67307) от 28.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Ocean Animals Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением морских животных в розовых тонах.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D089BD939031A33C4BFF3A497B9E281A397F96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794316   (67305) от 28.04.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Ocean Animals Clipart [PNG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7516E21DD764E23B88E0207B3702ED1F565F779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795146   (67182) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Line Art Seashell Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с морскими раковинами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A8AE6DA942CF43F3008895D50BC0AE0DF362E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

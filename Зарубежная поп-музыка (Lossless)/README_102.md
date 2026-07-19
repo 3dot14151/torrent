@@ -1,3 +1,148 @@
+###  Публикация: 1814511   (6012) от 25.08.2025
+
+VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Landslide (2018 Remaster) (3:20)
+02. Teddy Swims - Need You More (3:10)
+03. Benson Boone - Beautiful Things (3:00)
+04. Ed Sheeran - A Little More (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4CDB318508E887EEA516EC26E813E151CA5C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815685   (4969) от 31.08.2025
+
+V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dasha – Austin
+02. Ella Henderson – Me & You
+03. Marshmello & Anne-Marie – FRIENDS
+04. Cher – Believe(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD226A6B1796186995F445C6B3F5659430D0E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815997   (4697) от 02.09.2025
+
+VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)
+002. Tina Turner - What's Love Got to Do with It (3:50)
+003. Roxette - The Look (3:57)
+004. Pet Shop Boys - West End Girls (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 10:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817604   (3328) от 11.09.2025
+
+Teddy Swims - I've Tried Everything But Therapy (Part I) (2023) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teddy Swims - певец и автор песен с сильным, многогранным голосом, сочетающим элементы R&B, soul, hip-hop, и современной поп-музыки. Он начал свою карьеру с публикации каверов на любимые песни в социальных сетях, а затем представил собственные композиции. Каверы Swims'а охватывают самые разные эпохи и жанры, от Marvin Gaye и Shania Twain до Billie Eilish, демонстрируя (   Читать дальше...   )01. Some Things I’ll Never Know (4:02)
+02. Lose Control (3:30)
+03. What More Can I Say (2:21)
+04. The Door (3:32)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C0E2B341465D019ABBDB5D4261B4B4EA32C553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817605   (3322) от 11.09.2025
+
+Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3322.jpg" />
+</div>
+
+
+###  Подробнее
+
+В продолжении своего мейнстримового прорыва 2023 года, в альбоме "Ive Tried Everything But Therapy, Pt. 2", Teddy Swims глубже копается в своей личной жизни, находя вдохновение в любви и исцелении. Его второй полноформатный студийный альбом, более оптимистичный и энергичный, чем первый, добавляет доступного поп-звучания в его проникновенные, мощные гимны. (   Читать дальше...   )01. Not Your Man (3:37)
+02. Funeral (3:54)
+03. Your Kind of Crazy (3:02)
+04. Bad Dreams (3:04)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818904   (1983) от 19.09.2025
 
 Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|Lossless|WEB-DL|tracks] <Pop>

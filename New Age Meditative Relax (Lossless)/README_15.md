@@ -1,3 +1,32 @@
+###  Публикация: 1228250   (637510) от 31.05.2018
+
+Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Cafe
+02. Earth Halo
+03. Evolving the Distance
+04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519433   (636910) от 06.07.2012
 
 Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
@@ -719,35 +748,6 @@ Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE70A7E920116497E99BECD9E4AAA37F69D88B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037870   (610194) от 26.07.2016
-
-Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Connect [00:08:49]
-02. Floating to Forever [00:11:04]
-03. Letting Go [00:06:40]
-04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1737628   (49608) от 18.07.2024
+###  Публикация: 1788521   (68474) от 31.03.2025
 
-Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Nightstalker - Return From The Point of No Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Hard Rock, Rock, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fastlane (3:32)
-02. Feel (4:16)
-03. The Way We Want (4:28)
-04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+01 - Dust [2:44]
+02 - Heavy Trippin' [4:21]
+03 - Uncut [5:23]
+04 - Return From The Point of No Return [4:22](   Читать дальше...   )Жанр: Stoner Metal, Hard Rock, Rock, Stoner RockПродолжительность: 00:38:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5794D622875E56C8E47D339B737763A4199FEDBF
+magnet:?xt=urn:btih:0280F5C621E5F74BF19D44EFA67F7E2DD7DD64E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741816   (47439) от 08.08.2024
+###  Публикация: 1790990   (67966) от 11.04.2025
 
-Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Red & The Black (Live) (5:09)
-02. O.D.'d On Life Itself (Live) (4:53)
-03. Hot Rails To Hell (Live) (5:01)
-04. 7 Screaming Diz-Busters (Live) (7:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:41:16
+01. Ready to Rock (3:09)
+02. Over the Edge (5:11)
+03. Turn It Up (3:42)
+04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6FAD87B7B661EEB13A3E2B9DDDB2B1556B5D8ED
+magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742032   (47331) от 09.08.2024
+###  Публикация: 1791303   (67867) от 13.04.2025
 
-A Rising Force - Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Northern Lights
-02. Thrill Of A Lifetime
-03. Winter's Calling
-04. The Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:30
+01. Muddy Water
+02. White Noise
+03. Black Light
+04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCC74E6887CFC38DA5A1CFE75E0C4B8AAE5EFE79
+magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742345   (47113) от 11.08.2024
+###  Публикация: 1792392   (67658) от 19.04.2025
 
-Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fight To The End (3:56)
-02. Stop The Fire (3:52)
-03. Creature Of The Night (4:18)
-04. Angel In The Dark (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:37:45
+01. Keep the Circle Whole [00:03:34]
+02. Yeah [00:03:38]
+03. Slave Master [00:05:02]
+04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9B4B7EC3A77A178A689E33DFAFC8054A3498E0C
+magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744116   (46289) от 19.08.2024
+###  Публикация: 1792493   (67599) от 20.04.2025
 
-Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Darkness 04:56
-02. No Illusions 04:53
-03. Outliers 05:15
-04. World Is Burning 04:32(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:09:10
+01. Insomnia [00:04:05]
+02. Come Hell Or High Water [00:03:59]
+03. Give It All You've Got [00:03:54]
+04. Burn In Hell [00:03:51](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:49:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA5F0F75086AC4FCBCFB048A6F7ECB0C0D1CE056
+magnet:?xt=urn:btih:8AE7E25BB36F2F6991BDCA0C879DA4A507B4A9B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744261   (46177) от 20.08.2024
+###  Публикация: 1797506   (66813) от 16.05.2025
 
-Shark Island - Memento Mori Live On The Strip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eddie's Intro
-02. If You Want Me to Stay
-03. Make A Move
-04. Passion to Ashes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:50
+01. One Wasted Paradise (05:08)
+ 02. The Sound Of The Last Survivor (04:18)
+ 03. Fight Against Time (04:44)
+ 04. Autumn Call (04:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE931E6F4DCE488CA520D3A9CE31A924BCDE66EB
+magnet:?xt=urn:btih:0A94FA2C40EFD03A08100AD9A65A62A53A859C75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744143   (46169) от 20.08.2024
+###  Публикация: 1798608   (66634) от 22.05.2025
 
-Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66634.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Secret Drug (3:54)
-02. Let Me In (3:41)
-03. It Was Beautiful (3:56)
-04. Grace (4:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:19
+01 - Sitting Ducks (04:33)
+ 02 - Lost And Found (04:11)
+ 03 - My fears (04:17)
+ 04 - Do Talk To Me (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEE2E5513505409DA818A13B517BD7EF95528494
+magnet:?xt=urn:btih:2975DC4C2BBDFFA3619105C9D085F6D3339C81A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744507   (46013) от 22.08.2024
+###  Публикация: 1799343   (66456) от 27.05.2025
 
-Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Barmy Rote - Injustice For All (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Show Me
-02. A Bit On The Side
-03. Sharp Shooter
-04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
+01. Alien (05:25)
+ 02. The Highwayman (05:27)
+ 03. Remember Me (05:29)
+ 04. Broken Faces (World War I) (06:25)(   Читать дальше...   )Жанр: Hard Rock, ProgressiveПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5271B432AEBB831B1BB7106DA3A666C1418F299
+magnet:?xt=urn:btih:CB3246C130FBC5F5910D4F0AEE89BA1B7FE92D99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071930   (45625) от 26.08.2024
+###  Публикация: 1799930   (66364) от 30.05.2025
 
-Deep Purple - 106 Albums (1968 - 2024) 280 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deep Purple - британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия и считающаяся одной из самых заметных и влиятельных в "тяжёлой музыке" 1970-х годов. Музыкальные критики называют Deep Purple в числе основателей хард-рока и высоко оценивают их вклад в развитие прогрессивного рока и хэви метал. Музыканты «классического» состава Deep (   Читать дальше...   )Список альбомов:
-1968 - Shades Of Deep Purple
-1968 - The Book Of Taliesyn
-1969 - Deep PurpleЖанр: Hard RockПродолжительность: 268:49:57
+01.  Number One (3:54)
+02.  How Long Until Tomorrow (4:24)
+03.  Just Another Night (4:32)
+04.  Are You Ready? (3:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDE07B0903958796CC8450F1E6EF85ABF80BC806
+magnet:?xt=urn:btih:4A7CB5D2FCE4B8593EC974AD4FD7A9D3B9433FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746165   (45241) от 29.08.2024
+###  Публикация: 1800279   (66310) от 01.06.2025
 
-Demon - Invincible (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Ready (3:12)
+02.  Going Down (3:23)
+03.  Boom Boom (4:02)
+04.  Black Betty (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE5B98CCE04C6F3E0CFFD890F38B7DAE8FB72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800274   (66295) от 01.06.2025
+
+Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold (3:05)
+02.  Superheroes (3:50)
+03.  This Disease (4:15)
+04.  Give It To Me (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EC1924B9655A4DD24B3714C18E91D38E9C46BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800277   (66292) от 01.06.2025
+
+Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Underdogs (3:19)
+02.  All Against All (2:48)
+03.  Rob the Builder (3:02)
+04.  In Therapy (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E2CCE76488E4507249F466B771FE460B22BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800278   (66284) от 01.06.2025
+
+Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Whatever (3:12)
+02.  Feel The Fire (2:57)
+03.  Scream Machine (3:03)
+04.  Wasted Trouble (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86604CA717B69222D5C4D13A47343F18B80CCB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802059   (66129) от 14.06.2025
+
+Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fallen From The Stars (03:52)
+ 02 - Out For Glory (04:29)
+ 03 - Dr. Hammer (03:48)
+ 04 - Sacrifice Me (04:17)(   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA5E85FB0B1C4A3F268AE375EE0863500A301BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804247   (65690) от 28.06.2025
+
+Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Come Running
+02. Star Rider
+03. Breathless
+04. The Higher They Climb(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B086D5C493FC03D1D22AE97CE7E9168CE018EB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805130   (65510) от 04.07.2025
+
+Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominum 00:56
+02. Rules Of Silence 04:36
+03. Days Of Thunder 05:11
+04. Blind Are Your Eyes 06:41(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94969D44369DE375080CAD346CE1A422AD057BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807949   (65082) от 21.07.2025
+
+Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65082.jpg" />
 </div>
 
 
 ###  Подробнее
 
 01. Intro
-02. In My Blood
-03. Face The Master
-04. Ghost From The Past(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:50
+02. Raining Rock
+03. Less Torque, More Thrust
+04. Prison Of Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8F669A39EFF12F516FA5B53C54A1F7DCF1B89BB
+magnet:?xt=urn:btih:739B469C628156897A2B87D765A3D3398A2F2408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746082   (45233) от 29.08.2024
+###  Публикация: 1808592   (64951) от 25.07.2025
 
-Sister Switchblade - Don't Try This at Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Gloves Are Off [00:02:52]
-02. Get Down Stay Down [00:03:30]
-03. I Smell a Rat (Remix) [00:03:12]
-04. Dead to Me (Remix) [00:02:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
+01. Answer To My Prayers
+02. Fire In Your Eyes
+03. We Remember You
+04. Strangers(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B64261331010FA8E9FD16562EBB3B72C4739826
+magnet:?xt=urn:btih:0CFDB6321E534B1C283260B6D61D49AA8D4613F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746672   (44924) от 01.09.2024
+###  Публикация: 1808999   (64787) от 27.07.2025
 
-Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gun 4 A While (3:20)
-02. In My Dreams (3:22)
-03. To The Ground (3:24)
-04. Ghost In Me (4:51)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:09
+01 - Retribution (04:08)
+ 02 - Stain On My Soul (03:38)
+ 03 - The River (04:09)
+ 04 - Get Me Higher (feat. Vinny Appice) (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1899C4435F50E330B9951C07C85C2CEA3C54A46F
+magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747423   (44511) от 05.09.2024
+###  Публикация: 1809211   (64754) от 29.07.2025
 
-Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. City Life (Country Home) 6:38
-2. Feels Like a Railroad (River of Pride) (White Line) 2:58
-3. Heart of Steel (Fuckin’ Up) 5:52
-4. Broken Circle (Over and Over) 9:05(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:21
+01. Cry for War (04:12)
+ 02. Maze (05:16)
+ 03. Break the Circle (05:36)
+ 04. The Bitch is Crazy (03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A4B332F47740ADE657B602654A134598F87E9D
+magnet:?xt=urn:btih:6D0A3690483395A8ACEA744683A508C7B5766975
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748199   (44198) от 08.09.2024
+###  Публикация: 1809984   (64540) от 02.08.2025
 
-Thin Lizzy - 1976 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Running Back (Demo) [00:04:41]
-02. Johnny The Fox Meets Jimmy The Weed (4 Track Demo) [00:07:22]
-03. Suicide (Live On 100.7FM WMMS Cleveland Radio Broadcast / 11th May 1976) [00:05:16]
-04. Don't Believe A Word (Alternate Version 2) [00:02:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:01
+01. Hard Rock Fever
+02. Wrong Side Of Desire
+03. Home Tonight
+04. Angel Of Mine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F02C2382589833C81C7B55DEE1AFE040B28DEE3
+magnet:?xt=urn:btih:0C20C73FD82EAB724C3E06AA8BE1D06B3BCBCB6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748687   (43882) от 11.09.2024
+###  Публикация: 1705160   (63707) от 07.03.2024
 
-The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wolves (6:03)
-02. Paralyze (4:03)
-03. Ashes (3:32)
-04. Out of Time (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:35
+01. All Night Long ( Instrumental Outtake ) 4:14
+02. Eyes Of The World ( Instrumental Outtake ) 6:50
+03. Spark Don't Mean A Fire 3:50
+04. Makin' Love ( Instrumental Outtake ) 4:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:46:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB008BD63EF165CCFA67CEE03C37C9F474FCC72A
+magnet:?xt=urn:btih:761F110F4B4B16C4EE0452277F9298634650F2C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748683   (43880) от 11.09.2024
+###  Публикация: 1412877   (62626) от 18.03.2024
 
-One More Shot - Railroad to Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Slade - 43 albums, 2 Box-Sets, 84CD (1969-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Glam Rock>
 
->>Rock, Alternative, Punk, Metal
+>>След.
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One More Shot (4:00)
-02. Oh Girl! (6:11)
-03. S (3:28)
-04. U Care (8:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:10
+Slade с 1979 по 1987 годы. Slade — британская рок-группа, одна из лидеров глэм-рока начала 1970-х. Период, который принято считать вершиной творчества Slade – с 1971 по 1976 год. В это время были выпущены лучшие альбомы группы, за которые ее знают и почитают до сих пор не только на родине, но и во всем мире. В восьмидесятых стиль музыки группы приблизился к гламурному (   Читать дальше...   )--------------------------
+
+01. Them Kinda Monkeys Can't Swing (4:46)
+02. The Bangin' Man (4:58)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam Rock |Продолжительность: 3d 3:21:00 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5A78D9D60A3AEA6F1C867D5DEAE2758E7D5DBB4
+magnet:?xt=urn:btih:A40D74866DB1E1721730C8303484C3661A4B33B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748686   (43879) от 11.09.2024
+###  Публикация: 1710805   (61518) от 28.03.2024
 
-Steve Cone - Autonomous (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2024, Universal Music [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_61518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Over and Over (3:38)
-02. Spinning Like a Wheel (3:33)
-03. Living in the Wind (3:57)
-04. I Really Need to Rock (2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:20
+01. Highway Star (2024 Remix) (6:10)
+02. Maybe I’m A Leo (2024 Remix) (4:51)
+03. Pictures Of Home (2024 Remix) (5:05)
+04. Never Before (2024 Remix) (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:000CB495469C2347FFECD62F5949AB32B5E6583E
+magnet:?xt=urn:btih:20DBF197FF82FB55288BC899BB5BB9F23F156C46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748684   (43877) от 11.09.2024
+###  Публикация: 1229509   (60836) от 04.04.2024
 
-SkinInc. - Another Crack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Alice Cooper - 53 аlbums, 4 Box Sets, 134 CD (1969-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Shock Rock, Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life's a Bitch (4:01)
-02. Another Crack (3:07)
-03. It Saved My Soul (2:27)
-04. Someone New (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:09
+Alice Cooper - певец, композитор, музыкант, шок рокер № 1. Именно старине Куперу, психопату, живодеру и адскому Оле-Лукойе, на чьих комиксоподобных страшилках о заброшенных кладбищах, расчлененных трупах и электрических стульях выросло не одно поколение маленьких "франкенштейнов" и "стивенов", обязаны нынешние металлеры, открыто эксплуатирующие (   Читать дальше...   )--------------------------
+
+01. Freedom (4:09)
+02. Lock Me Up (3:25)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Shock Rock, Glam Rock |Продолжительность: 4d 13:34:57 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C34C3799C0FF1E3DEE324110C948C37246A70D6
+magnet:?xt=urn:btih:852C77320C93F1E28A75FEA05FD741D698D2D194
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,231 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749005   (43771) от 12.09.2024
+###  Публикация: 1712874   (60767) от 04.04.2024
 
-The Nail - The Nail (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit & Run (4:04)
-02. The Nail (4:28)
-03. No Time To Burn (4:15)
-04. Broken (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CA1F34F663B0359CB489DD5A9369CC05D1F782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749634   (43473) от 15.09.2024
-
-Bad Attitude - Right From The Start (1988-1991) Compilation, Reissue, 2024, FnA Records [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Judas Priest - Invincible Shield (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hanging On (3:29)
-02. All I Need Tonight (3:07)
-03. Bad Attitude (3:13)
-04. What About You Girl (4:44)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:05:33
+01. Panic Attack (5:25)
+02. The Serpent and the King (4:19)
+03. Invincible Shield (6:21)
+04. Devil in Disguise (4:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Classic RockПродолжительность: 01:03:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50DCC8EF31BA8DB45F2110359ED80F14E0D05393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749814   (43359) от 16.09.2024
-
-Bonsai Kitten - Let It Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose Your Illusion (2:54)
- 02. I Love That You Hate Me (4:05)
- 03. I Wonder (2:24)
- 04. Peacemaker (5:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815BE61A65473A0FC883060C513B13A3C2A4E299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750028   (43250) от 17.09.2024
-
-Lakeview - Lakeview (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Team [00:03:16]
-02. Dying Breed [00:03:03]
-03. Wrong Side of the Track [00:03:08]
-04. See Me in a Suit [00:03:01](   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF519185FEA269B0004EC6CCC33F0E03A8B19768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750137   (43165) от 18.09.2024
-
-Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Thing (3:58)
-02. Only You Can Rock Me (4:03)
-03. Doctor Doctor (4:33)
-04. Mother Mary (4:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF5778A7A3539B40873DC3C7CCC68F1F0CDEB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750129   (43147) от 18.09.2024
-
-Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On Me (3:50)
-02. Soul Stalker (5:28)
-03. In Your Heart (3:52)
-04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570E6C59C466A43772BF9B0CEA0A25B33B470456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750559   (42939) от 20.09.2024
-
-SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Dreamin' 'Bout You
-02. Hammer's Fallin'
-03. No Angel
-04. Dizzy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0BD3DCDF011179CB5A57E644DD01BB00EC82D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750527   (42921) от 20.09.2024
-
-Sweet - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus (2:56)
-02. Don't Bring Me Water (4:32)
-03. Burning Like A Falling Star (3:51)
-04. Changes (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343BBA737583845352D16E1D1AD3624750F22810
+magnet:?xt=urn:btih:59E7B2530EB46A9CED7626DFFE00166159135846
 ```
 
 https://mybot314.ru/tekegram_catalog/

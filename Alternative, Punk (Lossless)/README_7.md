@@ -1,3 +1,148 @@
+###  Публикация: 1364145   (939615) от 01.03.2020
+
+Refused - Songs to Fan the Flames of Discontent (1996) [APE|Lossless|image + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rather Be Dead
+02. Coup D'Etat
+03. Hook, Line & Sinker
+04. Return To The Closet(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEA4722A3CFB97EA12C636EEF2BB231EA923164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984619   (938936) от 09.02.2016
+
+The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defying Gravity
+02. Watch You Lose
+03. You Can't Have It All
+04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092571   (938860) от 12.01.2017
+
+Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [FLAC|Lossless|WEB-DL]<Celtic Punk, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938860.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:42] 01. The Lonesome Boatman
+[03:00] 02. Rebels With A Cause
+[04:01] 03. Blood
+[03:44] 04. Sandlot(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E856F61F4E81F49F622D19135F8500C74F667141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984776   (938591) от 09.02.2016
+
+Siouxsie And The Banshees - The Best Of Siouxsie And The Banshees (2004) Box Set 2CD+DVD5, Polydor, Universal. [FLAC|Lossless|image + .cue] <New Vawe, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938591.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1	Dear Prudence 3:49
+2	Hong Kong Garden	2:55
+3	Cities In Dust	4:04(   Читать дальше...   )Жанр: New Vawe, PunkПродолжительность: CD1 - 00:57:11, CD2 - 01:04:00, DVD - 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A241EB8A3024F023EAA0ED7A6DBE81EF0B4D5EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860943   (937538) от 18.01.2015
+
+Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelf In The Room (4:44)
+	02. Touch, Peel And Stand (4:58)
+	03. Face Of The Earth (5:17)
+	04. Solitude (4:11)(   Читать дальше...   )Производство: 1997, Outpost Recordings/OPRD-30004Жанр: Post-GrungeПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984671   (936897) от 10.02.2016
 
 Sex Pistols - Flogging a Dead Horse (1979) Reissue, 1986, Virgin [FLAC|Lossless|tracks + .cue] <Punk rock>
@@ -600,151 +745,6 @@ The Cure - Bloodflowers (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00FA46BC090369F7AF205069C35D005092C4C95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365394   (930809) от 07.03.2020
-
-Destroyer - Have We Met (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Tide (06:09)
-02. Kinda Dark (03:25)
-03. It Just Doesn’t Happen (05:01)
-04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786E66C5F324012EB42D66DA3167D59876BEDC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365427   (930799) от 07.03.2020
-
-Wyldest - Redream Chaos (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headrush (Redream) (03:49)
-02. Rolling Waves (Redream) (03:25)
-03. Mind over Body / Slowdance (Redream) (04:56)
-04. Reverse Tide (Redream) (04:21)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF46609F98554C0A79C74564980EAC319E1ED7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365413   (930790) от 07.03.2020
-
-U.S. Girls - Heavy Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 American Dollars [05:42]
-02. Overtime [02:54]
-03. IOU [04:42]
-04. Advice To Teenage Self [00:50](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEF0D83ADAEE92AE5F3DDD9E8D7E946EF774929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365397   (930684) от 07.03.2020
-
-Phantogram - Ceremony (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Trip-Hop, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear God (03:27)
-02. In a Spiral (03:23)
-003. Into Happiness (03:21)
-04. Pedestal (03:11)(   Читать дальше...   )Жанр: Indie Rock, Trip-Hop, ExperimentalПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B384F41AB6FB87566C4A022CF77D51EDF7E0845C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986375   (930442) от 14.02.2016
-
-The Cure - Greatest Hits (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys Don't Cry
-02. A Forest
-03. Let's Go To Bed
-04. The Walk(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99C2139BA2649F8A2E7DDA444D711204CBB0972
 ```
 
 https://mybot314.ru/tekegram_catalog/

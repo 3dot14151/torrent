@@ -1,3 +1,235 @@
+###  Публикация: 1863461   (1063461) от 04.04.2026
+
+VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
+02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
+03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
+04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863687   (1063303) от 05.04.2026
+
+Adex - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Dreams
+02 - Forgot to Read
+03 - When You Don’t Reply
+04 - Broken Inside(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A125730436F89225172CD317E7B70C6855B6C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861252   (1062605) от 24.03.2026
+
+Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Galaxy
+02 - Sea
+03 - Old Love
+04 - Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792CA59B77A1D8DC66EAFE2B40887230170692FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860783   (1062128) от 22.03.2026
+
+VA - Record Super Chart 21.03.2026 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TRAP MAFIA HOUSE - Mafia Style (2:37)
+02. Loud Luxury & Emily Roberts - Love You For Life (2:45)
+03. Anyma & Ejae - Out Of My Body (2:39)
+04. Ofenbach - Miles Away (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A08EF7B527CCCFF9FECDCEFCF995503152523B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859215   (1061001) от 15.03.2026
+
+VA - 60 minutes. Old School Dance Music vol.34 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Solid Sessions - Janeiro (Armin van Buuren Mix)
+02-BT - Flaming June (BT & Paul van Dyk Remix)
+03-Pascal Device - Azure (Jane T. Extended Remix)
+04-Aly & Fila - Eye of Horus (Ronski Speed Remix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC30DC9FD39F30AE29D5D79938BF73F787890C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859024   (1060960) от 13.03.2026
+
+VA - REDISCOVER Classic Trance (2026) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Adagio For Strings (Radio Edit) (3:25)
+02. Workout Music - Heaven (Running Mix 150 BPM) (4:07)
+03. Robert Miles - Children (4:02)
+04. DJ Jean - The Launch (Radio Edit) (3:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA7586A3C49DDCEDF8AB151761FAE5936A63211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858524   (1060421) от 11.03.2026
+
+VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GeoM, Dimitris Athanasiou - Holding on - Dimitris Athanasiou Remix (6:00)
+02. Dimitris Athanasiou - Around You (5:32)
+03. Cj Borika - Lost in Dream (4:58)
+04. HazyHero - Better You Than Me (5:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855134   (1058041) от 21.02.2026
+
+Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love in the Echo
+02 - In My Dream Tonight
+03 - December Nights
+04 - Silent Desire(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C7A5B55FE24893BD39825A44773A7AE8DD7C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855349   (1057920) от 22.02.2026
 
 Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
@@ -513,238 +745,6 @@ VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844932   (1050403) от 28.12.2025
-
-VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AY YOLA - Homay (4:04)
-02. David Guetta & Sia - Beautiful People (3:07)
-03. Calvin Harris & Clementine Douglas - Blessings (3:39)
-04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843303   (1049544) от 21.12.2025
-
-Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sunset Dance
-02 - Within the Dream (Version)
-03 - Sensual Flare Dub
-04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843298   (1049542) от 21.12.2025
-
-VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Calma - Hold Me Closer
-02 - Kasimoff - Missed Call
-03 - Mr Salama - Feel Your Love
-04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842755   (1048893) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fade Away
-02 - Ocean Eyes
-03 - Falling Apart
-04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842753   (1048892) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Stay Close
-02 - Umideep - Ra-Ta-Ta Love
-03 - Kasimoff - Je Tombe Sans Bruit
-04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842365   (1048702) от 15.12.2025
-
-VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umideep - Notte Disco
-02 - Dova Music - Stay Close
-03 - Hamidshax - Loving You
-04 - Elno - Along(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D3A4286CF43563C7424319CD9AA98A30A0B371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841992   (1048392) от 13.12.2025
-
-VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quirin, SoKool, Konrad Dycke - Dangerous - SoKool & Konrad Dycke Remix (7:43)
-02. Fideles, CamelPhat, Be No Rain - Night After Night - CamelPhat Remix (6:58)
-03. Howling, Frank Wiedemann, RY X, Jen Cardini, Damon Jee - Lover - Jennifer Cardini & Damon Jee Remix (6:43)
-04. AIKON, Kyozo - Dark Horse - Club Mix (6:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841729   (1048234) от 12.12.2025
-
-VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Winter Lonely Love
-02 - Mr Salama - Neon Heart
-03 - Azimov - Stay Tonight
-04 - Delih - Still Loving You(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
 ```
 
 https://mybot314.ru/tekegram_catalog/

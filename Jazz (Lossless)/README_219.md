@@ -1,119 +1,3 @@
-###  Публикация: 1421605   (317874) от 05.11.2020
-
-Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's New [7:15]
-02. Willow Weep for Me [6:30]
-03. There Will Never Be Another You [6:50]
-04. D & E [5:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421600   (317759) от 05.11.2020
-
-Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.T.A. [5:07]
-02. Trapped [6:01]
-03. Twilight Mist [6:57]
-04. Our Man Higgins [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CF996D430EBA68D5948D554D2071203E24EF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959431   (317399) от 24.11.2015
-
-The Phil Woods Quartet - Woodlore (1955) 2013, Universal [FLAC|tracks+.cue]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Woodlore [05:25]
- 02.Falling In Love All Over Again [04:45]
- 03.Be My Love [05:38]
- 04.On A Slow Boat To China [05:05](   Читать дальше...   )Жанр: BopПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AEE8CE30975418C5ED553715EF88EE23866EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959170   (317394) от 24.11.2015
-
-Azar Lawrence - People Moving (1976) 2014, Universal[FLAC|tracks+.cue]<Soul Jazz, Jazz Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Theme For A New Day [05:22]
- 02.The Awakening [06:47]
- 03.Kickin' Back [06:46]
- 04.People Moving [05:51](   Читать дальше...   )Жанр: Soul Jazz, Jazz FunkПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258B52C4C54E1298194DB51E393D700A3C5F3B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182360   (317255) от 10.11.2017
 
 The New Rob Van Bavel Trio - Piano Grand Slam (2004) Munich Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Sa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCDC0437084CFC6949A3542B2F07500A77E5751E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260100   (314576) от 06.11.2018
+
+Keith Jarrett - La Fenice (2018) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314576.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Part I [17:44]
+02. Part II [3:26]
+03. Part III [9:48](   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, Piano JazzПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7630012F841C26F85AF178139077F2518246F8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583106   (314526) от 13.10.2022
+
+John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right There, Right There [6:39]
+02. Moogie Woogie [6:15]
+03. Where Go the Boats [4:32]
+04. Go for Yourself [3:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82F838451EA30B4E0C3CA7EFF604875A63005B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332367   (314458) от 20.10.2019
+
+Eddie Condon - Jam Session Coast-To-Coast (1953) 2005, Membran Music [FLAC|Lossless|image + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beale Street Blues [4:17]
+02. Don't Worry Bount me [5:28]
+03. Riverboat Shuffle [4:45]
+04. Jam Session Blues [9:30](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5F47C276A0D3F7F4BAA9AE11C6F71A8F32EC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332427   (314304) от 20.10.2019
+
+The Spitfire Sisters - Who Buys Cds Anymore? (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bag for Life
+02. My Cocktail and Me
+03. Afternoon Tea
+04. Roll on, Mississippi, Roll On(   Читать дальше...   )Жанр: Vocal Jazz, VintageПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A64FEFEAFBC8E2ABC4F71DBF18719A56E92E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

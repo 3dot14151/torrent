@@ -1,32 +1,3 @@
-###  Публикация: 1730249   (53315) от 14.06.2024
-
-Zig Zag - Zig Zag (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Danser (7:17)
-02. Disco Fever (6:12)
-03. Stop Stop Stop (6:15)
-04. Gay'O (4:24)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4889EE2680AA55BE2C837E4EC280311A5B91ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730816   (52990) от 17.06.2024
 
 Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -745,6 +716,35 @@ VA - Disco Down The Best of 2024 (2025) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4EFE961AACF0C83B478C17333B236218665734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772406   (31369) от 10.01.2025
+
+VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - I Feel Love
+02. Gary's Gang - Keep On Dancin'
+03. Eddy Rosemond - Wake Up And Move...Funky
+04. Village People - Y.M.C.A.(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95413F948A22CA4C4DD5F0227E4FDE337B29E3CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

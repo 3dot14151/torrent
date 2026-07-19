@@ -1,3 +1,32 @@
+###  Публикация: 1678238   (145978) от 21.11.2023
+
+VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Capital Sound feat. Rocko T. Bello - Feel The Rhythm
+02.  Unknown - Follow Me
+03.  D.F.S. - Me Lay Lo
+04.  Nadia - Live On Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272170   (145705) от 26.12.2018
 
 VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
@@ -715,35 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679434   (137627) от 25.11.2023
-
-Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus (3:32)
-02. Love Is Blue (3:56)
-03. What’s That Look (3:26)
-04. Romanism (3:08)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

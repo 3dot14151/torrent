@@ -1,3 +1,177 @@
+###  Публикация: 1385547   (797205) от 25.05.2020
+
+VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquanote – Nowhere (Crazy P's Heatwave Mix)
+02. Arvid Feat. Ernestos – Try (Fenomenon Remix)
+03. Blue Six – All I Need (Jimpster Remix)
+04. Central Living – Inside(   Читать дальше...   )Жанр: Electronic, House, Future Jazz, Deep House, DiscoПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752C1A28D2833C197E5048F7ED12BB9E3A7351E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385539   (797201) от 25.05.2020
+
+Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water Psalm I
+02. Waiting
+03. True Love
+04. All Over You(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A885CC1DB0119CECF1EFA666D28D6173E6BE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011260   (797050) от 27.04.2016
+
+Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	For Some Time Past
+02.	Dizoxin
+03.	Caliphone
+04.	Piko(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011247   (797031) от 27.04.2016
+
+Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Magnetik Fluid
+03. Breath
+04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011287   (797022) от 27.04.2016
+
+Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You (04:08)
+02. Marbles (04:27)
+03. Hold On (06:15)
+04. Chroma (07:16)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87496E14B7BAB5A3A58320AD86BF7ED52FE0F83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199903   (797012) от 19.01.2018
+
+VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Axwell/Dirty South - Open Your Hear (Vocal Mix) (8:57)
+02.John Claudes Ades; Vincent Thomas - Shingaling (7:04)
+03.Style of Eye - Girls (7:04)
+04.Franky Rizardo - Flutetest (Tony Chacha & Paco Ramon 'Put It in the Air' Mix) (5:41)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200046   (796913) от 19.01.2018
 
 VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Trance>
@@ -563,180 +737,6 @@ Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386423   (794554) от 29.05.2020
-
-Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TV (06:53)
-02. DB (Webo Mix) (06:41)
-03. Exotica (05:46)
-04. BC Style (Vinyl Mix) (06:28)(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1545BD10AD44D837A22062B68FD6DA9E92535055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012257   (794351) от 30.04.2016
-
-VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 1)
-02-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 2)
-03-Gershon Jackson - Take It Easy (Sonny FoderaMat Joe remix)
-04-Sonny Fodera & Mystic Bill - Invisible (Sonny Fodera ITH edit)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 07:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387A4A0019AC3C22907C7D0510C69F8CC71B60E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274244   (794165) от 06.01.2019
-
-NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental, Field Recording>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DISPERSION (06:16)
- 02. INTERACTION (07:31)
- 03. MOTIVATION (05:19)
- 04. DILUTION (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Ambient/Musique Concrete/ExperimentalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274316   (794163) от 06.01.2019
-
-Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & Me (05:52)
-02. Blue Pools (05:32)
-03. Play With Dolphin (06:08)
-04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274309   (794161) от 06.01.2019
-
-VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Caillou – The Better Days (09:23)
-02. White Leaf – Limerence | Hosini Remix (06:32)
-03. Elias Dore – Ayasa (08:08)
-04. Darper – Kubu (08:32)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FACFA8D9C6A2FCE37B562DC5596EC7735E4AB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274219   (794160) от 06.01.2019
-
-Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Movement (08:31)
-02. Clean Air (07:54)
-03. Fanfatas (07:44)
-04. Dalen (5:23(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9ECBB7A2C4D334A4564689287B2D7A570ADE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

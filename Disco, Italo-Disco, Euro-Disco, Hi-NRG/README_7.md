@@ -1,32 +1,3 @@
-###  Публикация: 1118239   (813312) от 25.03.2017
-
-VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boy Blue - One Day (Radio Version)  4:12
-02.  Angelica Rose - My Love Is Always Forever (Short Bubbles Version)  4:53
-03.  Elario Dante - One Day (Short Version)  4:24
-04.  R&M - Holiday (Short Version)  4:14(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F778B39EF5125203CCDB1CF5A8A698BAAAAAAEFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008951   (811803) от 20.04.2016
 
 Geraldine Cordeau - Space And Time (1984) [MP3|320 кб/с] <Electronic, Disco, Hi NRG>
@@ -745,6 +716,35 @@ Oliver's Planet - Oliver's Planet (1979) LP [MP3|320 Kbps] <Electronic, Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2D5F0C403D5F859CB7EC76F133DA972B3D0F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121888   (799638) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ventura – Another Time (05:11)
+2. Love Kills – I Want To Become (06:19)
+3. G & M – Don't Let You Down (06:15)
+4. Christal – Fire Lady (06:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7F433C825C3069AFC346311CED41BD2127BA6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

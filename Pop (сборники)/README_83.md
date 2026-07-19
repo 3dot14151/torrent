@@ -1,90 +1,3 @@
-###  Публикация: 939987   (470977) от 23.09.2015
-
-VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Татьяна Овсиенко - В Сердце
-02. Zlata (Злата) Feat. Dj Рубль - Курс Рубля
-03. Зарина Тилидзе - Нежность
-04. Mozgi (Потап) - Хлам(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406761   (470853) от 05.09.2020
-
-VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethnik>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nameless In August - Been There Before
-002. Georgia Ruth - In Bloom
-003. Calimeros - Playa Blue
-004. Issam Hajali - Ana Damir El Motakallim(   Читать дальше...   )Жанр: Pop, Folk, EthnikПродолжительность: 10:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939942   (470687) от 23.09.2015
-
-VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rap, R&B, Rock, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
-002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
-003. Время и Стекло - Имя 505 (03:19)
-004. Паола - #Девочкитакиедевочки (02:24)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, Rock, ChansonПродолжительность: 05:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406876   (470602) от 05.09.2020
 
 VA - 100 Greatest Dinner Party Songs (2020) [MP3|320 Kbps] <Pop>
@@ -787,6 +700,105 @@ VA - Осенний Сезон Попсы (2012) [MP3|256 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0951F7B49D07072294FCEC7801A9EF0DC054A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388528   (461270) от 16.09.2011
+
+VA - Хит-парад Record 8 50/50 (2011) [MP3|256 kbps]<Клубная>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Грув - I Can Take
+02. Потап и Настя Каменских vs. Bass Kleph - Мы отменяем К.С. (Sasha Dith Mash-Up)
+03. The Black Eyed Peas - Dont Stop The Party
+04. Armin Van Buuren feat. Sunlounger - White Sand
+05. Pitbull & Ne-Yo feat. Afrojack - Give Me Everything
+06. Twosome Bookaz feat. Dvisti Boys - Карпаты
+07. DJ Tiesto pres. Allure feat Jes - Show Me The Way
+08. Mishelle feat. Randi - Only You (Рома Лейтенант Remix)
+09. Chase & Status feat. Delilah - Time
+10. Митя Фомин - Огни большого города (DJ Favorite Radio Edit)(   Читать дальше...   )2011Жанр: КлубнаяПродолжительность: 05:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A82D7C26545015C7E9E3138E0FD54934C2AAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388405   (460662) от 16.09.2011
+
+VA - Oldie Hit (10 CD Box Set) (2009) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460662.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Demis Roussos - Forever And Ever
+2. Brotherhood Of Man - Save Your Kisses For Me
+3. Ricky King - Verde
+4. Roger Whittaker - River Lady (Live)
+5. Baccara - Sorry I'm A Lady
+6. John Travolta - Greased Lightning
+7. Edison Lighthouse - Love Grows
+8. Lynn Anderson - Rose Garden
+9. The Marmalade - Reflections Of My Life
+10.Joe Dolan - Make Me An Island(   Читать дальше...   )2009Жанр: PopПродолжительность: 07:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F543CF8140C000D874E7B404448CE203B71294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703729   (460262) от 25.09.2013
+
+VA - Осеннее настроение в СССР [2CD] (1972-1991) (2013) [MP3|320 кб/с]<Ретро, советская эстрада, поп, рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачева - Осень (1984)
+02. Форум - Улетели листья (1985)
+03. Юрий Лоза - Опять  (1986)
+04. Валерий Леонтьев - Исчезли солнечные дни (1986)(   Читать дальше...   )Жанр: Ретро, советская эстрада, поп, рокПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19FFCAA988475DA7DAA73410E5164474F05A7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

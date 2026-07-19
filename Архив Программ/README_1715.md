@@ -1,3 +1,29 @@
+###  Публикация: 1608729   (208600) от 31.01.2023
+
+Bigasoft Total Video Converter 6.5.0.8427 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Total Video Converter - мощный видеоконвертер, позволяющий конвертировать практически любые видеофайлы в различные форматы. Программа распознает свыше 40 видео и аудио форматов и поддерживает конвертирование между свыше 30 форматами (AVI, Xvid, DivX, H.264, MP4, 3GP, MKV, WMV, RM, FLV, MOV, WebM, VP8, 720p, 1080p, 1080i HD, AVCHD видео и многими другими). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7055BF0C51ECB7F6CD073EEEDD69B3B8EEE834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608696   (208593) от 31.01.2023
 
 Total Commander 10.52 (31.01.2023) Portable by MiG [Ru/En]
@@ -649,33 +675,6 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E03E4265FCB8E16BE6D49043A15E9E4BE3EA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647566   (208465) от 19.07.2023
-
-Sante DICOM Viewer Pro 12.2.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
-Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B955777457FA5A5412674A86B7F6CA9E70F6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

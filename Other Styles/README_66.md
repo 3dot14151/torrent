@@ -1,3 +1,177 @@
+###  Публикация: 1131361   (708561) от 05.05.2017
+
+Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jed Kurzel - Incubation (01:07)
+02. Jed Kurzel - The Covenant (03:25)
+03. Jed Kurzel - Neutrino Burst (02:57)
+04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025614   (708203) от 13.06.2016
+
+Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flightpath (4:35)
+02. Sky Safari (10:28)
+03. Muroc (6:46)
+04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025537   (708123) от 13.06.2016
+
+Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Dance (4:35)
+02. Ship to Shore (4:23)
+03. Another Time, Another Place (5:54)
+04. Cherry Blossom (4:07)(   Читать дальше...   )Жанр: New-Age, Instrumental, PianoПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F20145F4C945A012E890EAECD8FC8820FCFB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025592   (708113) от 13.06.2016
+
+Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Whispers (9:08)
+02. Teach Me to Love (Pt. 1) (5:00)
+03. Teach Me to Love (Pt. 2) (7:02)
+04. Dreamland (8:01)(   Читать дальше...   )Жанр: New-age, Ambient, RelaxПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025953   (708021) от 13.06.2016
+
+Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration (4:45)
+02. Animal Clans (5:04)
+03. Earthwalk (5:29)
+04. Yaneeha Sweet Daughter-Moon (5:22)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54CB00E4B6CB9E8B0E1AA1472D12F27DDF46F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025690   (708018) от 13.06.2016
+
+Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Sun (5:14)
+02. The Medicine Wheel (5:16)
+03. Yellow Moon Woman (5:50)
+04. Spirit Wolf Calling (5:05)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EC2F3782050A5F31C165482BA0C2232164A41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219793   (707998) от 17.04.2018
 
 VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, Merengue, Other>
@@ -568,180 +742,6 @@ Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026264   (703961) от 15.06.2016
-
-Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderball    02:57
-02. Out Of Africa    03:33
-03. You Only Live Twice    03:12
-04. The Appointment    03:17(   Читать дальше...   )Жанр: Contemporary, Soundtrack, ClassicalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026440   (703953) от 15.06.2016
-
-Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words Do not Do and Say Nothing
-02. Encounters
-03. Welcome to Infinity Forever
-04. In the Center of Anhidema(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402115   (703678) от 13.08.2020
-
-VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finest Pasas - Mystic Clouds (06:34)
-02. Spirit - Om Sat Guru (06:41)
-03. Power Shui - Harmonious Journey (03:47)
-04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286773   (703620) от 07.03.2019
-
-Tim McGraw - Not A Moment Too Soon (1994) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	It Doesn't Get Any Countrier Than This 	2:30
-2 	Give It To Me Strait 	2:46
-3 	Wouldn't Want It Any Other Way 	3:50
-4 	Down On The Farm 	2:55(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4BB6AED8D0F8B764664925AFCCF6F761D2D3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287006   (703619) от 07.03.2019
-
-Sawyer Brown - Greatest Hits (1990) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703619.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Step That Step 	2:47
-2 	Heart Don't Fail Now 	3:21
-3 	Betty's Bein' Bad 	3:15
-4 	The Race Is On 	2:53(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A348B7453F2A55A80785F8F2B8CC412360F749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286758   (703618) от 07.03.2019
-
-Tim McGraw - Tim McGraw And The Dancehall Doctors (2002) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703618.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Comfort Me 	5:24
-2 	Tickin' Away 	4:19
-3 	Home 	4:57
-4 	Red Ragtop 	4:42(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510A7312CF6310DF4927B5673E6F1693B9FAB52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

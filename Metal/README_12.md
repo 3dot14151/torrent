@@ -1,3 +1,90 @@
+###  Публикация: 1358059   (970730) от 06.02.2020
+
+Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Second
+2. We Had Everything
+3. Chemical Redemption
+4. Burning Bridges(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA157992B4D819DF3F2C47BB7E3189F2E9AB3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358058   (970641) от 06.02.2020
+
+Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Isolation
+2. Means to an End
+3. Last Time
+4. Capital Enslavement(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D6F0D3438F9CBFE7A7C99DC0EEC61B4B5242E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358479   (968813) от 08.02.2020
+
+Loathe - I Let It in and It Took Everything (2020) [MP3|320 Kbps] <Progressive Metalcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme
+02. Aggressive Evolution
+03. Broken Vision Rhythm
+04. Two-Way Mirror(   Читать дальше...   )Жанр: Progressive Metalcore, Alternative MetalПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07B234E4C0A6B859E2EF120B27046A89BD3EB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358475   (968809) от 08.02.2020
 
 Sylosis - Cycle of Suffering (2020) [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal, Progressive Metal>
@@ -670,93 +757,6 @@ Ost+Front - Ultra (2016) [MP3|320 кб/с] <Industrial Metal, NDH>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:217CBECB8032996A3791ADE27A9642AF9265BD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978238   (963234) от 23.01.2016
-
-Megadeth - Dystopia (2016) Best Buy Edition [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Threat Is Real (04:22)
-02. Dystopia (04:59)
-03. Fatal Illusion (04:15)
-04. Death from Within (04:47)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777D2A6F9C2178BD944C1577A3B9A5CD653391D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359867   (962924) от 13.02.2020
-
-Ozzy Osbourne - Ordinary Man (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight To Hell
-02. All My Life
-03. Goodbye
-04. Ordinary Man (Feat. Elton John)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96475B9168ABA9EDBC11B4FEEA67B9B5D9F42AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803770   (962923) от 13.02.2020
-
-Suicide Silence - 6 Albums, 2 EP, 1 Live (2005-2020) [MP3|320 кб/с] <Deathcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962923.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Suicide Silence (EP)
-2007 - The Cleansing (European Edition)
-2009 - No Time To Bleed (Maximum Bloodshed Edition)
-2010 - Wake Up (EP)(   Читать дальше...   )Жанр: Deathcore, Nu-MetalПродолжительность: 06:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C13B1C5E6671CC7D20A489C654CF64850D37B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

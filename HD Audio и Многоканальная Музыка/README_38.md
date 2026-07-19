@@ -1,3 +1,177 @@
+###  Публикация: 1322081   (452297) от 27.08.2019
+
+Robert Miles - Dreamland (1996/2019) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Dream-House, Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452297.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Children (Dream Version) (7:05)
+A2. Fable (Message Version) (6:23)
+A3. Fantasya (5:44)
+B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, TranceПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061186   (448348) от 10.10.2016
+
+Московский Камерный оркестр - В. А. Моцарт – Симфонии №40, №24 (1975) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Симфония № 40 Соль Минор, К.550
+1. Molto Allegro  8:40
+2. Andante  15:30(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061105   (448338) от 10.10.2016
+
+Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <World Music, Ethnic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ancestor
+02. Black Elk
+03. Raben's Light
+04. Craftsman's Prelude(   Читать дальше...   )Жанр: World Music, Ethnic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061148   (448105) от 10.10.2016
+
+Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Соната №8 до минор "Патетическая", соч. 13
+1. Grave. Allegro Molto E Con Brio  8:22
+2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943330   (446906) от 04.10.2015
+
+Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Strangers [5:36]
+02. Deep Six [5:02]
+03. Third Day Of A Seven Day Binge [4:30]
+04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570206   (444820) от 16.08.2022
+
+David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is Love
+02. Cowboy Movie
+03. Tamalpais High (At About 3)
+04. Laughing(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FC23E0C52ACD0F0356C7D7C0D12C86993D2A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248291   (444513) от 19.09.2018
 
 Алексей Покровский - Русские Народные Песни И Романсы (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Poetry, Folk>
@@ -584,180 +758,6 @@ A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Прои�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571801   (427511) от 24.08.2022
-
-The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427511.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Song For You
-A2 Fall Is At Your Door
-A3 A Song That's Always New
-A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709191   (426034) от 10.10.2013
-
-Аквариум - История Аквариума: Архив Том III (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426034.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Диплом (4:01)
-A2. 15 голых баб (Увы) (2:20)
-A3. Среди миров (1:23)
-A4. Трудовая пчела (6:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411720   (425061) от 26.09.2020
-
-Кино - Любовь - Это Не Шутка (2020) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425061.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.Попробуй Спеть Вместе Со Мной
-A2.Любовь — Это Не Шутка
-A3.Прохожий
-A4.Закрой За Мной Дверь, Я Ухожу(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830973   (423494) от 13.10.2014
-
-Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey You (4:41)
-02. Is There Anybody Out There? (2:41)
-03. Nobody Home (3:23)
-04. Vera (1:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411975   (422712) от 27.09.2020
-
-Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422712.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sky Belongs To Me	4:44
-A2 I Will Travel On	4:52
-A3 Song Of The City (Happening To Me)
-A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411920   (422703) от 27.09.2020
-
-Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422703.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sze-Vosztok
-A2 Gammapolis 1
-A3 Nem Tudom A Neved
-B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 927547   (528691) от 13.08.2015
+
+Soulfly - Savages (2013) Japanese Edition [MP3|320 кб/с]<Groove / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodshed (feat. Igor Cavalera Jr.) (6:55)
+02. Cannibal Holocaust (3:29)
+03. Fallen (feat. Jamie Hanks from 'I Declare War') (5:55)
+04. Ayatollah Of Rock 'N' Rolla (feat. Neil Fallon from 'Clutch') (7:29)(   Читать дальше...   )Жанр: Groove / Thrash MetalПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C14C15BE167191610DCD52B5B554A6034AF283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156044   (528499) от 06.08.2017
+
+Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fixated on Devastation
+02. Panic Amongst the Herd
+03. Die with Integrity
+04. Reveling in the Abyss(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488A380180C75C6C8231E4CA66E2B4287AE83905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156524   (527656) от 07.08.2017
+
+Pentakill - II: Grasp of the Undying (2017) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Cull (5:13)
+ 2 - Mortal Reminder (4:04)
+ 3 - Tear of the Goddess (3:55)
+ 4 - Infinity Edge (3:52)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7362987DD95BDF56D5322ABE2868143AE546F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052933   (527313) от 15.09.2016
 
 Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [MP3|320 Kbps] <Heavy Metal>
@@ -669,93 +756,6 @@ Parasite Inc. - Dead And Alive (2018) [MP3|320 Kbps] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314724AB58870B936AF5A0FCCE48A5EEE5E68DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929808   (518492) от 20.08.2015
-
-The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell on Earth
-02. The Awakening
-03. World in Ashes
-04. Always the Fugitive(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B9DF846B8B964FC28900D3674C9E943829A95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929756   (518487) от 20.08.2015
-
-Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518487.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aeon Of Cold
-2. Zero Gravity
-3. Storm Centre
-4. Last Of All Winters(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EE5151D2CA2A214A785BB41BDFAE2E75DD5247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929775   (518477) от 20.08.2015
-
-Myrkur - M (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518477.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skøgen Skulle Dø
-2. Hævnen
-3. Onde Børn
-4. Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, Female VocalПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512EE2FF19F92CD61358DAAFF69B95CA3AABB435
 ```
 
 https://mybot314.ru/tekegram_catalog/

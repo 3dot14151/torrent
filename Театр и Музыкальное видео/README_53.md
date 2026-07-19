@@ -1,32 +1,3 @@
-###  Публикация: 1529272   (730452) от 09.02.2022
-
-Сборник клипов - Enigmatic от ALEXnROCK (2022) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой подарок к наступающему дню всех влюблённых. Сборник клипов для приятного время провождения с любимым человеком или досуга, ну или простого релакса и отдыха. Ремастеринг видео и звука. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Enigmatic - Intro
-01. Enigma - The Voice Of Enigma, Sadeness
-02. Enigma - Principles Of Lust
-03. Enigma - Callas Went Away(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF9496A5F08B72F68A7B805440538393FFAD035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 666903   (729407) от 11.06.2013
 
 Анна Семенович - Анна (2013) WEB-DLRip [H.264/1080p]
@@ -709,6 +680,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B1C7934A10219758BC505D047F52E91E448C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531441   (722600) от 15.02.2022
+
+OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайв-выступление группы OneRepublic, представляющее альбом Human (впервые вживую), выпущенное 27 октября 2021. Весь концерт полностью транслировался в режиме реального времени для первой трансляции.01. Distance
+02. Take Care of You
+03. Good Life
+04. Rescue Me(   Читать дальше...   )Производство: США, Our Secret HandshakeЖанр: Pop, rockРежиссер: Джейсон ЛестерСубтитры: ОтсутствуютПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F9E1C21047698EE1827BD425C8C2E69F88DA73
 ```
 
 https://mybot314.ru/tekegram_catalog/

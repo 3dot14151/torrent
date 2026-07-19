@@ -294,41 +294,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563536   (403387) от 22.10.2012
-
-Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403387.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:41) 01. Magyar tAncok No. 5
-(1:55) 02. Monti csardas (intro)
-(3:06) 03. Monti csardas
-(3:47) 04. Torok indulo
-(3:16) 05. Magyar tancok No. 1
-(3:19) 06. Carmen nyitany
-(3:30) 07. Kan-kan
-(3:14) 08. Hegykiraly barlangjaban
-(4:29) 09. Que rico el mambo 'mambo - jambo'
-(3:07) 10. Palotas (a Hunyadi Laszlo c. operabol)(   Читать дальше...   )Жанр: Classical crossover, ViolinПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF38242FFB5C60ABA347AD74C9A82CEFAF66F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414976   (376538) от 12.10.2020
 
 IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
@@ -780,6 +745,35 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CEF6A02C9D26B22FB24673B16166A418E75DE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425149   (222251) от 20.11.2020
+
+Ильин - Еще ложь (2020) [MP3|320]
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ст. 1. Обязательство соблюдать права человека
+02. Ст. 3. Запрещение пыток
+03. Ст. 5. Право на свободу и личную неприкосновенность
+04. Ст. 8. Право на уважение частной и семейной жизни(   Читать дальше...   )Жанр: Neoclassical, contemporary, pianoПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57BB72114C95C2653A726FD6A911C769AB0E0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

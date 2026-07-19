@@ -1,3 +1,55 @@
+###  Публикация: 1327216   (376362) от 24.09.2019
+
+Vegas Pro - Wedding Title 04 [VEG]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые и элегантные "титулы" на свадебную тему... Дерзайте!Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0FF0B7299810CA014BCB809924D9DA0CA4168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327211   (376215) от 24.09.2019
+
+Vegas Pro - Wedding Title 03 [VEG]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые и элегантные "титулы" на свадебную тему... Дерзайте!Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB3F88FA014AA6A6EA93B24D563EAA5AED1512D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254381   (374596) от 13.10.2018
 
 Проекты - VideoHive - Heart of Butterflies - 10062869 [AEP]
@@ -631,59 +683,6 @@ VideoHive – Romantic Wedding - 5600098 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE44F332057FAE11965C95B959D1057344B494E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076979   (308302) от 27.11.2016
-
-Проекты - Cinema 4D - Happy Valentine`s Day [C4D]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания поздравительной открытки С Днём Святого Валентина.Формат: C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2661DDCF03A21D9916E8AA3FE1D514ECA4A08876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960438   (307018) от 28.11.2015
-
-Проекты - Pond5 - Romantic Slideshow [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E2D91009EC58228A599E2E96B05EA7DAA6ED7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

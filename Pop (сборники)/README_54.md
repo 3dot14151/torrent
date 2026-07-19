@@ -1,90 +1,3 @@
-###  Публикация: 1138159   (665304) от 28.05.2017
-
-VA - Pet Shop Boys - Standard Disco Holiday (2017) [MP3|320 Kbps] <Europop, Synthpop, Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pet Shop Boys & Liza Minnelli - Love Pains 4:11
-02.  Go West (Almighty PSB Mix) (Castro Boy Club Mix) 4:43
-03.  Call Me Old-Fashioned (Demo Version) 4:02
-04.  New York City Boy (The Morales Club Mix) 10:58(   Читать дальше...   )Жанр: Europop, Synthpop, EurodiscoПродолжительность: 02:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C91D21D4141A0654CD1300F2C20B73355BEAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137910   (665246) от 28.05.2017
-
-VA - Зажигай вместе с Европа Плюс выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665246.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оля Краснова - Мурашки 3:20
-002. Елена Темникова - Голые 3:23
-003. Юран - Пусть Будет Так 3:45
-004. Olisha - Мы Такие Девочки 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D34EA046692FEFA4EAF8D2EB9FF780E86E90A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137903   (665136) от 28.05.2017
-
-VA - Дискотека Hit FM. Любимая музыка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Филимонов - Чужой Мой Близкий Человек 3:30
-002. Fargo - Лев Толстой 3:30
-003. Icetowne - Территория 5:23
-004. Иракли - Два Океана 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2964509DBF870613306860F3DAC6CB3DA94E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512210   (664842) от 18.06.2012
 
 VA - The Official UK Top 40 Singles Chart (17-06-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
@@ -748,6 +661,105 @@ VA - German Top 100 Single Charts 18.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:048FA8B89610A142A0693676619C06489DDAB877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515007   (656951) от 25.06.2012
+
+VA - Летний спецвыпуск Золотого Граммофона (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+001 ВИА Гра - Алло, Мам
+002 Герр Антон (Herr Anton) - Алка Now!
+003 Размер Project - My Moscow Love
+004 IKA - Москва Слезам Не Верит
+005 Ю. Волкова - All Because Of You
+006 Steel Deluxe feat. Olya Milaxa - За Стенами
+007 Слава - Sex Не Любовь
+008 Тимур Темиров - Лето Жаркое
+009 Ани Лорак - Обними Меня Крепче(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 12:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515238   (656620) от 25.06.2012
+
+VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656620.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fly Project - Back In My Life (Radio Edit)
+002. DJ Snach & Supermax - Любовь Как Диско (Dance Version)
+003. Akcent - Chimie Intre Noi (Radio Edit)
+004. Герр Антон (Herr Anton) - Алка Now!
+005. Maroon 5 - One More Night
+006. Sara Oks & Иван Кит - Бой Без Правил
+007. DJ Nano & Kate Ryan feat. Dmol - The Next Road
+008. NikitA - Калинка-Малинка
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Градусы - Нефть(   Читать дальше...   )Жанр: PopПродолжительность: 06: 12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903781   (656291) от 01.06.2015
+
+VA - Только русский свежак. Топ новинок поп музыки (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andreas - Сейчас Или Никогда
+002. Герр Антон (Herr Anton) - Надо Любить
+003. Brutto - Труд
+004. 30.02 - Асфальтными Нитками(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2F9520E46B7842C722168FE8C03644CA4DB41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

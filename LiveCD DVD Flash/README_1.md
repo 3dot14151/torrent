@@ -1,3 +1,58 @@
+###  Публикация: 954843   (338823) от 08.11.2015
+
+Windows 8.1 PE (x64) v.3.5 by Ratiborus [Ru]
+
+>>След.
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 8.1 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3AD819C3C6A5E7E4DFB9979EC6FF3CD5737A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182361   (316161) от 10.11.2017
+
+Rescue USB 16 Gb (BuTaJ1 Edition) 3.4
+
+>>След.
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rescue USB 16 Gb (BuTaJ1 Edition) 3.4 основана на сборках adguard, puhpol, conty9 и Sergei Strelec.
+Загрузка в UEFI и через USB 3.0.
+Сборки Windows собраны на основе MSDN и VLSC (Windows 10) образов.
+Windows 7,8.1 и 10 активируются и создается задача для переактивации каждые 10 дней при установке автоматически утилитой AAct v3.8 Portable от Ratiborus.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D11980198CF8F21531DD422A06ED381DD4225CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837966   (257718) от 20.11.2025
 
 WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]

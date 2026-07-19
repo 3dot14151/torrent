@@ -1,3 +1,90 @@
+###  Публикация: 1505714   (802630) от 28.10.2021
+
+Beast in Black (ex-Battle Beast) - 3 Albums (2017-2021) [MP3|320 Kbps] <Melodic Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade Runner [00:04:08]
+02. Bella Donna [00:03:52]
+03. Highway to Mars [00:05:13]
+04. Hardcore [00:03:34](   Читать дальше...   )Жанр: Melodic Heavy Power MetalПродолжительность: 3CD, 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5436BD58DC55FB6F8A913F6BECBAACC22825F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505765   (802501) от 28.10.2021
+
+Running Wild - Blood on Blood (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blood on Blood
+2. Wings of Fire
+3. Say Your Prayers
+4. Diamonds & Pearls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CFE2EF92C76BD1BDD82D9380A1D327A94531D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120504   (802118) от 31.03.2017
+
+Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And the Desert Calls My Name
+02. Daemon Sultan
+03. Cthulhu
+04. With the Deep Ones I Descend(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120519   (802113) от 31.03.2017
 
 Orpheus Blade - Wolf's Cry (2015) [MP3|320 Kbps] <Progressive Metal, Avant-Garde Metal>
@@ -654,93 +741,6 @@ Farseer - Fall Before the Dawn (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354DFC4B763A2B5C75E5A7518E35BB1F52DD8508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012115   (795579) от 29.04.2016
-
-Germ - Escape (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Shoegaze, Post Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795579.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I
-2. Escape
-3. I'll Give Myself To The Wind
-4. Under Crimson Skies(   Читать дальше...   )Жанр: Atmospheric Black Metal, Shoegaze, Post Black MetalПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DD4E333995DD60336BB761DA795081E5C8DD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509199   (795547) от 11.11.2021
-
-Emigrate - The Persistence of Memory (2021) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795547.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rage
-2. Always On My Mind (feat. Till Lindemann of Rammstein)
-3. Freeze My Mind
-4. I'm Still Alive(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EF40E9C67C4EB1BC21DB3C9D670D96A6DC1EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011857   (795443) от 29.04.2016
-
-Dragonforce - Killer Elite (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through The Fire And Flames
-02. Holding On
-03. Heroes Of Our Time
-04. Cry Thunder(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671E2DE3FF4DA7EF891DC19261228EB9B2BD969A
 ```
 
 https://mybot314.ru/tekegram_catalog/

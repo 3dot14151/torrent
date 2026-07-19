@@ -1,3 +1,177 @@
+###  Публикация: 972428   (980712) от 07.01.2016
+
+Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Believe (2:50)
+ 02. Journey (3:02)
+ 03. Amazing Grace (3:14)
+ 04. All I Ever Wanted (4:07)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A681FD06DC66BC753FFA7C4051FEBAC4592440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355685   (980542) от 29.01.2020
+
+VA - Variations Of Silence (2009) p*dis [FLAC|Lossless|tracks + .cue] <Instrumental, Neo-Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Goldmund - Ba 	1:34
+2. Rudi Arapahoe - Conversation Piece 	4:42
+3. Hauschka - La Dilettante 	4:04
+4. Sylvain Chauveau - Cet Enfer Miraculeux 	2:58(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCAA3E43093AB7D2BD546C10383EE07F11C366D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356058   (980540) от 29.01.2020
+
+Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Darkwave>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West of Arkham (03:52)
+02. The Gardners (04:02)
+03. Contact (04:57)
+04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CA784237E2D3AEDA543F285DE71233F4FC53AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356059   (980538) от 29.01.2020
+
+Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Darkwave>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West of Arkham (03:52)
+02. The Gardners (04:02)
+03. Contact (04:57)
+04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2639E5D519B05B1F562D495CD52489C09C2E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355318   (980532) от 29.01.2020
+
+Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love
+02. Moon River
+03. Smile
+04. All The Way(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA9F20CDB5A3DA01BFBB800DD8229BB0BF57CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356269   (980515) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356270   (980506) от 29.01.2020
 
 Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -580,186 +754,6 @@ Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974221   (978150) от 10.01.2016
-
-VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arrabal
-02 - Verdemar
-03 - Che bandoneon
-04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356562   (978002) от 31.01.2020
-
-Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Bath (01:25)
-02. Witchcraft (02:09)
-03. Eat Me (01:07)
-04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100D3D6290EE76F99674D326CC8E40452C08CF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356563   (977949) от 31.01.2020
-
-Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Bath (01:25)
-02. Witchcraft (02:09)
-03. Eat Me (01:07)
-04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCABCDCC039A2BB72619ADCC624FFC2113BA0CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742875   (976958) от 07.01.2014
-
-Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Circle (5:26)
-02. Song of the River (5:42)
-03. Canyon Echoes (5:11)
-04. Shaman's Dream (5:05)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616189   (976836) от 09.02.2013
-
-Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976836.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:55) 01. Chasing A Dream
-(3:56) 02. Velvet Wind
-(4:46) 03. Morning Mist
-(4:24) 04. Swept Away
-(5:43) 05. Jason
-(3:41) 06. Soaring Free
-(3:48) 07. Whispering Winds
-(4:20) 08. Reflections In Time
-(3:41) 09. Shadow Dancing
-(6:04) 10. Forest Path(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F67122AD107CA905BBAD5C475791FB5EF6B43D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356817   (976765) от 01.02.2020
-
-Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1917 (01:17)
-02. Up the Down Trench (06:19)
-03. Gehenna (03:35)
-04. A Scrap of Ribbon (06:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 987542   (926057) от 17.02.2016
-
-Holon - Augmented Reality (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Psybient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Cities (06:21)
-02. Augmented Reality (05:28)
-03. The Last Transmission (04:24)
-04. Polyspace (05:49)(   Читать дальше...   )Жанр: IDM, Breaks, Psybient, DowntempoПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27358EDE22C5B77308C2F52F679A7400BD9C6E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095078   (926052) от 20.01.2017
 
 Telegram Desktop 1.0.2.0 [Multi]
@@ -688,6 +659,34 @@ Amadeus Pro - многотрековый музыкальный редактор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C7FD5F7CEAE94CEDD9CB339683B25C2E1E41C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366217   (925893) от 10.03.2020
+
+OmniFocus Pro 3.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21FEC664D616FEB20D083DF680675CF8D95BD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

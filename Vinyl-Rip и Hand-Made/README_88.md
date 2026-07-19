@@ -1,25 +1,25 @@
-###  Публикация: 1791185   (67870) от 12.04.2025
+###  Публикация: 1797199   (66826) от 15.05.2025
 
-Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mechanize
-02. Industrial Discipline
-03. Fear Campaign
-04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
+Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
+1996 - Arte Novecento
+2000 - Classica
+2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
+magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791955   (67772) от 17.04.2025
+###  Публикация: 1797590   (66762) от 17.05.2025
 
-Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Ambient, Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fighting The World
-02. Blow Your Speakers
-03. Carry On
-04. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:30
+A1 - The Stargate
+B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолжительность: 00:43:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
+magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791908   (67768) от 17.04.2025
+###  Публикация: 1797667   (66703) от 18.05.2025
 
-Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
-A2 Everybody Knows • Всем Известно
-A3 Bad Girl • Плохая Девчонка
-A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
+Rapture - группа, сформированная в 1997 году в Хельсинки, Финляндия.1999 - Futile
+2002 - Songs For The Withering
+2005 - Silent StageЖанр: Melodic Doom/Death MetalПродолжительность: 02:13:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
+magnet:?xt=urn:btih:A33AC90CE2D3C5759B32AE4B79066FAB043136A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791357   (67762) от 17.04.2025
+###  Публикация: 1797966   (66673) от 19.05.2025
 
-Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
+Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
+A1. Wheels Of Fire
+A2. Kings Of Metal
+A3. Heart Of Steel
+A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
+magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791405   (67759) от 17.04.2025
+###  Публикация: 1797927   (66661) от 19.05.2025
 
-Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
+A1-We Are the Many
+A2-The Bogeyman
+A3-Memorial
+A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
+magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,27 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791931   (67757) от 17.04.2025
+###  Публикация: 1797848   (66655) от 19.05.2025
 
-Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
+Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
-2017 - Reality Illusion
-2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
+A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
+A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
+A3. Disobey (Disruptor Remix by Zardonic)
+A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
+magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791741   (67756) от 17.04.2025
+###  Публикация: 1797823   (66654) от 19.05.2025
 
-Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-Eye For An Eye
-A2-No Hope = No Fear
-A3-Bleed
-A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791398   (67753) от 17.04.2025
+###  Публикация: 1797918   (66651) от 19.05.2025
 
-Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - The Industrialist
-A2 - Recharger
-A3 - New Messiah
-B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +227,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791728   (67752) от 17.04.2025
+###  Публикация: 1798728   (66590) от 23.05.2025
 
-Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Crush Depth
-A2 - Tear Down The Walls
-A3 - Beyond My Destiny
-A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
+A. The Sword Woman (05:23)
+B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
+magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792148   (67625) от 20.04.2025
+###  Публикация: 1798792   (66553) от 24.05.2025
 
-Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
+Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
+A1. Blood Fire War Hate
+A2. Unleash
+A3. Paranoia
+B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
+magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +283,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
+###  Публикация: 1799191   (66503) от 26.05.2025
 
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
+Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
+Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
+1995 - Twinaleblood
+1997 - Unpop
+1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,27 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792754   (67600) от 20.04.2025
+###  Публикация: 1799851   (66355) от 30.05.2025
 
-Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
-2019 - Enigma Fire
-2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
+Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
+2016 - Everlasting
+2019 - Overpower
+2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
+magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792136   (67592) от 20.04.2025
+###  Публикация: 1800028   (66342) от 31.05.2025
 
-Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Industrialist
-02. Recharger
-03. New Messiah
-04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
+Strana A:
+A1 K. Gott - Ma Prvni Laska Se Dnes Vdava
+A2 H. Zagorova - Bludicka Julie
+A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
+magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792175   (67591) от 20.04.2025
+###  Публикация: 1800581   (66280) от 04.06.2025
 
-Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Sleep Of Death
-A2 Worship Him
-A3 Knowledge Of The Ancient Kingdom
-A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
+The Duskfall — шведская метал-группа из Лулео, образованная в 1999 году.2002 - Frailty
+2003 - Source
+2005 - Lifetime Supply Of Guilt
+2007 - The Dying Wonders Of The World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 03:21:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
+magnet:?xt=urn:btih:4F906BF469317365DF56F49634C6531B5C7416A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792193   (67589) от 20.04.2025
+###  Публикация: 1802146   (66105) от 15.06.2025
 
-Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Eye For An Eye
-A2. No Hope = No Fear
-A3. Bleed
-A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
+magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,27 +428,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792143   (67585) от 20.04.2025
+###  Публикация: 1802469   (66045) от 17.06.2025
 
-Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
+Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive, Death/Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
-2001 - Naive
-2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
+Phlebotomized - метал-группа из Нидерландов, Розенбург, Южная Голландия. Сформирована под названием Bacterial Disease в 1989 году, затем сменила название на Phlebotomized в 1990 году.2019 - Deformation Of Humanity
+2021 - Pain, Resistance, Suffering
+2023 - Clouds of ConfusionЖанр: Progressive, Death/Doom MetalПродолжительность: 02:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
+magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +456,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792601   (67584) от 20.04.2025
+###  Публикация: 1802909   (65967) от 20.06.2025
 
-Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Flood - метал-группа из Оулу, Финляндия, основанная как Flood в 1996 году, и сменившая название на Dark Flood в 1998 году.2004 - Still Liberty
-2006 - The Dead Lines
-2014 - Inverno
-2023 - Illusion of LightЖанр: Progressive Melodic Death MetalПродолжительность: 03:09:29
+Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
+2014 - Galax (EP)
+2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5A7D27403ED9FF7C71CB5DF320904DD8C74C66
+magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +484,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792290   (67581) от 20.04.2025
+###  Публикация: 1802929   (65950) от 20.06.2025
 
-Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Contemporary Jazz, Smooth Jazz, Fusion>
+Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Omagiu Lui Duke Ellington
-A2 Reminiscente
-A3 Doinind
-A4 Vechi Tezaur(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth Jazz, FusionПродолжительность: 00:40:17
+01 - ...Of Silence
+02 - Weballergy
+03 - False News Travel Fast
+04 - The End Of This Chapter(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A82F42508E6A224E452B99625171292E306C95F
+magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +513,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792497   (67576) от 20.04.2025
+###  Публикация: 1803178   (65904) от 21.06.2025
 
-George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Angela Ciochina - Odata Cu Cintecul
-A2 Mi-a Batut - Primavara-n Geam
-A3 Mihaela Runceanu - Sperante-vis, Sperante-flori
-A4 George Sava - Se Scalda Ceru-n Ochii Tai(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:55
+Thenighttimeproject - шведский рок-проект, основанный Фредриком Норрманом в 2010 году после ухода из Katatonia.2016 - Thenighttimeproject
+2019 - Pale SeasonЖанр: Progressive RockПродолжительность: 01:34:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB15464D342D3BC85CEEECD10D9948E7F95A4557
+magnet:?xt=urn:btih:D7C6CC951258E8DC036D47787F3A7A877157E13D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792533   (67571) от 20.04.2025
+###  Публикация: 1803622   (65814) от 24.06.2025
 
-Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Metus Mortis
-A2 - Blind Suffering
-A3 - Shadowland
-A4 - Checkmate In Red(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:06
+A1 Bloodshed
+A2 Cannibal Holocaust
+A3 Fallen
+B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A615CE996BCC238839902418F1E4125016772C4
+magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792908   (67535) от 24.04.2025
+###  Публикация: 1803620   (65813) от 24.06.2025
 
-Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
+Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Hiroshima
-A2 Dirty Fingers
-A3 Bad News
-A4 Don't Let Me Be Misunderstood(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:35
+Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
+2019 - Me, Us And Them
+2021 - Echoes of Winter
+2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
+magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792866   (67532) от 24.04.2025
+###  Публикация: 1803933   (65746) от 26.06.2025
 
-Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Disco>
+Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Disco-Flash (Blyskoteka)
-A2 Sarisari
-A3 Drums 16
-A4 Erebus(   Читать дальше...   )Жанр: Easy Listening, DiscoПродолжительность: 00:37:53
+01. Achilles, Agony And Ecstasy In Eight Parts
+02. Metal Warriors
+03. Ride The Dragon
+04. Spirit Horse Of The Cherokee(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:09:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3CC1B01DC27FBCC5FD0F191D1BA1F4C4BE8CBCB
+magnet:?xt=urn:btih:47C87BE451132D4C81AC6EB64C87F99CBFDC7461
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +627,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793051   (67516) от 24.04.2025
+###  Публикация: 1804694   (65558) от 01.07.2025
 
-Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
-2009 - Lebenslinie
-2010 - Lugenkabinett
-2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
+A1 - Conspire To Deceive
+A2 - Detonate
+A3 - Our Channel To The Darkness
+A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
+magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +656,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793478   (67515) от 24.04.2025
+###  Публикация: 1805171   (65469) от 05.07.2025
 
-Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip]<Melodic Doom, Death Metal, Gothic, Doom Metal>
+Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pagan, Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Inception
-A2 - Murder
-A3 - Fortress
-A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, Death Metal, Gothic, Doom MetalПродолжительность: 00:39:04
+A1-Искра
+A2-Разожги Огонь
+A3-Саламандра
+A4-Оберег(   Читать дальше...   )Жанр: Pagan, Folk MetalПродолжительность: 00:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
+magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +685,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792894   (67512) от 24.04.2025
+###  Публикация: 1805935   (65427) от 09.07.2025
 
-Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
+A1. Promises
+A2. The Great Unknown
+B3. The Wake
+B4. Solitude(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F9B5AA898420277A2B4579211FEC26788455A87
+magnet:?xt=urn:btih:BEB3673CE45CC421835DAB2973AE5A594119B0EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +714,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793045   (67511) от 24.04.2025
+###  Публикация: 1805972   (65426) от 09.07.2025
 
-Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic/Gothic Metal>
+DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Trail of Tears — норвежская метал-группа. Сформирована в 1994 году под названием Natt, в 1997 переименована в Trail of Tears и оставалась активной до распада в 2013 году. Группа была возрождена в конце 2020 года.1998 - Disclosure In Red
-2000 - Profoundemonium
-2002 - A New Dimension of Might
-2005 - Free Fall Into FearЖанр: Extreme Symphonic/Gothic MetalПродолжительность: 06:15:40
+A1. Unravel The Sorrow
+A2. To The Core
+B1. The Calling
+B2. Second Chance(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60212CBAA7B09970029C76032C55A4B114CA5A03
+magnet:?xt=urn:btih:34D7F0E29F9D40AFEFE5D0A059600288E8D94BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

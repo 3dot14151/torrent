@@ -1,119 +1,3 @@
-###  Публикация: 1026171   (706243) от 14.06.2016
-
-Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pain Killer - I [08:48]
- 02.Zig Zag [03:52]
- 03.Free Stroll [12:05]
- 04.Little Treat [02:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CB6C376FA41415C7D36297E1A2569C87C041AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220248   (706197) от 18.04.2018
-
-Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-8 Ford Blues [02:17]
-02. Please Don't Talk About Me When I'm Gone [01:32]
-03. Baby, Please Don't Go [02:38]
-04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220254   (706196) от 18.04.2018
-
-Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through the Tunnel [04:47]
-02. Freedom of Mind [05:52]
-03. Black Orpheus [06:37]
-04. Tortoise [06:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EFEFAA57DDADAD74C7BFE08080A97D2B0E43B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220252   (706195) от 18.04.2018
-
-Bo Sundstrom - Mitt Dumma Jag: Svensk Jazz (2018) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forsvann du [04:01]
-02. Kommer du till mig inatt [02:37]
-03. Sommaren vi alskade varann [04:08]
-04. Allt ar som forut [04:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41366B9ADDBD8C0DC1286095322B26B7D9C5B198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026297   (706157) от 14.06.2016
 
 Johnny “Hammond” Smith - That Good Feelin' (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -745,6 +629,122 @@ Gary Peacock - Voices (1971) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D1C9F677E0ADFBAE1C72880EECEB95E4DE57188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026421   (704166) от 15.06.2016
+
+Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lessoning [09:52]
+ 02.Nanshi [06:13]
+ 03.Changing [08:32]
+ 04.One Up [05:29](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9763B6BF7889A9954F1A4F888468FDD2A589C9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026402   (704165) от 15.06.2016
+
+Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me [06:08]
+ 02. Coffee Time [06:10]
+ 03. Etnia [05:29]
+ 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026418   (704163) от 15.06.2016
+
+Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Secret Love [10:51]
+ 02.Airegin [05:35]
+ 03.Confirmation [07:35]
+ 04.Four [08:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3002A2B64EC4035F1384419336E3429D49914C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026424   (704162) от 15.06.2016
+
+Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perdido / Wahoo [13:45]
+ 02.Old Folks [04:33]
+ 03.Out Of Nowhere [12:12]
+ 04.Loverman [04:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
 ```
 
 https://mybot314.ru/tekegram_catalog/

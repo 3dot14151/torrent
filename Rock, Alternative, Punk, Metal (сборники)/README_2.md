@@ -1,3 +1,90 @@
+###  Публикация: 1607975   (1043553) от 31.01.2023
+
+Laura Cox - Compilation (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Fire
+02. So Long
+03. The Australian Way
+04. One Big Mess(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1736954F147A5112310443E849B26B147EFCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608190   (1043529) от 31.01.2023
+
+Vanilla-Ninja - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Tattoo Unplugged
+02. Gotta Get it Right
+03. Kingdom Burning Down
+04. Tough Enough(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 02:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E960C25E9EF0759E0CEDA7D03A4D9E25C50632F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607787   (1043521) от 31.01.2023
+
+VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043521.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01. George Michael – I Can’t Make You Love Me 5:21
+02. Ed Sheeran – Thinking Out Loud 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 05:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609102   (1043327) от 02.02.2023
 
 Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
@@ -658,93 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444782   (1034201) от 03.02.2021
-
-VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на праздник настоящей Рок музыки! Ценители качественного звука и мастерского исполнения, радуйтесь! Здесь все по-настоящему! «Thе Jаdеd Hеаrts», «Nеurоtiс Fiсtiоn», «Stаnd Atlаntiс», «Hаllоwееn In Hеll», «Sodom» и многие другие мастера современной рок-сцены громоздят сумасшедшие аккорды и рифы, а также виртуозно исполняют свои партии!001. Maggie Cassidy - S.A.D
-002. Billy Nomates - Modern Hart
-003. Outloved - Hurt Me
-004. Division Of Laura Lee - Sit Up Straight(   Читать дальше...   )Жанр: RockПродолжительность: 11:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757CA35AA69DEBBEF62EE4A19229D4874A81C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445223   (1033709) от 05.02.2021
-
-VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник! При прослушивании которого возникает то самое удивительное чувство ностальгии по тем временам, когда музыка поражала многообразием идей, а артисты старались придумать свои уникальные приёмы, не стараясь скопировать друг с друга!001. Josie & The Outlaw - Hipshake
-002. King Salami - Who Do They Watch!
-003. The Red Elvises - Why Why Why
-004. Alex Brown - Fight Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 05:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626F83CEA022BC492C2594BD5D459F4D7E6E166C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619548   (1032716) от 17.03.2023
-
-Pantera - Collection (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Pantera — пример того, как важно для музыкантов найти именно своего вокалиста. Подробности есть в сети. С этой командой у меня связано много воспоминаний. Как в 90х мы с пацанами, будучи патлатыми подростками, таскали громоздкие, Советские мафоны и вертаки, с кучей самодельных шнуров и записывали кассеты. Все юнешеские накопления уходили на покупку фирменных (   Читать дальше...   )01. Cowboys From Hell
-02. Primal Concrete Sledge
-03. Psycho Holiday
-04. Heresy(   Читать дальше...   )Жанр: RockПродолжительность: 04:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F166943DF0CCCF27B5C46159193F254AA227D61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

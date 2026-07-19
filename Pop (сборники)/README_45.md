@@ -1,3 +1,32 @@
+###  Публикация: 1130052   (716406) от 01.05.2017
+
+VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Derulo - Swalla 3:36
+002. Ed Sheeran - Shape Of You 3:54
+003. Ed Sheeran - Galway Girl 2:51
+004. Harry Styles - Sign of the Times 5:41(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0B9858749BB64CDBB952DD2FD6AE7F55D93906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219257   (715739) от 13.04.2018
 
 VA - Экспресс русских хитов на Hit FM (5) (2018) [MP3|256 Kbps] <Поп>
@@ -513,32 +542,6 @@ VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B405A1080AC23D087B4ACF232EDA48A9EC7DB978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207928   (709659) от 12.06.2010
-
-VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop, Ballad>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_709659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Ballad
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

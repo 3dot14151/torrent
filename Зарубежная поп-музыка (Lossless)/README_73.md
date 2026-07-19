@@ -1,3 +1,148 @@
+###  Публикация: 1341155   (262582) от 27.11.2019
+
+Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
+02. Darkseid (ft. 潘PAN) (3:44)
+03. Delete Forever (03:57)
+04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341526   (262344) от 28.11.2019
+
+Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All for love (4:44)
+02. Back for good (4:00)
+03. You've got a friend (4:29)
+04. '74-75 (3:48)(   Читать дальше...   )Жанр: Funk/Soul, Gospel, CoverПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193455   (262134) от 21.12.2017
+
+Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Verità (05:02)
+02. Luomo Nero (04:28)
+03. Canzone Contro La Paura (03:44)
+04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193894   (261797) от 23.12.2017
+
+Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More (3:16)
+ 02. Friendzone (feat. Demarco) (3:15)
+ 03. Patterns (3:29)
+ 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194044   (261758) от 23.12.2017
+
+Kelly Clarkson - Meaning Of Life (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Minute (Intro)
+02. Love So Soft
+03. Heat
+04. Meaning Of Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAF92C9E28605F2DE6F8A1857EB94B36E2FB7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838989   (261677) от 26.11.2025
 
 VA - 90s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -618,148 +763,6 @@ Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623311   (246020) от 01.04.2023
-
-Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [FLAC|Lossless|image + .cue] <Pop, Soul, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безошибочно узнаваемый голос Whitney Houston мощный и неподвластный времени. Она достигла вершины популярности и успеха, став одной из самых опытных исполнителей всех времен. Но ее сердце было отдано gospel'у, стилю который повлиял на всю ее карьеру. Познакомьтесь с той стороной Whitney, которая присуща самой ее душе, с выпуском I Go to the Rock: The Gospel Music (   Читать дальше...   )01. I Go To The Rock (4:05)
-02. Jesus Loves Me (5:12)
-03. He Can Use Me (4:54) (Previously Unreleased)
-04. Joy to the World (4:41)(   Читать дальше...   )Жанр: Pop, Soul, GospelПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620224   (245838) от 19.03.2023
-
-Mylene Farmer - Libertine (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertine
-02. Sans contrefaçon (Girl Remix)
-03. L'instant X
-04. Déshabillez-moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB466C5194AA12F94A10DDBF4C5ADED2F0894CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565769   (245807) от 25.07.2022
-
-VA - I Love The 90's The Retro Edition (2018) 5CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] < Eurodance, House, Dance, Progressive>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Eurodance, House, Dance, ProgressiveПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79B08900DD9A5E3F9A9F642E9FE5EE37CD5D29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512332   (245599) от 24.11.2021
-
-VA - Late Night With You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - BITE (03:06)
-02. Justin Bieber - Hold Tight (Single Version) (04:14)
-03. Nick Jonas - Close (03:54)
-04. banks - Waiting Game (03:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C97B0BBCD8D68CC5058A482BE4191234D8AB051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608739   (245461) от 31.01.2023
-
-Gerard Joling - No More Boleros (1989) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tears Inside
-02. Lovin' You Is Easy
-03. Let This Night Last Forever
-04. No More Boleros(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97270C54960B699A0555F8E9C5592FFFBEF3E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

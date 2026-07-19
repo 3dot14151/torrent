@@ -1,3 +1,61 @@
+###  Публикация: 975413   (973424) от 14.01.2016
+
+Kari Hongisto Band - Trust My Blues (2015) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virus Stole My Baby (05:00)
+02. Trust My Blues (04:59)
+03. Workin' Out (03:49)
+04. Change My Dirty Life (04:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D509EC77080B364E0224FBA484F561280B2104E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976832   (968830) от 18.01.2016
+
+Kim Simmonds - Blues Like Midnight (2001) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Before She Goes (01:57)
+02. Morning Light (04:00)
+03. Tell The World (02:20)
+04. Move To A Country Town (03:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8AB48EE36C0D8404D27D0441CC19C90093DDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977139   (967795) от 19.01.2016
 
 VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
@@ -687,64 +745,6 @@ VA - Antologia polskiego bluesa cz.2: Nasi (z)zagranica (2009) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB46CAA67F481704A1DC5EC590CF2F502927E6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987435   (926089) от 17.02.2016
-
-VA - Antologia Polskiego Bluesa Cz.2: Swieza Krew (2009) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Doctors - Ja to nie ty
-02. Blues Flowers i Magda Piskorczyk - W pamietniku Cie zapisze
-03. Boogie Boys - BB Are In Town
-04. Marek "Makaron" Trio - Skarga umierajacego(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1936AB682DCB27736CCA95F90A10AE75B088D408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987378   (926059) от 17.02.2016
-
-Layla Zoe - Hoochie Coochie Woman (2007) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoochie Coochie Woman (03:27)
-02. Don't Wannah Hurt Nobody (04:45)
-03. No More Stormy Mondays (05:56)
-04. I Am Free (05:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10445C0F0CB2304A17141F76D64401C2567A8E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1310375   (547008) от 24.06.2019
+
+VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Schlager Sommer Megamix 2019, Pt.1
+02. VA - Schlager Sommer Megamix 2019, Pt.2
+03. Norman Langen - Dieses Gefühl
+04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048422   (546426) от 02.09.2016
 
 Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
@@ -711,35 +740,6 @@ VA - Italo Top Hits (1979) LP [MP3|320 Kbps] <Electronic, Pop Rock, Italodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC16E8D06A7104B78AA5833A72F881258764F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050932   (532577) от 11.09.2016
-
-VA - Ministry of Sound - Good Vibes (2016) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532577.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Kungs & Cookin’ On 3 Burners – This Girl
-2. The Chainsmokers Feat. Daya – Don’t Let Me Down
-3. Sia Feat. Sean Paul – Cheap Thrills(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1343C1ED5E9A9D7B8E95BCA64D748D69C5FD6BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

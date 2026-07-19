@@ -1,3 +1,30 @@
+###  Публикация: 919415   (583898) от 18.07.2015
+
+Mp3tag 2.71 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах.
+Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85429B1B184C4683B8C831B2BF58AB2A16718CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919470   (583845) от 18.07.2015
 
 Bandicam 2.2.3.805 [Multi/Ru]
@@ -663,32 +690,6 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193B99D71F8DC125624EA283F2EC5F5C83FEF454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553181   (583559) от 24.05.2022
-
-Toon Boom Harmony Premium 21.0.0 Build 17367 (x64) RePack by PooShock [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toon Boom Harmony — профессиональная программа для создания 2D анимации. Крупнейшие анимационные студии со всего мира выбирают Harmony для создания анимации высочайшего качества, устанавливая стандарты творческого повествования. Данное универсальное программное обеспечение для непрерывной анимации позволяет аниматорам создавать вырезанные и безбумажные анимации в (   Читать дальше...   )Язык интерфейса: Английский, Испанский, Японский и Китайский (упрощённый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668518D31579A9AFA914B4EEFB0FCBD0CAB3562F
 ```
 
 https://mybot314.ru/tekegram_catalog/

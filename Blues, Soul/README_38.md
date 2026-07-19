@@ -1,3 +1,63 @@
+###  Публикация: 593498   (134862) от 24.12.2012
+
+Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+2008 - Treat Me Right
+
+2010 - Back In The FireЖанр: BluesПродолжительность: 01:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593441   (134778) от 24.12.2012
+
+Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1997 - The Search Is Over
+
+2005 -  Let It Go!Жанр: BluesПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C638445EF08A0A7FDA009E34EA872B95260198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594643   (133138) от 27.12.2012
 
 Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
@@ -698,64 +758,6 @@ Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CF9FA69947A28B96137CB5CEA833EC678656A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692514   (122373) от 17.01.2024
-
-Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dancing My Blues Away
-02.  Rock And Roll Tonight
-03.  Never Tie Me Down
-04.  The Chance Of Love(   Читать дальше...   )Жанр: Blues Rock, Soft Rock, RockПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB16313EC079BE979043DE7CF9EF149DA6BBA5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693075   (121866) от 20.01.2024
-
-Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Get Some [05:01]
-02. Run [04:17]
-03. Like You Do [03:34]
-04. Love Train [07:30](   Читать дальше...   )Жанр: Blues, Funk RockПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC503FAB7F85115BD1AB19AE737E33C537C2764
 ```
 
 https://mybot314.ru/tekegram_catalog/

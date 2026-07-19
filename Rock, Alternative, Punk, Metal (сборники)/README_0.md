@@ -1,3 +1,90 @@
+###  Публикация: 1865099   (1065649) от 16.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 5 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wrong Souls
+02 - Heart to Lose
+03 - Train to Nowhere
+04 - The Vortex(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1020B2E6AACDFBD76C3CC19C29DF3EF7D4388397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865261   (1065318) от 14.04.2026
+
+VA - Russian Rock 2015-2016  [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065318.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:08]. 001-Алиса - Новый мир
+[4:17]. 002-Мумий Тролль - Кто будет спасать рок-н-ролл
+[3:40]. 003-Сплин - Герой рабочего класса (cover John Lennon)
+[3:51]. 004-Ленинград - Экспонат(   Читать дальше...   )Жанр: rockПродолжительность: 09:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538C1F3517E3C909B59F2B16FB62D64FFA64085F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865322   (1065277) от 15.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Cry
+02 - The Tormented Memory
+03 - Without End
+04 - The Regret(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B7EFD00C017B5D2F33477C27A8268141290F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864671   (1065099) от 
 
 Sabaton - REDISCOVER Sabaton (2026) [MP3|320 Kbps] <Power Metal, Heavy Metal>
@@ -652,93 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E859BC9B168A0CC68E1C533B16BEBB931436BC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861518   (1062435) от 30.03.2026
-
-VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062435.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aerosmith - Dream On (4:27)
-002. Fleetwood Mac - Go Your Own Way (2004 Remaster) (3:43)
-003. Tom Petty - Don't Do Me Like That (2:41)
-004. Eagles - Hotel California (2013 Remaster) (6:31)(   Читать дальше...   )Жанр: RockПродолжительность: 18:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F62341D78ABB239CFD82DA5EFCA53D6AED0BD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860861   (1062329) от 23.03.2026
-
-7Б - best (2001-2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062329.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:17] . 01-Кино
-[4:23] . 02-Молодые ветра
-[3:28] . 03-Осень
-[4:43] . 04-Знаю! Будет!(   Читать дальше...   )Жанр: rockПродолжительность: 06:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFB3F7F9B710CE07C6F0EBB8315F72FE79BDB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860632   (1062027) от 
-
-Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062027.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:20] . 001-Алло, попс!
-[2:32] . 002-Девушки эмансипэ
-[3:54] . 003-Кассетный мальчик
-[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BCFE6E71AB08ABEC135791DB31F7A29CB29431
 ```
 
 https://mybot314.ru/tekegram_catalog/

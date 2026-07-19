@@ -1,3 +1,29 @@
+###  Публикация: 1448277   (1030901) от 17.02.2021
+
+AAF DCH Optimus Sound 6.0.9102.1 Realtek Mod by AlanFinotty  [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1030901.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одном". При установке данного аудио драйвера есть варианты выбора установки, таких как Realtek Audio Console, Sound Blaster Connect, Nahimic, Sonic Studio, Dolby Atmos. Цель проекта AAF DCH Optimus Sound Realtek Mod аудио драйвера это извлекать превосходное качество звука из музыки, фильмов, игр или (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21008B2C3A2CE483631C62DCE576AEF330887949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448268   (1030897) от 17.02.2021
 
 macOS Big Sur 11.2.1 (Installer) [Multi/Ru]
@@ -652,32 +678,6 @@ Sensei - это приложение, которое охватывает как
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C65F65C24E7B0062A3ADF7FBADA1899EA7402E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448563   (1030728) от 18.02.2021
-
-Cleaner for Xcode 4.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cleaner for Xcode поможет вам сделать приложение Xcode быстрее, удалив ненужные и устаревшие файлы. Вы можете запускать программу очистки еженедельно или ежемесячно для сохранения работоспособности папки разработчика и экономии места на диске.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2021Разработчик: Zhenlu ZouПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Тайский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0156BDF51F47F7954A1711DD166A5DD644223B
 ```
 
 https://mybot314.ru/tekegram_catalog/

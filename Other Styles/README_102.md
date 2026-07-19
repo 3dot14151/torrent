@@ -1,3 +1,176 @@
+###  Публикация: 369157   (527537) от 29.07.2011
+
+VA - Ocora - Egypt. The Musicians of the Nile (2001) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527537.jpg" />
+</div>
+
+
+###  Подробнее
+
+[12:27] 01.  Aamedat el Karnak (The Pillars of Karnak)
+[10:04] 02.  Ya faraoule (O, Strawberry)
+[08:24] 03.  Zarhat el Loxor (Rose of Luxor)
+[14:54] 04.  Abou Zeпd el Hilali
+[03:34] 05.  Taksim with small arghul
+[02:06] 06.  Tayyara (medium arghul)
+[13:02] 07.  Taksim (mizmar)
+[05:12] 08.  Sibs (small high-pitched mizmar)2001Жанр: world, ethnicПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369145   (527449) от 29.07.2011
+
+De Organographia - Music of the Ancient Sumerians, Egyptians & Greeks (1996) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527449.jpg" />
+</div>
+
+
+###  Подробнее
+
+GREEK MUSIC FROM EGYPT
+01. Musical Excerpts1996,Жанр: world, ethnic,Продолжительность: 00:48:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368848   (527429) от 29.07.2011
+
+VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siko Horepse Sirtaki (G. Zabetas - A. Sakelarios) (3:52)
+02. Na Me Thimase (St. Xarhakos - V. Goufas) (3:15)
+03. Nostalgo (I. Kapellas) (3:33)
+04. Mesogios George Moustaki (George Moustaki - D. Christodoulou) (3:21)(   Читать дальше...   )Жанр: Instrumental, DanceПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C001EAB5322988446FC975CD06C48A5135FB13B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156546   (527004) от 08.08.2017
+
+Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Negrita   [4:23]
+02. Night Bird    [3:51]
+03. Rain Dance  [3:59]
+04. Wayrapa - Muspuynin [6:26](   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDA46DE663BBE9A08A0BE4E0D8A61C45F9CEA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369633   (526804) от 30.07.2011
+
+Munir Bashir - Discorgaphy (12 albums, 1987-2007) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987-2007Жанр: arabian traditional music, flamenco, oudПродолжительность: 12:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E914E4EFF1A85B63A80239C323680BBCA3BF7B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052938   (526692) от 16.09.2016
+
+Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation Ritual [00:02:11]
+02. The Wind Speaks My Name [00:03:08]
+03. The Triple Goddess [00:02:54]
+04. Raise the Fire [00:02:31](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156770   (526403) от 09.08.2017
 
 VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -589,177 +762,6 @@ Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108277E4086149DD26E3C51924AA4D8C0E10F9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240954   (522189) от 15.08.2018
-
-Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Symphonic, Epic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marching Towards The Mountain (4:33)
- 2. The Defeat Of The Drake (3:24)
- 3. The Dwarrowdelf (2:41)
- 4. Rohan Rides To The Battle (3:14)(   Читать дальше...   )Жанр: Medieval Neofolk, Instrumental, Symphonic, EpicПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E8C01FAFBAF2AEB2E77DAF28CC0927C0558C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928727   (521540) от 17.08.2015
-
-Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Happy Day [04:09]
-02. Tanti Auguri [02:34]
-03. Tutti I Miei Sogni [03:36]
-04. In The Mood [04:12](   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2416D264E84E9685DCF3BF507463082AD49283DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928677   (521471) от 17.08.2015
-
-Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, Ambient, Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summit
-02. Wild
-03. Everything You Know
-04. Climb A Thousand Miles(   Читать дальше...   )Жанр: Electronic, Neoclassical, Ambient, Instrumental, PianoПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5773C3A9DFFB8FF8F00734F73EC5353952905B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314122   (521322) от 12.07.2019
-
-Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (8:59)
-02. Freedom (4:40)
-03. Follow the Heart (3:37)
-04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241319   (521071) от 16.08.2018
-
-Önder Bilge - Relaxing Guitar Heaven (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Summer Breeze
-02 Circle in the Sand
-03 Early in the Morning
-04 Awaking(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B317EDF9DE69C1B9F4D0080448FA3C1F02D7B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221022   (520774) от 12.08.2012
-
-Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native american>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Instrumental, Native americanПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

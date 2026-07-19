@@ -1,119 +1,3 @@
-###  Публикация: 1255042   (368302) от 16.10.2018
-
-Joe Lovano & Dave Douglas Sound Prints - Scandal (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream State [05:34]
-02. Full Sun [05:06]
-03. Fee Fi Fo Fum [06:03]
-04. Ups And Downs [06:57](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C82F60A9552172F7491CEBBF76BD2F05A399FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328019   (368167) от 28.09.2019
-
-Sonny Rollins - The Prestige Years (1951 - 1956) 5CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368167.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Way You Look Tonight [5:16]
-02. I Want to Be Happy [7:45]
-03. The Stopper [3:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 05:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2B2E396B46FFCC30F8B24BB1A00B6A33A98EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328069   (368001) от 28.09.2019
-
-Club Des Belugas - Strange Things Beyond The Sunny Side (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quapa, Pt. 1
-02. Quapa, Pt. 2
-03. Don't Look Back
-04. Crazy Lazy Friday Afternoon(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B8CAD79AD8F0FEAB2AC59CE5AF8DA194B29707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416513   (367964) от 16.10.2020
-
-Tito Puente Featuring Maynard Ferguson - Special Delivery (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be-Bop [4:45]
-02. Misterioso [4:51]
-03. Point East Memories [5:38]
-04. Stablemates [5:39](   Читать дальше...   )Жанр: Latin Jazz, BopПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9E52417A1F23E3BEDF056E9EFE5D79F108529A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416511   (367962) от 16.10.2020
 
 Chano Dominguez - Piano Iberico (2010) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz, Contemporary Jazz, Piano Jazz>
@@ -751,6 +635,122 @@ Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F25DCAC1E6008C0E754E595DD682CB47855DB10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416686   (365399) от 17.10.2020
+
+Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Drag [9:47]
+02. Secret Love [3:59]
+03. Book's Bossa [6:53]
+04. Jelly Roll [5:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218AD2575CB7B5AE294471A03E5AE3D3414E92C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416548   (365389) от 17.10.2020
+
+Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bantu Education (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:02:28]
+02. Sizwile (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:08:28]
+03. Mangaliso Sobukwe (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:01:32]
+04. Solomon, Tsietsi & Khotso (feat. Nonku Phiri, Malcolm (   Читать дальше...   )Жанр: Jazz, ExperimentalПродолжительность: 3 CD, 02:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7441526EA750618A06968DCD1B4AEB896EEC58BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416682   (365387) от 17.10.2020
+
+Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo la Roca [2:37]
+02. Lo Dicen Todos [3:19]
+03. Babaratiri [3:04]
+04. A Burujon Punao [3:14](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B84FB137CB54287BFB052FA5481BB8AEAA7DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416713   (365385) от 17.10.2020
+
+Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Jam (3:33)
+02. One Man Lady (4:07)
+03. Let's Get It Together (3:09)
+04. I Wonder (4:40)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B774970E3673B73A4F8B92DCC349C233AA5DFD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

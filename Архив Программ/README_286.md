@@ -1,3 +1,30 @@
+###  Публикация: 988816   (918878) от 21.02.2016
+
+Mp3tag 2.75 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах.
+Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6C1706B74164E519330E21BA6EE497753686A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096740   (918876) от 24.01.2017
 
 Reg Organizer 7.70 Final + Portable [Ru/En]
@@ -648,32 +675,6 @@ Tor Browser Bundle 9.0.6 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F7C622FDF0CDE3B109B97CB363100638D5BEACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366883   (918477) от 14.03.2020
-
-FastStone Image Viewer 7.5 RePack (& Portable) by elchupakabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918477.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69304C4CD4E96CA38810AE3440183ECED222FAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

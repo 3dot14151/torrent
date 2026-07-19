@@ -1,3 +1,148 @@
+###  Публикация: 1776613   (71186) от 02.02.2025
+
+VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Mraz - I’m Yours (Radio Edit) (3:34)
+02. Ed Sheeran - Perfect (4:23)
+03. Sia - Gimme Love (2:57)
+04. All-4-One - I Swear (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776717   (71131) от 03.02.2025
+
+Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Irréel 2 [00:03:19]
+02 - Abracadabra [00:03:20]
+03 - Mes nuits [00:03:04]
+04 - Démon [00:02:16](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78860EB53A6109B652CAE0CC0FD0C91D9E4746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778648   (70849) от 09.02.2025
+
+Максим Бородін - Якби не ти (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Якби не ти (2:48)
+02. Скажи мені (2:49)
+03. З гори в гору (2:41)
+04. Зозуленька (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780051   (70555) от 16.02.2025
+
+V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gino Santi - Tornero
+02. Claudia Donato - Se Ne Va
+03. Angela Amico - Andiamo Via
+04. Umberto Mariotta - Grande Grande Grande(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782381   (69992) от 01.03.2025
+
+Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rhythm and Blues, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Not That Kind [3:21]
+02 - I'm Outta Love [4:03]
+03 - Cowboys & Kisses [4:41]
+04 - Why'd You Lie to Me [3:43](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, Pop RockПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784729   (69540) от 12.03.2025
 
 Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
@@ -599,151 +744,6 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0BC2E3B9B2CE84BE6228470F35B3E485E90F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801918   (66117) от 14.06.2025
-
-Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Night    [0:04:03.52]
-02. Simple as That    [0:03:17.70]
-03. Amazed    [0:04:00.68]
-04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802035   (66115) от 14.06.2025
-
-slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neck High (3:49)
-02. Crazy (3:04)
-03. Lay Low (3:07)
-04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236FEBA6DEA84D519DB30B8225ED0AA50BE58A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802705   (65999) от 19.06.2025
-
-Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made For Us [00:03:27]
-02. Nothing Without Your Love [00:03:31]
-03. Good Love [00:02:56]
-04. Hey Kid [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853820F2A72B4270FD5B9C39B803B85886610823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802904   (65882) от 22.06.2025
-
-VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Thinking Out Loud (Radio Version) (4:42)
-02. P!nk Featuring Nate Ruess - Just Give Me A Reas (4:05)
-03. John Legend - All Of Me (Album Version) (4:32)
-04. Pharrell Williams - Happy (From Despicable Me 2 (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653E313DBBA48EB6407F9CEBEED578DD78002DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802835   (65872) от 22.06.2025
-
-VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 / With or Without You    [0:05:00.28]
-02. Kim Wilde / You Keep Me Hangin' On    [0:04:18.72]
-03. Robbie Nevil / C'est la vie    [0:03:27.70]
-04. Aretha Franklin & George Michael / I Knew You Were Waiting (for Me)    [0:04:02.10](   Читать дальше...   )Жанр: Soft Rock, Synth-pop, DiscoПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D460B737B6C42F93C8D5BD67D75934D9084FD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

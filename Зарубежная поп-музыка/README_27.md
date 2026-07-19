@@ -1,3 +1,30 @@
+###  Публикация: 1129315   (722498) от 28.04.2017
+
+VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps – Disco Inferno (11:00)
+02. Chic – Everybody Dance (Edit Version)Жанр: Pop, R&B, SoulПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218676   (721736) от 10.04.2018
 
 Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashville [MP3|320 Kbps] <Country, Country Rock>
@@ -714,35 +741,6 @@ Baciotti - Moody Blue Rendez-Vous (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303612B83C858590312880DE208FD14EE9494942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286595   (711303) от 03.03.2019
-
-VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Dance, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Tex & Ned Rise - Sex, Drugs & Blasmusik (Bierzelt Version) 7:11
-02. Disco Lounge - I Don't Know (Original Mix) 3:45
-03. Habitat & Malte Kuhn - Smaragd (Original Mix) 5:10
-04. Tony Massera - Jus' Dance (Extended Version) 7:57(   Читать дальше...   )Жанр: House, Indie Dance, Nu-DiscoПродолжительность: 02:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
 ```
 
 https://mybot314.ru/tekegram_catalog/

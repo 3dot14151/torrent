@@ -1,3 +1,175 @@
+###  Публикация: 1281132   (755201) от 06.02.2019
+
+E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Question (05:26)
+ 02. Overcast (05:39)
+ 03. Wishing Still (08:34)
+ 04. Insomnia (03:21)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259B2F6F5028A590FC5B9C36F7D14ECA8F06FA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522955   (755171) от 09.01.2022
+
+Sascha Dive - Back 2 Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Voices (Original Mix) (6:30)
+02. This Is My Journey (Original Mix) (7:06)
+03. My Life (Original Mix) (7:03)
+04. In the Darkness  (feat Messy MC) (Original Mix)  (7:33)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C833E1FA959E6F7AF31A8584AF2F347967D14A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281407   (753594) от 07.02.2019
+
+Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambrose (07:25)
+ 02. Individual (07:06)Жанр: Dub Techno, Electro, TechnoПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281339   (753492) от 07.02.2019
+
+Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon (04:03)
+ 02. Parsec (06:19)
+ 03. Currents (06:16)
+ 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322371   (752317) от 12.04.2011
+
+R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (Radio Mix) (03:23)
+02. Shine On (Spencer & Hill Radio Edit) (03:02)
+03. Shine On (Soft House Radio Mix) (03:21)
+04. Shine On (Mondo Radio Edit) (03:22)(   Читать дальше...   )Жанр: House / ElectroПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216257   (751358) от 30.03.2018
+
+VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jobe - Jobe Presents Authentic Steyoyoke #012 (Continuos DJ Mix) (01:02:32)
+02. Jobe - Lissome (Original Mix) (08:30)
+03. Dahu - How Do They Know (Nick Devon Remix) (07:04)
+04. Pysh, Sincz - Kawalerskie (Original Mix) (06:21)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 02:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228691   (751030) от 08.02.2019
 
 Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Ambient, Psytech>
@@ -566,180 +738,6 @@ Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398249   (736199) от 25.07.2020
-
-Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. running into danger (to feel alive) (3:56)
-02. ATM (3:50)
-03. impeccable (3:09)
-04. metroloops (4:42)(   Читать дальше...   )Жанр: EDM, Tech House, TechnoПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFF08B1F691476972B7F9C9F99BDCA90C787336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398661   (735252) от 27.07.2020
-
-VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy K, P.A.F.F. - We Are The Universe 3:05
-02. Merlo, Louisax - Is This Goodbye 3:14
-03. Richie Haley, Kita - Sun Kissed Love 2:25
-04. Antoine Simar - Be Alright 3:02(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34DB3C64BC37FAB5B8808C54A3B5027BEF7D025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529125   (733132) от 05.02.2022
-
-Kaskade - Fire & Ice v3 (2022) [FLAC|Lossless|WEB|tracks] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade & Ella Vos - Eyes v3 (4:30)
-02. Kaskade & Cop Kid - Turn It Down v3 (4:52)
-03. Kaskade & Cayson Renshaw - Lessons In Love v3 (4:00)
-04. Kaskade - Lick It v3 (4:23)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F328224D34D0AC442033DDBB38F203F2C18CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127392   (731842) от 21.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin Hopkins)
-02. Step Two (feat. Lilja Bloom)
-03. Soul Fever Blues (feat. Muddy Waters)
-04. Everything of My Haert(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F8021EB31E8550E0AD8C782BC852C928A294F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284293   (730057) от 20.02.2019
-
-Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Enchanter (07:16)
-02. Three Faced Queen (06:08)
-03. Court of Light (05:51)
-04. Jester (06:43)Жанр: TechnoПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09595EAAF23BB1687BFA61910186FAD3C52857BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022476   (728934) от 02.06.2016
-
-Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Box (11:34)
-02. Consequences of Love (6:35)
-03. Transmission (5:32)
-04. Mind Control (5:37)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC01C11DBBE231F4202842E539A80BAA46FC34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1331936   (318360) от 18.10.2019
+
+VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pogues, Kirsty Maccoll - Fairytale Of New York (Feat. Kirsty Maccoll) 4:32
+02. Chris Rea - Driving Home For Christmas 3:59
+03. Wizzard - I Wish It Could Be Christmas Everyday (2006 Remaster) 4:50
+04. Kylie Minogue - At Christmas 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959406   (317210) от 24.11.2015
 
 Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
@@ -748,35 +777,6 @@ Britney Spears - 7 альбомов + Singles Collection Deluxe + 4 Compilations
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077545   (306585) от 28.11.2016
-
-Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rendez-Vous Sur La Costa Del Sol (Maxi Version)  (4:33)
-02. Don Quichotte (No Estan Aqui) (Maxi Version)  (5:04)
-03. Stay Away, Stay By Me  (3:31)
-04. Dance Melody (Around The World)  (3:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EA4FC9DD410D0899DF632C9C8A44F78DA9FEC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

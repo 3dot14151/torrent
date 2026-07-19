@@ -1,3 +1,29 @@
+###  Публикация: 1078348   (302394) от 30.11.2016
+
+PDF-XChange Viewer Pro 2.5.319.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302394.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-XChange Viewer - отличная программа для чтения и редактирования документов в формате PDF, которая сможет стать заменой для Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов, плюс ко всему, в отличие от других подобных программ, PDF XChange Viewer очень быстро открывает файлы и быстро обновляет содержимое прокручиваемых страниц. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2310A08966836D909E3A3DA51E590C2E55BC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423252   (302384) от 12.11.2020
 
 CherryPlayer 3.1.9 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -648,32 +674,6 @@ Mozilla Firefox SM - это сборка браузера Mozilla Firefox кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C997DC021047ABD797CACFD7A6FCBBAE55F9856D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078269   (301917) от 30.11.2016
-
-Cumulative Update KB3201845 for Windows 10 [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумулятивное обновление KB3201845 для x86-x64 платформ, повышающее номер сборки Windows 10 Anniversary Update до 14393.479.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85D1C3218EA49EC4423965162FF33B4C2CFD41E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1835285   (251001) от 05.11.2025
+
+VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicago - If You Leave Me Now [00:03:54]
+02. England Dan Seals - I’d Really Love to See You Tonight [00:02:39]
+03. Fleetwood Mac - Landslide (2018 Remaster) [00:03:20]
+04. America - A Horse with No Name [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 03:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7709954BA90E5CEA3E5560CF4C81188F6E03E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834453   (250588) от 05.11.2025
 
 Иван Дорн - dorndom (2025) [MP3|320 Kbps] <Pop, Soulful, Funk>
@@ -716,35 +745,6 @@ VA - 80s Disco - The Ibiza Gold Collection (2000) 2 CD [OGG Vorbis|480 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05578E8342AB3AC02D0E834A1CB3C559513B1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622948   (243584) от 30.03.2023
-
-VA - 100 Hits 80s Rewind (2011) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Power Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness - It Must Be Love
-02. Frankie Goes To Hollywood - Welcome To The Pleasuredome
-03. Howard Jones - Things Can Only Get Better
-04. A-Ha - Touchy!(   Читать дальше...   )Жанр: Pop, Rock, Power PopПродолжительность: 06:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D211AEB89F3BE338F67DDB3E53C8500BC7B1AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

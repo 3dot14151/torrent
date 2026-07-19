@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1880385   (1075880) от 06.07.2026
+
+Filmex 3.3.14 [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmex — это приложение, предназначенное для организации, каталогизации и просмотра вашей личной коллекции фильмов и сериалов на домашних устройствах в локальной сети, или на мобильном Андроид-устройстве.
+
+С помощью данной программы вы сможете быстро и без труда создать видео-каталог и наполнить его своим любимыми фильмами. Вам нужно будет лишь задать директории, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6BF98E48421A80E66B1CDECCD517660FD44EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878299   (1074797) от 27.06.2026
+
+WinRAR 7.22 Repack by Adm777Service [Ukr]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074797.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR — архиватор и файловый менеджер, разработанный компанией RARLab. Программа предназначена для сжатия, хранения, защиты и передачи файлов с использованием различных форматов архивов. Она широко используется как обычными пользователями, так и профессионалами благодаря высокому уровню сжатия, надёжному шифрованию и удобному интерфейсу.Язык интерфейса: Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5BA716C4A9F817A740E4DB3AD8F6A6AA1ED233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877897   (1074255) от 23.06.2026
 
 Filmex 3.3.9 [Ru/En]
@@ -603,35 +657,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836885   (255944) от 13.11.2025
-
-Windows 11 23h2/24h2/25h2 by SURASOFT (v25.11.11) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru.iso
-windows11_business_editions_version_24h2_updated_sep_2025_64_dvd_e1e7fc35.iso
-windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E7889852C1858D68B2D47DF0B66E6D2E8406FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836813   (255636) от 13.11.2025
 
 Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
@@ -683,35 +708,6 @@ ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169682C11132763EE265780119539BCBFFCC5E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829975   (202444) от 26.10.2025
-
-Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов от MSDN.
-ru_windows_7_home_basic_with_sp1_x86_dvd_620780.iso
-ru_windows_7_home_premium_with_sp1_x64_dvd_621577.iso
-ru_windows_7_professional_with_sp1_x64_dvd_621772.iso(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A896C1986D67CE147E7E4C85C6163B47DD505EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

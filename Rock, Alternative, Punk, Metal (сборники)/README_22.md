@@ -1,3 +1,90 @@
+###  Публикация: 1402626   (699573) от 15.08.2020
+
+VA - 100 Greatest Punk Classics (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clash - White Riot (01:56)
+02. Sex Pistols - God Save the Queen (03:20)
+03. Ramones - Blitzkrieg Bop (2001 Remaster) (02:12)
+04. The Stooges - I Wanna Be Your Dog (03:08)(   Читать дальше...   )Жанр: RockПродолжительность: 04:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0EF8061C18C4A371D9CB3C90833DED6713423F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533606   (699415) от 27.02.2022
+
+VA - Compilation Part 6 (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm All Right (You Can't See
+02. Got My Life
+03. Time
+04. Love That Hurts(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DA1BBD89A7E246A3FF6F0AD5DEC3FB3CB6C61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287783   (699165) от 09.03.2019
+
+Sweet - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Me Free
+02. Fountain
+03. Little Willy
+04. Rebel Rouser(   Читать дальше...   )Жанр: Classic Rock, Glam Rock, Hard RockПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9B418844B25A65C7A862F8E102E081862D63DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027105   (698352) от 18.06.2016
 
 Sophia (Robin Proper-Sheppard) - Collection (1996 - 2009) [OGG|442-560 кб/с] <Alternative Rock, Indie Rock, Slowcore>
@@ -658,93 +745,6 @@ VA - 500 лучших песен Нашего Радио (2014) 27CD [MP3|320 kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E092682A3269FA14C4A07088DB0E8EE7B402F3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030254   (673680) от 30.06.2016
-
-W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X.T.C. Riders
-02. Miss You
-03. Skin Walker
-04. Shotgun(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF5EBFDBEA66F32DFBE97D4E3EFFF12511CA936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993805   (672542) от 23.05.2017
-
-VA - Russian Metal Ballads (2016) [MP3|197-320 кб/с] <Rock, Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adventus - Небеса (03:15)
-02. Ультиматум - Хозяин Царства Слёз (06:27)
-03. Легенда - С Тобой Навсегда (04:19)
-04. Ангел-Хранитель - Художник (05:09)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 03:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7361870825DC5897EB023B79A86CBD672BBA3FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128124   (672428) от 23.05.2017
-
-VA - Greatest Ever! Rock The Collection Vol.1 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Marilyn Manson - The Beautiful People  3:43
-002.  Monster Magnet - Space Lord  5:58
-003.  Atomic Rooster - I Can't Take No More  3:33
-004.  Queens Of The Stone Age - Go With The Flow  3:09(   Читать дальше...   )Жанр: RockПродолжительность: 11:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA373ECC643FA52583F88D341B4F5705911DCE63
 ```
 
 https://mybot314.ru/tekegram_catalog/

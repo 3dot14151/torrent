@@ -1,3 +1,32 @@
+###  Публикация: 1571619   (429754) от 23.08.2022
+
+Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What D'Ya Think Of Me	4:34
+02. The Way I Am	3:31
+03. The Art Of Love	4:14
+04. What Is It About Me	3:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571643   (429749) от 23.08.2022
 
 Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
@@ -713,35 +742,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E846D5912DA52A2315059BBAC99023B3DD1B5153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324935   (416724) от 13.09.2019
-
-VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Amigos - Die Legende von Babylon
-02. Nicole - 50 ist das neue 25(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

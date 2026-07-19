@@ -1,3 +1,30 @@
+###  Публикация: 1008832   (812064) от 20.04.2016
+
+Mp3tag 2.76 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - утилита, для быстрого редактирования ID3-тэгов и комментариев в аудио файлах.
+Поддерживается работа со следующими форматами файлов: Advanced Audio Coding (AAC), Free Lossless Audio Codec (FLAC), Monkey Audio (APE), Mpeg Layer 3 (MP3), MPEG-4 (MP4 / M4A), Musepack (MPC), Ogg Vorbis (OGG), OptimFROG (OFR), OptimFROG DualStream (OFS), Speex (SPX), True Audio (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883837B997A7C68FE171DE9B775DC7CD91280190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008829   (812059) от 20.04.2016
 
 TagScanner 6.0.7 + Portable [Multi/Ru]
@@ -647,32 +674,6 @@ VirtualBox - специальная программа для создания �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C14F1BB6E7500E2BA8162FE70FE3DE6E886B440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383373   (811561) от 15.05.2020
-
-FinePrint 10.25 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811561.jpg" />
-</div>
-
-
-###  Подробнее
-
-FinePrint - многофункциональный драйвер для принтеров, значительно расширяющий возможности любых принтеров при печати документов: предпросмотр, печать нескольких страниц на одном листе, распечатка брошюр, автовставка заголовка и "подвала", создание фирменных бланков, подложек, рамочек и многое другое. FinePrint работает со всеми моделями принтеров, являясь, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E91E6390BC9E1CA2FC8A43D12FD67BAEB4AE28F
 ```
 
 https://mybot314.ru/tekegram_catalog/

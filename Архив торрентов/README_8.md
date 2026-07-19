@@ -1,3 +1,31 @@
+###  Публикация: 1604260   (1045432) от 13.01.2023
+
+PhotoMill X 2.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045432.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X – групповая обработка фотографий.
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
+Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2023Разработчик: © 2023 Overmacs TeamПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8CFF3460932962FC869BF678B988DBB9BF92C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604274   (1045430) от 13.01.2023
 
 Grids for Instagram 8.3 [Multi/Ru]
@@ -655,33 +683,6 @@ Depeche Mode - A Broken Frame (1982) Reissue, Remastered, 2006, Mute [OGG Vorbis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35AF9E1A11DB5A4A928331EB9E0B55BF3FD09D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604551   (1045315) от 14.01.2023
-
-RAR Extractor  - unzi‪p‬ 10.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045315.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor может извлекать сжатые файлы во всех большинстве форматов (более 50 форматов).
-Поддержка RAR, ZIP, 7z, pak, pkg, apk, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, l zma , xip, ace, arj, lbr, lqr, cab, rpm, cpt, sea, exe, msi, cpio, lzx, jar, swf, pdf, nsa, dcs, spk…Тип издания: macOS SoftwareРелиз состоялся: 02.01.2023Разработчик: © 2022 ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67436AB519E64A5610D301143671A94534526D66
 ```
 
 https://mybot314.ru/tekegram_catalog/

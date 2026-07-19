@@ -1,3 +1,31 @@
+###  Публикация: 959624   (314093) от 25.11.2015
+
+JetBrains ReSharper Ultimate 10.0.1 [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314093.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
+Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
+Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0600B362C5617D24A07507ADE8EE1279D7604B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583213   (314089) от 13.10.2022
 
 Chromium 106.0.5249.119 + Portable [Multi/Ru]
@@ -646,32 +674,6 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE6EBF59FF413B12DF6D35ECF75966FA6B6BACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182589   (313766) от 11.11.2017
-
-Adobe Acrobat Reader DC 17.012.20098.44270 Portable by XpucT [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader DC — совершенно новое приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EF314627F48155C2823881796D0BDF873363E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

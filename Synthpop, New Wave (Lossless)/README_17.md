@@ -1,32 +1,3 @@
-###  Публикация: 1417263   (360579) от 19.10.2020
-
-Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
-02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
-03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
-04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255898   (359025) от 20.10.2018
 
 Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Electropop>
@@ -745,6 +716,35 @@ Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industria
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F4E934CBF4646E1491A8AA99ADAB1321C3B36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581275   (327216) от 05.10.2022
+
+Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edelo (Intro) [00:01:41]
+02. Disco on The Baltic Sea [00:03:17]
+03. Changed Plans [00:02:38]
+04. Brutal Resonance [00:03:42](   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
 ```
 
 https://mybot314.ru/tekegram_catalog/

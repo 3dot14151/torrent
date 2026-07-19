@@ -1,3 +1,96 @@
+###  Публикация: 494675   (251000) от 10.05.2012
+
+Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251000.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (Best)
+Продолжительность: 01:18:47
+
+01. Stasera… Che Sera
+02. Per Un’Ora D’Amore
+03. Cavallo Bianco
+04. Che Male Fa
+05. Ma Perche
+06. Solo Tu
+07. Mister Mandarino(   Читать дальше...   )2011Жанр: Italo-popПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621373   (244799) от 24.03.2023
+
+Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Can You Love Me
+02. Take My Hand
+03. My Love(   Читать дальше...   )Жанр: Euro-Disco |Продолжительность: 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D911FC959A1106593C67683BCDA61651F5A2039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457818   (242534) от 27.03.2021
+
+Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaioh - Emotional Fire (6:00)
+02. Kaioh - Burning Desire (5:50)
+03. Kaioh - Case Closed (4:55)
+04. Kaioh - A Cruel Angel's Thesis (5:27)(   Читать дальше...   )Жанр: EurobeatПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636252   (241026) от 29.05.2023
 
 Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -653,93 +746,6 @@ Digital Emotion - Moving to the Top / Supernova (2021) Single [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5B69584993C8F151C56C71D4A5C95A88ED29FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193861   (213915) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 6 (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, 80's>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Freaky – May Day Love (03:57)
-02. Go To – Girl Of The 80's (07:03)
-03. Martinique – Fantastic Life (05:25)
-04. L'Affair – Don't Fly Away (03:49)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, 80'sПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EF6ABB3B5BEA4A840C1A8B163B24F17F327D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639215   (211615) от 12.06.2023
-
-New Baccara - Fun (1990) 2023 Reissue, Remastered [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun
-02. Fantasy Boy (Radio Mix)
-03. Say A Little Prayer
-04. Touch Me (Radio Mix)(   Читать дальше...   )Жанр: Dance, Euro-DiscoПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB562C1B38F464BA3A6EFFCE66962ACB8A61FD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639926   (211356) от 15.06.2023
-
-V.A. - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD [FLAC|Lossless|tracks] <Italo-Disco, Spacesynth, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211356.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Italo Emotion - My Dreams (Synthesis Remix)
-02. Paralyze - Wonders Of Space
-03. DJ CON-T - First Contact(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Synthwave |Продолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A2C02D3AC591648CB4806B98FAE66A20ED4463
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1797286   (66562) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Hot Air Balloon Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с воздушными шарами на пасхальную тему.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5AECEBE253EED783699C69F5F953FB8A5E8F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797178   (66555) от 24.05.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Clipart Christmas [PNG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0117DA6DC3954106B153D8FF95409C50C1E87A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799375   (16661) от 27.05.2025
+
+Растровый клипарт - SapphireDreamscape - Creative Fabrica - Nautical Collection PNG Bundle [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на морскую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2E182DB5ABB3A66AB369219538DA254706C304
 ```
 
 https://mybot314.ru/tekegram_catalog/

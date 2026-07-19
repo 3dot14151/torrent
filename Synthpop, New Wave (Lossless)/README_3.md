@@ -520,35 +520,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 744896   (970121) от 12.01.2014
-
-Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_970121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Touch (Prototype)
-02. Respected
-03. The Prisoner
-04. I’ve Said Too Much(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358272   (969767) от 07.02.2020
 
 Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
@@ -744,6 +715,35 @@ Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B820760C208083E18BE32496B148C509A3538BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358873   (966285) от 10.02.2020
+
+Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966285.jpg" />
+</div>
+
+
+###  Подробнее
+
+2.01 Days Like This 3:45
+2.02 If I Ever Grow (Shattuck Plaza) 5:14
+2.03 Nowhere Fast 4:27
+2.04 Retainer (Quarks) 7:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37254F892E8975847D50BCDCB0AE8A4BCCCA800E
 ```
 
 https://mybot314.ru/tekegram_catalog/

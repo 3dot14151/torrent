@@ -1,176 +1,3 @@
-###  Публикация: 1266676   (269093) от 03.12.2018
-
-Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления Beth Hart, состоявшегося 4 мая 2018г в зале The Royal Albert Hall.01. As Long As I Have A Song
-02. For My Friends
-03. Lifts You Up
-04. Close To My Fire(   Читать дальше...   )Производство: Provogue/Mascot Label GroupЖанр: RockРежиссер: Nigel DickАктеры: Beth Hart & bandСубтитры: отсутствуютПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080E9AB255F93D54AFF2A7C7CFD0B9DB96D5589D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 104052   (269038) от 03.12.2018
-
-Григорий Лепс - Парус Live (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Григория Лепса в Кремле "Парус" (Высоцкий 21 века)
-Идея записать песни Владимира Высоцкого возникла ещё 5 лет назад, когда впервые на концерте памяти великого артиста Григорий Лепс исполнил «Парус».
-Мощный темперамент, мужественная харизма, умение петь сердцем – то, что объединило двух певцов и то, что сделало возможным сам факт существования проекта, (   Читать дальше...   )Жанр: КонцертРежиссер: Даниил МишинАктеры: Ирина Завьялова, Роман Грачев, Анна Горнова, Михаил Чуваков, Ирина Усачева, Светлана Кирилина, Сергей БакинСубтитры: ОтсутствуетПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189568   (268732) от 08.12.2017
-
-Extreme - Take Us Alive (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление бостонских фанк-металистов EXTREME, проходившее в их родном городе в 2009-м году. "Это захватывающее дыхание, головокружительное выступление необыкновенно, - пишет в рецензии на DVD журнал Classic Rock, - оно способно остановить швыряющихся бутылками деревенщин из Миссисипи, заставить улыбнуться гранджеров из Сиэттла и побудить амазонские (   Читать дальше...   )01. Decadence Dance
-02. Comfortably Numb
-03. Rest In Peace
-04. It's a (Monster)(   Читать дальше...   )Производство: Frontiers RecordsЖанр: РокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C67F18876DED3D3B8200FD166775A7867293A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189827   (268700) от 08.12.2017
-
-Bad Company - In Concert. Merchants of Cool (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268700.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2002-м году Bad Company, которые готовятся вскоре отметить 30-летие (на тот момент) своего подвижничества на ниве рок-н-ролла, проехали с гастрольным туром по США и Великобритании. К этому времени из оригинального состава, сформированного еще в 1973 году и принесшего группе известность, остались только вокалист Paul Rodgers и барабанщик Simon Kirke. Для участия (   Читать дальше...   )01. Burnin' Sky
-02. Can't Get Enough
-03. Good Lovin' Gone Bad
-04. Feel Like Makin' Love(   Читать дальше...   )Производство: Sanctuary RecordsЖанр: Хард-рок, блюз-рокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AA327923E1A50C6BBDCD1558F844303862C8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266899   (268346) от 04.12.2018
-
-The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная видеоверсия выступления The Rolling Stones на сцене Miami’s Joe Robbie stadium 25.11.1994г.Бонусом добавлен фрагмент чуть более раннего выступления в Нью-Джерси на сцене Giants Stadium из того же тура Voodoo Lounge.Disc 1
-01. Whoopi Goldberg Intro
-02. Not Fade Away
-03. Tumbling Dice(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: David MalletАктеры: The Rolling StonesСубтитры: отсутствуютПродолжительность: 02:29:38 + 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A710325C686D2A5BFC6673DB17F179F9BF761192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427798   (267605) от 28.12.2011
-
-Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
-02. Throughout
-03. Ron Carter
-04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276467   (266810) от 30.12.2010
 
 Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
@@ -732,6 +559,186 @@ Umbra Et Imago – 20 (2011) 2xDVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653037   (192663) от 03.09.2023
+
+Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192663.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-1 I Believe
+DVD-2 Only Time Will Tell
+DVD-3 Holy War
+DVD-4 Never Again(   Читать дальше...   )Производство: Frontiers Records – FR CDVD 580, ItalyЖанр: Pop Rock, Prog RockРежиссер: Bernhard BaranАктеры: Asia: Steve Howe, Carl Palmer, Geoffrey Downes, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5932C622218B41B7A633D93AE0BCC0BDDDE9CEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653108   (192586) от 03.09.2023
+
+Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency Ballroom)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192586.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-1 Introduction
+DVD-2 Only Time Will Tell
+DVD-3 Wildest Dreams
+DVD-4 Face On The Bridge(   Читать дальше...   )Производство: Frontiers Music SRL – FR CDVD 694, ItalyЖанр: Pop Rock, Prog RockРежиссер: Paul BillingsАктеры: Geoffrey Downes, Steve Hove, Carl Palmer, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361310   (159684) от 23.12.2022
+
+Воскресение - Не торопясь. Live (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеозапись «живой» версии альбома «Не торопясь» с концерта, состоявшегося 5 марта 2003 года в УСЗ «Дружба». Видеозапись позволит Вам погрузиться в «живую» атмосферу концерта этой легендарной группы. Группа «Воскресение» как появилась в конце 70-х, так сразу и заимела привычку воскресать. Первый же альбом «79» сделал ее известной по всему Союзу, было отыграно множество (   Читать дальше...   )01. Все сначала
+02. Посмотри, как я живу
+03. Сотворю тебе мир
+04. Ветер (дыхание доброго неба)(   Читать дальше...   )Жанр: Blues, RockРежиссер: ООО «Продюсерский центр Игоря Матвиенко»Актеры: Алексей Романов, Андрей Сапунов, Евгений Маргулис, Михаил ШевяковПродолжительность: 01:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588186   (156501) от 13.12.2012
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156501.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )1. One Vision
+2. Tie Your Mother Down
+3. In The Lap Of The Gods... Revisited
+4. Seven Seas Of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, СШАЖанр: RockСубтитры: English, Français, Deutsch, Español, Portugês, ItalianoФормат: DVD videoПродолжительность: 01:31:15 + 00:26:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270620   (155442) от 20.12.2018
+
+Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступлений французско-бельгийского коллектива Franck Carducci Band, состоявшихся 20-21.11.2015 в зале Climax Club Legend, Riotord, Auvergne, (Франция).Не слишком известная группа (в наших местах) исполняет добротный "олд-скульный" прогрессивный рок. Как отмечал лидер коллектива Franck Carducci, сильное влияние на его музыку оказало творчество (   Читать дальше...   )01. Torn Apart
+02. Closer to Irreversible
+03. Artificial Paradises
+04. Mr. Hyde & Dr. Jekyll(   Читать дальше...   )Производство: Franck CarducciЖанр: Crossover prog / art-rockРежиссер: Greg BonnierАктеры: Franck Carducci & BandСубтитры: отсутствуютПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACECF52AEF06CF9461E7444B8CE61271FBF3910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588839   (148897) от 15.12.2012
+
+Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление Erik Truffaz 4tet
+на джазовом фестивале в  Montreaux 11.07.2011 Miles Davis Hall !1. The Secret Of The Dead Sea
+2. Miss Kaba
+3. In Between
+4. Mechanic Cosmetic
+5. Fujin
+6. BC One feat. Sly Johnson
+7. Dirge Feat. Sophie Hunger
+8. Let Me Go! Feat. Sophie Hunger
+9. Lost In Bogota Feat. Sly JohnsonЖанр: Contemporary JazzРежиссер: Blue NoteАктеры: Erik Truffaz QuartetПеревод: ОтсутствуетПродолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

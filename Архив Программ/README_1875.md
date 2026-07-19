@@ -1,3 +1,29 @@
+###  Публикация: 1430239   (174104) от 09.12.2020
+
+Symantec Endpoint Protection 14.3 RU1 3384 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection – антивирусная программа, в которой присутствует firewall и несколько степеней защиты. Утилита предлагает защиту от вирусов, от файлов, которые пока не известны антивирусу, интернет угроз, атак нулевого дня, не допускает вторжений. Symantec Endpoint Protection функционирует на основе технологии Insight, гарантирует абсолютную системную (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29318E09BB83C58C325F20EF2807F21DDD872D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430196   (174086) от 09.12.2020
 
 AnyDesk 6.1.0 + Portable [Multi/Ru]
@@ -649,32 +675,6 @@ Antivirus Removal Tool - портативный набор официальны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58DBCDE9D151633EDCAEF8700B4178BEC48FE574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193818   (173858) от 23.12.2017
-
-Air Explorer Pro 2.1.0 Portable by FoxxApp [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, Mail.ru, поддержка подключения по протоколам WebDAV, FТP и SFTPЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB6559FF94B4D4ADA84C0BC1C6A80E7B8343C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

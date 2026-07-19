@@ -1,3 +1,174 @@
+###  Публикация: 1362854   (937739) от 02.03.2020
+
+Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo, Futurewave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Downtempo, FuturewaveПродолжительность: 08:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04094F65A6C918E0C7E3D4A20C7DDBE2B55F8085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092438   (937331) от 13.01.2017
+
+Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La symphonie des vagues [00:06:44]
+02. Galway Sunrise [00:05:05]
+03. Foret des druides [00:05:32]
+04. The Dunottar Old Castle [00:07:11](   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D84215CED2A9F86CE7B6E8020DD66CF160F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092727   (937321) от 13.01.2017
+
+Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Raindrops from Heaven [00:04:15]
+02 -  Pitter Patter [00:03:19]
+03 -  Mystical E [00:02:00]
+04 -  Pondering Peacefulness [00:03:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE624EC82EC73EF4ABED21CB93F82EDB3421962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092523   (937238) от 13.01.2017
+
+Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Tesla [00:04:06]
+02 -  Flow [00:04:02]
+03 -  Anime Al Vento [00:02:25]
+04 -  Ninna Nanna Del 21° Secolo [00:03:03](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DB9BB30646540EE5D7BFC02D4850A3B6CA1324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984815   (937154) от 10.02.2016
+
+VA - Бильядрная братия / The Rack Pack (Music From The Mition Picture) (2016) [MP3|128 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Black Dog (5:00)
+02. The Harry J. All Stars - The Liquidator (3:11)
+03. T. Rex - Jeepster (4:10)
+04. Ian Dury & The Blockheads - Hit Me With Your Rhythm Stick (3:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CFE41EAA39230234D96B98C293045195F4CC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364291   (936399) от 03.03.2020
+
+Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run To You
+02. Con amore
+03. Tell Him
+04. My Heart Will Go On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364472   (936391) от 03.03.2020
 
 Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
@@ -577,180 +748,6 @@ Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364755   (931971) от 06.03.2020
-
-Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sioux
-02. South America's Dream
-03. Toro Seduto
-04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986480   (931011) от 14.02.2016
-
-MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run
-02. Baanwarey
-03. Nadia
-04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986672   (931010) от 14.02.2016
-
-Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dijieridoo
-02. Non e semplice
-03. La voce del vento
-04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986634   (931000) от 14.02.2016
-
-John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Potter's Gift
-02. Yilowe
-03. Even in Your Darkest Hour
-04. Dance of the Moon and Stars(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986467   (930938) от 14.02.2016
-
-Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Sunshine
-02. Dreams Of Sunbeams
-03. Sunlights On The Calm Lake
-04. Sundown Magic(   Читать дальше...   )Жанр: New Age, ChilloutПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365567   (930679) от 07.03.2020
-
-a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental, Ambient, Acoustic, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viridian (7:06)
-02. Emerald (4:40)
-03. Ao (3:42)
-04. Midnight Green (5:32)Жанр: Instrumental, Ambient, Acoustic, Piano, Progressive RockПродолжительность: 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
 ```
 
 https://mybot314.ru/tekegram_catalog/

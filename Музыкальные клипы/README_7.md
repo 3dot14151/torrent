@@ -1,3 +1,203 @@
+###  Публикация: 981479   (951414) от 01.02.2016
+
+Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Program Start
+02. Livin' La Vida Loca
+03. She's All I Ever Had
+04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981631   (951014) от 01.02.2016
+
+Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:15)
+02. You Can Win If You Want (3:53)
+03. Cheri, Cheri Lady (3:19)
+04. Brother Louie (3:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПеревод: ОтсутствуетПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB566BB26C966B78FF6C4D702F01287BAC6747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981782   (949881) от 02.02.2016
+
+VA – Fetenhits: The Real Classics (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janet Jackson - Rhythm Nation
+02. Cameo - Word Up
+03. Kool & The Gang - Celebration
+04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624707   (948978) от 02.03.2013
+
+Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] BDRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственный клип. Использована музыкальная композиция Little Richard Long Tall Sally
+Подробности не требуются.
+Ваши замечания будут учтены.
+Размещён на 2-х трекерах. Плагиатом раздачи с другого ресурса не является.Жанр: Фантастика, Боевик   Собственный клипРежиссер: Джон МактирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррилло, Джесси ВентураПеревод: ОтсутствуетПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857896   (948355) от 11.01.2015
+
+Инфинити - Крылья (2014) [1080p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: MKVПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982441   (948132) от 03.02.2016
+
+Sade – Life Promise Pride Love (1993) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Programme Start (0:10)
+02. Your Love Is King (3:37)
+03. Smooth Operator (Red Eye) (8:27)
+04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982327   (947991) от 03.02.2016
+
+Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Program Start
+02. Brace Yourself
+03. Billie Jean
+04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362157   (947732) от 24.02.2020
 
 Сборник клипов 02 (02.2020) WEB-DLRip [H.264/720p-LQ]
@@ -523,199 +723,6 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BC2B7274C1026534BD896B244CE9BADDB92F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630203   (928018) от 15.03.2013
-
-Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень красивых 4 клипа от Энигма.01. MMX Social Song (First version)
-02. Page of Cups
-03. Gravity of Love (Selina)
-04. Sitting On The MoonЖанр: Музыка, New Age, Electronic, EnigmaticПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F2C747D1A5A16DF2E71DDF78A3A6463A5E1722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986955   (927318) от 16.02.2016
-
-VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
-0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
-0003_2 Brothers On The 4Th Floor - Never Alone.avi
-0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987652   (925751) от 17.02.2016
-
-VA - Зимний марафон № 224: Зимняя Волна Новинок (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (17.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Aurora - Conqueror (Official Video) (00:03:32)
-02. Claudia Pavel ft. Dante Thomas - A Guy Like You (Official Video) (00:03:23)
-03. Dvj Bazuka - U (Episode 377) (00:02:05)
-04. EDX ft. Mingue - Missing (Official Video) (00:03:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Techno, Relax, Chill OutПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42CCE6D037682F687EE6838CB31F791E219433D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631329   (924873) от 17.03.2013
-
-Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3EA53975A29F4B70C39D11CEE3CF55F1D986EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631332   (924846) от 17.03.2013
-
-Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72C028D6923FAF7725E773D4C769EBFCA5DEF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631280   (923621) от 18.03.2013
-
-Blank & Jones - The Videos (2007) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance
-
-Официальный сборник видеоклиповПродолжительность: 01:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ED5D03B5EB58CB5860DF1C7BCABB855BF9DE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632150   (923002) от 18.03.2013
-
-Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2CA0A30CE6831CDD84B91C1B2402F6A67A0B11
 ```
 
 https://mybot314.ru/tekegram_catalog/

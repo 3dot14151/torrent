@@ -1,90 +1,3 @@
-###  Публикация: 1039166   (597801) от 31.07.2016
-
-My Sister's Band - Collection (2016) [MP3|320 Kbps] <Pop Rock, Country Pop, Vocal Jazz>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лета ждать
-02. Яндекс
-03. Гагарина
-04. Помчали(   Читать дальше...   )Жанр: Pop Rock, Country Pop, Vocal JazzПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D14911D661F485B3D8CE5842816F1DEC4760A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039119   (597635) от 31.07.2016
-
-VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything But The Girl - Missing
-02. George Michael - Praying For Time
-03. Robert Miles - Children
-04. Andru Donalds - Mishale(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39BB9A911F55E34535A95A1D238344D6DC1A46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039227   (597629) от 31.07.2016
-
-VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker -  Sing Me To Sleep 3:09
-002. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42
-003. Robin Schulz feat. Akon -  Heatwave 3:07
-004. Alle Farben feat. YOUNOTUS -  Please Tell Rosie 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039187   (597497) от 31.07.2016
 
 VA - Молодежный Сборник Хитов Русский (2016) [MP3|256 Kbps] <Pop>
@@ -751,6 +664,93 @@ VA - EDC Radio: Vanilla Disco (2022) [MP3|320 Kbps] <Disco, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2376CF2A4B786B16F25625F226DE7DAE07A2F378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550509   (590617) от 14.05.2022
+
+VA - Dance Hits 90S: Radio Show (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недаром говорят, что хорошая музыка не имеет срока годности, с чем невозможно не согласиться. Просто слушаешь и наслаждаешься каждым звуком, каждой нотой, каждым мгновением при прослушивании, получая при этом эстетическое удовольствие. На примере сегодня рассматривается весьма привлекательная, сочная подборка танцевальной музыки легендарных 90-х годов!001. Blur - Song
+002. Ingrid Michaelson - You And I
+003. Norah Jones - Turn Me On
+004. The Xx - Islands(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 11:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15489616DCC05F0E8A6339016E7D956C1F77EAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916742   (590361) от 09.07.2015
+
+VA - Сладкая вата Русский сборник попмузыки (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Интонация (In2Nation) и Та Сторона - За Своей Мечтой
+002. Наргиз – Ты - моя нежность
+003. Анастасия Стоцкая - Накрыла Любовь
+004. Ёлка - Прекрасна(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F9DDA2E94AB8D089D15FACB6425E397C826FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917120   (589924) от 10.07.2015
+
+VA - Верность Топ новинок попмузыки (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Майя Подольская - Верность
+002. Дима Билан - Болен тобой
+003. Бьянка - Любимый дождь
+004. Вера Брежнева - Доброе утро(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1694E233DE147719934152ED43260D55C51FD553
 ```
 
 https://mybot314.ru/tekegram_catalog/

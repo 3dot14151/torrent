@@ -1,32 +1,3 @@
-###  Публикация: 1639841   (196956) от 15.06.2023
-
-Windows 7 (6in1) x86-x64 by Updated Edition (14.06.2023) [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на базе оригинальных образов от MSDN:ru_windows_7_professional_with_sp1_vl_build_x86_dvd_u_677853.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_u_677692.iso
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
-ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1C51C0D3CB18A25BF37EF755A43784E55B2B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644554   (196070) от 05.07.2023
 
 Windows 7 SP1 5in1 (x64) Elgujakviso Edition (v.05.07.23) [Ru]
@@ -48,33 +19,6 @@ Windows 7 SP1 5in1 (x64) Elgujakviso Edition (v.05.07.23) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D55BE1C3B3FC2615824BBE5CB944931A11E6F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588114   (191460) от 04.11.2022
-
-Windows 7 SP1 X64 Ultimate 3in1 October 2022 by Generation2 [Multi/Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная сборка от шведа  Generation2
-Основа сборки - оригинальный образ Microsoft Windows 7 SP1 X64 Ultimate. В один образ объединены три редакции: две с автоактивацией и одна без. Интегрированы обновления по Октябрь 2022 года. Система абсолютно чистая, всё как в оригинале. На начальном этапе есть возможность выбора редакции и одного из 7-ми языков устанавливаемой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B794B67EF0C1AE640EB99A26124682C4C62D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

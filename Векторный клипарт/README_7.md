@@ -1,115 +1,3 @@
-###  Публикация: 1196964   (815792) от 07.01.2018
-
-Векторный клипарт - Vector Flowers Collection #28 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цветы
-25 Ai +Jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C4F5F4EA6CA368D434DA77AFF29E28A943FE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196636   (815790) от 07.01.2018
-
-Векторный клипарт - Vector Flowers Collection #27 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цветы
-25 Ai +Jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFFBE52A4565B65168AC0C600085C4F2BF9E3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503905   (815714) от 21.10.2021
-
-Векторный клипарт - Сборка векторного клипарт школа [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Школа
-43 EPS, AI + previewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927D2D339B20A2D2052441407FD1291B2B93611B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196969   (815689) от 07.01.2018
-
-Векторный клипарт - Various Isometric Buildings 25 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные изометрические здания
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124FA3B653BC52C1AF317C8872D8C70BF195052D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196968   (815683) от 07.01.2018
 
 Векторный клипарт - Vector Underwater World Collection #7 [AI]
@@ -711,6 +599,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F60DD1B3180521783CA766D95DC6FA88E2AFD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010816   (801956) от 25.04.2016
+
+Векторный клипарт - Urban style T-shirts Vectors [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+Урбан-стайл принты на футболки.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADC79EF29023D63C3EACA522975FE66E60F52DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010837   (801948) от 25.04.2016
+
+Векторный клипарт - Skulls T-shirts Vectors [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+Принты на футболки.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9BE0AE75370B2B2130C8F3C46BF7628D5F99FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199237   (801713) от 15.01.2018
+
+Векторный клипарт - Fotolia - Little kitten [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Маленькие котята
+12 EPS +JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D8AE04BE43AAAB3610326AE8CB853415190B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199234   (801711) от 15.01.2018
+
+Векторный клипарт - Cartoon Funny Robots 11 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мультяшные смешные роботы
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC8152FD0B152AABFA417078367E425D4FF161C
 ```
 
 https://mybot314.ru/tekegram_catalog/

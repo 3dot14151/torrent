@@ -1,3 +1,32 @@
+###  Публикация: 1343285   (216135) от 07.12.2019
+
+Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Only by Love 10:34
+2. Hypnotic Eyes 08:55
+3. Stay with Me 10:14
+4. For Ever and Ever 06:41(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426446   (214818) от 24.11.2020
 
 Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -715,35 +744,6 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB4ECF692B644B03D87B852AE0290DFD35A7B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344453   (170423) от 10.12.2019
-
-Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystics Monks (4:24)
-02. Morphos (5:30)
-03. Lux Aeterna (4:47)
-04. Portal of Peace (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, RelaxПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

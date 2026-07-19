@@ -1,3 +1,29 @@
+###  Публикация: 1144042   (630825) от 20.06.2017
+
+AusLogics BoostSpeed 9.1.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DF5B3F0A7C107AEA2A66006195E2818CF8F81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143975   (630816) от 20.06.2017
 
 AIDA64 Extreme | Engineer | Business | Network Audit 5.92.4300 Final RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -644,32 +670,6 @@ Glary Utilities - функциональный набор системных т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7FA8415CD6B4CC63DD3DC05500301DD0D7C102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035154   (629934) от 15.07.2016
-
-Microsoft Office 2013-2016 C2R Install 5.5 Full | Lite by Ratiborus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для on-line установки и активации Office 2013/2016 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office off-line.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E989BD18EF804A61B679C77C8CF57CF6962BA118
 ```
 
 https://mybot314.ru/tekegram_catalog/

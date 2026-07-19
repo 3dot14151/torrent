@@ -1,29 +1,3 @@
-###  Публикация: 1835474   (250801) от 06.11.2025
-
-3D print - Kaidan 3D - Statue of God [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaidan3d с гордостью представляет молчаливого бога!Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B6DD068460A5C8EC02447524634D755CD3D92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835493   (250745) от 06.11.2025
 
 3D print - KcStudio - Sam Porter Bridges [STL]
@@ -683,6 +657,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8632AC4488899F185EFBD65A2A1D8F1F5D9144C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270323   (213932) от 18.12.2018
+
+3D материалы - VRscans - car paint [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213932.jpg" />
+</div>
+
+
+###  Подробнее
+
+VRscans - это новая запатентованная технология создания 3d материалов от ChaosGroup.
+В данный релиз вошли 52 материала для автомобильной краски.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E5A54A73A7B32E5981DF7CF7DBBC4159789E3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

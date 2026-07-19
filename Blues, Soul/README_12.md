@@ -1,3 +1,61 @@
+###  Публикация: 1025118   (712209) от 11.06.2016
+
+Ed Deane - Wireless Set (2016) [MP3|320 кб/с] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampire (03:09)
+02. Sweatshop (05:05)
+03. I Need a Holiday (03:41)
+04. It's for You (03:39)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C38639FE5D0E9F8616A963B43F786C682C50482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025560   (710109) от 12.06.2016
+
+Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always Worth the Pain (04:27)
+02. I Am a Woman (03:57)
+03. I Can’t Hold On (03:42)
+04. Fire Shut in My Bones (03:46)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA08E98E845F086681A8498825DFE2C9DDB9071C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025859   (708211) от 13.06.2016
 
 Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
@@ -687,64 +745,6 @@ Barry Goldberg - Barry Goldberg & Friends (1991) Compilation, 1991, Sequel Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22962911C4945BC3FDC3FBD7940F368D87B6F5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029976   (674808) от 30.06.2016
-
-Bourbon Alley - Bourbon Alley (2016) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Hundred Times (02:26)
-02. 57 Chevy (04:56)
-03. A Girl Called Gasoline (04:04)
-04. Man In A Suit (03:41)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD4D5515AFC81D0BC3B72812759CD441AD4B948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029938   (674420) от 30.06.2016
-
-Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got No Place To Go
-02. Something's Changed
-03. Live It Up
-04. Addicted To Your Love(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4432A90A33B9AF0A6AB49163A191F9F0D7E2D7E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

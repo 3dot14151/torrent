@@ -1,3 +1,90 @@
+###  Публикация: 894281   (707022) от 02.05.2015
+
+Kamelot - Haven (2015) 2CD, Deluxe Edition [MP3|320 кб/с]<Progressive / Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Star (4:39)
+02. Insomnia (4:13)
+03. Citizen Zero (5:50)
+04. Veil of Elysium (3:54)(   Читать дальше...   )Жанр: Progressive / Melodic Power Metal |Продолжительность: 02:01:04 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB097DC180B4FF514CE2534D06E375B4A5E07AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026134   (705874) от 14.06.2016
+
+Stratovarius - Best Of (3 CD) Limited Edition (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705874.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Until The End Of Days (brand new song)
+02. My Eternal Dream
+03. Eagleheart(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F72C33E28B2B153FE2098D130DFB67B0638BA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026281   (705790) от 14.06.2016
+
+Rage - The Devil Strikes Again (2016) 2CD [MP3|320 кб/с] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Strikes Again
+02. My Way
+03. Back On Track
+04. The Final Curtain(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E3DDC4ABBFCFAE089DF90C964BE6FCA2918B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402014   (705618) от 12.08.2020
 
 Dymna Lotva - Чакай Перамен! (Кино cover) (2020) Single [MP3|320 Kbps] <Post Metal>
@@ -655,93 +742,6 @@ Nekrogoblikon - Welcome To Bonkers (2018) [MP3|320 Kbps] <Melodic Death Metal, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACFF8A639AED4CD4644AF9B96D636B0B48CECFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220971   (698699) от 22.04.2018
-
-Gus G. - Fearless (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Греческий гитарист-виртуоз Gus G., хорошо известный по сотрудничеству с Оззи Осборном и собственной группе Firewind, выпустил свой новый сольный альбом. Пластинка получила название "Fearless" и вышла 20 апреля 2018 года на лейбле AFM Records.1. Letting Go (4:10)
- 2. Mr. Manson (4:35)
- 3. Don't Tread on Me (4:48)
- 4. Fearless (4:25)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06CD077540A206F83D0DD21B3BA1716B02F5614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220977   (698603) от 22.04.2018
-
-Temperance - Of Jupiter and Moons (2018) [MP3|320 Kbps] <Melodic Heavy Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская метал-группа Temperance выпустила свой новый альбом. Пластинка под названием "Of Jupiter and Moons" появилась 20 апреля 2018 года и включила 10 композиций.01. The Last Hope in a World of Hopes (4:50)
- 02. Broken Promises (4:32)
- 03. Of Jupiter and Moons (4:05)
- 04. Everything That I Am (3:30)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Modern MetalПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A98A9C07D307353862AA6E7ACF39879C6FDC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960418   (697923) от 18.06.2016
-
-Nemesea - 5 альбомов (2004-2016) [MP3|320 кб/с]<Gothic, Symphonic, Industrial, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nemesis (Intro)
-02 - Threefold Law
-03 - Empress
-04 - Angel In The Dark(   Читать дальше...   )Жанр: Gothic, Symphonic, Industrial, Alternative MetalПродолжительность: 04:15:09 ll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B931BDF111D39B93DB72732AF1DC22F7E40E05D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

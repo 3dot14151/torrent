@@ -1,29 +1,3 @@
-###  Публикация: 1183202   (309236) от 13.11.2017
-
-3D модели - Vargov3D - Collection 3D models cloth [MAX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vargov3D - Collection 3D models cloth: Сборник профессиональных 3D-моделей изделий из ткани, таких как шторы, занавески, скатерти, покрывала, половики, балдахины - всего в коллекцию вошли 47  детальных моделей для 3ds Max.Формат: MAX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75970E2A0FCC9F9BA2724E927B1C5B1453B3D2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332939   (309105) от 22.10.2019
 
 Hum3D - MAN Lion’s Intercity Bus with HQ interior 2015 [V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, STL, ASC, WRL]
@@ -670,6 +644,32 @@ Archmodels vol. 196 содержит 40 наборов моделей с тек�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2F3CE691E946C5512AC635470229BC58BF2F1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263067   (291251) от 17.11.2018
+
+3D модели - ArtStation - Military Tent [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291251.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель военной палаткиФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDEAB1EC100891E534BC1B563C0BCA12BB1C248
 ```
 
 https://mybot314.ru/tekegram_catalog/

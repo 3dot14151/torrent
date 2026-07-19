@@ -1,55 +1,3 @@
-###  Публикация: 541591   (500366) от 01.09.2012
-
-Michal Ivan: фэнтези творчество иллюстратора из Словакии [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Michal Ivan: фэнтези творчество иллюстратора из Словакии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94E8B2790159749F7A70E4439FFB0D66358F4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541592   (500330) от 01.09.2012
-
-Hirano Katsuyuki - Works [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hirano Katsuyuki - Works
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23D0AFFAED766F34058EA36472C3A8DA5CA62E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541488   (500227) от 01.09.2012
 
 [Рисованая графика]Художник-иллюстратор William O'Connor
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E00936128F10FD98669C3A63D7742841B4A10E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550345   (457790) от 22.09.2012
+
+Artworks by Renato Guttuso [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Renato Guttuso
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC24F07B06F4496999E90006458D557754AC21CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551302   (451095) от 25.09.2012
+
+Geoffroy Thoorens [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geoffroy Thoorens
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5082D27B82BD04A646CBFA94453D1BD588459B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

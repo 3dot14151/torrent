@@ -1,3 +1,119 @@
+###  Публикация: 1658037   (191950) от 06.09.2023
+
+Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thursday's Friday [00:03:18]
+02. Autumn Audio [00:04:24]
+03. My Little Sunshine [00:02:45]
+04. Project 6636 [00:02:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2DDE60EE9739B03330E176EB46E0056A3EDD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658151   (191947) от 06.09.2023
+
+Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Glass [00:03:12]
+02. Rest/less [00:03:22]
+03. End [00:02:37]
+04. Leech [00:03:22](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6400DE8E540D399D223FF1F1177E2306FD00090F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657913   (191938) от 06.09.2023
+
+Tears to Embers - Masquerade (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal / Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue: The Algorithm
+02. Devices (Tales of Liars)
+03. Masquerade
+04. Silhouettes(   Читать дальше...   )Жанр: Alternative Metal / MetalcoreПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6A8C2F59A820F28680F8DF1877AAEACC87C66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348140   (190928) от 06.11.2022
+
+The Cult (Holy Barbarians) - 16 альбомов, 4 Box Set, 1 EP (1984-2022) [48 CD] [FLAC|Lossless|tracks + .cue]<Сlassic Rock, Post-Punk>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190928.jpg" />
+</div>
+
+
+###  Подробнее
+
+В творчестве появившейся в середине 80-х на британском небосклоне группы The Cult современники слышали отголоски гитарного стиля Led Zeppelin, мистицизма The Doors и трехаккордных атак AC/DC. За последующие годы, то приближаясь к мейнстриму, то удаляясь от него, команда прошла через испытание постпанком, психоделией, готическим роком и даже электроникой. The Cult (   Читать дальше...   )Альбомы:
+1984 - Dreamtime
+1985 - Love
+1987 - Electric(   Читать дальше...   )Жанр: Сlassic Rock, Post-PunkПродолжительность: 46:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321B362D57413AE52573A8D277E637A5059A9B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588886   (190870) от 07.11.2022
 
 The Pretty Reckless - Other Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock, Hard Rock, Post-Grunge, Ballads>
@@ -252,36 +368,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:055E8BCF84C1F61F94096BE3A592DF6A9FEEA46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285586   (188922) от 13.11.2022
-
-The Clash - 12 альбомов (1977-2003) [APE/FLAC|Lossless] <Punk Rock, Post Punk, Reggae>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_188922.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Clash — легендарная британская рок-группа. Являясь одной из ключевых групп раннего панк-рока, The Clash также смело экспериментировали с различными стилями от реггей до хип-хопа.
-Такая широта музыкального диапазона, политическая бескомпромиссность и полные энергии и провокаций концерты принесли The Clash нехарактерный для панка крупный успех у себя на родине (   Читать дальше...   )1977 - The Clash (UK) - Columbia 495344 2
-1978 - Give 'Em Enough Ropey - Columbia 495346 2
-1979 - London Calling - Columbia 517928 3
-1979 - The Clash (US) - EPIC 495345 3(   Читать дальше...   )Жанр: Punk Rock, Post Punk, ReggaeПродолжительность: 16:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F253A486BBC2C1E8E2611D253FC3E868060F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,93 +745,6 @@ Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:308D34B27142D87454883D3F12E1A58302756C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668092   (185822) от 25.11.2020
-
-Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   2013 [09:01]
-02.   River Of Pain [07:00]
-03.   Culturecide [04:37]
-04.   Hit Void [04:14](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30549D90C0B438F6F9EB8E244FB169A758E1403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591718   (185635) от 20.11.2022
-
-Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amongst the Saved and Broken
-02. Equality Is an Illusion
-03. Manipulation by Design
-04. Survivors Torment(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6442A8A9C07DFEEBF371AF21B2075B476B817F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591715   (185532) от 20.11.2022
-
-The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotland the Brave [00:03:10]
-02. A Red, Red Rose [00:01:43]
-03. Ye Jacobites by Name [00:02:54]
-04. The Green Hills of Tyrol [00:03:00](   Читать дальше...   )Жанр: Celtic Punk RockПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B34ED351D63B68D0FCE531CF764B6D0A1AB138
 ```
 
 https://mybot314.ru/tekegram_catalog/

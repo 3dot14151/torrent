@@ -1,3 +1,177 @@
+###  Публикация: 982503   (947081) от 04.02.2016
+
+Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving To Deep (Minimal Boffin Remix) (06:08)
+02. Diving To Deep (Textural Being Remix) (07:14)
+03. Diving To Deep (Ohrwert Deep Alter) (06:06)
+04. Diving To Deep (Zoltan Solomon Liquid Mix) (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983411   (943610) от 06.02.2016
+
+Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace
+02. Oi
+03. Mary Got No Lamb
+04. Riot(   Читать дальше...   )Жанр: Deep House, Tech House, TranceПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091462   (942995) от 09.01.2017
+
+VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Vogelmann - Toska (09:53)
+02. Red Robin - Wildcard (09:22)
+03. Robert Babicz - Harley Loves Benton (08:13)
+04. Der Dritte Raum - Hullapaluhla (08:08)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D6CDCA37576EE404AD3217B368623494867C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363454   (942601) от 28.02.2020
+
+Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
+02. Booka Shade - Atlantic Beam (5:56)
+03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
+04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363002   (942597) от 28.02.2020
+
+Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Want The Best
+02. A Toast To Momma Rose (Crowd Claps Jacked By Norm Talley)
+03. That's Lil'Boy (feat. Ian Finkelstein)
+04. Second Life (feat. John FM)(   Читать дальше...   )Жанр: House, Deep House, TechnoПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2985362EC37186928860F82E53112C1C4B47C51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090210   (941991) от 28.02.2020
+
+cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subtraktive (Original Mix) (15:46)
+ 02. Subtraktive (Reimagined) (14:03)
+ 03. Subtraktive (Intrusion's Path To Zion Dub) (08:20)
+ 04. Subtraktive (Soultek's Morning Dub) (08:38)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 55:46:44 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363647   (941890) от 28.02.2020
 
 VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -571,179 +745,6 @@ VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0535DFE18B08A564AD209E1CBDFA364D04B0DD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987120   (927767) от 16.02.2016
-
-VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Believe in Me (3:15)
-02. Florida Inc. - Let Me Show You (3:00)
-03. Siria - Endless Summer (3:37)
-04. Global Deejays - What a Feeling (3:15)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489095   (925386) от 16.08.2021
-
-Butch - Papillon (2008) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925386.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. The Table (05:58)
- 02. About This Time (04:51)
- 03. Wet'N'Tight (04:37)(   Читать дальше...   )Жанр: Techno, Minimal TechnoПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D629C215FE56DCAA352CCA0B9824C08283F5B64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095487   (924455) от 21.01.2017
-
-VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warmth – Refracted (07:17)
-02. Stillhead – Non State Theory 02 (06:01)
-03. Beatpharmacy – Dusty Trail (05:38)
-04. Dublicator – Souldance (06:49)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BF6E53C5A770A73E1CD0D83A5755486F4B867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366484   (924122) от 11.03.2020
-
-Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1.16699016 x 10^-8 hertz (02:03)
-02. Once in a Blue Moon (03:25)
-03. Wherever You Are (feat. Margret) (03:28)
-04. Second Sun (03:44)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, DowntempoПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2727127D7E8D7F5903E0307F8CAB5422B50961DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340010   (923675) от 17.08.2021
-
-As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, Clear, ART, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Downtempo, Future Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuron - La Source (06:22)
- 02. As One - The Specialist (Nuron Remix) (06:14)
- 03. As One - Emanation (Nuron Remix) (05:22)Тип издания: CD, Vinyl, WebЖанр: Techno, Ambient, IDM, Downtempo, Future Jazz •Продолжительность: 22:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13797F80AE7F8F94D2724ED87EF7219EB51BC3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987298   (922872) от 19.02.2016
-
-VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pele - Childhoods End (7:33)
-02. Kaliber - Kaliber 12 (6:29)
-03. Flinsch 'n Nielson - Gimmik 2 (5:52)
-04. Guy Gerber - The State of Change (6:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
 ```
 
 https://mybot314.ru/tekegram_catalog/

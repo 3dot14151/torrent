@@ -1,115 +1,3 @@
-###  Публикация: 1293146   (638931) от 02.04.2019
-
-Векторный клипарт - Isometric icons vector illustration #3 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Изометрические иконки.
-9 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071101F0B1B0B5388F0026E74803C9D733C4ED50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293148   (638925) от 02.04.2019
-
-Векторный клипарт - Abstract geometric background vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Абстрактные геометрические фоны.
-12 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E88955CA8952AFD0A78A5DE34AD0A78DC6381B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293338   (637404) от 03.04.2019
-
-Векторный клипарт - Fotolia - Dinosaurs - Life in the prehistoric time [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Динозавры.
-17 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E39FFF13BABAB23DFCD1E1C15FED888EEFB993E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293520   (637281) от 03.04.2019
-
-Векторный клипарт - Watercolor landscapes in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Пейзажи акварелью.
-10 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F7137BCEF47C7E6654BC0AF41BEBEB8C90A18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293647   (635494) от 04.04.2019
 
 Векторный клипарт - Hello Spring - 7 - Vector Graphics [EPS]
@@ -713,6 +601,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A73F4687CD3CBE8EF6D0B309ECA89CF9FFA56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228711   (633911) от 02.06.2018
+
+Векторный клипарт - Vector Elements Collection #7 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Элементы
+50 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D7D1F25AB587DF23AF24C9E700FA66209DC301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228636   (633786) от 02.06.2018
+
+Векторный клипарт - Fotolia - Origami animal for cutting and folding paper [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Оригами, животные из бумаги
+25 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3D68ADB6C838789A655E673BB2A73D6198171C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228715   (633782) от 02.06.2018
+
+Векторный клипарт - Vector Elements Collection #8 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Элементы
+50 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B7BAF2C4044D59A7DD0CD3A7AABCD2E3FD76C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228640   (633665) от 02.06.2018
+
+Векторный клипарт - Back to school vector illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Вернуться в школу векторные иллюстрации
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C1F5BB077CD41B54547EDFDA1BF29C226DF106
 ```
 
 https://mybot314.ru/tekegram_catalog/

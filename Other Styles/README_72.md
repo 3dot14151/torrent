@@ -1,3 +1,177 @@
+###  Публикация: 1289162   (686124) от 16.03.2019
+
+Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48] <Trailer Music, Epic, Instrumental, New Age>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Human Legacy (4:59)
+ 2 - Icarus (feat. Julie Elven) (4:35)
+ 3 - Remember Me (feat. Roger Berruezo) (3:45)
+ 4 - The Awakening (4:29)(   Читать дальше...   )Жанр: Trailer Music, Epic, Instrumental, New AgeПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289624   (686102) от 16.03.2019
+
+Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Trailer Music, Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The Edge of Consciousness (4:42)
+ 2 - Vis Motrix (4:50)
+ 3 - Khae Momme (4:38)
+ 4 - Facing Fears (4:47)(   Читать дальше...   )Жанр: Trailer Music, Electronic, Instrumental, New AgeПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028842   (686101) от 24.06.2016
+
+Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:51)
+02. Blood of My Blood (03:35)
+03. Light of the Seven (09:49)
+04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028841   (685961) от 24.06.2016
+
+Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:51)
+02. Blood of My Blood (03:35)
+03. Light of the Seven (09:49)
+04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222395   (685154) от 29.04.2018
+
+Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Adoration (3:13)
+02.	I'm waiting on you (2:58)
+03.	In my weakness you are strong (2:59)
+04.	In you I repose my trust (2:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134981   (684857) от 17.05.2017
+
+VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raindrops Healing Music Universe - Thunderbolts & Rain
+02. Hypnosis Nature Sounds Universe - Dramatic Thunder, State of Mind
+03. Zen Soothing Sounds of Nature - Distant Storm, Sound Effect
+04. Close to Nature Music Ensemble - Rainy Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222331   (684816) от 29.04.2018
 
 Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
@@ -590,184 +764,6 @@ Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B3ED083C3CB38D20767E439DF234EF79242CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222435   (680798) от 01.05.2018
-
-VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680798.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-Продолжительность: 01:09:55
-
-01. Luis Fonsi - Echame La Culpa(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:12:05
-
-01. Shakira - Perro Fiel
-02. Nacho - Báilame(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D6DA298865FDEA8158215B0321BC9F60F143F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223006   (680665) от 01.05.2018
-
-VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начались длинные праздники. Многие их проводят в заботах сельскохозяйственных, но и они вечерком любят посидеть. А как в старом анекдоте: "Чем отличаются хорошие люди от всех остальных - хорошие люди посидят-посидят, да и выпьют!" Ну а как не вспомнить хорошую песню при хорошем застолье.
-Но даже если и не сами, то обрадуйте этими раритетами своих пап и (   Читать дальше...   )CD1:
-01. Людмила Зыкина - Тонкая Рябина  (5:12)
-02. Екатерина Шаврина - Ой, Мороз, Мороз  (4:02)
-03. Н. Матвiенко - Ой, Летiли Дикi Гуси  (4:48)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029656   (680339) от 27.06.2016
-
-Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside the OM (16:04)
-02. Inside Chanting (18:06)
-03. Inside Silence (12:47)
-04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029389   (680258) от 27.06.2016
-
-Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Moonlight    09:48
-02.  Lovers Night    15:45
-03.  Letting Go    12:43
-04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029288   (680249) от 27.06.2016
-
-Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Central Intelligence (02:08)
-02. Robbie (00:38)
-03. Golden Jet (01:02)
-04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290052   (680232) от 19.03.2019
-
-Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. f l o w e r (3:54)
- 02/12. Walking In The Forest / 숲을 걷다 (3:07)
- 03/12. f r a m e d (Piano Ver.) (3:53)
- 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

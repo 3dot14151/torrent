@@ -1,3 +1,29 @@
+###  Публикация: 1733883   (51495) от 30.06.2024
+
+Double Commander 1.1.16 gamma + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F531ABF2A7B453ECD71FC6F11ABFBEA0EA0221B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733664   (51478) от 30.06.2024
 
 Windows Manager 2.0.2 RePack by KpoJIuK [Multi/Ru]
@@ -650,33 +676,6 @@ MediaHuman YouTube Downloader 3.9.9.92 (0629) RePack (& Portable) by elchupacabr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A0DBFD2DD50A45791C234E70C4AAA7575516FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733909   (51372) от 01.07.2024
-
-Windows Manager 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
-Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F4A2B254D8EFBC218505AD03A095EEF7EA507
 ```
 
 https://mybot314.ru/tekegram_catalog/

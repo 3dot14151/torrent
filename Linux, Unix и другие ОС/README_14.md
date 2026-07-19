@@ -1,3 +1,29 @@
+###  Публикация: 1295011   (620083) от 12.04.2019
+
+OpenVPN Access Server 2.6.1 [En]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620083.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenVPN Access Server (OpenVPN-AS) это набор инструментов для установки и настройки, которые упрощают быстрое развертывание VPN-сервера удаленного доступа. Он основывается на популярном программном обеспечении с открытым исходным кодом OpenVPN, позволяя работать с настроенным VPN-сервером при помощи кроссплатформенного клиентского ПО.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2B00F2A2710A0D5D7243C3D70340585B66B833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910869   (619959) от 21.06.2015
 
 Mageia 5 Cauldron [i586] 1xDVD
@@ -668,32 +694,6 @@ Microsoft Office Профессиональный 2007 — исчерпываю�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EBA392C3B4828FE112741ACAC838C4A062AC8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300896   (582024) от 14.05.2019
-
-Red Hat Enterprise Linux 8.0 [x64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 8. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30249402F9FBBE0E3AEC45796EBFBC42EC1FB6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

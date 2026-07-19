@@ -1,3 +1,32 @@
+###  Публикация: 1096065   (922588) от 22.01.2017
+
+VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Branzei - I'll Never Be Free (original mix) (07:05)
+02. Dogus Cabakcor - Trouble (original mix) (04:20)
+03. Love Vibes & Valentina - Show Me (Deepjack & Altaci remix) (05:52)
+04. Andrey Keyton & Chunkee - Want Your Love (original mix) (05:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095911   (922526) от 22.01.2017
 
 Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
@@ -252,41 +281,6 @@ VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289163   (915469) от 02.02.2011
-
-VA - Record Super Chart № 175 (2011) [MP3|320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Tinie Tempah - Miami 2 Ibiza (2:49)
-02. Barbra Streisand (Original Mix) (4:54)
-03. Tiesto vs Diplo - CMon (Original Mix) (5:14)
-04. Rihanna & David Guetta - Whos That Chick (3:42)
-05. Skrillex - Kill Everybody (Original Mix) (4:57)
-06. Nadia Ali - Rapture (Avicii New Generation Extended Mix) (7:08)
-07. Deadmau5 & Wolfgang Gartner - Animal Rights (6:15)
-08. DJ Smash - From Russia With Love (Extended Mix) (5:47)
-09. Matisse & Sadko - Hi Scandinavia! (2:11)
-10. David Vendetta feat. Rachael Starr - Holding On (3:24)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275CE89E5930405A27394292D8F5EAF6E5B1C489
 ```
 
 https://mybot314.ru/tekegram_catalog/

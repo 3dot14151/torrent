@@ -1,3 +1,32 @@
+###  Публикация: 981344   (952693) от 31.01.2016
+
+VA - Best Dance Hits Winter (2016) [MP3|320 кб/с] <Pop Dance, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trancemission - One Call Away (RP Mix) (04:02)
+02. Patty Dart - Better When I'm Dancing (Peanuts Movie) (B Remix) (04:34)
+03. Kangaroo - Roses (RP Mix) (04:41)
+04. Kino - Daddy (AR Mix) (05:04)(   Читать дальше...   )Производство: Dance FlavourЖанр: Pop Dance, Euro DanceПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB54C7FBBAD7801E15D2F7AEBBCA043F3E4AC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981083   (952596) от 31.01.2016
 
 VA - Ultimate 90's - 4CDs of the greatest music from the 1990's (2015) [MP3|320 кб/с] <Pop, Dance, Retro>
@@ -714,35 +743,6 @@ VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095624   (922689) от 22.01.2017
-
-The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbps] <Surf-Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструментальная группа из Швеции, которая была сформирована в 1961 году. Вместе  "The Shadows" и "The Ventures" считаются одним из самых известных инструментальных коллективов в 1960-70х годах. Выпустили 42 альбома, продав более 18 миллионов записей. Славились своими "космическими" костюмами на сцене, и  инновационными электронными гитарами. (   Читать дальше...   )01. Karelia  (2:22)
-02. The Rocket Man  (2:00)
-03. Space Party  (2:31)
-04. Orange Blossom Special  (2:19)(   Читать дальше...   )Жанр: Surf-Rock, PopПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

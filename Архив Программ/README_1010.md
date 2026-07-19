@@ -1,3 +1,29 @@
+###  Публикация: 1049957   (541926) от 06.09.2016
+
+Rufus 2.11 (Build 994) Beta 2 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776A395527CF8F784F0D2BC38F6432F6A0FD36AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049819   (541913) от 06.09.2016
 
 Kaspersky Lab Products Remover 1.0.1141 [Ru]
@@ -671,32 +697,6 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA7AFE78B8C973B6EABCC2CF392CB3599002F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311403   (541628) от 29.06.2019
-
-EZ CD Audio Converter 8.3.2.2 Ultimate RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541628.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210AFE1131E62B23E8A9335608CA08DB066BA1F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

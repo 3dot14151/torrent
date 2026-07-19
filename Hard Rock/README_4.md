@@ -1,3 +1,60 @@
+###  Публикация: 1366348   (923996) от 11.03.2020
+
+Chasing Violets - 2 альбома (2012-2013) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Outside Heaven
+2013 - Jade HeartsЖанр: Melodic Rock, AORПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629A946AE01B29622E3B96C86718F2C37973AF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988056   (922664) от 19.02.2016
+
+Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love That You Give
+02. Victorious
+03. Baroness
+04. Pretty Peggy(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41194D30FAF76C15B81870E8FE8E9A368DD5C2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987996   (922449) от 19.02.2016
 
 Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
@@ -681,64 +738,6 @@ Stranger - Stranger (1982) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:536D65083A59334C4FF46D44DBD34ABBF975DDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102176   (892669) от 08.02.2017
-
-Deep Purple - Time For Bedlam (2017) EP [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Bedlam
-02. Paradise Bar (Non Album Track)
-03. Uncommon Man (Previously Unreleased Instrumental Version)
-04. Hip Boots (Rehearsal, Ian Paice's Recording)Жанр: Hard RockПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D302A2AC637C593510DBBAB389D3F29360DC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371536   (890007) от 31.03.2020
-
-Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Joker [1:29]
- 2. Gotta Get Away [5:30]
- 3. The Devil Made Me Do It [3:36]
- 4. Ride The Blade [4:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 592232   (135403) от 23.12.2012
+
+Xenia - Understand (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592231   (135370) от 23.12.2012
+
+Plies - Hunna (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592233   (135193) от 23.12.2012
+
+The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alt RockПродолжительность: 00:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCB3FE79AB4DEFACBAC276B2632C5C3E8818941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593490   (134361) от 24.12.2012
+
+Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595074   (132550) от 28.12.2012
 
 Нюша - Это Новый Год (2012)[H.264] HDTVRip
@@ -593,110 +697,6 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:057DF79FD55CE91A6942322572F75A769D696E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479492   (98968) от 07.04.2012
-
-Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Hip-HopПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479502   (98957) от 07.04.2012
-
-INNA - WOW (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470506   (97249) от 19.03.2012
-
-Alexandra - Mowisz Mi, Ze Przepraszasz (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_97249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD320606177A447E5301985D66DD17498B383474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459312   (94904) от 28.02.2012
-
-Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
 ```
 
 https://mybot314.ru/tekegram_catalog/

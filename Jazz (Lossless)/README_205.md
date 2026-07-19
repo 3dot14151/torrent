@@ -1,119 +1,3 @@
-###  Публикация: 950512   (370499) от 26.10.2015
-
-Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Nine Cloud Dream [05:19]
- 02.Paradox [07:29]
- 03.Moving Portrait [10:05]
- 04.First Frost [06:31](   Читать дальше...   )Жанр: Modern Creative, Avant-Garde JazzПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950121   (370498) от 26.10.2015
-
-Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Enough
-02. Coming Soon
-03. V.P.
-04. Turkish Coffee(   Читать дальше...   )Жанр: Neo-Bop, Post-BopПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950112   (370497) от 26.10.2015
-
-Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Beats (2:52)
-02. Voices of War (4:04)
-03. Arak (2:13)
-04. Yemen (3:55)(   Читать дальше...   )Жанр: Post-Bop, Etho-JazzПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950126   (370496) от 26.10.2015
-
-One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Outs To Go
-02. We'll Be Together Again
-03. Till There Was You
-04. In Between The Heartaches(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950116   (370495) от 26.10.2015
 
 Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
@@ -745,6 +629,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44206D598F68E700CE622807322DD2E0270AF440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255042   (368302) от 16.10.2018
+
+Joe Lovano & Dave Douglas Sound Prints - Scandal (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream State [05:34]
+02. Full Sun [05:06]
+03. Fee Fi Fo Fum [06:03]
+04. Ups And Downs [06:57](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C82F60A9552172F7491CEBBF76BD2F05A399FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328019   (368167) от 28.09.2019
+
+Sonny Rollins - The Prestige Years (1951 - 1956) 5CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368167.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Way You Look Tonight [5:16]
+02. I Want to Be Happy [7:45]
+03. The Stopper [3:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 05:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2B2E396B46FFCC30F8B24BB1A00B6A33A98EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328069   (368001) от 28.09.2019
+
+Club Des Belugas - Strange Things Beyond The Sunny Side (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quapa, Pt. 1
+02. Quapa, Pt. 2
+03. Don't Look Back
+04. Crazy Lazy Friday Afternoon(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B8CAD79AD8F0FEAB2AC59CE5AF8DA194B29707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416513   (367964) от 16.10.2020
+
+Tito Puente Featuring Maynard Ferguson - Special Delivery (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be-Bop [4:45]
+02. Misterioso [4:51]
+03. Point East Memories [5:38]
+04. Stablemates [5:39](   Читать дальше...   )Жанр: Latin Jazz, BopПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9E52417A1F23E3BEDF056E9EFE5D79F108529A
 ```
 
 https://mybot314.ru/tekegram_catalog/

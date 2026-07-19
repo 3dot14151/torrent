@@ -1,3 +1,61 @@
+###  Публикация: 1692514   (122373) от 17.01.2024
+
+Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dancing My Blues Away
+02.  Rock And Roll Tonight
+03.  Never Tie Me Down
+04.  The Chance Of Love(   Читать дальше...   )Жанр: Blues Rock, Soft Rock, RockПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB16313EC079BE979043DE7CF9EF149DA6BBA5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693075   (121866) от 20.01.2024
+
+Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Get Some [05:01]
+02. Run [04:17]
+03. Like You Do [03:34]
+04. Love Train [07:30](   Читать дальше...   )Жанр: Blues, Funk RockПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC503FAB7F85115BD1AB19AE737E33C537C2764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698689   (118263) от 10.02.2024
 
 The Mighty Howlers - Back On Track (2024) [MP3|320 Kbps] <Blues>
@@ -726,64 +784,6 @@ Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD627B73C4DC94191A7DAD1E8E24990378CFA51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806766   (65328) от 14.07.2025
-
-James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More River To Cross (03:31)
- 02. Work Song (04:01)
- 03. Area Grey (03:40)
- 04. Ghost Train (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722429   (56767) от 12.05.2024
-
-Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2024 - 1975
-2024 - Down in Texas
-2024 - Electric MountainЖанр: Blues RockПродолжительность: 3 CD, 01:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76821348E50281B41765096F505BD89D4A66C494
 ```
 
 https://mybot314.ru/tekegram_catalog/

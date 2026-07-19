@@ -1,32 +1,3 @@
-###  Публикация: 1290075   (682082) от 18.03.2019
-
-Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight (7:51)
-02. Standing In The Shadow Of Love (6:06)
-03. Living A Lie (6:03)
-04. Mexican Taxi Man (4:34)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135366   (681188) от 19.05.2017
 
 Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -746,6 +717,35 @@ P.L. - Space Dreams (1982) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493028912025A3205E0E433D30BACCE28483EB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139865   (659205) от 03.06.2017
+
+Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dance Fantasy Inspired By Close Encounters Of The Third Kind (16:00)
+02. V.M. IV (3:47)
+03. Warp Factor II (5:34)
+04. Love Star (2:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD695A71762E419DABB7C38BDA2F1B24F8069D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

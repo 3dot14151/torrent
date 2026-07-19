@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1881044   (1076611) от 
+
+Torque - II (2026) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tomorrow (4:22)
+2. This Is the Same (3:44)
+3. We Are Human (5:02)
+4. I'm Afraid (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD0C9BA7F2078184FEF1895C2FCF44373BE7366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879267   (1075161) от 
+
+Deep Purple - Splat! (2026) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrogant Boy (3:19)
+02. Diablo (3:17)
+03. The Rider (3:57)
+04. The Lunatic (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF94787643EC9647B72E0287B337F4E87D267078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863101   (1063721) от 02.04.2026
 
 Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
@@ -690,64 +748,6 @@ Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901F4B053BECFD356A00347ACFDEF7CDEDD7CB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612711   (1040166) от 16.02.2023
-
-Worldwide Panic - Worldwide Panic (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Tried
-02. Less Than Nothing
-03. Everybody Wants To Rule the World
-04. Falling Apart(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, IndustrialПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302C5E1373FC670D75ECE2E3C6840BB2036DAFE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439343   (1040113) от 12.01.2021
-
-Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Horse (03:18)
- 02. AKIRA (04:45)
- 03. This Evil (04:28)
- 04. Fallen Star (04:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D0B6F0DE9CE7F04409F0C230E23F185EDA97E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

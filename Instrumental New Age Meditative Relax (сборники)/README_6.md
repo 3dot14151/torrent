@@ -1,3 +1,29 @@
+###  Публикация: 359875   (724717) от 02.08.2020
+
+VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 192997   (720810) от 04.08.2020
 
 VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
@@ -740,41 +766,6 @@ VA - Thank God Its Sunday - 25 Relaxing Mood Tunes Vol.3 (2016) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42AFD49C974337107D49B32ED632F799D0CFE9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508023   (676902) от 11.06.2012
-
-VA-Classik Album - Gold Classic Instrumental (2012) [MP3|320 кб/с]<Instrumental, Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Acoustic Alchemy-Jamaica Heart Beat
-02 - Anthony Ventura-La paloma
-03 - Elton John-CHELDORADO
-04 - C. Dulfer-Lilly Was Here
-05 - Cantoma-Maja
-06 - Damian Luca-Unchained Melody
-07 - David London-Horizons
-08 - Miami Sound Machine-ALL BECAUSE OF YOU
-09 - Ed Calle-Spanish Rose
-10 - En Voice-Rainy Days(   Читать дальше...   )2012Жанр: Instrumental, ClassicПродолжительность: 02:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386DC5E22FBBB5E05DE975D3A7E3D76A155B80A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

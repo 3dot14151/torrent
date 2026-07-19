@@ -1,3 +1,90 @@
+###  Публикация: 203755   (1030357) от 19.02.2021
+
+VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Paco De Lucia - Entre Dos Aguas		      (06:01)
+02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
+03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162997   (1030334) от 19.02.2021
+
+Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cuesta Abajo (03:13)
+02.Silencio (02:42)
+03.Caminito (02:29)
+04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209363   (1030107) от 20.02.2021
+
+Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
+01. Angels (4:39)
+02. Babylon (4:08)
+03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 197410   (1030098) от 20.02.2021
 
 Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
@@ -672,93 +759,6 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096356   (917510) от 25.01.2017
-
-James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue] <Bluegrass, Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blue In The Blue Ridge
-2. Bill Cheatum
-3. I Just Think I'll Go Away
-4. Down At Mylow's House(   Читать дальше...   )Жанр: Bluegrass, GuitarПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990130   (911723) от 25.02.2016
-
-КичКок - Три Товарища (2009) 3CD [FLAC|Lossless|tracks + .cue] <Mash up>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Один Dj - хорошо, а три - еще лучше!» - решили 3 давних друга, Георгий Петрушин, Дмитрий Ашман и Сергей Минаев, 24 апреля 2009 встав за диджейский пульт. Результатом работы этого трио стал диск с любимой музыкой в стиле mash up. Похоже, именно любовь к хорошей музыке объединяет 3 товарищей: Георгия Петрушина – модного клубного промоутера, организатора самых ярких (   Читать дальше...   )01. Elvis Presley vs Junkie XL - A Little Less Conversation (2:18)
-02. Goran Bregovic - Mesecina (1:00)
-03. Manu Chao - Me Gustas Tu (3:02)
-04. Madness - One Step Beyond (1:48)(   Читать дальше...   )Жанр: Mash upПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368584   (905075) от 22.03.2020
-
-Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini - Pink Panther
-02. Nils Lofgren - Keith Don't Go
-03. Hugh Masekela - Stimela
-04. Ben Webster - Gentle Ben(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
 ```
 
 https://mybot314.ru/tekegram_catalog/

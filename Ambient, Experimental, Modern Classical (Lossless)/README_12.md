@@ -1,32 +1,3 @@
-###  Публикация: 1238271   (547117) от 29.07.2018
-
-Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowy Night Tale (05:34)
- 02. Fog (04:25)
- 03. It's Magical (04:24)
- 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238313   (547112) от 29.07.2018
 
 Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [FLAC|Lossless|tracks+.cue] <Experimental>
@@ -741,6 +712,35 @@ Fennesz & Ryuichi Sakamoto - Cendre (2007) Touch [FLAC|Lossless|tracks+.cue] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83476CD2C1F57B87DA2403959034AC33CB24D7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158591   (492086) от 16.08.2017
+
+Frameworks - Kings (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Komorebi (1:16)
+ 02. Kings (4:18)
+ 03. Titles (4:10)
+ 04. Three Years (4:54)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0694F3B96D9A9F860F20DA8083C9D4AE5A7A6953
 ```
 
 https://mybot314.ru/tekegram_catalog/

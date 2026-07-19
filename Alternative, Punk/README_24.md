@@ -1,3 +1,61 @@
+###  Публикация: 1409382   (447496) от 16.09.2020
+
+Militarie Gun - My Life Is Over (2020) EP [MP3|320 Kbps] <Post-Hardcore, Garage Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A New Low for Progressive Society (1:51)
+2. Dislocate Me (2:03)
+3. Kept Talkin’ (1:46)
+4. Life in Decline (2:16)Жанр: Post-Hardcore, Garage Hardcore PunkПродолжительность: 00:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A1445307BDF41D63D9A1A1BDD9F9C18EBEC918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569814   (447305) от 15.08.2022
+
+Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Judgment [00:03:33]
+02 - Good Fight [00:03:55]
+03 - Won't Stay Down [00:02:27]
+04 - We Are the Resistance [00:02:56](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AA4DF3C46BA6E06E695319C17ACB197E1EBD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570032   (447290) от 15.08.2022
 
 Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
@@ -681,64 +739,6 @@ Bellusira - The Healing (2015) [MP3|320 кб/с]<Alt. Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108AEB1FFADD42C5C585A2B6FE4A7241D348DF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946955   (422567) от 15.10.2015
-
-Zebrahead - Walk The Plank (2015) Japanese Edition [MP3|320 кб/с]<Punk-Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Brings A Knife To A Gunfight?
-02. Worse Than This
-03. Headrush
-04. Keep It To Myself(   Читать дальше...   )Жанр: Punk-Rock, Pop-PunkПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30155C663B71D55F50B66B5F0C22F4F0AE8869A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250909   (421735) от 29.09.2018
-
-The Hardkiss - Залізна ластівка (2018) [MP3|320 kbps] <Alternative, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привіт (00:49)
-02. Журавлі (02:48)
-03. Коханці (04:01)
-04. Forever More (03:47)(   Читать дальше...   )Жанр: Alternative, Pop-RockПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FBBD757CE4837E6D950056A6FF21598C10FF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

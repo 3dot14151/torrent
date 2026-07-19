@@ -1,3 +1,90 @@
+###  Публикация: 1098141   (910777) от 29.01.2017
+
+Vörtex (Vortex) - Architects of Misfortune (2017) [MP3|320 Kbps] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910777.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. XI
+2. Dear Animal
+3. Breaking Bones
+4. All My Needs(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DABE376858CF107325CB1D55AFCC85FA4F13741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098002   (910755) от 29.01.2017
+
+Touch Of Eternity - 1 album, 2 singles, 1 EP (2011-2013) [MP3|192-320 Kbps] <Melodic Death Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2011. Lay Me Down (single)
+2011. Time's Fleeing Days (EP)
+2012. Lily Of The Valley (single)(   Читать дальше...   )Жанр: Melodic Death Doom MetalПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E529143FA6A50B6E09E94547E7B69DCF1240AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098152   (910753) от 29.01.2017
+
+Morver - Staying in the Abyss (2017) [MP3|320 Kbps] <Progressive, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sempiterno (01:30)
+2. Encrypted (05:55)
+3. Nompuehuenu (06:43)
+4. Alumine (06:27)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E481861D2C5A5E744B29DEE67AF81B96FBB7DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098147   (910631) от 29.01.2017
 
 We Blame The Empire - These Waves Won't Take Me (2017) [MP3|320 Kbps] <Metalcore>
@@ -659,93 +746,6 @@ Violet Cold - Anomie (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Shoegaze>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931D11FC6358F3A5C3F829D9BCD18D0788399372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993244   (897765) от 04.03.2016
-
-Mortal Terror - Creating Destruction (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral March
-02. Too Old To Die Young
-03. Speed Demon
-04. Death Zone(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B111FDB57CCA4DBEF2E89F4B6E2750E677695D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101058   (897172) от 05.02.2017
-
-Nightwish - Vehicle of Spirit (Live) (2016) 3CD [MP3|320 kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vehicle of Spirit - релиз от финской симфо - метал группы Nightwish . Два шоу были записаны во время Endless Forms Most Beautiful World Tour. Oдин на Tampere Stadium (31 июля 2015 года) , а другой на Уэмбли (19 декабря 2015). Кроме того , различные песни были записаны по всему миру. Он был выпущен 16 декабря 2016 года в Европе и 7 января 2017 года в Северной Америке.01 | Shudder Before The Beautiful | 06:58
-02 | Yours Is An Empty Hope | 05:47
-03 | Ever Dream | 05:10
-04 | Storytime | 05:41(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 05:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42048AAB513CEBAB8FCCCA302DFA986E14D28224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370455   (897045) от 27.03.2020
-
-Welicoruss - The Best of Welicoruss / Siberian Heathen Horde (2016-2020) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spellcaster [00:06:12]
-02. Siberian Heathen Horde [00:05:20]
-03. Path of Seductions [00:05:01]
-04. Frostbounded [00:05:08](   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 2 CD, 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6943DBFAD2D8C3D046313C8FB1838F8FB0B46A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

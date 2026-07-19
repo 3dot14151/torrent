@@ -1,90 +1,3 @@
-###  Публикация: 1076491   (312027) от 26.11.2016
-
-VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Fileum Feat. Kalle Johansson - My Father Said 3:21
-002.Andy Rey - Любви Ноль 3:52
-003.Frans - Young Like Us 3:32
-004.Анита Цой - Без Вещей 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6CA0921E50B42769B52819DB0A4A4DE4488B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076454   (311729) от 26.11.2016
-
-VA - Mega dance hits №16 (2016) [MP3|128-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia feat. Sean Paul - Cheap Thrills.mp3
-002. Shawn Mendes - Treat You Better.mp3
-003. The Weeknd feat. Daft Punk - Starboy.mp3
-004. Major Lazer feat. Justin Bieber & M0 - Cold Water.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B141CE015F27543B428F82D36DDC0666514DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182809   (311703) от 12.11.2017
-
-VA - Ukrainian Hits - 33 Tracks (Volume 2) (2017) [MP3|320 Kbps]<Pop, Rock, Pop Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воплі Відоплясова - Чуваки Всьо Чотко (4:10)
-02. Estradarada - На Буковині (#Nabukovyni) (3:39)
-03. MetaMoreFozzey - ТОбi (3:04)
-04. Platina - Злива (3:55)(   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1E9157667E508770FB9931B095B9776FD53987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076787   (311535) от 26.11.2016
 
 VA - Осенняя позитивная 100-ка. Версия 10 (2016) [MP3|256 Kbps] <Pop>
@@ -736,6 +649,93 @@ VA - Dont Stop The Music: New Disco Party (2019) [MP3|320 Kbps] <Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333462   (303291) от 25.10.2019
+
+VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Franz Matthews - Tutan Jamon
+002. Boogie Freaks - What's Up (Original Mix)
+003. Hot Streak - Body Work (Vocal Mix)
+004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261539   (303101) от 11.11.2018
+
+VA - MuviDance Russian Party Vol.2 (2018) [MP3|320 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русский Размер - Было и прошло (04:49)
+02. Александр Каштанов - Нет не верю я (03:22)
+03. Анжела Бабич - Свет в окне (Remix) (04:04)
+04. Вояж - Ты для него (уже не значишь ничего) (04:20)(   Читать дальше...   )Жанр: Dance, Euro House, Disco, PopПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2071B15003EA8F22EB0E9B71AD388D33D5C06B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333445   (302579) от 25.10.2019
+
+VA - Club Night Rider (2019) [MP3|320 Kbps] <Dance, Pop, Electro, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Sinclar - Love Is The Answer
+002. Iag & Omoc - True Lie
+003. Alec Fury - Masterpiece Of Deception
+004. Fungist - Hello(   Читать дальше...   )Жанр: Dance, Pop, Electro, DiscoПродолжительность: 12:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D45B40B691055668A64B02AE54C0A28542D936
 ```
 
 https://mybot314.ru/tekegram_catalog/

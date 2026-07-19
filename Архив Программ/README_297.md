@@ -1,3 +1,29 @@
+###  Публикация: 990295   (911869) от 25.02.2016
+
+USDownloader 1.3.5.9 (24.02.2016) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9510C248A30A09B8EE40666EA1EC396BC62B965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368188   (911834) от 18.03.2020
 
 Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5172.1000 VL (x86) RePack by SPecialiST v20.3 [Ru/En]
@@ -642,34 +668,6 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811A1C042849C9F7251A3CE970E6DD9A2CB7FF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368323   (910667) от 19.03.2020
-
-WhatsApp 0.4.1302 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910667.jpg" />
-</div>
-
-
-###  Подробнее
-
-WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
-Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
-уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18000D63C3D62C0380B4EECCBD67EA9B81E531D
 ```
 
 https://mybot314.ru/tekegram_catalog/

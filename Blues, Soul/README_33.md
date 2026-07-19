@@ -1,3 +1,61 @@
+###  Публикация: 1422995   (304280) от 11.11.2020
+
+Misty Blues - Weed 'Em & Reap (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятый альбом Misty Blues Weed 'Em & Reap, который был выпущен этой весной, содержит большое количество разнообразных звуков - это пластинка, «уходящая корнями в блюзовые традиции, с переходом от джаза, фанка и соула к нему и обратно», по словам группа. У штурвала корабля - солистка Джина Коулман, чей вокал полон, богат и порой преследует. В лучшем случае Weed (   Читать дальше...   )01. No More To Give (05:12)
+02. I Ain't No Giving Tree (04:17)
+03. Blues Coaster (03:30)
+04. Find My Way Again (03:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E4C765C55CFBC8C2178C899A6CB87FC7071AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077323   (302835) от 30.11.2016
+
+Hound Dog Taylor - Hound Dog Taylor And The Houserockers (1971) ) Reissue, 1990, Alligator Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Gone
+02. Walking The Ceiling
+03. Held My Baby Last Night
+04. Taylor's Rock(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98C5A7B6F28DC50D7215C0B9680C332E8C0DF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333872   (301359) от 26.10.2019
 
 Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -687,64 +745,6 @@ Mark Cook - Rebel Blues (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3C6B89D8F4B75088DB07DFF90E6B69E9706B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964193   (283794) от 10.12.2015
-
-Stevie Babie - Smoke And Mirrors (2015) [MP3|320 кб/с]<Blues, Smooth Jazz, Instrumental, Electric Guitar Solo>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke And Mirrors
-02. Southern Wind
-03. Wanting, Dreaming, Wishing
-04. Cool Change(   Читать дальше...   )Жанр: Blues, Smooth Jazz, Instrumental, Electric Guitar SoloПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A06A8301FF06355754426F12CE4E00991529CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081349   (283028) от 10.12.2016
-
-Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Karlova Blues  (02:19) 
-02|  Winter Blues  (02:54) 
-03|  Thanks For Bringing Me Down  (02:48) 
-04|  Tea For Alex  (03:13) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A332CF410DDE3083D8E6386746AA22C5D08AAD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

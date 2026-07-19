@@ -1,32 +1,3 @@
-###  Публикация: 1682603   (129810) от 09.12.2023
-
-Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter [00:05:37]
-02. Alleys Of Your Mind [00:03:32]
-03. Industrial Lines [00:06:13]
-04. The Line [00:05:01](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525514   (129618) от 20.01.2022
 
 Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
@@ -745,6 +716,35 @@ Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85EE8314D91CB66E677C389E905A9E8863DD9E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700587   (117029) от 17.02.2024
+
+Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memorabilia (Single Version / Remastered 2023) [00:04:49]
+02. A Man Could Get Lost (7" Single Version / Remastered 2023) [00:03:17]
+03. Persuasion (2023 Edit / Remastered 2023) [00:03:35]
+04. Memorabilia (Extended Version) [00:07:46](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1501134   (837760) от 08.10.2021
+
+KMSAuto Lite 1.5.9 Portable by Ratiborus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837760.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMSAuto Lite - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, 2016, а также Office 2010, 2013, 2016, 2019. Возможна активация Office 2010 VL на Windows XP. Переключатели открывают доступ к установке GVLK ключей и настройке планировщика задач. Программе НЕ требуются никакие версии .NET Framework.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9714261723B64EAB7CE11CE55589582A237F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501092   (837756) от 08.10.2021
 
 Stardock Groupy 1.50 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
@@ -656,32 +682,6 @@ Avant Browser Ultimate 2016 build 3 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51917CAEFA5CA5F5E5890736E9F986EA589E78CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004868   (836780) от 07.04.2016
-
-Icecream Slideshow Maker 1.48 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная, простая и эффективная утилита для создания презентаций и слайдшоу. Позволяет оживить набор фотографий с помощью большого количества эффектов и наложения музыки.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E172C02CA1B222AF155858491C422CC36D5D18A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

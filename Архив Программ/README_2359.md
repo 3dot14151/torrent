@@ -1,3 +1,32 @@
+###  Публикация: 1805363   (12470) от 05.07.2025
+
+Windows 10 (v22h2) x64 PRO by KulHunter v25 (esd) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
+updated_june_2025_x64_dvd_aace2d00.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA0B38522F54F878083133DDD6D5E8D64C64DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805267   (12465) от 05.07.2025
 
 MyLanViewer 6.5.1 RePack (& Portable) by elchupacabra [Ru/En]
@@ -647,35 +676,6 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB06AC58ECB3BC895D52E7584C4C6CEDB0E01CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806070   (11997) от 10.07.2025
-
-Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6093 [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_may_2025_x64_dvd_821b97c3
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Установлены обновления по 10 июня 2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3A3AEE920FBED15B471D81ADBEF92DBD046E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

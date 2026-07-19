@@ -1,3 +1,195 @@
+###  Публикация: 231813   (507943) от 01.09.2010
+
+Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507943.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:14) 01. Zyryab Melodia del Puente de J.A. Amargos
+(3:20) 02. Guajiras de Lucia
+(3:09) 03. Cobre Sevillanas
+(4:51) 04. Monasterio de Sal Coluombianas
+(4:17) 05. Cana de Azucar
+(3:24) 06. Barrio la Vina Alegrias
+(5:02) 07. Tio Sabas Homenaje A Sabicas
+(4:35) 08. La Barrosa Alegrias
+(5:42) 09. La Cueva del Gato Rondena
+(4:41) 10. Chiquito(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932731   (507889) от 30.08.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538488   (507582) от 25.08.2012
+
+VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentin Huedo & Atfunk (CDM) - Until The Sun Goes Down
+02. Kenneth Bagger - Speak My Name
+03. Kenneth Bagger - And I Kept Hearing (Radio Edit)
+04. Kenneth Bagger - Love Won't Leave Me Alone
+05. Kenneth Bagger - Time Is Up
+06. Bird - Some Boys (Valentin Huedo Remix)
+07. Bird - Sweetheart
+08. Bird - Wind It Up
+09. Bird - Bad Connection
+10. DJ Disse - Spanish Reggae(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316299   (506824) от 25.07.2019
+
+VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo, The 4 – Candela 3:43
+02. The 4, Yosvany – Prisoner 3:37
+03. Sonora Cubana (Los Picaros De La Habana) – What I Do Yo 4:44
+04. Lkm, Katy-A – Hidden 4:28(   Читать дальше...   )Жанр: Kizomba, Merengue, Sonero, OtherПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 232993   (506102) от 03.09.2010
+
+Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The Godfather - Part I/II/III (1972 / 1974 / 1990) [MP3|320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nino Rota - Main Title (0:42)
+2. Nino Rota - The Godfather Waltz (1:10)
+3. Carmine Coppola, Nino Rota - Marcia Religioso (2:51)
+4. Carmine Coppola, Nino Rota - Michael's Letter (1:08)
+5. Carmine Coppola, Nino Rota - The Immigrant (Love Theme From The Godfather Part III) (2:37)
+6. Nino Rota - The Godfather Waltz (1:24)
+7. Al Martino - To Each His Own (3:21)
+8. Carmine Coppola, Nino Rota - Vincent's Theme (1:49)
+9. Carmine Coppola, Nino Rota - Altobello (2:09)
+10. Carmine Coppola, Nino Rota - The Godfather Intermezzo (3:23)(   Читать дальше...)Жанр: OSTПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933750   (505363) от 02.09.2015
+
+Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eternal Return
+02. The Cave Of Swimmers
+03. Burana
+04. Salamender(   Читать дальше...   )Жанр: Ethnic, Neo-FolkПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933223   (505273) от 02.09.2015
 
 London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [FLAC|Lossless|WEB-DL]<Classical>
@@ -636,201 +828,6 @@ David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62381C0CD012CC88C0D4926E942AC7ED63B8414D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379558   (502423) от 25.08.2011
-
-VA - The Rough Guide To Bellydance (2002) [FLAC|Lossless] <world, ethnic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502423.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:38] 01. Jalilah feat. Ihsan Almounzer - Tahia's Dance
-[01:41] 02. Reda Darwish - Marhaba
-[03:06] 03. Ahmad Fouad Hasan - Dimashq
-[12:02] 04. Fadl, Mahmoud - Aament Bellah
-[05:29] 05. Jalilah feat, Mokhtar Al Saïd - Enta Omri
-[05:37] 06. Setrak Sarkissian - Ala Jsrel Low Ziyyi
-[04:37] 07. Mohamed Matar - Adawar
-[03:56] 08. Omar Faruk Tekbilek - Laz
-[06:21] 09. Kemanî Cemal Çinarli - Kirkpinar Çiftetellisi
-[01:52] 10. Jalilah feat. Mokhtar Al Saïd - Rakiya's Tabla(   Читать дальше...   )2002Жанр: world, ethnicПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379468   (502348) от 25.08.2011
-
-VA - The Rough Guide To The Music Of Cumbia (2000) [FLAC|Lossless] <world, latin, cumbia>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502348.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:21] 01. Alberto Pacheco - Cumbia Cienaguera
-[03:07] 02. Romulo Caicedo - La Luna Y El Pescador
-[03:02] 03. Henry Castro - Cumbia De Colombia
-[02:36] 04. Lucho Bermudez Y Su Orquesta - Colombia Tierra Querida
-[03:01] 05. Tamara - Maria Candela
-[03:08] 06. Leonor González Mina - Yo Me Llamo Cumbia
-[03:22] 07. Alfredo Gutierrez Y Sus Estrellas - La Banda Borracha
-[02:52] 08. Chico Cervantes - Fiesta En Corraleja
-[02:18] 09. Corraleja 71 - La Pollera Colora
-[02:49] 10. Romulo Caicedo - Guepa Je(   Читать дальше...   )2000,Жанр: world, latin, cumbiaПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379190   (502344) от 25.08.2011
-
-VA - The Rough Guide To The Music Of Hawaii (2007) [FLAC|Lossless] <hawaii ethnic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502344.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:57] 01. Gabby Pahinui - Ku'u Pua Lei Mokihana
-[03:40] 02. Sonny Chillingworth - Moana Chimes Pa'ahana
-[03:11] 03. Sol Hoopii - I Like You
-[02:47] 04. Alfred Aholo Apaka - Na Moku Eha
-[05:13] 05. Genoa Keawe - Alika
-[02:44] 06. Lena Machado - Ku'u Wa Li'ili'i
-[04:19] 07. Dennis Kamakahi - Ulili' E
-[02:36] 08. The Gabby Pahinui Hawaiian Band - I'm Livin on a Easy
-[02:41] 09. Sol K Bright Hollywaiians - Tomi Tomi
-[02:30] 10. Sam Ku West - St. Louis Blues(   Читать дальше...   )2007,Жанр: hawaii ethnicПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379559   (502338) от 25.08.2011
-
-VA - The Rough Guide To Bollywood gold (2007) [FLAC|Lossless] <folk, ethnic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_502338.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:43] 01. Jolly Mukherjee & Sridevi - Chandni O Meri Chandni
-[04:20] 02. Kishore Kumar - Zindagi Ek Safar Hai Suhana
-[03:28] 03. Rahul Dev Burman - Mehbooba Mehbooba
-[05:42] 04. Asha Bhosle - In Aankhon Ki Masti
-[06:42] 05. Asha Bhosle & Mohd. Rafi - Aaja Aaja Main Hoon Pyar Tera
-[04:53] 06. Kishore Kumar & Lata Mangeshkar - Tere Chehre Se Nazar Nahin
-[03:31] 07. Mohd. Rafi - Chahe Mujhe Koi Junglee Kahen
-[03:06] 08. Mukesh - Awaara Hoon
-[01:19] 09. Nagin - Theme Instrumental
-[07:07] 10. Lata Mangeshkar & Shailendra Singh - Chabi Kho Jaye(   Читать дальше...   )2007Жанр: folk, ethnicПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379841   (502072) от 25.08.2011
-
-Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pan Flute>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гео́рге Замфи́р (рум. Gheorghe Zamfir,01. Only Love 			(05:04)
-02. Elvira Madigan 		(05:15)
-03. Themanuel 			(04:31)
-04. Cent Mille Chansons 	(04:50)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379933   (501945) от 25.08.2011
-
-Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

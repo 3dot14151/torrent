@@ -1,3 +1,182 @@
+###  Публикация: 1022626   (728585) от 02.06.2016
+
+Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Needed Me (R. Goodrun) [00:03:58]
+02. Unforgettable (N.Cole/N.K. Cole/T. Gordon) [00:04:05]
+03. I Do It For You (B. Adams/R.G. Lange/M. Kamen) [00:04:08]
+04. La Colegiala (Leon) [00:03:31](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 324223   (728137) от 19.04.2011
+
+Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Academy  (4:04)
+02. Academy Hallways (4:15)
+03. Wolvercote Catacombs  (5:00)
+04. Dragon Graveyard (4:01)
+05. Crystal Caverns (4:30)
+06. Crypt Of The Damned(3:38)
+07. Forsaken Dungeons  (4:05)
+08. Throne Of The Lost King (4:36)
+09. Fangle Forest  (4:19) (   Читать дальше...   )Жанр: OSTПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284587   (727747) от 22.02.2019
+
+Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ocean Moon
+02 Break Of Dawn
+03 Rising Tide
+04 Ocean Haze(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77E2E0E28B4694E7AA390A20E39C81DF04507D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022698   (727585) от 03.06.2016
+
+Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dedicatoria (from Cuentos para la juventud) [00:01:48]
+02. Larghetto [00:04:45]
+03. Sempre espressive [00:02:20]
+04. Pavane pour une infante defunte [00:06:49](   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A15ECC45CB43DFE7F089DBC6758D4737E0740E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128441   (727550) от 25.04.2017
+
+VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Meditation Guru - New Age Deep Meditation
+02. Mindfulness Meditation Unit - Sun Salutation
+03. Sounds of Nature Kingdom - Cleansing Rain
+04. Sauna & Massage Academy - Serenity Falls(   Читать дальше...   )Жанр: New Age, Downtempo, ChilloutПродолжительность: 03:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A9165245911C081C82BD71C552B21D6E4E59CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128474   (727435) от 25.04.2017
+
+Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  - On To Something Good (3:48)
+02  - I Buried Your Love Alive (3:14)
+03  - Bombshell (3:17)
+04  - Weight Of The Load (3:59)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27C5C25A3DBBB7990CB4D73CB2228AF8A27A7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284646   (727426) от 22.02.2019
 
 ДиДюЛя - Седьмое чувство (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -568,174 +747,6 @@ VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023231   (724545) от 05.06.2016
-
-Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Passion to Sorrow (07:33)
-02 - Lonely (04:40)
-03 - Cheerfulness (01:18)
-04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284589   (724458) от 24.02.2019
-
-Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724458.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cast – Intro (00:20)
-2. Bradley Cooper – Black Eyes (03:03)
-3. Cast – Somewhere Over the Rainbow (Dialogue) (00:42)
-4. Cast – Fabulous French (Dialogue) (00:19)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298C227D49AA01FD9263B6F06E2F8043264AA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129209   (724371) от 27.04.2017
-
-VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healing Oriental Spa Collection - Mindful Sessions: Turkish Massage Treatment
-02. Tranquility Spa Universe - Zone of Zen Deepth
-03. Relaxing Spa Music Zone - Relaxing Nature Sounds
-04. Unforgettable Paradise SPA Music Academy - Healing Touch(   Читать дальше...   )Жанр: New Age, Meditative, RelaxПродолжительность: 03:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023169   (724250) от 05.06.2016
-
-Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе самой игры, то есть музыка была извлечена из самой игрыЖанр: SoundtrackПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023430   (724245) от 05.06.2016
-
-Argishty - Первый ереванский снег (2012) [FLAC|Lossless|tracks] <Armenian Duduk, Folk, Relax>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724245.jpg" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2012 года вышел третий альбом музыканта «Первый ереванский снег». Здесь, кроме оригинальных обработок, представлены новые авторские композиции Argishty, а также необычные сочетания дудука с такими этническими инструментами, как австралийский диджериду и индийский ситар.01. Ты, как чинара
-02. Выше Арарата
-03. Высокие горы
-04. Findjan(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53427B74A46B2ECD9800384A651A737D388937D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023385   (724241) от 05.06.2016
-
-Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе самой игры, то есть музыка была извлечена из самой игры. В стиме музыка игры продается с качеством 128 kbpsЖанр: ScoreПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00100FDB69DC858FEED3E6BA4E09F2DADDE92D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

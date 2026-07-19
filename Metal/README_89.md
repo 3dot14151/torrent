@@ -1,3 +1,119 @@
+###  Публикация: 1465136   (240347) от 25.04.2021
+
+Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nocni mura
+2. Cernobyl
+3. Z pekla a zpet
+4. Nech je vzplat(   Читать дальше...   )Жанр: Power Heavy MetalПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317393217F4BC8FDF7E038B5437ECC972B0C10E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411379   (240333) от 26.09.2020
+
+Lonewolf - Division Hades (2020) 2xCD [MP3|320 Kbps] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240333.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Last Goodbye (07:11)
+ 02. The Fallen Angel (05:36)
+ 03. Division Hades (05:47)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B4DB7CD58130AA65DD8D8FFC712B8E2E757ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411621   (240270) от 26.09.2020
+
+Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Paths of Armor  To the Last Tiger [00:06:18]
+02. The Guns at Last Light [00:05:20]
+03. An Army at Dawn [00:05:33]
+04. Goliath Revived [00:04:41](   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69861605E6703C237EEA3EB349F386F6615BCB0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466144   (240076) от 29.04.2021
+
+Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sword of the Ocean [00:04:12]
+02 - Who Goes There [00:03:23]
+03 - In Dark Memory [00:03:14]
+04 - Dying [00:04:25](   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1481359C47479B4976214E7548F1A954220D147D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565138   (239860) от 23.07.2022
 
 Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
@@ -629,122 +745,6 @@ Tons - 3 Albums (2012-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B21E239B4F4002DFEF5AA0F76F1A7BD43C08A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637281   (238232) от 06.06.2023
-
-Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eldstid
-02. Born From The Flames
-03. Voloren
-04. From The Light(   Читать дальше...   )Жанр: Power, Groove MetalПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879F5CAB7CA0ABA3F75EA7C89830260761BCA7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637204   (238225) от 06.06.2023
-
-Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illusive (06:43)
-02. Nocturnal Death (05:33)
-03. Savior (06:19)
-04. Facade (05:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F5F927918E2625663DEB1D06777D4586DC2BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445642   (238218) от 06.02.2021
-
-Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right To Rock (05:06)
- 02. Under blood Red Skies (04:22)
- 03. Riot (04:06)
- 04. Succubus (06:28)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C359CB378711B73E0D425ED628778CDE98A0CA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638154   (238137) от 07.06.2023
-
-Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Winter (05:27)
-02. Serpent And The Son (05:25)
-03. Queen Of Heaven (04:43)
-04. Song Of The Seafarers (05:52)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1382601   (819278) от 11.05.2020
-
-V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Works For Me - Send One Your Love
-02. Jon Davis - My Cherie Amour
-03. Theo Hill - Superwoman
-04. Idle Hands - You And I(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F40FDBBE08965D253A2A9610AA65B620F24D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117303   (819267) от 22.03.2017
-
-Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (1955, 1956, 1958) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819267.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Porgy And Bess:
-01.Buzzard Song [04:13]
-02.Bess, You Is My Woman Now [05:17]
-03.Gone [03:43](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEB86B2D2B8D11EFB1210F274EE27D269F8CD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117340   (819250) от 22.03.2017
-
-Jack Jezzro - Sinatra On Guitar (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly With Me
-02. You Make Me Feel So Young
-03. Strangers In The Night
-04. Fly Me To The Moon(   Читать дальше...   )Жанр: Smooth Jazz, GuitarПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF5C91B434F5DC5E032BC1599C4CA908857CC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196923   (819213) от 05.01.2018
-
-John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Difference a Day Made [02:31]
-02. Polka Dots and Moonbeams [04:19]
-03. Blow Fiddle Blow [02:50]
-04. Blue Orchids [03:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5916B988D1C8F868F4E376B852427DB34919BAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196921   (819202) от 05.01.2018
 
 Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
@@ -745,6 +629,122 @@ Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA47B896E9BB418ABC24084D01534583E8E5AE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197491   (815918) от 07.01.2018
+
+Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Graz [06:13]
+02. BC [05:14]
+03. Biru Kirusai [05:27]
+04. Dark Blue [08:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC456B9BEC8B9BE354687A3F16B1901E03BB166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197410   (815916) от 07.01.2018
+
+Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Membran [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' [02:22]
+02. Tears of a Clown [05:32]
+03. That Girl [06:06]
+04. Grand River Crossings I [00:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A52C12BCFC22B0ACB4B1A5D851620A62CC2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197406   (815912) от 07.01.2018
+
+Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stablemates [06:01]
+02. Portrait Of Jennie [07:40]
+03. There Will Never Be Another You [07:06]
+04. Getting Sentimental Over Blue [07:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA1D3BC57BE427ECA2D301D9E29079B7A071222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197485   (815817) от 07.01.2018
+
+Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love For Me [07:44]
+02. The Bee Hive [09:11]
+03. Eddie Harris [06:20]
+04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

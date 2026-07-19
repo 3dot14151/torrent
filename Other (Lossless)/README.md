@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1881211   (1076660) от 
+
+VA - The Orient Collective: Echoes in the Sand (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gavr, Tibetania - Generis Raspberry (6:07)
+02. Noam Garcia, Diego Galloso, Tibetania - La Existencia (8:32)
+03. Mortisha, Palankai, Tibetania - Tell Me (7:42)
+04. Kalico Jak, Tibetania - From the Wilds (7:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212E3CCC49A0A8A61D2FFDE52F630D442DFF1913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880200   (1076010) от 05.07.2026
+
+VA - The Orient Collective: Wisdom & Art (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Mateus - Seashore (4:25)
+02. Kaisser Bouzriba - Tounsi (5:05)
+03. Lerush - Beyond the Forest (7:18)
+04. Divenitto - Nakãya (5:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8AC028A595F53AE954201E42327E9FB9669B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878689   (1074837) от 27.06.2026
+
+VA - The Orient Collective: Drums of the Forgotten (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Crossing (7:01)
+02. Tranceq - Freedom Now (3:52)
+03. RL Music - Precious Memories (Jack Essek Remix) (6:46)
+04. Claudio Gasparini - Ultimate Reality (6:40)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDA41F41FB33F65B945A15AF9F500EBA3CD7545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877296   (1074013) от 
 
 VA - The Orient Collective: Skybound Spirits (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -659,93 +746,6 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D03F42018507C377B2D1EA259E6A359DB151BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203755   (1030357) от 19.02.2021
-
-VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Paco De Lucia - Entre Dos Aguas		      (06:01)
-02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
-03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162997   (1030334) от 19.02.2021
-
-Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cuesta Abajo (03:13)
-02.Silencio (02:42)
-03.Caminito (02:29)
-04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209363   (1030107) от 20.02.2021
-
-Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
-01. Angels (4:39)
-02. Babylon (4:08)
-03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
 ```
 
 https://mybot314.ru/tekegram_catalog/

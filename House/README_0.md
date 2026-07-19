@@ -1,3 +1,61 @@
+###  Публикация: 1866183   (1065794) от 19.04.2026
+
+VA - The Fifth Year of Stellar Black (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berdu - Elementos 07:13
+02. Damian Russo - Landing Treshold (Gareth Cole Remix) 06:25
+03. Evaki 14 & Airwave (SL) - Edge of Dissociation 06:57
+04. IVADRO - Galaxy 07:24(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE0FC72E5519069BCA78FF92BBFE81321BB77DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865764   (1065510) от 17.04.2026
+
+VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KMÖBA - Go Home 04:05
+02. Cristian Ferrer - Perfect Storm 06:09
+03. Fleanger - Pure Odyssey 04:32
+04. Nikita Marasey - Stay Human 04:13(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18B16B7024E7B50658E6CFC5EC9A892AD986721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865749   (1065509) от 17.04.2026
 
 VA - Black Hole House Music 04-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
@@ -687,64 +745,6 @@ VA - Ultimate Dance 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D1822D51395935C38F76288B62E5271D8DDD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854556   (1057569) от 18.02.2026
-
-VA - Dance Report, Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann - Away (Original Mix) (3:20)
-02. Chris Simmons - My Heart (Original Mix) (4:15)
-03. Josh Gardner - Let Me Feel (Original Mix) (3:17)
-04. NDEE & ROOMS - Antidote (Extended Mix) (3:20)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A017D5759D397F3B7153C79A2412CADB48085BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854053   (1057155) от 15.02.2026
-
-VA - Top 20 Melodic Techno 2026 February (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacoob - Indeleble (Extended Mix) [7:02]
-02. Milad E - Echo Dimension (Extended Mix) [5:29]
-03. Mata - I Am Persian (Extended Mix) [5:04]
-04. Alton - Between Us (Extended Mix) [4:19](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:58 :29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420FD0C4633C4268AEDD78F5E5B5C37DDCB8F2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

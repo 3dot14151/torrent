@@ -1,119 +1,3 @@
-###  Публикация: 1023439   (724416) от 05.06.2016
-
-Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fool Never Learns
-02. Moon River
-03. Happy Heart
-04. Can't Get Used To Losing You(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AB5135CEEBC77A15B0251152BD296C40272832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023514   (724400) от 05.06.2016
-
-Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream A Little Dream (3:37)
-02. Caravane (4:26)
-03. Quizas, Quizas, Quizas (3:24)
-04. It's Crazy (4:04)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667951   (723558) от 15.06.2013
-
-Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Andy Summers & Robert Fripp - I Advance Masked (1982):
-Andy Summers & Robert Fripp - Bewitched (1984):
-Andy Summers - XYZ (1987):(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 12:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218195   (723404) от 09.04.2018
-
-Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <Organ Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Champ [13:03]
-02. When You're Smilin' [07:17]
-03. The Good Life [08:37]
-04. Back Home Again in Indiana [10:56](   Читать дальше...   )Жанр: Organ Jazz, Soul-JazzПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218422   (723401) от 09.04.2018
 
 Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +629,122 @@ Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129599   (720806) от 29.04.2017
+
+Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Song [04:30]
+02. Mercy, Mercy, Mercy [05:19]
+03. This Here [10:14]
+04. Money In The Pocket [10:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129590   (720797) от 29.04.2017
+
+Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Popo [03:02]
+02. Over the Rainbow [03:01]
+03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024066   (720693) от 07.06.2016
+
+Stanley Turrentine - Hustlin' (1964) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Trouble (No. 2) [07:52]
+ 02.Love Letters [07:40]
+ 03.The Hustler [06:04]
+ 04.Ladyfingers [06:26](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E71469FF9E7600D99C65272669B59FA47B4D084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024073   (720570) от 07.06.2016
+
+Mongo Santamaria - Mr. Watermelon Man & La Bamba (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Bamba [04:01]
+ 02.Fat Back [03:20]
+ 03.Summertime [04:46]
+ 04.Manha De Carnaval (Morning Of The Carnival) (From 'Black Orpheus') [04:50](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D8A7DAE71179B20821711564A24277A55045B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

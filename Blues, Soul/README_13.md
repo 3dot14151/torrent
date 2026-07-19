@@ -1,3 +1,61 @@
+###  Публикация: 1029976   (674808) от 30.06.2016
+
+Bourbon Alley - Bourbon Alley (2016) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Hundred Times (02:26)
+02. 57 Chevy (04:56)
+03. A Girl Called Gasoline (04:04)
+04. Man In A Suit (03:41)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD4D5515AFC81D0BC3B72812759CD441AD4B948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029938   (674420) от 30.06.2016
+
+Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got No Place To Go
+02. Something's Changed
+03. Live It Up
+04. Addicted To Your Love(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4432A90A33B9AF0A6AB49163A191F9F0D7E2D7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290851   (674327) от 22.03.2019
 
 Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -690,64 +748,6 @@ Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB243266D76341C2016D4781E0B04898DD157C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904851   (653550) от 04.06.2015
-
-Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Put A Spell On You (3:04)
-02. Because Of You (2:40)
-03. Don't Deceive Me (3:47)
-04. I Don't Know (3:35)(   Читать дальше...   )Жанр: Blues Soul, R&BПродолжительность: 01:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8D860C8578339C9AF4F16498A5004FA0E0A7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905071   (653545) от 04.06.2015
-
-Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mojo Working (3:49)
-02. Steppin' Out (Unplugged) (3:28)
-03. Down Home Blues (Unplugged) (5:10)
-04. Mustang Sally (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD27301AB0BC96E455E9D0364A0ED1A34AEEA782
 ```
 
 https://mybot314.ru/tekegram_catalog/

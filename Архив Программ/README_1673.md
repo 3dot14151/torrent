@@ -1,3 +1,32 @@
+###  Публикация: 1585875   (218594) от 24.10.2022
+
+Windows 11 22H2 x64 Rus by OneSmiLe [22621.870]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_11_business_editions_version_22h2_updated_oct_2022_x64_dvd_d03eb378
+Удалены все модерн приложения.
+3 образа системы -(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4363D5203E5BEFC66BEFB6DACD998A1837DF300F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514207   (218578) от 02.12.2021
 
 Download Master 6.23.1.1681 RePack (&Portable) by KpoJIuK [Multi/Ru]
@@ -648,32 +677,6 @@ Vivaldi 1.6.689.40 Final [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB704CF5E3BED81E226F296A37256930C5068E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586210   (218174) от 25.10.2022
-
-Macrorit Partition Expert 6.4.0 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B716D870786F2F31547B6F8BD665BC99EA8E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

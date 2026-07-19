@@ -1,3 +1,120 @@
+###  Публикация: 351099   (816616) от 29.03.2015
+
+The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Classic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816616.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Greenhornes - американская группа, играющая в стиле гаражный рок, из Цинциннати, Огайо. Ясно и просто, в стиле The Rolling Stones.Список альбомов:
+1999 - Gun For You
+2001 - The Greenhornes
+2002 - Dual Mono
+2010 - Four Stars(   Читать дальше...   )Жанр: Classic Rock, Garage RockПродолжительность: 04:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504068   (816132) от 21.10.2021
+
+flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instrumental, Indie Rock, Ambient Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaching out (2:49 AM) (8:51)
+02. Barbara (3:33 AM) (9:17)
+03. A haven and a jail (4:00 AM) (6:39)
+04. Dawn at the gates (5:25 AM) (6:37)(   Читать дальше...   )Жанр: Post Rock, Instrumental, Indie Rock, Ambient RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC9399F5612792A87A85F509B25E85FAACCB860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197635   (813924) от 08.01.2018
+
+Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angry Heart
+02. Sleeping Lions
+03. Suffer
+04. Nothing to Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Hard RockПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7E6979DCBA17B6A7C7BD8470124990949D3820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383307   (813751) от 14.05.2020
+
+Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Life (03:53)
+02. Describe (04:44)
+03. Without You (02:35)
+04. Jason (03:05)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226B4916AD29F0D27CC7D20E895D7AE5D0457BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883392   (812666) от 31.03.2015
 
 Linkin Park - Hybrid Theory (2002) 2CD Special Edition [FLAC|Lossless]<Alternative>
@@ -629,122 +746,6 @@ Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011372   (796298) от 28.04.2016
-
-Blue October - Home (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coal Makes Diamonds
-02. Driver
-03. Heart Go Bang
-04. I Want It(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A352DA0A1C1D2C18E0C0B11AFFADE34B6B078582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508896   (796278) от 10.11.2021
-
-Emma Ruth Rundle - Engine of Hell (2021) [FLAC|Lossless|tracks + .cue] <Post Rock, Experimental, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return (05:16)
- 02. Blooms of Oblivion (05:39)
- 03. Body (05:27)
- 04. The Company (04:12)(   Читать дальше...   )Жанр: Post Rock, Experimental, AlternativeПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5A10EA61C91E8E954E22C175BD6E602C11DFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508999   (795480) от 11.11.2021
-
-Radiohead - Kid A Mnesia (2021) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, IDM>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Spinning Plates ('Why Us?' Version) (05:05)
- 02. Untitled V1 (01:49)
- 03. Fog (Again Again Version) (02:25)
- 04. If You Say The Word (04:23)(   Читать дальше...   )Жанр: Alternative Rock, IDMПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D13C1FCAAB444B994A1814E0CFBE64F6B806F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011847   (795456) от 29.04.2016
-
-The Gathering - Nighttime Birds (1997) 2CD remastered, 2008, limited edition [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On Most Surfaces (Inuit)  6:55
-02.  Confusion  6:33
-03.  The May Song  3:45
-04.  The Earth Is My Witness  5:31(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5550B43DF2C9FD552F1E3D7EC24D576F9F5CE23
 ```
 
 https://mybot314.ru/tekegram_catalog/

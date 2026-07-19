@@ -1,3 +1,29 @@
+###  Публикация: 1397566   (739701) от 21.07.2020
+
+CCleaner 5.69.7865 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739701.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCA8198600B549B101645819F0C61ED39D23C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283658   (739663) от 17.02.2019
 
 GoodSync Enterprise 10.9.24.4 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -649,33 +675,6 @@ CCleaner - утилита для чистки мусора в операцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E34A1D74F2748D7A59477BF81DEA7E9CD4757F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526494   (738387) от 24.01.2022
-
-Mozilla FireFox 96.0.2.8054 Portable by JolyAnderson [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla FireFox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
-Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A4EAB10E7A2C7C07C6B8D5ABDFE7F4B1467ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

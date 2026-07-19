@@ -1,38 +1,3 @@
-###  Публикация: 517738   (647528) от 01.07.2012
-
-Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earlybird (4:01)
- 02. Extractus (1:38)
- 03. Sackbutt (1:53)
- 04. Colossus (6:35)
- 05. Batty Loop (1:13)
- 06. Splendid (3:46)
- 07. Repeat After Me (7:39)
- 08. Elsewhere (4:19)
- 09. Here's One I Made Earlier (5:42)
- 10. Midnite Or So (3:34)(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517563   (647393) от 01.07.2012
 
 Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
@@ -763,6 +728,41 @@ Skraeckoedlan - Sagor (2015) [MP3|320 кб/с]<Progressive Rock / Stoner / Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87BE46F1977313A97CDDE25558B9D463C1234B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518782   (639511) от 05.07.2012
+
+2:54 - 2:54 (2012) [MP3|320 kbps] <Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolving (04:01)
+02. You're Early (04:08)
+03. Easy Undercover (03:44)
+04. A Salute (04:24)
+05. Scarlet (04:40)
+06. Sugar (04:06)
+07. Circuitry (04:11)
+08. Watcher (04:26)
+09. Ride (03:23)
+10. Creeping (04:54)Жанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F200AF486D3C50B2C03FFFF0830A091052484205
 ```
 
 https://mybot314.ru/tekegram_catalog/

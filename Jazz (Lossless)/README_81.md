@@ -1,119 +1,3 @@
-###  Публикация: 1208198   (780122) от 21.02.2018
-
-Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I (For Kenny Wheeler): Ouverture [01:17]
-02. Part I (For Kenny Wheeler): Starbright [15:26]
-03. Part II (For Jan Jarczyk): To Jan [06:21]
-04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208187   (780121) от 21.02.2018
-
-Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Worry About A Thing [02:19]
-02. It Didn't Turn Out That Way [02:44]
-03. Your Mind Is On Vacation [02:38]
-04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208193   (780118) от 21.02.2018
-
-Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [02:19]
-02. Song for Carabello [05:15]
-03. Surrender Song [07:05]
-04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208340   (780108) от 21.02.2018
-
-Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Now Is Our Time
-02 – Traveling (In Time And Space)
-03 – Variations On Longing
-04 – Mirrors(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208460   (780002) от 22.02.2018
 
 Louisiana Rhythm Kings - 1929 - 1930 (2003) Classics [FLAC|Lossless|image + .cue] <Swing>
@@ -745,6 +629,122 @@ Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013196   (777998) от 03.05.2016
+
+VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Toots Thielemans - Best of Yourself [05:22]
+02.David Linx & Brussels Jazz Orchestra - Fraternity [05:02]
+03.Philip Catherine - Friendship [04:04]
+04.Nathalie Loriers Trio - Confidence [05:24](   Читать дальше...   )Жанр: Post-Bop, Big Band, Smooth Jazz, Vocal JazzПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48741503701EAB4470CB85304BF430E5FEFFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012995   (777996) от 03.05.2016
+
+Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Back Home
+02. Joers Tune
+03. Someday Werll All Be Free
+04. Butterfly(   Читать дальше...   )Жанр: FusionПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA9B39D8D293607CE81ED2A84DF3603397A945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012999   (777992) от 03.05.2016
+
+Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Me Blues
+02. Full Circle
+03. Sneaky Pete
+04. Saturday Night In The Village(   Читать дальше...   )Жанр: Bop, Post BopПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A44B1DA36FB91CFFF75FF02E401AA33FE972AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013123   (777990) от 03.05.2016
+
+Natalia M. King - Bluezzin T'il Dawn (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traces In The Sand
+02. Don't Explain
+03. Insatiable
+04. This Time Around(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15DD8D867A9F2693D15EFE1C224CEC616C5C9A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

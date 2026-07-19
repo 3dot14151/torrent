@@ -1,3 +1,29 @@
+###  Публикация: 1360961   (957860) от 17.02.2020
+
+ВидеоМОНТАЖ 8.51 RePack (& Portable) by TryRooM [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957860.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкойЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C385B31F42722C05E5E64019CDB5B0AB21BD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360901   (957859) от 17.02.2020
 
 Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5172.1000 VL (x86) RePack by SPecialiST v20.2 [Ru/En]
@@ -678,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF63EE8592A863832368F10AF128411A35967A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979753   (957400) от 28.01.2016
-
-VA - Liquidation, Vol. 3 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lurch - I Can't Lose You (L-Side Remix)
-02. GLXY - Want U
-03. Madface - Many Lies (VIP)
-04. Variants - I Need(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BC7A1E0A03064B4C4E4E9086A2681CA634B49B
 ```
 
 https://mybot314.ru/tekegram_catalog/

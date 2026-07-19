@@ -1,3 +1,32 @@
+###  Публикация: 1068634   (380273) от 01.11.2016
+
+Вадим Козин - К 100-летию со дня рождения (2003) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Любушка
+ 02 - Маша
+ 03 - Осень
+ 04 - Мой костер(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250957   (379847) от 28.10.2010
 
 VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
@@ -740,40 +769,6 @@ VA - Русская дискотека 70-х (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85EA59B9A79D155851FC568FB67A54A71522A8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583331   (312666) от 02.12.2012
-
-Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch My Soul (To Sai Baba) 7:31
-02. Avedana (Instrumental) 4:20
-03. Life Will Go On 4:12
-04. He Came From Space 4:29
-05. And At The End Of Every Street 4:02
-06. Children Of Our Time 4:15
-07. And One Day 5:05
-08. Closer To Heaven 5:13
-09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

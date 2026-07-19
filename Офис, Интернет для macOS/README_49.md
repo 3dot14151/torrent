@@ -1,32 +1,3 @@
-###  Публикация: 1087102   (148379) от 26.12.2016
-
-Letter Templates for Pages 4.1.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Letter Templates – это новый вид ваших документов, созданных в Pages.
-Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
-
-Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F01F06A90B49A8DC93E01146F3E721918DAEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519466   (148192) от 24.12.2021
 
 PDF Office Max: Acrobat Expert 7.1.5 [En]
@@ -688,6 +659,32 @@ Net Worth Pro - отслеживайте свою чистую стоимост�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3772E8843D1C41844EFBDC02EF38DA9E0D629DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435738   (142722) от 29.12.2020
+
+Zee Timer 7.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный мульти-таймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2020Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1297CEC3E0337DFD38D1B7CD1D12C70D130DEB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

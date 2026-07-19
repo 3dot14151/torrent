@@ -1,3 +1,90 @@
+###  Публикация: 1543418   (625787) от 13.04.2022
+
+VA - Svanrenne Music: Russian Subterranean Doom Metal (2022) [MP3|320 Kbps] <Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625787.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Crunch - Future Power [00:05:34]
+002 Anal Pus - Unsurmountable Exhaustion of Disentombed... [00:04:41]
+003 Well Done Beat - My Chrystally Charred Rain [00:03:36]
+004 Painful Memories – Why- [00:11:00](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 13:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDB2D71DCF4146E5C852F4992DF5B8C9A5CC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294766   (625589) от 09.04.2019
+
+VA - The Best Of The Rock`s #1 (2019) [MP3|320 Kbps] <Rock, Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Cranberries - Zombie
+002. The Rolling Stones - Anybody Seen My Baby
+003. Dire Straits - Money For Nothing
+004. Aerosmith - Amazing(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 07:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11092A19DBE3C58FC40DA8ED56467E5B1AA9079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543796   (625410) от 13.04.2022
+
+Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead End Road
+02. All Night Long
+03. Sometimes
+04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909814   (625395) от 18.06.2015
 
 VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 кб/с]<Rock>
@@ -664,93 +751,6 @@ VA - NDH 3 (2022) [MP3|112-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC15EC4A638ABD0E3D5D909C0AE5E7801CB0FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548742   (594858) от 05.05.2022
-
-VA - NDH 2 (2022) [MP3|271-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gothminister - Ich will alles (3:50)
-2. In Extremo - Чёрный ворон (3:44)
-3. Death Therapy - The Vice of Voices (2:46)
-4. Die Krupps - Vision 2020 Vision (4:23)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86987F3477A06B2C32E645E919AC06EABE66EF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549768   (592887) от 08.05.2022
-
-VA - Rebel Rock Fest (Vol.03) (2022) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий релиз рок-сборника, как и его предшественники, порадует слушателя смелой, ритмичной, а порой и агрессивной музыкой! Музыкой наполненной особым смыслом. Тексты рок-песен имеют своеобразный язык и обязательную смысловую наполненность. Яркие метафоры, актуальные темы, философские размышления — все это вы найдете на треках представляемого сборника!001. Wvnder - I Don't Think So
-002. Catapults - Open The Blinds
-003. Time Traveller - No Gravity
-004. Suzi Quatro - You Can't Dream It(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A489A43E2BC5EB3DDE335BEFB0C33C1C1C6030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549783   (592847) от 08.05.2022
-
-VA - The Romantic (2022) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "The Romantic" погрузит слушателей в атмосферу остановившегося времени и настоящих эмоций. Это самобытные и душевные композиции. Признания в любви, что может быть искренне этих слов? Что может быть романтичнее и притягательнее? Только голос, произносящий эти строки под проникновенную музыку.001. Advance Base - Sweet Old World
-002. Delta Sleep - Planet Fantastic
-003. Woolfy - Shooting Stars
-004. Kevin Morby - Sundowner(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320079BE20555D8BD6A2CF243ED90EB399126811
 ```
 
 https://mybot314.ru/tekegram_catalog/

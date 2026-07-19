@@ -1,3 +1,174 @@
+###  Публикация: 1096679   (911761) от 28.01.2017
+
+Машина Времени - Концерт в Киеве 2012 (2014) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица людей. (   Читать дальше...   )Производство: CD LAND/Sintez RecordsЖанр: МузыкаРежиссер: Герман СадченковПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59C4EDA4CC40472CCE5121E44DCD63B323F7216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990445   (911715) от 25.02.2016
+
+Shania Twain - UP! Close & Personal (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	I'm Gonna Getcha Good!
+2	Ain't No Particular Way
+3	From This Moment On
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BB855D5E16B4EE367A2BBE179DA9126A5DA44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989610   (911625) от 25.02.2016
+
+Shania Twain - LIVE (1999) Come On Over, DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	You Win My Love
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243AEB90D0BA91E864008650CA168BF66B44524E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990195   (911616) от 25.02.2016
+
+Shania Twain - The Platinum Collection (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	What Made You Say That
+2	Dance With The One That Brought You
+3	You Lay A Whole Lot Of Love On Me
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country, Pop, Rock.Продолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BE4BF66D410451215F2953D81F5B40ADDBB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990261   (911603) от 25.02.2016
+
+Shania Twain - UP! Live In Chicago (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Up!
+3	Honey, I'm Home
+4	She's Not Just A Pretty Face(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD9E0BD15DF352A8F8292F4A18C65A591EED51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989811   (911599) от 25.02.2016
+
+Shania Twain - The Specials (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	All I Have To Give (Featuring Backstreet Boys)
+4	You're Still The One/Something About The Way You Look Tonight (	Featuring Elton John)(   Читать дальше...   )Жанр: Country, Rock, PopПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8C4E8FB9856D9738CB2161DAB73A3B206038FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761949   (911550) от 03.02.2015
 
 Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
@@ -538,170 +709,6 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635887   (907649) от 27.03.2013
-
-Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635833   (907461) от 27.03.2013
-
-Louna - Проснись и Пой! (live) (2013) 2*DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1:
-01. Проснись и пой
-02. Кризис Крайст Суперстар
-03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990276   (907446) от 27.02.2016
-
-VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение коллекции клипов в авто.Часть 4.
-Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
-Kelis - Acapella.avi
-Kelly Clarkson - Heartbeat Song.avi
-Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368771   (907183) от 21.03.2020
-
-Квартирник НТВ у Маргулиса. Manizha (20.03.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — обворожительная Manizha. Она с улыбкой называет себя нежным камнем и на собственном примере разрушает стереотип о том, что нужно быть под покровительством продюсера или лейбла, чтобы добиться успеха. Она завоевала бешеную популярность и любовь слушателей после того, как начала публиковать в Instagram авторские музыкальные ролики-коллажи. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DE1F7E60538F22FC99593EED54CAF32ACBB23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635733   (907129) от 27.03.2013
-
-Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dubstep ViolinПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099142   (906869) от 31.01.2017
-
-Ольга Стельмах - Завяжи мне глаза (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певица и композитор из Москвы Ольга Стельмах в 2007 г. была удостоена премии «Шансон года».
- В предлагаемом фильме собраны лучшие песни певицы. Программа названа по песне, которая была написана Ольгой Стельмах на стихи Михаила Танича «Завяжи мне глаза» - заглавная песня к кинофильму «Семейный ужин». Впервые для видео исполняется уже ставшая известной по радиоэфиру (   Читать дальше...   )Производство: студия "Ночное Такси" г.Санкт - ПетербургЖанр: Музыкальный, КонцертПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFEDC60652CD299F0AEDC0192F1F4DD92B442A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

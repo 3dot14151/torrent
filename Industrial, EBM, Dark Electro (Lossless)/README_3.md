@@ -1,3 +1,32 @@
+###  Публикация: 1545592   (611238) от 21.04.2022
+
+Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Silence 02:18
+02 Burn 04:53
+03 Spindeln 04:10
+04 LIES 05:02(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390ADB4389BBAB0C88A0F4A701D367ED0EB62E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545596   (609511) от 22.04.2022
 
 Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
@@ -722,35 +751,6 @@ Phubber - Phun (2019) FunctionLab [FLAC|Lossless|WEB-DL|tracks] <Experimental, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:786C8A4580309F03AD7FB197BB0FFA033C316880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044154   (482850) от 30.08.2020
-
-Karloz Manufactura (Broken Fabiola, Industria Secundaria, Stranger Dreams) - 25 Releases (2002-2020) Auricle Media, Crunch Pod [FLAC|Lossless] <Rhythmic Noise, Industrial, Experimental, IDM, Amb ...
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reckless Child (03:06)
- 02. Upon Her Drowning (03:30)
- 03. Captive (04:07)
- 04. My Mark On You (03:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Industrial, Experimental, IDM, Dark Ambient •Продолжительность: 28:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353214F1D7DBC30BD726563B394B87C96D1C9F09
 ```
 
 https://mybot314.ru/tekegram_catalog/

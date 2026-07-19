@@ -1,32 +1,3 @@
-###  Публикация: 1239501   (538982) от 05.08.2018
-
-Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (06:24)
-02. Hold Me Tigh (07:03)
-03. Call Me (07:02)
-04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239414   (538873) от 05.08.2018
 
 VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
@@ -751,6 +722,35 @@ King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318285   (496586) от 05.08.2019
+
+Tight Fit - The Lion Sleeps Tonight (1982) Vinyl Rip [MP3|320 Kbps] <Pop, Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion Sleeps Tonight    [03:29]
+02. Fantasy Island    [03:36]
+03. Hearts Of Stone    [04:09]
+04. Break Hearts Of Glass    [03:21](   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E636F0F46CD90385B1875C26035B0E6FDB8CB0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

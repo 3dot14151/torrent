@@ -1,3 +1,61 @@
+###  Публикация: 1283570   (739730) от 17.02.2019
+
+We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over Pale Waters
+02. Alone Against the World
+03. Predators
+04. Where the Mountain Stands(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AFA24FEEF0492A2B2E0F6AF084D3B91645C94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785314   (739046) от 11.05.2014
+
+Buzzcocks - The Way (2014) [MP3|320 кб/с]<Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep on Believing 2:52
+02. People are Strange Machines 3:29
+03. The Way 3:10
+04. In the Back 3:39(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C661DAC7406AB671D8FEDBA87525754B996FEE10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785219   (738973) от 11.05.2014
 
 The Clash - Hits Back (2013) 2 СD [MP3|320 Kbps] <Punk Rock>
@@ -693,64 +751,6 @@ Strangers - Mirrorland (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34999B19DEEB6CA2F926D5B207573195F6F25122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909212   (708563) от 05.05.2017
-
-Slaughter To Prevail - 1 альбом + 1 EP (2016-2017) [MP3|320 кб/с]<Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery Sermon
-02. Russian Hate
-03. Chronic Slaughter
-04. King(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A126F1DB09F56025ED91770DBD8B9EA81AEF003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131511   (708428) от 05.05.2017
-
-Kasabian - For Crying Out Loud (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Ray (The King) (03:40)
- 02. You're In Love With a Psycho (03:36)
- 03. Twentyfourseven (03:02)
- 04. Good Fight (03:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:09:07 (00:51:04 + 01:18:03)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14309C418C776BE5B15E4C126C2D42753298043D
 ```
 
 https://mybot314.ru/tekegram_catalog/

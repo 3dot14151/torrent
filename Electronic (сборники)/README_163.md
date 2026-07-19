@@ -1,3 +1,239 @@
+###  Публикация: 1178552   (355939) от 28.10.2017
+
+VA - Melodic Techno Tom III [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Huntemann - Vertigo [05:41]
+02. Glenn Morrison - Twisted [06:13]
+03. Hans Zimmer - Time (Nihilum Remix) [06:47]
+04. Mashk & Soul Button - Pensees [07:36](   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97FAE2C4BE92804B501882F6A3CFC24DE2ADBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952122   (355891) от 01.11.2015
+
+VA - TOP 100 Club Tracks (October) (2015) [MP3|320 кб/с]<Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6A - Gwen Stefani - Hollaback Girl (DJ Max Maiskii Edit)
+02. ABBA - Gimme gimme gimme (FuzzDead remix)
+03. Abel Almena - Damager (Original Mix)
+04. Ace Of Base & Alex Slam - All That She Wants (D' Luxe Mash Up)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0D1F6910A91F6F444CD6AFA76C35BF394BC94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578098   (355798) от 20.11.2012
+
+VA - Trance Maniacs Party: Trancefer Wave #116 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355798.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Trancefer Wave #116 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 03:11:39Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+
+001. Running Man pres. Inca - Freefall (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05381D6E1DB21383266ADA585DEF0F1AD080A73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072248   (355019) от 12.11.2016
+
+VA - Deep Temptation: House Party (2016) [MP3|320 Kbps] <House, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominique Dalamont - Summer Night (Summertime Mix) 5:31
+002. Jon Cage - On Top Of The World 3:14
+003. Tommie Woods - House Organ 5:21
+004. Deep Night Beats - Night Beats (Deep Loop Mix) 5:23(   Читать дальше...   )Жанр: House, Deep House, ElectroПродолжительность: 10:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86079397B917B619FD675AF5FDF94F235B9ADB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072224   (354877) от 12.11.2016
+
+VA - The Best - In Music We Trust  Vol.11 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart Claessen - Fonky Flanger (Original Mix) 4:54
+02. Calvin Harris & Florence Welch ft. Sini - Sweet Jack (Herbee Mashup) 3:28
+03. ATB - Flash X (James Egbert Remix) 4:41
+04. Rimsky - Korolev (Extended Mix) 4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A640A10EE716F45DAFB97BB23B194FF9EF842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072004   (354784) от 12.11.2016
+
+VA - Zwei Tage Dubstep: Chart DE (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Technimatic - Leave It Unsaid
+002. Monty - Breath In the Frequencies
+003. 3D Stas - 404 Keeps Me Alive
+004. 1.8.7. Deathstep - Cataclysm(   Читать дальше...   )Жанр: Dubstep, Drumm And BassПродолжительность: 14:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB9981D62873FD1A204514FFA5226A4DACA701D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072165   (354693) от 12.11.2016
+
+VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future House, Stadium Trance, Bigroom, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MATTN & Futuristic Polar Bears - Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) 3:45
+002. Kaion & Daav One - Sirius (Extended Mix) 6:17
+003. Luca Testa & Kuka - Feel The Party (Original Mix) 4:41
+004. Jewelz & Sparks - Drip (Extended Mix) 3:30(   Читать дальше...   )Жанр: House, Future House, Stadium Trance, Bigroom, Club, DanceПродолжительность: 08:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898704F8F07D29B11928383DB8ABD34E1E75BF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256581   (354426) от 22.10.2018
+
+Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingsha - Niavara
+02. Sunlounger feat. Eller van Buuren - Catwalk
+03. Black Pearl - Coral Sea
+04. Magic Wave - Galapagos (DJ Shah & Ralph Fritsch Tribute Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AC1BB2B8A215ABF34A1AC83C08081DC5169377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256557   (354409) от 22.10.2018
 
 VA - Record Super Chart 558 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -519,244 +755,6 @@ VA - Sense Of Trance #44 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2623AFC4C2CFBAABDD1C3A1072774C17E571E221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577079   (353275) от 21.11.2012
-
-VA - Dubstep 2012 vol.2 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 501 - Feel For You
-02. Michael White & Appaerance - Need Of Time (Original Mix)
-03. Clockwork-Titan (LabRat Remix)
-04. Eva Simons - Renegade (James Egbert Remix)
-05. LabRat-Stardust
-06. Curious Kontrol - Best Of Times
-07. Diamond Eyes - Nine Fifteen (Curious Kontrol Remix)
-08. Krewella-Alive (Pegboard Nerds Remix)
-09. Back From The Future - Wide Awake by Back From The Future - Dubstep.NET Exclusive
-10. Krewella - One Minute (Culture Code Remix)Жанр: DubstepПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F23D52C9B54D79B75DCC003BFF22173045B960A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072544   (352498) от 13.11.2016
-
-VA - Club Dance Ambience Vol.93 (2016) [MP3|320 Kbps] <Dance, Club, Club House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Antoine Clamaran, Agua Sin Gas - Comin' (Original Mix) 5:51
-002.Alex Blue - Still Losing Control (Tropical Mix) 4:30
-003.Alex Indigo - Xo4y (Niral Remix) 6:01
-004.AlunaGeorge & A - One - Not Above Love (DJ Vadim Adamov Mash UP) 3:58(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E9A1EF0B03D5D055DD4281E46CF1C5C5B32BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072574   (352485) от 13.11.2016
-
-VA - Dance Club Hits (2016) [MP3|169-320 Kbps] <Dance, Club, Eurodance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352485.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Dean Meets Bastian Basic - Music 4 Freedom (Extended Mix) 08:22
-002. Sito & Cheka - I Dont Like It 06:38
-003. Daniel Altadill - Clarividence (Original Mix) 06:32
-004. Cantarutti & Finn - Out Of Touch (Jay Frog Remix) 06:25(   Читать дальше...   )Жанр: Dance, Club, EurodanceПродолжительность: 08:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091288D09156407863D6F6863C7A863E6274CCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256715   (351986) от 23.10.2018
-
-VA - Autumn Mood: Ambient Serene Music (2018) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351986.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Fx - A Man Who Stands
-002. Alpha And Omega - Leafing Through The Memories
-003. Inward Universe - Residues Lives
-004. Spirrin - Legacy(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxПродолжительность: 09:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAF0F1C9701C0443A88E05804718C558DCBA487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256716   (351896) от 23.10.2018
-
-VA - Chill A Tropical Delight (2018) [MP3|320 Kbps] <Chillout, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jens Buchert - Gravity
-002. Koda - Mikis (Original Mix)
-003. Lionel Indies - Rose (Original Mix)
-004. Aether - Flower In Winter(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 11:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A77121FCF34A2DCCC38A2D53E061936C0546E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952485   (351793) от 03.11.2015
-
-VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einstein Doctor DJ - Back From Galaktica (05:58)
-02. Nostrum - Acid House (06:49)
-03. Wax Scientists - It's Time For House (05:36)
-04. DJ Khetama - Green Flow (05:54)(   Читать дальше...   )Жанр: Electronic, Hard Trance, Euro HouseПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1C5EE523DD0665262B138429A3DEFFB60AB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953122   (351792) от 03.11.2015
-
-VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diroma, Frystal Dj - Minimal Self 05:22
-002. Ian Page - So Deep, So Mean (FAWX Remix) 03:53
-003. Technasia & Green Velvet - Suga (Original Mix) 06:42
-004. Leechy Alexej - Minimal Balkan (Paul Haro Remix) 07:18(   Читать дальше...   )Жанр: Minimal House, Techno HouseПродолжительность: 10:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952971   (351791) от 03.11.2015
-
-VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lessovsky - Far Away (6:18)
-02. Aamon - Hidden Emotions (5:28)
-03. In-Deed - Feeling Good (7:00)
-04. Jacek Janicki - The World Without You - Bara Brost Remix (7:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
 ```
 
 https://mybot314.ru/tekegram_catalog/

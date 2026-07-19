@@ -1,3 +1,148 @@
+###  Публикация: 1432973   (162077) от 19.12.2020
+
+Олег Винник - 3 Альбома (2013- 2018) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Як жити без тебе
+02. Біла голубка
+03. Золота
+04. Мати каже правду(   Читать дальше...   )Жанр: РорПродолжительность: 02:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517846   (161582) от 17.12.2021
+
+Lian Ross - The Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s up to You (Love Call Version)
+02. Magic Moment
+03. I Need You by My Side
+04. Hurt(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F138368D37C0801AF603CE8661A7064E9891B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433317   (161422) от 20.12.2020
+
+Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rio
+2. Hbls Mucho
+3. Al Fondo de Mi
+4. Puro Pasado(   Читать дальше...   )Жанр: Latin, Indie, Folk, PopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433305   (161077) от 20.12.2020
+
+Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldier of Love (6:17)
+ 02. Skin (3:57)
+ 03. Kiss of Life (5:04)
+ 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518125   (161047) от 18.12.2021
+
+Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Forbidden City
+02.For You
+03.Dark Angel
+04.One Day(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB923C561E4F036126B297B0216D1451429EE524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592175   (160900) от 05.11.2023
 
 VA - 130 Original Hits - 70's (2009) 6CD[FLAC|Lossless]<Pop, Rock>
@@ -603,151 +748,6 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32250836F3A7F1415FF5A32E895ABF1813875F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433909   (153391) от 23.12.2020
-
-Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTF Do I Know
-02. Plastic Hearts
-03. Angels Like You
-04. Prisoner (feat. Dua Lipa)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1A59613F1B54D2B9E04C2545F1AA452992C59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707577   (152842) от 23.12.2020
-
-VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя он уже был на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. После серии номерных сборников шведы выстрелили  сборником самых последних "свеженьких" хитов осени 2013.01. Ellie Goulding - Burn (Tiestos Club Life Remix) (5:16)
-02. Avicii - Wake Me Up (Speed Remix) (7:02)
-03. Robin Thicke Feat. Pharrell - Blurred Lines (3:50)
-04. Naughty Boy Feat. Sam Smith - La La La (3:38)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F483275503240F2B5ED2E50E0B0DA37AA51149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086121   (152777) от 24.12.2016
-
-Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Lossless|image + .cue] <Pop, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake Up Christmas (3:47)
-02. I Believe In Father Christmas (3:02)
-03. Have Yourself A Merry Little Christmas (Duet with Kim Wilde) (2:35)
-04. Santa Claus Is Coming To Town (2:57)(   Читать дальше...   )Жанр: Pop, Holiday, ChristmasПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379B6AC52EF4166C66EB7B9FB09ED54D8EEDE9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085881   (152689) от 24.12.2016
-
-VA - RTL Weihnachten (2014) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Rock, Jazz, Classics>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Connor & The Felicia Taylor Gospel Choir - The Best Side Of Life (2006) - 3:49
-02. Melanie Thornton - Wonderful Dream (Holidays Are Coming) (Radio Version) (2001) - 3:52
-03. Band Aid - Do They Know It's Christmas? (1984 Version) (1984) - 3:49
-04. Chris Rea - Driving Home For Christmas (1986) - 3:58(   Читать дальше...   )Жанр: Christmas, Holiday, Pop, Rock, Funk & Soul, Pop Rock, Soft Rock, Folk, Jazz, ClassicsПродолжительность: 03:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2B9715F1B61BEF586F7D37A7937EA17A91C580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086206   (152588) от 24.12.2016
-
-Sarah McLachlan - Wonderland (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Christmas Song (3:19)
-02. Angels We Have Heard On High (3:39)
-03. Let It Snow (3:05)
-04. White Christmas (2:23)(   Читать дальше...   )Жанр: Pop, Folk, Holiday, Christmas, Ballad, VocalПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9864AE4E9E90914AB353AE67EA58D0039A0F1BF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

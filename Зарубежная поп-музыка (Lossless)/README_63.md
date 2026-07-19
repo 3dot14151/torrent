@@ -1,3 +1,146 @@
+###  Публикация: 1253466   (381693) от 10.10.2018
+
+Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image + .cue] <Classical, RnB/Swing, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Everything's Gonna Be Alright (Radio Version 85 Bpm)
+2.	Everything's Gonna Be Alright (Video Version 88 Bpm)
+3.	Everything's Gonna Be Alright (Geo's "E" Club Mix)
+4.	Everything's Gonna Be Alright (Classic Version)(   Читать дальше...   )Жанр: Classical, RnB/Swing, Hip HopПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253355   (381689) от 10.10.2018
+
+BZN  - A Symphonic Night (1996) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.		Sing Of Love And Faith
+2.		Lilly Marlene
+3.		La Paloma
+4.		Le Printemps(   Читать дальше...   )Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253363   (381621) от 10.10.2018
+
+BZN - A Symphonic Night II (1998) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Il Trovatore
+2.	Les Pêcheurs De PerlesЖанр: Pop, Classical, BalladПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5C3039238B9FD4C9EF7139A1F8E90EC0D222DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252614   (381614) от 10.10.2018
+
+Loreen - Ride (2017) [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. '71 Charger (4:12)
+02. Dreams (4:40)
+03. Jupiter Drive (5:25)
+04. Fire Blue (4:20)(   Читать дальше...   )Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414734   (381598) от 10.10.2020
+
+Hundredth - Somewhere Nowhere (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Shoegaze, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere Nowhere (03:07)
+02. Out Of Sight (03:31)
+03. Bottle It Up (03:51)
+04. Leave Yourself (03:32)(   Читать дальше...   )Жанр: Indie Pop, Shoegaze, ElectronicПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA1F810EFF1857CC8DBF8FADDD236BF1BC124F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574885   (381533) от 07.09.2022
 
 Khaled - Cheb Khaled (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Arab Music>
@@ -605,151 +748,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177242   (365030) от 24.10.2017
-
-VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauv - I Like Me Better (3:19)
-02. Imagine Dragons - Whatever It Takes (3:19)
-03. Sunrise Avenue - I Help You Hate Me (3:11)
-04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416774   (364966) от 17.10.2020
-
-Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Ain't Where His Heart Is (Anymore) [4:12]
- 02. Any Man Of Mine [4:07]
- 03. Whose Bed Have Your Boots Been Under [4:24]
- 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177278   (363142) от 25.10.2017
-
-Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doma (2:15)
-02. Exhumed (3:45)
-03. Soak (3:57)
-04. Ash To Bone (2:07)(   Читать дальше...   )Производство: Sacred Bones Records – SBR184CDЖанр: Indie Pop, Experimental, ElectronicПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26D659D42103ECCD0DA2260D53D73ACB3E93631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328066   (363112) от 30.09.2019
-
-Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want To Know (Remixed by Benny Benassi)[3:46]
- 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
- 03 - Ti Penso E Cambia Il Mondo[4:22]
- 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576890   (361783) от 16.09.2022
-
-Julian Lennon - Jude (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Me (03:03)
-02. Freedom (04:07)
-03. Every Little Moment (03:42)
-04. Not One Night (03:52)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A52D665880424FAB385C2D6B0F2B35921FE1B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

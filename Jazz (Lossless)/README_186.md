@@ -1,119 +1,3 @@
-###  Публикация: 1062992   (437841) от 15.10.2016
-
-Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm Confessin' [02:41]
- 02.September In The Rain [03:11]
- 03.That Old Gang Of Mine [02:39]
- 04.If I Could Be With You [01:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00439B543A017CF7435BD1A25474648793EFB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063003   (437840) от 15.10.2016
-
-Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Body And Soul [03:07]
- 02.When Day Is Done [03:22]
- 03.Bouncing With Bean [03:08]
- 04.April In Paris [03:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1056044F51DA7D1735F5B8A8A8DA7058C1429A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062968   (437839) от 15.10.2016
-
-Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Lot Of Livin' To Do [02:37]
- 02.I've Got Your Number [02:00]
- 03.Little By Little [02:05]
- 04.Got That Magic [01:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AA8D71B7E404F7879DE04C30C61FD40825B987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062995   (437836) от 15.10.2016
-
-Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Do Something To Me [01:40]
- 02.Almost Like Being In Love [01:59]
- 03.Just One Of Those Things [02:18]
- 04.That Old Black Magic [02:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C457C273BB3769877FB1B02F9FD2C4B81AC52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063000   (437835) от 15.10.2016
 
 Stan Getz Quartet 1960 - Live In Amsterdam, Dusseldorf & Zurich (1960) Remaster, 2016, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
@@ -745,6 +629,122 @@ Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E16A867557361209EBA379C242E30999194226D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063379   (435563) от 16.10.2016
+
+Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Paradise [08:02]
+ 02.Icey [03:54]
+ 03.The Answer In Your Eyes [08:31]
+ 04.Asia's Theme [05:11](   Читать дальше...   )Жанр: Crossover Jazz, Smooth JazzПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3636F23E8AF1A149F1C2515062D2AEAF9E694F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063382   (435556) от 16.10.2016
+
+Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Meteorology [10:43]
+ 02.Dawn [06:05]
+ 03.Tiger, Tiger [07:13]
+ 04.Kathryn's Song [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Avant-Garde JazzПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BCD70FB7C23EBF266D4E26F26727F48AE6FEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165266   (435446) от 12.09.2017
+
+Harry Lookofsky - Stringsville (1959) 2006, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Round Midnight [03:45]
+02. Moose The Mooche [05:26]
+03. I Let A Song Go Out Of My Heart [03:18]
+04. Little Willie Leaps [04:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1A0845C14C26929816CAAB80C10A0D50C11313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165080   (435445) от 12.09.2017
+
+Johan Clement Trio - On Request (2006) Baileo Music Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Winds [05:23]
+02. Robbin's Nest [06:06]
+03. Cakewalk [03:48]
+04. When Summer Comes [04:12](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11932F2FC57C0B91B1C24D23EC1FB509D72192D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

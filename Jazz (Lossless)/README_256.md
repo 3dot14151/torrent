@@ -1,119 +1,3 @@
-###  Публикация: 1456042   (236765) от 21.03.2021
-
-June Christy - This Time Of Year (1961) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Heart [2:59]
-02. Ring a Merry Bell [3:06]
-03. Hang Them on the Tree [2:21]
-04. The Little Star [3:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8BBE146A39EB50CD7A7DF7897B9655D37D6712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627963   (236764) от 22.04.2023
-
-The Phil Woods Quintet + One - Flash (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey to the Center [5:57]
-02. Weaver [8:00]
-03. Autumn Nocturne [7:04]
-04. Rado [5:30](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4284AC02210DDE678F30FC86EE4D46C25A1223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641240   (236706) от 21.06.2023
-
-Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Within Attraction (3:46)
- 02. Serenity (4:17)
- 03. Living Water (4:04)
- 04. Creation Sings (3:56)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCD8978E2DEC17CB722C0C888809072946EDA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608847   (236688) от 01.02.2023
-
-Betty Carter - I Can't Help It (1992) Impulse! [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Help It [2:49]
-02. By the Bend of the River [2:10]
-03. Babe's Blues [2:54]
-04. You're Getting to Be a Habit with Me [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2FDCED6F4D26D9BF99555CEBC2C4A145E7B0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628472   (236599) от 23.04.2023
 
 Riccardo Fassi & Gary Smulyan - L'amico Immaginario (1994) 1998, Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +629,122 @@ Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F0230C7C76E06D30CC26273B7A25E963AD1513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613228   (236010) от 18.02.2023
+
+Greg Cohen - Way Low (1996) DIW [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Low [7:43]
+02. B & W [3:13]
+03. Salta Montes [6:27]
+04. Lazurite [8:35](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A87753528A80C41D71B77D569A10B834C1E65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640846   (235964) от 19.06.2023
+
+Scott Bradlee's Postmodern Jukebox - The Fourth Tuning (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Up That Hill (A Deal With God) (feat. Sweet Megg)
+02. Man! I Feel Like A Woman!
+03. The Power Of Love (feat. Sarah Potenza)
+04. I Was Made For Lovin' You (feat. Effie Passero)(   Читать дальше...   )Жанр: Jazz, Swing, VintageПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC435639FD29352CEBAD95A1F3A35323D07BF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457813   (235955) от 27.03.2021
+
+Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ruby and the Pearl [5:38]
+02. When Lights Are Low [8:54]
+03. Detour Ahead [11:01]
+04. I Fall in Love Too Easily [7:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6769D08ECCA5C9A3622122468EFFF5710E09E510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631742   (235932) от 08.05.2023
+
+Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scrapple from the Apple [7:23]
+02. Willow Weep for Me [8:49]
+03. Broadway [6:46]
+04. Stairway to the Stars [6:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D49E959C19A93AD321C23951A5CFA432B24133
 ```
 
 https://mybot314.ru/tekegram_catalog/

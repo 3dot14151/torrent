@@ -1,3 +1,32 @@
+###  Публикация: 1652752   (206469) от 13.08.2023
+
+VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Wait for Me [03:33]
+02. TAWO - Had Love [03:15]
+03. MILA - The Sounds of Night (Snare Mix) [05:47]
+04. Dreamhunter - Kadinsky [05:10](   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660748   (189253) от 13.09.2023
 
 VA - Bar Lounge Classics - Session 2023 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ Nicky Elisabeth - The Way Of Love (2024) [MP3|320 Kbps] <Downtempo, House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:510035E8993F8137AC426CE6599CF8B829CF037E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762479   (102866) от 29.11.2024
-
-Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (02:02)
-02 - Delusion (04:50)
-03 - Ангелы (05:37)
-04 - The Heart Of The World (04:43)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E388257563C8A8E8ED32C86D9015FFF2B8EE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 478460   (86549) от 05.04.2012
+
+MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86549.jpg" />
+</div>
+
+
+###  Подробнее
+
+MIDI Pack - Collection TWO - Это огромнейший сборник содержащий 35 000 Миди файлов для вашего творчества!Название программы: MIDI Pack - Collection TWO Part 4Язык интерфейса: АнглийскийФормат: MIDI
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478445   (86547) от 05.04.2012
 
 MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
@@ -659,32 +685,6 @@ Pro Sound Effects Library представляет еще один набор и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783902   (69706) от 08.03.2025
-
-Звуковые библиотеки - 7Digital - 50 Soothing Winter Rain Sounds [FLAC]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Sound Effects Library представляет набор из 50 успокаивающих звуков природы: дождя, океанических волн, костра, капель воды, ветра, шума леса, бегущей реки и т.п.Формат: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76969D6EA4ABC84A7A86EA1D5DACA852AEEE4DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

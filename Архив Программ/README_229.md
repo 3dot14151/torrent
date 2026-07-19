@@ -1,3 +1,29 @@
+###  Публикация: 979811   (958074) от 27.01.2016
+
+CCleaner 5.14.5493 Free | Professional | Business | Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958074.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F233D5236E9FF369CAA50F7B750DF72A6DD1DC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979641   (958072) от 27.01.2016
 
 Total Commander 8.52a Extended 16.1 Full | Lite RePack (&Portable) by BurSoft [Ru/En]
@@ -648,32 +674,6 @@ Mozilla Firefox 44.0 (Яндекс-версия) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5475C9AFFB483F092AC66FA9C23C7C44B0B17624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980215   (957326) от 28.01.2016
-
-Maxthon Cloud Browser 4.9.0.2900 Beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Maxthon предлагает богатый набор функций для улучшения Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались действительно быстро.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DDBE51B818A0945793B6BAFF14F94C2EF764E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

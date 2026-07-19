@@ -1,3 +1,88 @@
+###  Публикация: 1324998   (418673) от 12.09.2019
+
+Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418673.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Steh auf
+2. Steh auf (Trivium Remix)Жанр: Industrial MetalПродолжительность: 00:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D22ED40C20470D509C5AAEF9BEADACE3A5EFD99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412410   (418462) от 29.09.2020
+
+Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overton Window (05:31)
+ 02. Echo Chambers (04:33)
+ 03. Derrida's Poison (03:53)
+ 04. Soma Holiday (04:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19292BF1AAEE8F36078E2C85768FA4BDC4C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947766   (418110) от 17.10.2015
+
+Enshine - Singularity (2015) [MP3|320 кб/с]<Atmospheric Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418110.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dual Existence
+2. Adrift
+3. Resurgence
+4. In Our Mind(   Читать дальше...   )Жанр: Atmospheric Doom, Death MetalПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A069AD16A53E7F66AAED88C3D30AD4C3CCF7334F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167495   (417311) от 20.09.2017
 
 Destruction - Thrash Anthems II (2017) [MP3|320 Kbps] <Thrash Metal>
@@ -658,93 +743,6 @@ Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB25BBF81BF699EDBFEC72EEA2BA0D2CB860FECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573791   (408809) от 02.09.2022
-
-Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hunab K'u (Live At Paradiso) [00:01:58]
-02 - Dance Of Fate (Live At Paradiso) [00:05:47]
-03 - Sensorium (Live At Paradiso) [00:04:58]
-04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573675   (408739) от 02.09.2022
-
-Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliver Us From Evil (5:22)
-02. Damnation (5:21)
-03. Secrets Of The American Gods (7:29)
-04. Violent Shadows (4:18)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9033725380052311A9A711E8C0A8A51CDD3C059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573691   (408578) от 02.09.2022
-
-Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sick, The Dying… And The Dead! (5:04)
-02. Life In Hell (4:12)
-03. Night Stalkers (6:38)
-04. Dogs Of Chernobyl (6:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA87E9011A10DEF78B55F7B9F30AF20EE63E551
 ```
 
 https://mybot314.ru/tekegram_catalog/

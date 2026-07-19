@@ -1,31 +1,3 @@
-###  Публикация: 1775035   (29957) от 24.01.2025
-
-Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (январь 2025) [PDF][EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29957.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89B4D4645039F27C11EFF605922B1616453CD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775042   (29954) от 24.01.2025
 
 Журнал | BOUDOIR Inspiration (BLACK & WHITE) (январь 2025) [PDF][EN]
@@ -718,6 +690,34 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA0977A4B751A0837B1114DE2C239CFAF80B735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797734   (17892) от 18.05.2025
+
+Журнал | BOUDOIR Inspiration (BOUDOIR) (июнь 2018) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17892.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25D1CB1B1182B4D0CA9DE440FD4C02EE7E76311
 ```
 
 https://mybot314.ru/tekegram_catalog/

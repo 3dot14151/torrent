@@ -1,3 +1,235 @@
+###  Публикация: 1548153   (600140) от 02.05.2022
+
+VA - Beatport Chill Electronic: Sound Pack #515 (2022) [MP3|320 Kbps] <Chillout, Electronic, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раcслабиться, отдохнуть и погрузиться в мир гармонии и наслаждений – все это вам под силу вместе с музыкой 515-го релиза от Beatport. Гармоничная мелодика, завораживающие эффекты на заднем плане, атмосфера релакса - составляющие этих ингредиентов создают идеальную музыкальную ауру для генерации позитивных мыслей и приятного время препровождения001. The Avalanches - Little Journey
+002. The Mobile Homes - Trigger
+003. Squarepusher - Smedleys Melody
+004. Ihf - Waiting(   Читать дальше...   )Жанр: Chillout, Electronic, RelaxПродолжительность: 12:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3847EE2FC33FEDA334879D23A789448698AC040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232373   (600050) от 24.06.2018
+
+VA - Deep Drum & Bass Compiled by ZeByte (2018)
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Critical Event & Alexvnder - Lovers Heart  5:50
+02. Distance - Left Behind  4:46
+03. Humanature - Back To Life (Silence Groove Remix)  5:36
+04. Naibu - Turn Me Down (Hiddenwave Remix)  5:14(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB501E2DD31AAFD23E0BC7829C8CE7B1D396D8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038930   (599691) от 30.07.2016
+
+Dosis - Technoir (Part 2) (2016) [MP3|320 Kbps|image+cue] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner - Different (Fabrizio Pettorelli Remix)
+02. Luigi Madonna - Le Ly Land (Original Mix)
+03. Jay Lumen - Fusion (Original Mix)
+04. Mikalogic - Puppets Lab (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050B5EDFD3CCC7BD63236A9EA0011EA4C77224A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039047   (599674) от 30.07.2016
+
+VA - Uplifting Trance Collection Episode Third (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599674.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kamaya Painters -  Endless Wave (Ucast Remix) 7:19
+002. Matt Bukovski & Andy Elliass -  Sphinx 6:40
+003. Sneijder & Giuseppe Ottaviani -  Nero (Solarstone Retouch Extended Mix) 7:50
+004. Craig Connelly Ft. Tricia Mcteague & Rory Ogrady -  Meet At The End 6:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 09:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A4EB2E305F13B4FD8CCBAD469CE3A91724807F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039073   (599666) от 30.07.2016
+
+VA - Dance Fitness Playlist (2016) [MP3|320 Kbps] <House, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599666.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arnold Palmer Feat. Antoine Montana -  Keep On Movin' (Scotty Mix) 5:36
+002. Fedde Le Grand -  So Much Love (Original Club Mix) 7:45
+003. Avicii -  Addicted To You (Avicii By Avicii) 5:32
+004. John Dahlback & Benny Benassi -  Blink Again (John Dahlback Radio Edit) 3:00(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 09:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1007304814AF2D0A8CD05BC71AB80536CB08F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038869   (599662) от 30.07.2016
+
+VA - Package Complete Expand Future House (2016) [MP3|320 Kbps] <House, Future House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599662.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fedde Le Grand & Merk & Kremont -  Give Me Some (Extended Mix) 4:26
+002. Rene Rodrigezz Feat. Robbie Wulfsohn -  We Are We Are (Nizami Plus & Envilo Remix) 4:29
+003. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Instrumental Remix) 5:58
+004. Dave202 -  Devotion (Original Mix) 5:33(   Читать дальше...   )Жанр: House, Future House, Progressive HouseПродолжительность: 08:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5C83CA4E1C806082E7E4A202CB5B6E0577556E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232567   (598369) от 25.06.2018
+
+VA - Record Super Chart 542 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prodigy feat. Vicetone - Omen 3:43
+02. Bolier & Joe Stone - Keep This Fire Burning 4:23
+03. Don Diablo feat. Paije - People Say 3:09
+04. Lucas & Steve - Source 4:22(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548171   (598357) от 03.05.2022
+
+VA - Beatport Core Dubstep: Sound Pack #516 (2022) [MP3|320 Kbps] <Hardstyle, Core Dance, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время оживить свой рабочий процесс, да и просто сменить образ скучной офисной жизни с помощью свежих и отточенных треков 516-й коллекции от Beatport, охватывающей ряд хард-стилей и жанров электронной музыки, от дабстепа до Drum and Bass, Future Garage и Grime.001. DJ Reaction - Kolkata Police
+002. Eazyvibe - Who Am I
+003. Unifire & Robotics - Armageddon
+004. Artriangel - Artria(   Читать дальше...   )Жанр: Hardstyle, Core Dance, DubstepПродолжительность: 08:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECD3EFAFEFC2071F69DA70DBBC22D50CC2FC51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548176   (598356) от 03.05.2022
 
 VA - Beatport Goa Trance: Sound Pack #517 (2022) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -519,244 +751,6 @@ VA - Soul of Ibiza Volume 40 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E327BEAF1187B82FC7A8C222BC4920CFF8A49870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526105   (595759) от 25.07.2012
-
-VA - Trance Desire Volume 23 (Mixed by Oxya^) (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Snatt & Vix - At The End Of The Day (Yesterday Mix)
-002. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Original Mix)
-003. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
-004. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-005. Armin Van Buuren pres. Gaia - J'Ai Envie De Toi (Original Mix)
-006. Danilo Ercole feat. Roberta Harriso & Steven Taetz - Meet You Where You Are
-007. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-008. ReOrder & Stine Grove - Seize The Day (Original Mix)
-009. Grube & Hovsepian feat. Tiffany Johnston - Venom (Dub Mix)
-010. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)Жанр: Vocal TranceПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554F7479D7A0CA451A1B02002B8A5194C64A1775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150231   (595281) от 14.07.2017
-
-VA - Trance Traveling 90 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Estiva - Unowa (Extended Mix)  6:02
-02.  Giuseppe Ottaviani & Kyler England - Firefly (Omnia Remix)  4:12
-03.  Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Original Mix)  5:26
-04.  ATB feat. Haliene - Pages (ATB's Festival Mix)  4:15(   Читать дальше...   )Жанр: TranceПродолжительность: 04:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA38198FFE700EFDC967212844334C2E33E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915062   (595190) от 04.07.2015
-
-VA - Music For Everyone - Progressive house Vol.4 (2015) [MP3|320 кб/с]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рады представить сборник Progressive house Vol.4 от паблика современной музыки и позитивного настроения Music For Everyone1. Zeni - Better Days (Original Mix)
-2. Bee Hunter - La Brisa (Original Mix)
-3. Lunarbeam & Solarbeam - White Sand (Original Mix)
-4. Solarbeam - Manihi (Jagin Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473A1D8A401E8BCFA99083EAA596784AB7781EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548155   (594990) от 05.05.2022
-
-VA - HarDD NRG OverDoZZe 5 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594990.jpg" />
-</div>
-
-
-###  Подробнее
-
-(+*CUE)
-01. Odyssey Of Light - Confusion (Aquaplex Remix) (AXWAX,2000)
-02. Solar Stone - Solarcoaster (Midway Remix) (LOST LANGUAGE,2003)
-03. Nuclear Hyde - Frame Grinder (Original Mix) (NOOM,2005)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DF7400362AACDDBB6586843F94EC5720B20ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039754   (594808) от 02.08.2016
-
-VA - Beatport Trance Pack 31.07. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamy -  Empathy (Original Mix) 7:47
-02. Ikerya Project & Maratone -  Vendetta (TrancEye Remix) 6:45
-03. Paul Gibson -  Skyline 6:38
-04. Corrie Theron -  Yerevan (Original Mix) 5:49(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 02:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879B82541865736FD0871B08336FD79476840826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039717   (594807) от 02.08.2016
-
-VA - Beatport Trance Pack 30.07. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Sanders -  Mirage 7:04
-02. Atkinson Vs. Thirlwall -  Squelcher (Original Mix) 7:58
-03. Sneijder & The Noble Six -  Far from You (Original Mix) 6:38
-04. John Askew -  A Million Stars (Original Mix) 7:41(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24D7EA8C81E02D902FB5D2D63960D54D134BC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039608   (594803) от 02.08.2016
-
-VA - A Trance Journey (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Baltic -  Elysium (Radio Cut) 3:08
-02. Alex Shevchenko -  Hammer of Witches (Radio Cut) 4:16
-03. Rene Ablaze ft Ian Buff & DJ T.H. -  10 Years (Nolita Remix Edit) 3:16
-04. Yves Cube & Regix -  Better Days (Radio Edit) 3:29(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFEEA4AF55DC146F77AE21880CBEADDEB62717A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039818   (594802) от 02.08.2016
-
-VA - Trance Illusion Story (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vadim Spark And Katya Ria -  Don't Be Afraid (Original Mix) 4:54
-02. Aquilae -  Suddenly Silenced (Original Mix) 7:51
-03. ArtSpace -  Fantasy Kingdom (Original Mix) 6:54
-04. Elite Electronic -  Afterlight (Original Mix) 6:36(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 03:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9215BB46375B9B9E76F094D5B6B7CD617C14D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

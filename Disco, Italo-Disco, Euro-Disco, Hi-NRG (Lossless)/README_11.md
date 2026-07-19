@@ -1,3 +1,90 @@
+###  Публикация: 1293027   (641034) от 01.04.2019
+
+Samantha Fox - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (I Want Your Body)
+02. Wild Kinda Love
+03. You Started Something
+04. (I Can't Get No) Satisfaction(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E05C7436BE3EB1DD19A759DFEDA4BF2184A14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907671   (637630) от 12.06.2015
+
+Samantha Fox - Touch Me: The Very Best Of (2014) [FLAC|image+.cue]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (I Want Your Body) [3:48]
+02. Do Ya Do Ya (Wanna Please Me) [3:49]
+03. I Only Wanna Be With You [2:45]
+04. Hold On Tight [3:40](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28054FCF344EF201F78988B0AD9D6BDB3114B20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293445   (635366) от 04.04.2019
+
+VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jules - I Want To (Instrumental Version) (6:44)
+02. Webo - Magic Moment (Instrumental Version) (5:58)
+03. Facts & Fiction - Supernova (Instrumental Version) (5:22)
+04. Lime - Unexpected Lovers (Instrumental Version) (5:04)(   Читать дальше...   )Жанр: Pop, Italo-DiscoПродолжительность: 02:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C27D9D16E7C5A9B41B9EF7CCD2AD33227CB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143548   (635252) от 18.06.2017
 
 Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < Italo-Disco, Synth-pop>
@@ -670,93 +757,6 @@ The African Singers - Disco Africana (2000) [FLAC|Lossless|tracks + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7343A88D16AAC54DD3CD92FF04CA8E67791345C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546207   (607690) от 23.04.2022
-
-One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|tracks + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pull Fancy Dancer Pull ( 6: 4)
-02. Get Up ( 4:46)
-03. Show Me ( 4:40)
-04. Hold It ( 5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA13BA6A28B7568C4C0C5648AFFD02DE16B7F314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148054   (605633) от 04.07.2017
-
-Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (Radio Edit) (3:25)
-02. I Open Up My Eyes (Radio Edit) (3:44)
-03. Survive (Radio Edit) (3:25)
-04. No One Like U (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD43074F7F927CD27F9C8296F22E7D82124C779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148284   (604279) от 05.07.2017
-
-VA - ZYX Italo Disco New Generation vol.7 (2015) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D. White - One Wish (ZYX Extended Version) (6:40)
-02. Soulya Id - Vampirella's Song (6:43)
-03. Avenue - Story Of Love (Extended Version) (7:20)
-04. Nea! - Puppy Love (do You Remember) (Extended Version) (6:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E72A82EA21A79C5B9B61AEE4230A8C434BE30A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1502650   (826400) от 15.10.2021
+
+Windows 10 (v21h1) x64 PRO by KulHunter v3.1 (esd) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: en-us_windows_10_consumer_editions_version_21h1_
+updated_sep_2021_x64_dvd_9a13e3f5.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3933623F2E4E174C608174069AA363CD9FB2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502716   (826324) от 15.10.2021
 
 Vit Registry Fix Pro 14.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -654,32 +683,6 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.10.15 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:698F4F5D78B3D26535A66B0F3104E9E0D20D9CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115858   (826059) от 18.03.2017
-
-CCleaner 5.28.6005 Business | Professional | Technician Edition RePack (& Portable) by D!akov (18.03.2017) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826059.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6DE4EA5CF09DE44CAEB17B0B313B97274FFC07
 ```
 
 https://mybot314.ru/tekegram_catalog/

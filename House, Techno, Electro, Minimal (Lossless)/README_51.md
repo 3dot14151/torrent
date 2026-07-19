@@ -1,3 +1,173 @@
+###  Публикация: 1260906   (307789) от 09.11.2018
+
+VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claes Rosen - Over and Over (Sebastian Davidson remix) (6:08)
+02. George Ellinas - Galexia (original mix) (6:00)
+03. Subalpine - Paradise (original mix) (5:30)
+04. Rishi K. - Through the Night (Domestic Technology remix) (5:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2EC303B4314FF2BBBB5D443EA3EF4B16951270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419268   (306880) от 05.12.2011
+
+DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261383   (305641) от 10.11.2018
+
+Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooting Owl (08:37)
+ 02. Robosoul (06:26)
+ 03. Robochirp (06:55)Жанр: Deep House, ElectroПродолжительность: 00:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974CF0D45B42AFA2FF011C1E20006197AD660C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333330   (305616) от 24.10.2019
+
+VA - ọrun VA004 (orun VA004) (2019) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sacred Geometry - Hōjō (06:25)
+02. Unjin - Dragonfly (06:32)
+03. Saphileaum - He, Who Walks Above The Crumbling (06:43)
+04. Motionen - Ion (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884FD71F21694F93454148B5FECCD7A040FE92A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333335   (305526) от 24.10.2019
+
+Lemna - Retrocausality: A Posteriori (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supervoid (06:54)
+02. Flatland (06:14)
+03. Platonia (05:39)
+04. Tesseract (06:26)Жанр: Techno, Ambient, ExperimentalПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11A4D68246FC86D4CBC58D5044545A70E40FC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333367   (305525) от 24.10.2019
+
+Fourtimeszero - Shaping Lifeforms (2019) Natural Expressions [FLAC|Lossless|Cassette|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaping Lifeforms (05:39)
+ 02. Drained (05:49)
+ 03. Spirit Reincarnate (ft. Lo Mismo) (06:04)
+ 04. Just A Track (06:09)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD83282ABB3079D6242EB6ACBCE7489669A698D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960839   (305447) от 29.11.2015
 
 Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, Breaks, Electro>
@@ -557,180 +727,6 @@ VA - Sun:Sets 2019 (Selected by Chicane) (2019) [FLAC|Lossless|WEB|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2659645ED7C436D0F794274E778732577B14DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079076   (295850) от 03.12.2016
-
-VA - 538 Dance Smash: Hits Of The Year (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Dance, Pop, House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приближается конец 2016 года. Ну и, конечно, все начинают подводить итоги уходящего года. Вот радиостанция 538 и собрала вместе все лучшие танцевальные и клубные хиты уходящего года. Здесь Вы можете услышать лучшие треки таких мэтров как Armin van Buuren, The Chainsmokers и Afrojack. С Наступающим!CD1
-01. Fais feat. Afrojack - Hey  (3:34)
-02. The Chainsmokers feat. Halsey - Closer  (4:04)
-03. Major Lazer feat. Justin Bieber & MO - Cold Water  (3:05)(   Читать дальше...   )Жанр: Dance, Pop, House, ElectronicПродолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7F72775F78A06354497B2EFFB07874F67B4A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185184   (295218) от 20.11.2017
-
-VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dyo Atoma - Tazmania (Original Mix) [08:00]
-02. Edvard Hunger - The Same Life (Original Mix) [05:34]
-03. Paul Angelo, Don Argento - Legacy (Rolando Vallice Remix)[06:30]
-04. Alexander Miguel - Contaol (Paul Angelo & Don Argento Remix)[08:02](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185282   (295213) от 20.11.2017
-
-Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shapes on Shapes (2:22)
- 02. River of Nilé (5:19)
- 03. Moment (3:54)
- 04. Tropique (6:05)(   Читать дальше...   )Жанр: Nu Disco, House, Indie DanceПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD50E6BACAFCBDCFBBC47F2CCBF67F1EFC730FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185206   (295179) от 20.11.2017
-
-Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Vocal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ghost (3:49)
- 02. Lovers (3:25)
- 03. Fight or Fly (5:04)
- 04. Can't Wait (4:03)(   Читать дальше...   )Жанр: House, Downtempo, VocalПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027D576ACDEA2F4C3789300B126F760AD7A2AEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262363   (295024) от 15.11.2018
-
-VA - Viewpoints Chapter One (2008) AW-Recordings [FLAC|Lossless|tracks+.cue] <Techno, Electro, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Haiman – Inner Technology (05:42)
-02. CRC – Archon (05:41)
-03. Alex Leon – Instant Grey (04:38)
-04. Deixis – States Of Flux (05:19)(   Читать дальше...   )Жанр: Techno, Electro, Detroit TechnoПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078739B701EFEDDE388CF3DFC6B79DEE109C18EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185245   (294816) от 20.11.2017
-
-VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .cue] <Electronic, Electro, Space Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zodiac - Zodiac
-02. Supersonic Future - Самое Большое Космическое Путешествие
-03. Револьвер - Космодромы опустели
-04. Ким и Буран - Star Track(   Читать дальше...   )Жанр: Electronic, Electro, Space RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB0444798835AB7226F0649BE020400FF58397B
 ```
 
 https://mybot314.ru/tekegram_catalog/

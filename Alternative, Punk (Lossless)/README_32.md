@@ -1,3 +1,119 @@
+###  Публикация: 1310260   (547864) от 23.06.2019
+
+Ducktails - Watercolors (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Answered in a Prayer (04:13)
+02. Watercolors (06:37)
+03. Deal with It (04:43)
+04. Blue Light (05:08)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5611315B15A7A8C5BE50EB45BACCB546745F2455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310287   (547863) от 23.06.2019
+
+Ducktails - The Flower Lane (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivy Covered House
+02. The Flower Lane
+03. Under Cover
+04. Timothy Shy(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCA17B267052402BC46AC3B7D86A094B47C0FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310322   (547861) от 23.06.2019
+
+Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Swing
+02. Hamilton Road
+03. Sprinter
+04. The Razor's Edge(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5553D1A81CECAF85A2941F6FC10C8D52216454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310325   (547858) от 23.06.2019
+
+Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disney Afternoon
+02. Headbanging In The Mirror
+03. Into The Sky
+04. Heaven’s Room(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5EF8FE6172DA8A0538DEDD3ADFDAF43529957D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310242   (547686) от 23.06.2019
 
 She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Coldwave, Goth Rock>
@@ -626,122 +742,6 @@ Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD642CBF97AA88D3D34B65C21951B5665B29901B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312382   (534397) от 03.07.2019
-
-PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopelessly Devoted To You (04:29)
-02. One Day I'll Fly Away (05:29)
-03. You've Lost That Lovin' Feeling (ft.Sasha Grey) (06:43)
-04. The Blower's Daughter (04:49)(   Читать дальше...   )Жанр: Alternative Rock, Industrial, PunkПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59925E48BEE87E2453FAA2011F496D5D9ACF544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312510   (532787) от 04.07.2019
-
-Sophia - The Infinite Circle (1998) [FLAC|Lossless|tracks + .cue] <Lo-Fi, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Directionless (04:35)
-02. If Only (04:40)
-03. I'd Rather (05:30)
-04. Every Day (05:01)(   Читать дальше...   )Жанр: Lo-Fi, Indie RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D464C61FAFBFF0BABE0F702A620A85004941DEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312520   (532783) от 04.07.2019
-
-Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh My Love (04:31)
-02. Swept Back (04:49)
-03. Fool (04:36)
-04. Desert Song No. 2 (07:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BD728BF9CFC9F6447CE56B769343F15E69A7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312677   (530959) от 05.07.2019
-
-Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Harbours (02:00)
-02. Resisting (04:36)
-03. The Drifter (05:15)
-04. Don't Ask (05:50)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

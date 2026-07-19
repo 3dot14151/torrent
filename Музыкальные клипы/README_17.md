@@ -1,31 +1,22 @@
-###  Публикация: 326652   (663383) от 23.05.2011
+###  Публикация: 509939   (672568) от 13.06.2012
 
-Sandra - The Complete History (1974 - 2002) DVD5
+DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Maria magdalena
-02 In the heat of the night
-03 Little girl
-04 Innocent love
-05 Hi hi hi
-06 Loreen
-07 Midnight man
-08 Everlasting love
-09 Stop for a minute
-10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
+Жанр: DanceПродолжительность: 00:02:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EE700591969F2A3EC492D13EA277FAA1AD284CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,26 +24,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 340929   (662512) от 24.05.2011
+###  Публикация: 510106   (670648) от 14.06.2012
 
-Avril Lavigne - Smile (2011) HDRip
+Millenium Extended (2012) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А́врил Рамо́на Лави́н(Avril Ramona Lavigne, род. 27 сентября 1984 года) — канадская певица, автор-исполнитель, дизайнер и актриса. Её дебютный альбом, Let Go, вышел в 2002 году и был продан тиражом 16 млн копий. Последующие работы — Under My Skin (2004) и The Best Damn Thing (2007) — возглавляли мировые чарты, в том числе американский Billboard 200. Пять песен Лавин — «Complicated», «Sk8er Boi», «I’m With You», «My Happy Ending» и «Girlfriend» — занимали первые строчки мировых чартов. По всему миру было продано более 30 млн копий её альбомов. По состоянию на январь 2011 года, она являлась одной из самых популярных певиц в США с 11,5 млн проданных альбомов. Журнал Billboard поместил Лавин на 10-е место в рейтинге артистов 2000-х, а также на 28-е место по коммерческому успеху. Её четвертый студийный альбом Goodbye Lullaby вышел в марте 2011 года.
-20 мая состоялась премьера клипа на композицию «Smile». По сюжету Аврил ходит по улицам Нью-Йорка и забирает кусочки разбитого сердца у разных людей, делая (   Читать дальше...)Жанр: МузыкаРежиссер: Avril LavigneАктеры: Avril LavigneПеревод: ОтсутствуетПродолжительность: 00:03:35
+Жанр: PopПродолжительность: 01:01:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B7C888440056BF612BB77FC83B82A3E4AEFD781
+magnet:?xt=urn:btih:F5128C6A391A534A01784F8D3AEF31673DF59E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510681   (670309) от 14.06.2012
+
+Сборник видеоклипов Millenium Extended (2012) [H.264] DVDrip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F71292376DA6106D268D5AC74221666AD9C6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223986   (667962) от 08.05.2018
+
+Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sexy Car Chag Rock Mix для этого лета !! Просто лучшее! Наслаждайтесь и ВКЛЮЧИТЕ ЗВУК! Отличное сочетание музыки драйва, чтобы быть счастливым и расслабиться на шоссе. Сексуальные девушки! Винтажные и спортивные автомобили!Жанр: Pop, RockПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00F134045436C7D656788E058C1B2CE39A474DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511266   (667212) от 16.06.2012
+
+DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0CA9C3934377F632DD84EC28829E5162F7F2B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511827   (665981) от 17.06.2012
+
+Сборник видеоклипов Millenium Dance 7 - (2012) DVDRipH.264
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elena Gheorghe - Midnight Sun
+02 Dina Gabri - Naughty Boy
+03 Corina feat.JJ - No Sleepin
+04 Juan Magan - Mariah
+05 September - Cry For You
+06 Ida Corr - What Goes Around Comes Around
+07 Taio Cruz - Break Your Heart
+08 Alexandra Stan - Lollipop
+09 Radio Killer - Lonely Heart
+10 Milk and Sugar vs Vaya Con Dios - Hey Nah Neh Nah(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,117 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034797   (629931) от 15.07.2016
-
-Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
-Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
-Alan Walker - Sing Me To Sleep
-Sigala ft. Imani & DJ Fresh - Say You Do
-Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293943   (629620) от 07.04.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
-01. Guns N' Roses - You Could Be Mine
-02. Kingdom Come - Should I
-03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682031   (628610) от 24.07.2013
-
-Chicane - Saltwater (2000) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682059   (628542) от 24.07.2013
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1041431   (583378) от 08.08.2016
-
-Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire 'n Ice (5:38)
- 2. Attitude Adjustment (7:04)
- 3. Inferno (5:04)
- 4. Wood's Bolero (4:16)(   Читать дальше...   )Жанр: Symphonic Rock, Hard RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919258   (583017) от 19.07.2015
 
 New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<Punk, Glam Rock>
@@ -772,6 +743,41 @@ Joe Satriani - Shockwave Supernova (2015) [MP3|320 кб/с]<Instrumental Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B48F12A510FDC97F0B8086A5F4157004AED365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527289   (576623) от 26.07.2012
+
+Level 42 - 11 альбомов (1981-2006) [MP3|320 kbps] <Pop-Rock, Funk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576623.jpg" />
+</div>
+
+
+###  Подробнее
+
+О группе:Жанр: Pop-Rock, FunkПродолжительность: 00:50:44
+
+01. Dive Into The Sun (04:01)
+02. Rooted (05:31)
+03. The Way Back Home (06:53)
+04. Just For You (04:52)
+05. Sleep Talking (05:00)
+06. Retroglide (04:49)
+07. All Around (04:57)
+08. Clouds (04:30)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34E1856FA3727E42CEFACE093D61479DC06B2C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

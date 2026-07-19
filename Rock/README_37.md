@@ -1,38 +1,3 @@
-###  Публикация: 518782   (639511) от 05.07.2012
-
-2:54 - 2:54 (2012) [MP3|320 kbps] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolving (04:01)
-02. You're Early (04:08)
-03. Easy Undercover (03:44)
-04. A Salute (04:24)
-05. Scarlet (04:40)
-06. Sugar (04:06)
-07. Circuitry (04:11)
-08. Watcher (04:26)
-09. Ride (03:23)
-10. Creeping (04:54)Жанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F200AF486D3C50B2C03FFFF0830A091052484205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228232   (639405) от 30.05.2018
 
 Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kbps] <Psychedelic Rock>
@@ -771,6 +736,41 @@ Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BF6538488ED56E81DFAFED58AC3D414301298D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520575   (633067) от 08.07.2012
+
+Eagles - Greatest Hits [2CD] (2010) [MP3|320 кб/с]<Rock, Blues Rock, Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Blues Rock, Country Rock, Classic RockПродолжительность: 01:20:00
+ 01. Try And Love Again [0:05:10.52]
+ 02. Peaceful Easy Feeling [0:04:16.12]
+ 03. The Sad Cafe [0:05:33.60]
+ 04. Nightingale [0:04:08.10]
+ 05. Ol' '55 [0:04:22.33]
+ 06. Those Shoes [0:04:56.27]
+ 07. Good Day In Hell [0:04:26.37]
+ 08. Hole In The World [0:04:19.55]
+ 09. Journey Of The Sorcerer [0:06:36.67](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26E857878224E1371BBB3CA874D25A595620404
 ```
 
 https://mybot314.ru/tekegram_catalog/

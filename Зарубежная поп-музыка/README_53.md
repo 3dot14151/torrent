@@ -1,3 +1,32 @@
+###  Публикация: 1324935   (416724) от 13.09.2019
+
+VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Amigos - Die Legende von Babylon
+02. Nicole - 50 ist das neue 25(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251691   (415498) от 02.10.2018
 
 Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk, Art Pop>
@@ -725,35 +754,6 @@ Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168941   (405052) от 25.09.2017
-
-D.C. LaRue - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405052.jpg" />
-</div>
-
-
-###  Подробнее
-
-D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, родился 26 апреля 1948 года в городе Мериден, штат Коннектикут. Американский певец, автор песен и продюсер. Его музыка в 1970-х и начале 1980-х годов пользовалась успехом в клубах и танцевальных чартах по всему миру.Список альбомов:
-1976 - The Tea Dance
-1978 - Confessions
-1979 - Forces Of The Night(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1590512   (188650) от 14.11.2022
-
-VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready)
-02. Ed Sheeran - 2step (feat. Lil Baby)
-03. Smyles - Running up That Hill (A Deal with God)
-04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827248   (185749) от 20.10.2025
-
-Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (Radio Version) (3:12)
-02. Dreams (Instrumental Version) (4:18)
-03. One Step From Heaven (Special Version) (4:03)
-04. Dreams (Original Version) (4:18)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427113   (183671) от 27.11.2020
-
-VA - Hit Music (зима 2020) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183671.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Smith - Diamonds (3:33)
-002. Jason Derulo & Nuka - Love Not War (The Tampa Beat) (3:12)
-003. Volkonsky & Filatova - Буду С Тобой (2:57)
-004. KSHMR feat. Jeremy Oceans - One More Round (Free Fire Booyah Day Theme Song) (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 08:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E71ADB8176FEDEEDA69BA4CBE8595FBB12F6D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427696   (181386) от 30.11.2020
 
 VA - Italo Disco: HN Radio Remix (2020) [MP3|271-320 Kbps] <Disco, Funk>
@@ -745,6 +658,93 @@ ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432748   (162900) от 18.12.2020
+
+VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1er Discopera - Fickle Love (1978) (4:14)
+02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
+03. Alain Chamfort - Manureva (1979) (6:44)
+04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517497   (162285) от 16.12.2021
+
+VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка не стоит на месте и в канун уходящего года артисты успевают не только подготовится к праздникам, но и выпустить свои новинки. Предлагаем вам сборник из 170 свежих треков популярно-танцевального формата, здесь Вы найдете все самое новое и интересное - возвращение уже почти забытых исполнителей, интересные дуэты, хиты новых исполнителей и много хорошей качественной (   Читать дальше...   )001. Mo' Jive - Dixieland
+002. Five Steps Beyond - That Kind Of Day
+003. X-Perience - Never Look Back
+004. Joan Armatrading - Already There(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2836153C4FB14640F38969E3B559C4C0F4190DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824607   (162281) от 18.10.2025
+
+Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Day
+ 02 - Stay Forever
+ 03 - Je Danse
+ 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
 ```
 
 https://mybot314.ru/tekegram_catalog/

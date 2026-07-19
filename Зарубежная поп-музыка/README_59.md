@@ -1,3 +1,32 @@
+###  Публикация: 1074978   (335920) от 20.11.2016
+
+Emin - Love Is A Deadly Game (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is a Deadly Game
+02. Creative
+03. It's Impossible
+04. Let There Be Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5B23E209D8428EE4662192B67EC09EB01C5297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419876   (335488) от 30.10.2020
 
 VA - Bravo the Hits 2020 [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ Celine Dion - My Love (Ultimate Essential Collection) (2008) 2 CD, Reissue, 2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83285718DF2A68E447B6C311FBC9D5645F64FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582046   (325509) от 07.10.2022
-
-Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Lune
-02. Winter In July
-03. Scarborough Fair
-04. Figlio Perduto(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -549,35 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623389   (1029408) от 01.04.2023
-
-Lian Ross - 4You (2023) 2CD [MP3|320 Kbps] <Euro-Disco, Synth-pop, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1029408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Love Me (Extended) [00:08:08]
-02. Take My Hand (Extended) [00:07:21]
-03. My Love (Extended) [00:06:25]
-04. Dance with Me (Extended) [00:07:42](   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, EuropopПродолжительность: 2 CD, 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4B299B2D5EB687028D268B32152C49B9B914E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452342   (1027730) от 06.03.2021
 
 Genghis Khan - Here We Go (2021) Japan Edition [MP3|320 Kbps] <Disco, Eurodance>
@@ -745,6 +716,35 @@ Mflex Sounds - Starry Night (2021) [MP3|320 Kbps] <Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F91E2167C9CB22835DEFF390D52341C9E9D9880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459447   (1023318) от 01.04.2021
+
+Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness (4:45)
+02. Superfly (4:12)
+03. Like To Love (3:49)
+04. Baby Get Down (4:17)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42AED927F99E0DBFF16505244932DBFDA7BE31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

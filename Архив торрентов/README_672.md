@@ -1,32 +1,3 @@
-###  Публикация: 991448   (906193) от 28.02.2016
-
-VA - The Ultimate Trance Collection Vol. 6 (Mixed by Joe Cormack) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Miller - I Believe (Original Mix) (8:14)
-02. Euphoric Feel - Solitary World (Hoyaa & Joakim Sjoberg Remix) (8:01)
-03. Another World & Nuaro Ft Sam Vince - Will You Stay the Night (UDM Remix) (7:48)
-04. Andy Elliass - Way to Paradise (Original Mix) (7:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417EA25C59DDA6E83D1F36701E92EFA80758EEB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991344   (906192) от 28.02.2016
 
 Fluid Browser 1.0.6 [En]
@@ -696,6 +667,32 @@ BitTorrent Free - бесплатный, быстрый, удобный, комп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C0B0F7667AEF03D36FC0DED2E091AB73F2CC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991675   (905849) от 28.02.2016
+
+AdwCleaner 5.037 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905849.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F04E9812037C016D953FA07D4B7F0D10487AC07
 ```
 
 https://mybot314.ru/tekegram_catalog/

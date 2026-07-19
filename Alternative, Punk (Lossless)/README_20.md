@@ -1,3 +1,119 @@
+###  Публикация: 1128818   (726260) от 26.04.2017
+
+Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. Intro: I Switched My Robot Off (0:24)
+ 02/20. Ascension (feat. Vince Staples) (2:36)
+ 03/20. Strobelite (feat. Peven Everett) (4:33)
+ 04/20. Saturnz Barz (feat. Popcaan) (3:02)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99CC24D56CD81BD0DE9EE860B246F781691E9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128577   (726074) от 26.04.2017
+
+Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Folk, Ambient, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don'e Be So Serious 06:13
+02. Bones 02:49
+03. St. Eriksplan 03:41
+04. Give Me An Answer 03:43(   Читать дальше...   )Жанр: Indie-Pop, Folk, Ambient, AlternativeПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128693   (726039) от 26.04.2017
+
+Kaleo - A/B (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Good (03:54)
+02. Way Down We Go (03:39)
+03. Broken Bones (04:06)
+04. Glass House (04:01)(   Читать дальше...   )Жанр: Alternative Rock, Indie, BluesПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264196705D17C4662877F28401039A63163DC997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667743   (725425) от 14.06.2013
+
+Blink-182 - 24 Альбома (1994 - 2011) Дискография [FLAC|Lossless]<Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro / The Story So Far [00:05:57]
+02. Living The High Life [00:06:01]
+03. I Guess You Had To Be There [00:05:15]
+04. Get Back In The Van [00:05:20](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285003   (724999) от 24.02.2019
 
 Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -630,122 +746,6 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D077AF60498CA60B63F69CCF56CDA9AEDDC301EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025170   (711872) от 11.06.2016
-
-Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes
-02. Empty
- 03. Blackout
- 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F0120D7A4BE7A1573E4AC7BA2ECEC3F1C8E7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025434   (711764) от 11.06.2016
-
-Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It From Me (3:11)
-02. The World Would Run Better (3:00)
-03. I Want It Free (3:45)
-04. Underground (3:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C002870A892F5613C72003CCB8B4DFADBFE5F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401260   (711607) от 09.08.2020
-
-Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Melodic Hardcore, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tempest (3:45)
-02. Sunlifter (3:56)
-03. River King (5:03)
-04. Through Vales of Blue Fire (2:03)(   Читать дальше...   )Жанр: Metalcore, Melodic Hardcore, ProgressiveПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F61305AC1F4A5242FAA30BB10EF9C573D52DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401112   (711494) от 09.08.2020
-
-Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Heaven (4:09)
-02. The Door in the Wall (3:28)
-03. 无为 (4:39)
-04. Toska (4:16)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
 ```
 
 https://mybot314.ru/tekegram_catalog/

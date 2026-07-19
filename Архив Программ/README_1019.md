@@ -1,3 +1,29 @@
+###  Публикация: 1312145   (536215) от 02.07.2019
+
+Download Master 6.18.1.1633 RePack (&Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, Белорусский, Украинский, Транслит.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9A20B4D5CEF0CBEB19A79EC32049C72970ACBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311800   (536213) от 02.07.2019
 
 Loaris Trojan Remover 3.0.90.228 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -658,32 +684,6 @@ Vivaldi 1.15.1147.64 Stable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566AD0126401076ED48FF897CB9598417246BDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239843   (535097) от 07.08.2018
-
-CoolUtils Total PDF Converter 6.1.0.154 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3635E80C8D58447BE1364D6C236D5EF9FCAB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

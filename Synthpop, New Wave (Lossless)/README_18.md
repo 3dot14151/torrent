@@ -1,32 +1,3 @@
-###  Публикация: 1581275   (327216) от 05.10.2022
-
-Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edelo (Intro) [00:01:41]
-02. Disco on The Baltic Sea [00:03:17]
-03. Changed Plans [00:02:38]
-04. Brutal Resonance [00:03:42](   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582030   (323481) от 09.10.2022
 
 Occams Laser - Occult 91 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -745,6 +716,35 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333400   (305401) от 24.10.2019
+
+VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arwelone - Everlasting Journey (4:45)
+02. Richard Alfaro - Eon (3:24)
+03. Kameron - Furnace (3:56)
+04. Tune Crashers & Starblaster - Angel of Attack (3:53)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

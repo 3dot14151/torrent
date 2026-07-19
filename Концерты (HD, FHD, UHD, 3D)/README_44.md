@@ -1,3 +1,34 @@
+###  Публикация: 489690   (102082) от 29.04.2012
+
+Joe Satriani: Satchurated - Live in Montreal (2010/2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт был снят во время тура “The Wormhole Tour” в поддержку альбома “Black Swans And Wormhole Wizards” 12 декабря 2010 года в концертном зале Metropolis в Монреале, Канада.
+Joe Satriani - Guitar
+Jeff Campitelli - Drums
+Allen Whitman - Bass
+Mike Keneally - Keyboards
+Galen Henson - Rhythm GuitarЖанр: Instrumental RockРежиссер: Pierre & Francois LamoureuxАктеры: Joe Satriani, Jeff Campitelli, Allen Whitman, Mike Keneally, Galen HensonПеревод: ОтсутствуетПродолжительность: 02:19:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822063   (94645) от 05.10.2025
 
 Квартирник у Маргулиса. Группа «Гран-КуражЪ» (04.06.2025) WEBRip [H.264/1080p]
@@ -738,33 +769,6 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 ###  Подробнее
 
 Pink выступила в Австралии на концерте в поддержку своего нового альбомаЖанр: Pop,RockРежиссер: Larn Poland, Баз ХэлпинАктеры: Alison Faulk, Reina Hidalgo, Leo Moctezuma, Sebastien Stella, Nikki Tuazon.Перевод: ОтсутствуетФормат: MKVПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453014   (76762) от 17.02.2012
-
-Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт  Марвина Ли Эдейла (англ. Marvin Lee Aday) , более известного под сценическим псевдонимом Мит Лоуф (англ. Meat Loaf), ,снятый в 2007 году в Ontario (Canada).
-Meat Loaf - американский рок-певец, кино- и театральный актёр. Получил широкую известность после выхода успешных альбомов Bat out of Hell и нескольких песен к кинофильмам, а так же весьма зрелищным клипамЖанр: RockПродолжительность: 02:24:38
 
 ## Скачать торент
 ```bash

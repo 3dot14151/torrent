@@ -1,119 +1,3 @@
-###  Публикация: 1595388   (175710) от 05.12.2022
-
-George Coleman Featuring Ned Otter - Danger High Voltage (1996) 2000, Two and Four Recording [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't She Lovely [9:55]
-02. Conversation [10:22]
-03. Portrait of Jennie [13:31]
-04. Simone [5:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C451ED875C2225E2B8CD20CF32FCAC1A362548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595389   (175682) от 05.12.2022
-
-Richie Beirach & George Coleman - Convergence (1991) Triloka Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamp Is Low [7:01]
-02. I Wish I Knew [6:51]
-03. Flamenco Sketches [4:42]
-04. Rectilinear [5:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B558DF9ED3358ABA873F28FC1AA230FDD69FAD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595449   (175658) от 05.12.2022
-
-Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Coda du Debut (Kassap) - 1:09
-02. Spartakus (Kassap) - 9:10
-03. Canterbury (Kassap) - 6:29
-04. Oktiabr (Kassap) - 10:28(   Читать дальше...   )Жанр: Avant-Garde Jazz, Free JazzПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595387   (175557) от 05.12.2022
-
-Samara Joy - Linger Awhile (2022) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Out of This Mood [3:42]
-02. Guess Who I Saw Today [4:10]
-03. Nostalgia (The Day I Knew) [3:30]
-04. Sweet Pumpkin [3:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DEA6861CD2E8EAAF66848E728712DC0E39BB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667984   (175428) от 10.10.2023
 
 Sonny Rollins - BD Jazz (1951 - 1957) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +629,122 @@ Joe Pass Meets Tony Rizzi's 5 Guitars - Rose Room (1991) Alfa Jazz [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A378175D2312B3A6119CE1F04E83D3DAACEFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668838   (173189) от 14.10.2023
+
+Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Look Tonight [4:39]
+02. Smile [4:21]
+03. Autumn Leaves [3:08]
+04. Teach Me Tonight [3:25](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFD053278F3618C3A6559FBF7581ADEF77A4B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668841   (173188) от 14.10.2023
+
+Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [4:18]
+02. My Ship [3:56]
+03. Once in a While [3:41]
+04. Cavaquino [2:33](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EC64D36D8CDE8D3BFB62979526A2AB0DF9456A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669099   (173061) от 15.10.2023
+
+Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dog It [4:42]
+02. But Beautiful [4:18]
+03. Caravan [9:24]
+04. All the Gin Is Gone [4:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB71FFC71D15CAB263DD27329FC3EAF0A82FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669102   (173054) от 15.10.2023
+
+Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No.1 Green Street [7:21]
+02. 'Round About Midnight [7:06]
+03. Grant's Dimensions [7:57]
+04. Green with Envy [9:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

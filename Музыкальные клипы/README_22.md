@@ -1,3 +1,113 @@
+###  Публикация: 934954   (500193) от 07.09.2015
+
+Осенний марафон № 187 / Сборник видеоклипов (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем прерванную линию клипов. Раз уж наступила осень - пусть будет осенний сборник из зажигительных рок'н'рольных хитов.1. Against The Current - Talk (Official Video) (00:03:14)
+2. Animal ДжаZ - Дальше (Official Video) (00:04:50)
+3. Bill Ryder-Jones - Two To Birkenhead (Official Video) (00:04:23)
+4. Bring Me The Horizon - Throne (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Indie, Rock, Punk, AlternativeПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A24B680FCE62837142A3887003DE8AF9D4EA8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541603   (499513) от 02.09.2012
+
+Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D859BDAC18A73B9D349E7A5BFA14801DCFBCEFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541602   (499122) от 02.09.2012
+
+IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7436B610D80EA4F52A9F74A64ECAD2EA561E55AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936464   (495788) от 11.09.2015
+
+VA - Осенний марафон № 188 / Видеоклипы (Зарубежный Парад Новинок ) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (11.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alex Adair - Heaven (Official Video) (00:03:07)
+2. Andreea Banica - Supererou (Official Video) (Famous Production) (00:03:50)
+3. Bobina ft. Natalie Gioia - Addicted (Official Video) (00:02:53)
+4. Bryan Adams - Brand New Day (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:27:40 + 00:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD1A3F8790C51EA58A15B0FCF6BE00EEBD27D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543532   (495013) от 05.09.2012
 
 Сборник видеоклипов Millenium Romantic 7 (2012) DVD5
@@ -602,113 +712,6 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
-
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547677   (471962) от 16.09.2012
-
-Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386753   (469518) от 12.09.2011
-
-Калевала / Сон Река (2011) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED534BE9D41677009E16AE4BEA23C8847F43ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386720   (469420) от 12.09.2011
-
-Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Wish You Were Here» — третий сингл с четвертого альбома Аврил Лавин Goodbye Lullaby. Впервые о песне как о сингле упоминалось в телефонном интервью, когда Аврил находилась в Германии на ежегодной выставке-показе «The Bread & Butter Surepshow».Жанр: ВИДЕОКЛИПРежиссер: Марк УэббАктеры: Avril LavigneПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B771C69AEB95AFCC549FC08C2956D446281469
 ```
 
 https://mybot314.ru/tekegram_catalog/

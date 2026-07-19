@@ -1,3 +1,148 @@
+###  Публикация: 1633549   (234250) от 15.05.2023
+
+Sandra - 18 Greatest Hits (1992) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena
+02. In The Heat Of The Night
+03. Little Girl
+04. Innocent Love(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93D30331DD49CB92A61258FF8FDEA5D0E8C1272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633843   (233874) от 17.05.2023
+
+Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Again
+02. I'll Be
+03. Waiting on You
+04. Love of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634210   (233658) от 19.05.2023
+
+Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something To Believe In
+02. Eat The Acid
+03. Living In My Head
+04. Fine Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C60AA8F31734C4827D2FD2FEFCFEEDF177E78C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634259   (233516) от 19.05.2023
+
+VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Boy - Forget You (2:27)
+02. Felix Jaehn - Call It Love (2:34)
+03. Glockenbach - YEAH (2:38)
+04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634234   (233427) от 20.05.2023
+
+Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Disaster [00:03:26]
+02. Can't Hold Back [00:02:50]
+03. Better Boyfriend [00:03:19]
+04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634604   (233236) от 21.05.2023
 
 Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop>
@@ -603,151 +748,6 @@ Fedez - Paranoia Airlines (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, Pop-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFD915D1A129AC908204052D154B2F36CB401ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965484   (226242) от 14.12.2015
-
-Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affirmation (4:56)
-02. Hold Me (4:50)
-03. I Knew I Loved You (4:10)
-04. The Best Thing (4:19)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965134   (226104) от 14.12.2015
-
-Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Of Me (2008 Version) [03:25]
-02. Sexy Girl (2008 Version) [03:30]
-03. Funky Girl (2008 Version) [03:50]
-04. My Chico (2008 Version) [04:09](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735C9C2C44E98CA2E5AEC85342EBC2A2F6B947E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342079   (225984) от 01.12.2019
-
-Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa claus is coming to town (2:17)
-02. Have yourself a merry little Christmas (3:14)
-03. Jingle bells (2:32)
-04. Everybody  loves somebody sometime (3:01)(   Читать дальше...   )Жанр: Acapella, Pop, FolkПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818BD7AD47B28A706FE36B7F8B109DAC2A3D7F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965510   (225964) от 14.12.2015
-
-Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .cue] <Electro, Euro House, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream If You Wanna Go Faster (3:38)
-02. Shake Your Bootie Cutie (4:04)
-03. Calling (4:23)
-04. Feels Like Sex (3:24)(   Читать дальше...   )Жанр: Electro, Euro House, BalladПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C019E2FDD7A05CF7217880D144C69D092918B21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342343   (225952) от 01.12.2019
-
-Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Christian Men Rejoice-Here We Come A-Wassailing-I Believe in (2:43)
-02. Rockin' Around the Christmas Tree-Mary Had a Baby-Jingle Bell (4:45)
-03. The Twelve Days of Christmas (3:57)
-04. Hark! Herald Angels Sing-O Come All Ye Faithful; Once in Royal David's (4:39)(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
 ```
 
 https://mybot314.ru/tekegram_catalog/

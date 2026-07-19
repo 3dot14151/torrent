@@ -1,3 +1,90 @@
+###  Публикация: 909868   (626121) от 18.06.2015
+
+Silence Lies Fear - Future-The Return (2015) [MP3|128 кб/с]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond Reality
+2. The Return
+3. Facing The Creator
+4. Prophet(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0DBA903D5B90BDF3F32EB4E77A885D907FF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294871   (626113) от 09.04.2019
+
+Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:18)
+02. Prepare for Payback (03:07)
+03. Seeds of Hate (03:48)
+04. Coming Undone (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915A7C6A4FCB06AEFF7CF6CA15547635A39459DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909848   (626001) от 18.06.2015
+
+Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (Limited Edition) (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nova Genesis (Ad Splendorem Angeli Triumphantis)
+02. Il Cigno Nero
+03. Rosenkreuz (The Rose And The Cross)
+04. Anahata(   Читать дальше...   )Жанр: Power MetalПродолжительность: 1:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9812C87E827EE6F30EA0F076BAE97F53DE332183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543768   (625549) от 13.04.2022
 
 Nuiterra - ...In the Dark (2022) [MP3|320 Kbps] <Symphonic Metal>
@@ -664,93 +751,6 @@ Refuge - Solitary Men (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6AA3FD808511D3D6EAEAB597751A02F6914EEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230112   (618969) от 10.06.2018
-
-Trillium - Tectonic (2018) [MP3|320 Kbps] <Symphonic Metal, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Shine (4:23)
-02. Stand Up (4:01)
-03. Full Speed Ahead (4:03)
-04. Hit Me (4:34)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Power MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C378E402547B8F938BE6B1194D52BCB8CDBD6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295637   (618808) от 13.04.2019
-
-Lovell's Blade - The Nightmare Begins (2019) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618808.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Make My Mark (4:13)
- 2 - Gonna Get Rough (4:56)
- 3 - The Nightmare Begins (4:30)
- 4 - Slippin' Away (3:38)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B86059015B6D791D8BE9820562D82ACFF8B114C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036799   (618731) от 21.07.2016
-
-Vivaldi Metal Project - The Four Seasons (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618731.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Escape From Hell
-2. The Illusion Of Eternity
-3. Vita
-4. Euphoria(   Читать дальше...   )Жанр: Symphonic Metal, Neo-Classical MetalПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064ECEF69C6B39A07585945AB64DDB8518EF2147
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 747443   (960989) от 20.01.2014
+
+Caro Emerald - The Shocking Miss Emerald (2013) 2CD Deluxe Edition [FLAC|Lossless|WEB-DL]<Jazz-Pop / Swing>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Emerald: Intro (0:39)
+02. One Day (4:29)
+03. Coming Back As A Man (3:34)
+04. Tangled Up (3:15)(   Читать дальше...   )Жанр: Jazz-Pop / SwingПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9257109C41528E839BC496A6496A5D88D2A4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979141   (960958) от 25.01.2016
 
 Call Recorder for Skype 2.5.19 [Multi]
@@ -655,32 +684,6 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427787C0AC3AE35382E2DC412FA1024119CA0092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360471   (960784) от 15.02.2020
-
-Loaris Trojan Remover 3.1.13.1408 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97483C4B1661BCFE6A56685CBC85B4541FA6CAF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1436031   (139838) от 30.12.2020
-
-Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 2016, Justin Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue 'n' Boogie (10:59)
-02. If I Should Lose You (5:56)
-03. Darben the Redd Foxx (5:48)
-04. Time on My Hands (8:16)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC544A491FD37D6D28C54563F15751030463BCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273023   (139819) от 30.12.2018
-
-Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dick's Holler [4:53]
-02. Silver City Bound [2:42]
-03. Take This Hammer [4:19]
-04. Black Betty [2:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273112   (139814) от 30.12.2018
-
-Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [2:56]
-02. Out of This World [2:55]
-03. Cottage for Sale [2:36]
-04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273109   (139795) от 30.12.2018
-
-Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem on My Mind [4:17]
-02. I Can't Believe That You're in Love with Me [4:12]
-03. Swing! Brother, Swing! [2:34]
-04. The Very Thought of You [5:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273022   (139770) от 30.12.2018
 
 Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26EF496B2397A40971C13568FC1A9BF9129A0516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196056   (138637) от 31.12.2017
+
+Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Know Why
+02. Come Away with Me
+03. Something is Calling You
+04. Turn Me On(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4192FC633F17B92EBCAE8E00E78B46F69640D49C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679358   (138426) от 25.11.2023
+
+Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rumproller [10:30]
+02. Desert Moonlight [9:23]
+03. Eclipso [6:57]
+04. Edda [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349228   (138373) от 31.12.2019
+
+Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Child Is This [4:03]
+02. Christmas Tree [5:29]
+03. Hark the Herald Angels [3:53]
+04. Silent Night [6:11](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9FAA1810CDEDC4D14CE5725F686E740688117C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349345   (138361) от 31.12.2019
+
+Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bemsha Swing [10:12]
+02. Ask Me Now [11:56]
+03. Cotton Tail [8:35]
+04. Pyramid [12:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1579238   (336609) от 27.09.2022
+
+Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asura [00:03:47]
+02. Nibiru [00:03:34]
+03. Dansez sur ma tombe [00:03:17]
+04. Prototype [00:03:53](   Читать дальше...   )Жанр: Groove Metal, MetalcoreПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914E14128CAB3D2AE2FAA95E05224C7ECA8C4E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579183   (336487) от 27.09.2022
+
+Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgiveness I + II
+02. Reckless Paradise
+03. I Beg To Differ (This Will Get Better)
+04. The Wolf(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251B937C5DAF248E9DD2A6B3D14E758E1068F00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579447   (336486) от 27.09.2022
+
+Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Villain [00:03:13]
+02. Demons [00:04:01]
+03. Say Something [00:02:01]
+04. I Wanna Fight And You Know It [00:03:46](   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73C745A39B12D6CD90E0AEF1ED30FC77F949B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024725   (336478) от 12.10.2019
+
+Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLAC|Lossless|image + .cue]<Acid Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds
+02. Cough Syrup
+03. Pepper
+04. Thermador(   Читать дальше...   )Жанр: Acid PunkПродолжительность: 01:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018857316AD2EB903193EF307A9E2635DE8AC44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579247   (336417) от 27.09.2022
 
 Kid Kapichi - Here's What You Could Have Won (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Indie Rock, Punk>
@@ -630,120 +746,6 @@ Sonic Youth - In/Out/In (2022) [FLAC|Lossless|Web-DL|tracks] <Noise Rock, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77974B4D0EC27191FAD5BCE9CA1156100405BB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259222   (323406) от 02.11.2018
-
-Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying In A Blue Dream (5:23)
- 02. The Mystical Potato Head Groove Thing (5:10)
- 03. Can't Slow Down (4:49)
- 04. Headless (1:30)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259061   (323404) от 02.11.2018
-
-Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Join The Game
-02. Hyper Focus
-03. You Are Many
-04. I(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4318ECBC0228E93F1488D618D23CD9ED0C0A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259028   (323271) от 02.11.2018
-
-Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACT I : Sea Borne - Liberator of Minds - Dance of the Bacchantes (16:38)
-02. ACT II : The Mountain - The Invocation - The Forest - Psychopomp (19:26)Жанр: Modern Classical, AmbientПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415550   (321473) от 29.11.2011
-
-Dropkick Murphys - 6 альбомов (1997-2007) [FLAC|Lossless|tracks + .cue] <Celtic Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropkick Murphys (Дропкик Мёрфис) — американская кельтик-панк-группа. Коллектив был основан в 1996 году Майком Макколганом, Кеном Кейси и Риком Бартоном в Бостоне, Массачусетс.01. Famous For Nothing (02:46)
-02. God Willing (03:16)
-03. The State Of Massachusetts (03:52)
-04. Tomorrow's Industry (02:18)(   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 04:21:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

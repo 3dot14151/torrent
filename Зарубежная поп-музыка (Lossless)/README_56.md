@@ -1,3 +1,182 @@
+###  Публикация: 1158644   (491526) от 16.08.2017
+
+VA - Now That's What I Call Music! 63 (2017) [FLAC|Lossless|tracks + .cue] <Pop, Top>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не спутайте с релизом под таким же названием, но только вышедшим в 2006 году и состоявшем из топов Британского хит-парада. Этот выпущен Universal Music Group Recordings, Inc. и Sony Music Entertainment 4 августа 2017 года и состоит из Американских топов, в частности две композиции с первого места Billboard Hot 100 - это "I'm the One", авторство	DJ Khaled (   Читать дальше...   )01. DJ Khaled feat. Justin Bieber, Quavo, Chance the Rapper and Lil Wayne - I'm The One  (4:47)
+02. Zedd & Alessia Cara - Stay  (3:31)
+03. The Chainsmokers & Coldplay - Something Just Like This  (4:03)
+04. James Arthur - Say You Won't Let Go  (3:27)(   Читать дальше...   )Жанр: Pop, TopПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A565B274350DB9240341C636EDF50ABF597C99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054820   (491447) от 20.09.2016
+
+Roxette - Rox Archives (2009) Remastered [FLAC|Lossless|tracks + .cue] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Deep (03:36)
+02. Secrets That She Keeps (03:40)
+03. Goodbye To You (03:59)
+04. I Call Your Name (03:35)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 07:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B10BA10DC7027DE9F39463D3EBB567E3FEA61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544124   (490963) от 07.09.2012
+
+VA - Greatest Hits of The 60's (2003) [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herman's Hermits - No Milk Today [02:59]
+02. Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody [01:59]
+03. Gerry & The Pacemakers - Ferry Across The Mersey [02:25]
+04. The Swinging Blue Jeans - You're No Good [02:18]
+05. Johnny Tillotson - Poetry In Motion [02:33]
+06. Cilla Black - You're My World (Il Mio Mondo) [03:00]
+07. Bobby Vee - The Night Has A Thousand Eyes [02:35]
+08. Mike Berry - Tribute To Buddy Holly [02:37]
+09. Cher - All I Really Want To Do [02:59]
+10. Keith West - Excerpt From A Teenage Opera [04:42](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroФормат: BoxSet 8CDПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055046   (490330) от 21.09.2016
+
+Sandra - Everlasting Love (PWL Remix) (1988) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sandra - Everlasting Love (PWL 7'' Remix) (3:52)
+2. Sandra - Stop For A Minute (3:49)
+3. Sandra - Everlasting Love (PWL 12'' Remix) (7:42)
+4. Sandra - (I'll Never Be) Maria Magdalena (3:57)Жанр: PopПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14E40812BF0A7CAAF13F9E3A172FB6890D0876F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055177   (490113) от 21.09.2016
+
+VA - NOW That's What I Call Music! 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Sorry (3:22)
+02. The Weeknd - The Hills (4:04)
+03. Coldplay - Adventure Of A Lifetime (3:45)
+04. 99 Souls feat. Destiny's Child & Brandy - The Girl Is Mine (3:35)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, Synthpop, House, R&B, Hip-HopПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8D5D3465231F8AC75AFAAF87700E663F9524AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243665   (489980) от 28.08.2018
+
+Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra Promessa Featuring – Icy Bro            (4:01)
+02. Cose Della Vita (Can't Stop Thinking Of You)
+   FeaturingЖанр: Electronic, Hip Hop, Rock, PopПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763B36E5FF97ACA679FD4456138B83FBE42F8A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937747   (488106) от 15.09.2015
 
 VA - Party Fun Summer (2015) [FLAC|track+.cue]<Pop, Rock>
@@ -576,186 +755,6 @@ Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700690   (480319) от 16.09.2013
-
-ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (03:52)
-02. Knowing Me, Knowing You (04:02)
-03. Take A Chance On Me (04:04)
-04. Mamma Mia (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546212   (480202) от 12.09.2012
-
-VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stacie Orrico - Stuck [03:42]
-02. Chingy - Right Thurr [03:37]
-03. Madonna - American Life [04:27]
-04. The Androids - Do It With Madonna [03:48]
-05. Amanda Perez - Angel [03:38]
-06. Kylie Minogue - Come Into My World [04:05]
-07. Sean Paul - Get Busy [03:31]
-08. Hilary Duff - Why Not [02:59]
-09. Dannii Minogue - I Begin To Wonder [03:40]
-10. Snoop Dogg feat. Pharrell, Uncle Charlie Wilson - Beautiful [03:21](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056711   (479305) от 26.09.2016
-
-DJ BOBO - Mystorial (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystorial [00:03:17]
-02. Life Goes On [00:03:10]
-03. Freedom Is... [00:03:30]
-04. Get on Up [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405875   (478977) от 01.09.2020
-
-VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - Red Red Wine (7” Version) (05:20)
-02. Tears For Fears - Everybody Wants To Rule The World (04:10)
-03. R.E.M. - Losing My Religion (04:28)
-04. Bryan Adams - Summer Of '69 (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566728   (478335) от 31.07.2022
-
-Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'M THAT GIRL
-02. COZY
-03. ALIEN SUPERSTAR
-04. CUFF IT(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319915   (477458) от 15.08.2019
-
-Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atención
-02. Banana (feat. Becky G)
-03. Onda diferente (feat. Ludmilla, Snoop Dogg & Papatinho)
-04. Sin miedo (feat. Dj Luian & Mambo Kingz)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C1E6232EF3D071FC46316E646F3BD2F1F86760
 ```
 
 https://mybot314.ru/tekegram_catalog/

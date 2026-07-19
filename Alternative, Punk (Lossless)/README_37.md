@@ -1,3 +1,119 @@
+###  Публикация: 1246439   (461566) от 11.09.2018
+
+Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of New Orleans (4:08)
+ 02. Rewind (3:07)
+ 03. Long Lost (3:41)
+ 04. Normal Town (3:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968EB881028FC8142FEAF9B27CCF726006B248DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162136   (461346) от 31.08.2017
+
+Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underdog (06:09)
+ 02. Bumblebee (04:33)
+ 03. Shoot The Runner (03:50)
+ 04. Eez-eh (03:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C425A318E59E503D52BBC9E909A67EA7CFAFDD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321380   (461218) от 23.08.2019
+
+The Night Cafe - 0151 (2019) TNC Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 0151 Intro (1:54)
+ 02. Finders Keepers (3:31)
+ 03. Felicity (3:14)
+ 04. Please (3:50)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFC0E18D8A3BA79B267F75D7837D68B53F98BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321207   (461217) от 23.08.2019
+
+Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie, Pop Punk, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro (02:35)
+02. the view (03:25)
+03. basking in the glow (03:59)
+04. dig (04:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie, Pop Punk, EmoПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39B0DA006C860E841D4C89ED92205B884D7BF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321313   (461214) от 23.08.2019
 
 The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
@@ -630,122 +746,6 @@ Green Day - Revolution Radio (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6410C86255FA899268913FBFCE8EF73FF6768D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163515   (450339) от 05.09.2017
-
-Russkaja - Kosmopoliturbo (2017) [FLAC|lossless|image + .cue] <Pop-Punk, Gypsy-Punk, Ska-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Road	 (03:49)
-02. Alive	 (03:47)
-03. Still In Love	 (02:49)
-04. Hello Japan	 (03:26)(   Читать дальше...   )Жанр: Pop-Punk, Gypsy-Punk, Ska-PunkПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBDFEA32E13183B570F3B4A6A586B75D4AFDB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570048   (447298) от 15.08.2022
-
-Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else [00:03:28]
-02. Vein mp3 [00:03:56]
-03. Non-Human Club 2.0 [00:03:14]
-04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FAC131AC6C5708BC1096F12F6505D12339DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390781   (447051) от 22.09.2011
-
-Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sigue Sigue Sputnik - английская группа, музыкальный стиль которой можно охарактеризовать как электронный пост-панк. Образована в 1984-м году Тони Джеймсом (Tony James), Мартином Дигвиллом (Martin Degville), Нилом Экс (Neal X), Рэйем Мэйхью (Ray Mayhew) и Крисом Кавана01. Love Missile F1-11
-02. Atari Baby
-03. Sex-Bomb-Boogie
-04. Rockit Miss U-S-A(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322509   (446581) от 30.08.2019
-
-Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimental, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avant-Gardez Vous (01:19)
-02. Distance Dealer (04:09)
-03. Bleeding Decay (05:36)
-04. Dizzy Delusions (01:50)(   Читать дальше...   )Жанр: Post-rock, Experimental, Indie RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1335455   (284095) от 04.11.2019
-
-Маяк - Дискография (4 релиза) (2013-2014) [MP3|160-320 Kbps] <Retro Wave,  Lo-Fi, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна 03:01
-02. Смутное время 04:11
-03. Юность 03:41
-04. Смерть боится молодых 03:29Жанр: Retro Wave,  Lo-Fi, SynthwaveПродолжительность: 01:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765713AF64DAB65EBEAF796DF77ACD4653D10030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188303   (274635) от 02.12.2017
 
 Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
@@ -745,6 +716,35 @@ Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEFD701654EB44DB7FF34CC3B0775ABC571302F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648566   (231095) от 23.07.2023
+
+Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - U2XME1X2MUCH [00:06:57]
+02 - Don't Gimme No Rebop [00:03:37]
+03 - Sixteen [00:05:31]
+04 - Workers' Playtime [00:03:31](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

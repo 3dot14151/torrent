@@ -1,119 +1,3 @@
-###  Публикация: 1741943   (47330) от 09.08.2024
-
-Phineas Newborn, Jr. - Please Send Me Someone To Love (1969) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Send Me Someone To Love [5:10]
-02. Rough Ridin' [4:14]
-03. Come Sunday [4:59]
-04. Brentwood Blues [8:05](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86401AB99AF00431BE25563E1115120EC456B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861832   (46821) от 14.08.2024
-
-Betty Wright - My First Time Around (2012) [FLAC|Lossless]<Jazz, Funk, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Can't Do What the Guys Do [02:09]
-02. Funny How Love Grows Cold [02:54]
-03. I'm Gonna Hate Myself in the Morning [02:15]
-04. Circle of Heartbreak [03:01](   Читать дальше...   )Жанр: Jazz, Funk, Soul, R&BПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1470BF50D34D416BEE55534B1BBC9A18A9B09ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742964   (46815) от 14.08.2024
-
-Frank Sinatra & Tommy Dorsey - Learn To Croon (1940 - 1942) 1999, Buddha Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ida! Sweet As Apple Cider [2:09]
-02. Blue Moon [3:42]
-03. Learn To Croon, More Than You Know, How Come You Do Me Like You Do [3:07]
-04. I've Got My Eyes On You [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B7082BA3BEDF263F7AF8BD7EEBBFDD1079014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744184   (46185) от 20.08.2024
-
-Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Universal [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Norman Granz [0:34]
-02. Come Out, Come Out Wherever You Are [3:51]
-03. Baubles, Bangels and Beads [5:13]
-04. Laura [4:31](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A476A8E2A17DD788C076D89C028D04FD7802557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744373   (46102) от 21.08.2024
 
 VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -745,6 +629,122 @@ VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1337F4EDB19DEB479FE51F197569EA8ED2E2950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754411   (40771) от 10.10.2024
+
+Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Flower - Sunrise [7:19]
+02. Forest Flower - Sunset [10:38]
+03. Sorcery [5:19]
+04. Song of Her [5:25](   Читать дальше...   )Жанр: Post BopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E37C0946A61589ED49C771DBE0BD9409165DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754415   (40769) от 10.10.2024
+
+Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [4:52]
+02. Carnival (Manha de Carnaval) [3:32]
+03. Am I Blue? [3:10]
+04. Seven Come Eleven [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4314AA984C6C3089BA0D113DF5AE79D3AE504D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754416   (40768) от 10.10.2024
+
+Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' at the Savoy [5:14]
+02. Just the Way You Are [3:18]
+03. Eric's Smoozie Blues [5:21]
+04. Beautiful Love [4:26](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1A69A8E839231A486D054D3055FCFAF50AD005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755272   (40352) от 14.10.2024
+
+Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sign of the Times [2:15]
+02. The Phoenix Love Theme (Senza Fine) [2:53]
+03. Nowhere Man [2:41]
+04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
 ```
 
 https://mybot314.ru/tekegram_catalog/

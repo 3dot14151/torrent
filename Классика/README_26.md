@@ -1,119 +1,3 @@
-###  Публикация: 913711   (601146) от 30.06.2015
-
-Beethoven - Symphonies Nos.3, 7 & 8 (Paul van Kempen & Berliner Philharmoniker) (1993) 2CDs [FLAC|Lossless]<Classical, Romantic Period, Overture, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beethoven Sym No.7 in A major
-01. Poco sostenuto - Vivace (12:32)
-02. Allegretto (08:28)
-03. Presto - Assai meno presto (09:08)(   Читать дальше...   )Жанр: Classical, Romantic Period, Overture, SymphonyПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299447   (599605) от 01.05.2019
-
-Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599605.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lamentació 2a. de la Feria V
-
-Missa defunctorum, for double chorus, 2 flutes, 2 violins & continuo:
-2. Introitus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131053C36028793974736D98F4C810C4149F46AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038813   (599294) от 30.07.2016
-
-Johannes Brahms - Symphonies Nos. 1,2,3,4. Tragic Overture, Op. 81, Academic Festival Overture, Op. 80 (2014) [FLAC|Lossless|image + .cue] <Classical, orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No.3 In F Major, Op.90
-1.I. Allegro Con Brio (13:38)
-2.II. Andante (8:58)
-3.III. Poco Allegretto (6:58)(   Читать дальше...   )Жанр: Classical, orchestralПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526126   (599136) от 23.07.2012
-
-Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 583, 522, 581: I Solisti Veneti conductor Claudio Scimone (1970-1976)/1996, Erato Disques/[FLAC|Lossless]<Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for 2 Mandolins, Strings & Continuo G-Dur RV 532
-1. Allegro 4:27
-2. Andante 2:50
-3. Allegro 4:06Жанр: BaroqueПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E816B7486487B45BAE981E287B93072EF3FA155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525336   (598971) от 23.07.2012
 
 Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical>
@@ -748,6 +632,119 @@ Archi E Continuo (La Maggiore RV 546)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E993EA3B2763FADBB969FA09270209DB85A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918999   (584663) от 17.07.2015
+
+Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Piano, Instrumental>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Mattina
+02. Fly
+03. Nuvole Bianche
+04. I Giorni(   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041000   (583261) от 08.08.2016
+
+Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Allegro    02:23
+02. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Largo    01:38
+03. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Presto    02:18
+04. Tartini Concerto in A Major - Allegro    07:27(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA4CA545D2CF4DB1D09EE4222C61569E2602D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358029   (582590) от 05.07.2011
+
+Рахманинов - Полное собрание оркестровых сочинений [5CD] (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 05:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301B09C1211776E84F5031A6F77BC7B28C932BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041589   (581289) от 10.08.2016
+
+Franz Joseph Haydn - Complete String Quartets (The Aeolian String Quartet) (1997) 22CD Box Set [MP3|320 Kbps] <Classical, Quartet>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581289.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+  1. String Quartet In E-Flat Major, Op. 0: I. Presto
+  2. String Quartet In E-Flat Major, Op. 0: II. Menuetto
+  3. String Quartet In E-Flat Major, Op. 0: III. Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
 ```
 
 https://mybot314.ru/tekegram_catalog/

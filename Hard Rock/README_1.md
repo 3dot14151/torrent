@@ -1,3 +1,61 @@
+###  Публикация: 1452172   (1027937) от 05.03.2021
+
+Black Sabbath - Mob Rules  - 1981 (2021 Deluxe Edition, Remaster 2CD) (2021) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.I.B. (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (6:03)
+02. Children of the Sea (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (7:14)
+03. Voodoo (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (5:53)
+04. Black Sabbath (Live at Portland Memorial Coliseum, Portland, OR, 4/22/1982) (7:30)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65E35FB6A890D09B95AD793C49CD37C81CE02A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452170   (1027930) от 05.03.2021
+
+Bonfire - Roots (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Starin' Eyes (Almost Unplugged) [5:22]
+ 2. American Nights (Almost Unplugged) [3:51]
+ 3. Let Me Be Your Water (Almost Unplugged) [4:55]
+ 4. The Price of Loving You (Almost Unplugged) [3:10](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD623E8784695AA907DA6F1B7EC2CEA93178AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452175   (1027925) от 05.03.2021
 
 Def Leppard - Deep Cuts (2021) EP [MP3|320 Kbps] <Hard Rock>
@@ -686,70 +744,6 @@ Cruzh - Tropical Thunder (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97BC2A1F7AB342D67B88370CEDA8DAE31A6F804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351353   (1002184) от 10.01.2020
-
-Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Arrival
-2002 - Human Stain
-2003 - Once Upon Our Yesterdays(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73A9521CEEF981973ADDAFA6DD2812DCA0C3C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596803   (1000510) от 02.01.2013
-
-Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Showdown In Central Park
-02.  Take Me For A Ride
-03.  Do You Believe In Rock N Roll
-04.  Wildlife
-05.  Fire In The Pouring Rain
-06.  Call Pall Stanley
-07.  Heatwave
-08.  Look Out!
-09.  Touch
-10.  Straight To The GraveЖанр: Hard RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
 ```
 
 https://mybot314.ru/tekegram_catalog/

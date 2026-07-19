@@ -1,32 +1,3 @@
-###  Публикация: 1098794   (908728) от 30.01.2017
-
-Enterprise - Enterprise (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor (4:10)
-02. Que Sera, Sera (3:19)
-03. In The Year 2525 (2:30)
-04. Cuando, Cuando, Cuando (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ADB54D5153ECBB482DCC0F948BC1613ED10C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369211   (903531) от 23.03.2020
 
 VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Nu-Disco>
@@ -739,6 +710,35 @@ The Disco Tramps - Disco 12 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Jazz, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AEEA06171483DF705CA58F0718A4A1B98B7855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375267   (867195) от 13.04.2020
+
+Yan Tregger - Catchy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On (3:28)
+02. Catchy (4:13)
+03. Gimmicky (3:08)
+04. Sunny Wing (3:08)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781708687E29F01498F94C2B58860F305482A8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

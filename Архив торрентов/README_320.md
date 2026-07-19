@@ -1,3 +1,29 @@
+###  Публикация: 1352979   (993087) от 16.01.2020
+
+Smart Game Booster Pro 4.2.1.4218 (promo GAOTD) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Game Booster Pro - утилита, которая автоматически увеличивает FPS игры, оптимизируя работу ОС Windows и вашей видеокарты (AMD или NVIDIA), а также позволяет контролировать температуру аппаратных компонентов и обновлять графические и аудио драйверы. Smart Game Booster завершает ненужные процессы, высвобождает больше системных ресурсов, очищает оперативную память (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F83C3CFF9644F5555E8727341157EEEE6691ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352849   (993079) от 16.01.2020
 
 AOMEI Backupper Technician Plus 5.6.0 RePack by elchupacabra [Multi/Ru]
@@ -680,32 +706,6 @@ Cinema Wallpapers  (25.01.13) [Wallpapers] (jpg)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E2E607D2A0E59C25DDDCEF3F382F5D21DFB187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608179   (992888) от 26.01.2013
-
-Фотография - Фотограф Nikos Vasilakis (jpg)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Nikos VasilakisРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF9EB29A03EF6309B184E301ED2AE01066685A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

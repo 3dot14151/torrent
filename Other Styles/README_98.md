@@ -1,3 +1,193 @@
+###  Публикация: 365652   (543044) от 20.07.2011
+
+Ensemble Morkos - Cedre (1999) [MP3|~200 kbps]<arabo-andalusian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543044.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:54] 01.  Bashraf "Bulbul al-Afrah"
+[01:38] 02.  Jalla Manqad Sagha Badran
+[01:40] 03.  Tarraza R-Rayhanu Hullata L-Wardi
+[02:14] 04.  Taqsim Sur Le Ud
+[02:48] 05.  Qatili Bi-Ghunji L-Kahali
+[02:48] 06.  Sama I Iskandar Shalfun
+[05:09] 07.  Ya Maliha L-Lama Wa-Hula T-Tathanni
+[01:54] 08.  Rashiqa Lqaddi
+[02:59] 09.  Taqsim Sur Le Violon
+[02:38] 10.  Li Habibun Maqamuhu Fawqa Ra'si(   Читать дальше...)Жанр: arabo-andalusian ethnic musicПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E995769479E50490BE372E779B993FC12A787F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365676   (543042) от 20.07.2011
+
+Khan El Khalil - Oriental Music (2002) [MP3|320 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543042.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:36] 01.  Rakset El Gazia
+[06:47] 02.  Rakset El Topa
+[06:11] 03.  Rakset El Mambatia
+[04:19] 04.  Aale Men Eniy
+[02:29] 05.  Khan El Khalily
+[06:06] 06.  Kasr El Showk
+[09:00] 07.  Slamat Ya Eniya
+[05:34] 08.  Plad El MahpopЖанр: arabian ethnic musicПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A49835F9E2D67ECBFB7BDD550222051C47F801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365559   (543038) от 20.07.2011
+
+Shankar -  Sitar Concertos & other works (2005) [MP3|320 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543038.jpg" />
+</div>
+
+
+###  Подробнее
+
+[12:12] 01.  Morning Love
+[14:40] 02.  Raga Piloo
+[04:11] 03.  Prabhati
+[14:20] 04.  Concerto for Sitar & Orchestra, Part 1: Raga Khamaj
+[06:11] 05.  Concerto for Sitar & Orchestra, Part 2: Raga Sindhi Bhairavi
+[03:30] 06.  Concerto for Sitar & Orchestra, Part 3: Raga Adana
+[15:33] 07.  Concerto for Sitar & Orchestra, Part 4: Raga Manj Khamaj
+[11:46] 08.  Raga: Purlya Kalyan
+[08:47] 09.  Swara-Kakali
+[16:34] 10.  Raga Mala - A Garland of Ragas (I. Lalit (Presto))(   Читать дальше...)Жанр: arabian ethnic musicПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E97DF22E699AC4DF94FBAF305E58A4BE263EC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365365   (543031) от 20.07.2011
+
+Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horovel
+02. Duanmerez
+03. Oror
+04. Rast(   Читать дальше...   )Жанр: Instrumental, DudukПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153969   (542654) от 29.07.2017
+
+Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mummy (4:30)
+02. The Secret of the Mummy (4:42)
+03. Nick's Theme (2:04)
+04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154063   (542653) от 29.07.2017
+
+Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляпота
+02. Тюря
+03. Чучело
+04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154183   (542536) от 29.07.2017
 
 VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
@@ -614,186 +804,6 @@ VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311232   (539969) от 30.06.2019
-
-Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fellows (03:51)
-02. Gem (03:57)
-03. Fields of Gold (03:31)
-04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226421   (539753) от 14.08.2010
-
-Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(15:30) 1. Dancing Gallery
-(11:34) 2. Dreams
-(09:50) 3. Sunset
-(06:49) 4. Thea
-(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049600   (539674) от 07.09.2016
-
-Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
-Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366073   (539355) от 22.07.2011
-
-S. Ta`rif & M. Derakhshani - Khialangiz (2007) [MP3|128 kbps]<arabian ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539355.jpg" />
-</div>
-
-
-###  Подробнее
-
-[07:33] 01.  Heyran
-[06:20] 02.  Sare Kouhe Boland
-[05:49] 03.  Khaste Bal
-[07:08] 04.  Godazan
-[04:39] 05.  Khialangiz
-[06:20] 06.  Toranj
-[06:28] 07.  Derakht Roshanaii
-[05:32] 08.  Soukhte DelЖанр: arabian ethnic  musicПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EDCDF0C78BAF1C50245D996332336B88E6BFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366077   (539354) от 22.07.2011
-
-Jalaleddin Mohammadian & Mohammad Mousavi - Asheghe Divaneh (2008) [MP3|128 kbps]<arabian ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539354.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:53] 01.  Tasnif Asheghe Divaneh
-[13:54] 02.  Avaz Bayat Esfehan
-[04:14] 03.  Tasnif Asheghe Divaneh
-[05:39] 04.  Tasnif Boti Daram
-[14:04] 05.  Avaz Faeze Dashtestani
-[06:02] 06.  Tasnif Boti DaramЖанр: arabian ethnic musicПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ADC6CC011B3E85D0690B390D3B4ACC0815B44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153152   (538839) от 31.07.2017
-
-Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
-Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
-02. Dining Car [03:07]
-03. Cartanica [04:13]
-04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1648566   (231095) от 23.07.2023
-
-Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - U2XME1X2MUCH [00:06:57]
-02 - Don't Gimme No Rebop [00:03:37]
-03 - Sixteen [00:05:31]
-04 - Workers' Playtime [00:03:31](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648561   (231067) от 23.07.2023
 
 Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remaster [MP3|320 Kbps] <New Wave, Synthpop>
@@ -745,6 +716,35 @@ Frank Chickens - японская музыкальная группа в сти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C2766B054F7676A683A92734F5DFC99205EA61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592223   (183732) от 22.11.2022
+
+Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, Retrowave, Retro Electro, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Place I Belong [00:04:12]
+02. Dream Shore [00:05:26]
+03. Lone Rider (Late Night Edit) [00:04:23]
+04. Horizons [00:04:43](   Читать дальше...   )Жанр: Synthwave, Retrowave, Retro Electro, DreamwaveПродолжительность: 2 CD, 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898C6DBC083A3C9D2CB2C8B2E7F854A53CF1C086
 ```
 
 https://mybot314.ru/tekegram_catalog/

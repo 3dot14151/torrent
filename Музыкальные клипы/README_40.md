@@ -1,3 +1,114 @@
+###  Публикация: 1749524   (43190) от 18.09.2024
+
+ВИА ГРА - Избранная видеография (2002-2008) DVDRip [H.264/1080p] [AI Upscale, 50fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43190.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ВИА Гра» (англ. Nu Virgos, укр. ВІА Гра) — украинская женская поп-группа, образованная в 2000 году в Киеве. Коллектив считался одним из самых успешных русскоязычных музыкальных проектов 2000-х годов. Группой было записано 5 студийных альбомов: 3 из них получили золотой статус в России, 1 англоязычный альбом получил платиновый статус в Таиланде и золотой — в некоторых (   Читать дальше...   )01. Good morning, папа!Производство: УкраинаЖанр: Pop, EuropopРежиссер: Семён Горов и другиеПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7293A040ACB5B96DAD4A1A6C44042310424E6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 77933   (42145) от 28.09.2024
+
+Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исландская певица Bjork в представлении не нуждается, а её экстравагантные видео завоёвывают сердца всё новых и новых людей. Здесь представлен её официальный релиз, включающий все на тот момент времени видеоклипы и также 2 новых ролика: it's in our hands и nature is ancient.01 Human Behaviour
+02 Venus As A Boy
+03 Play Dead
+04 Big Time Sensuality(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758994   (36784) от 19.11.2024
+
+Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник официальных клипов немецкого DJ'ея, создающего музыку преимущественно в жанре Progressive Trance. Основная часть клипов 1990-ых и 2000-ых была взята с официального DVD-сборника 2009 года "Volume - The best of". Остальные клипы были взяты с официального YouTube канала Пола Ван Дайка.Производство: ГерманияЖанр: Trance, Progressive TranceРежиссер: Rob Deacon, Marcus Sternberg,  Ulli Lindenmann, Olaf HeineАктеры: Paul Van DykСубтитры: Английские, русскиеПродолжительность: 03:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F7642C7CB5183687329C745DE3D4CFE53D26A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599787   (36441) от 23.11.2024
+
+Милен Фармер / Mylene Farmer. Music Videos (1997) DVDRip [H.264/1080p] [50fps, AI Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апскейл клипов Mylene Farmer из сборника  Music Videos Vol.1
+(студия Toutankhamon Polydor Universal):01. Maman a tort 00:03:58
+02. Plus grandir  00:07:32
+03. Libertine  00:10:52
+04. Pourvu qu'elles soient douces (Libertine II) 00:17:51(   Читать дальше...   )Производство: ФранцияЖанр: popРежиссер: Laurent BoutonnatПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265BF2BC8893C2219528F894CD4297EB1CCAFF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762820   (35126) от 05.12.2024
 
 Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -565,110 +676,6 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2DDCD390F84FC9C0EFDDD4BC444F740A817F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766575   (33660) от 19.12.2024
-
-Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33660.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766576   (33654) от 19.12.2024
-
-The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33654.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Don't Stop the Party» - песня американской хип-хоп группы Black Eyed Peas. Песня была написана участниками will.i.am, apl.de.ap, Taboo и Fergie, а также Джошуа Альваресом и DJ Ammo и спродюсирована will.i.am и DJ Ammo для шестого студийного альбома группы The Beginning (2010). В клипе, режиссером которого выступил Бен Мор, использованы кадры со сцены и за кулисами (   Читать дальше...   )Жанр: Электрохаус, поп, электроПродолжительность: 00:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938ACCD1DD6E1E391E05E66F0691C846AF5284F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766574   (33650) от 19.12.2024
-
-The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33650.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girl like Me» (с англ. — «Девушка как я») — песня американской группы Black Eyed Peas и колумбийской певицы Шакиры. Клип на песню «Girl Like Me» был снят в сентябре 2020 года и вышел 4 декабря 2020 года.Жанр: Реггетон, Латиноамериканский попПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A09AD7C551675B0928ACAD897FFA9BF0604AA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769215   (32746) от 28.12.2024
-
-The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32746.jpg" />
-</div>
-
-
-###  Подробнее
-
-«I Feel It Coming» (с англ. — «Я чувствую, это приближается») — песня канадского исполнителя The Weeknd, записанная при участии французского электронного дуэта Daft Punk для его третьего студийного альбома Starboy (2016). Премьера клипа на песню состоялась 10 марта 2017 года на Vevo канале The Weeknd.Жанр: диско, filter-диско, попПродолжительность: 00:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
 ```
 
 https://mybot314.ru/tekegram_catalog/

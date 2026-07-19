@@ -1,148 +1,3 @@
-###  Публикация: 1373228   (882037) от 05.04.2020
-
-VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну чем ещё заниматься в период самоизоляции? Конечно, слушая хорошую и спокойную музыку, успокаивать себя, что всё будет замечательно, все будут живы и здоровы. Вот и вы медитируйте и будьте здоровы!01. Chambre 2 - Le matin se reveille (Original Mix)  (4:38)
-02. Jens Buchert - Fluffy Sky (Original Mix)  (5:51)
-03. Ladder & Rachel Rubinger - Infinity (Original Mix)  (4:32)
-04. Counterweight - Magic Night (Original Mix)  (5:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D94CFDFB37416E056E303E464AAA455342BE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996142   (881154) от 13.03.2016
-
-VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Sweet Suggestions (5:32)
- 02. Mardon Bros - Make You Feel Better (7:12)
- 03. Heso - Sundowner (6:28)
- 04. Lamar Ensemble - About Yesterday (5:46)(   Читать дальше...   )Жанр: Lounge, ChillOut, DowntempoПродолжительность: 03:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4743213D12119ACD1B2741CABFE872F44E971A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373422   (876433) от 08.04.2020
-
-VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eulenspiegel - The Joy of Now (Original Mix) (5:49)
-02. De Lobo - That Reggae Sound (Original Mix) (5:35)
-03. Aquarius - Candles In Love (Original Mix) (5:50)
-04. Koenigssee Echo - Interstellar Love (Original Mix) (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, LeftfieldПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374258   (872830) от 10.04.2020
-
-Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winding River	03:02
-2. Reverie	05:13
-3. After the Rain	03:16
-4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375167   (869083) от 12.04.2020
-
-VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, Italo, House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olsvanger - 2120 (7:10)
-02. The Head - All the Things I Am (7:05)
-03. Hector Plimmer - Precipice (2:59)
-04. Lily Haz - No Mo Dinin' (3:17)(   Читать дальше...   )Жанр: Balearic, Ambient, Italo, HouseПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F64FCFE4A18086A585CEB6C541A423FA02CCAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375483   (865485) от 14.04.2020
 
 Peter Pearson - A Piece of a Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -742,6 +597,151 @@ VA - My Garden Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A4C4457DD1C4C372C6080E2F3CB30FFA527493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381909   (822657) от 09.05.2020
+
+VA - Early Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Dream in Your Eyes (Original Mix)
+02. Michael E - Let It Rain (Original Mix)
+03. Charlie North - Saltwater (Ambient Mix)
+04. Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8F38723134E69D5F69B97F00014029F8EA2FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382145   (820875) от 10.05.2020
+
+VA - Silent Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Wanderlust (Original Mix)
+02. Michael E - It's Time (Original Mix)
+03. DMTunes - Evening Glow (Original MIx)
+04. Eskadet - Lost in Your Eyes (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBA21778DF28365674597BF7548D0E92E902196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382548   (819142) от 11.05.2020
+
+VA - Beautiful Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Blue Haze (Original Mix)
+02. Marga Sol - Beautiful Morning (Seven24 & S.A.T Remix)
+03. Gary B - World Feel (Original Mix)
+04. Charlie North - A Quiet Life (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA018F948A0E4277F520EC547CEAA0FF4111A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382748   (817381) от 12.05.2020
+
+VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) (04:21)
+02. Mission Brown - Same Old Temptations (Original Mix) (04:33)
+03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (03:37)
+04. Luis Hermandez - A Tu Lado (Original Mix) (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1277179523A522BEEDB24CEF8C2234C1BB5239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504041   (815968) от 21.10.2021
+
+VA - The Essential Downtempo: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florzinho - Onenness Meditation (08:07)
+02. Marga Sol - Night Sky (04:17)
+03. La Estación Del Mar - A La Sombra De Un Roble (04:24)
+04. Michael E - Matterhorn (04:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4CE8B94AC557887D0348310B131CDD65D4EBC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

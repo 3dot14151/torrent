@@ -1,3 +1,90 @@
+###  Публикация: 1471927   (1014857) от 22.05.2021
+
+Brethren Hogg - Brethren Hogg (2021) [MP3|320 Kbps] <Southern Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Egypt [00:03:15]
+02 - All Fours [00:05:06]
+03 - Greed [00:04:46]
+04 - Put To Waste [00:02:00](   Читать дальше...   )Жанр: Southern Metal, Doom MetalПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019F2140AF8278FF244B46BB61F988C219E01FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471882   (1014840) от 22.05.2021
+
+Black Magick SS - Rainbow Nights (2020) [MP3|320 Kbps] <Psychedelic Rock, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Endless Hallucinations [00:06:00]
+02 - Rainbow Nights [00:04:55]
+03 - Get Out [00:05:01]
+04 - Kali [00:05:17](   Читать дальше...   )Жанр: Psychedelic Rock, Black MetalПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BDB1E10B1FB7EA3B4B2442A2406D3214C21029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471884   (1014838) от 22.05.2021
+
+Borgne - Temps morts (2021) [MP3|320 Kbps] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Cut the Flesh and Feel Nothing but Stillness [00:05:50]
+02 - The Swords of the Headless Angels [00:09:31]
+03 - L’Écho de mon Mal [00:08:11]
+04 - Near the Bottomless Precipice I Stand [00:08:01](   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F702942CDCDBBE21B7BFD9C0E70959F70AE654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471933   (1014831) от 22.05.2021
 
 Herman Frank (ex-Accept) - Two for a Lie (2021) [MP3|320 Kbps] <Heavy Metal>
@@ -657,93 +744,6 @@ Ozora - 2 Albums (2017-2021) [MP3|320 Kbps] <Alternative, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08D7213832BC65293D30AD4F4271C76526D963F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480163   (1009192) от 27.06.2021
-
-Scythelord - Earth Boiling Dystopia (2021) [MP3|320 Kbps] <Progressive Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Sky Is Falling [00:02:42]
-02 Wireframe [00:07:11]
-03 Equanimity [00:06:32]
-04 Rod Of Asclepius [00:07:07](   Читать дальше...   )Жанр: Progressive Death, Thrash Metal /Продолжительность: 00:49:28 /
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D009731EA224FA7544EA57E0593EB80C00111176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480170   (1009190) от 27.06.2021
-
-Invitado De Piedra - 3 Albums (2011-2021) [MP3|320 Kbps] <Psychedelic Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Festín [00:06:02]
-02. Oye Al Diablo [00:04:47]
-03. Cruces [00:05:23]
-04. Todos caerán [00:07:46](   Читать дальше...   )Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 3CD, 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EC5990670C371D70E1376D15B02CD1D0276D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480241   (1009187) от 27.06.2021
-
-Amenra - 6 Albums (2012-2021) [MP3|320 Kbps] <Doom, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogentroost [00:10:01]
-02. De Dood In Bloei [00:04:38]
-03. De Evenmens [00:08:01]
-04. Het Gloren [00:11:30](   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 6CD, 05:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2C5CE6BA50401B096ADD773751560B21F91E83
 ```
 
 https://mybot314.ru/tekegram_catalog/

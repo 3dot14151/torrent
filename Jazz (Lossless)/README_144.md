@@ -1,119 +1,3 @@
-###  Публикация: 1042237   (579540) от 12.08.2016
-
-Jeff Berlin & Vox Humana - Champion (1985) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Motherlode (5:33)
-2. 20,000 Prayers (6:11)
-3. Marabi (5:37)
-4. Subway Music (3:55)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17A88536298C085E4FEA4421076FACAB9FBE1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042348   (579531) от 12.08.2016
-
-Eliza Lumley - She Talks In Maths: Interpretations Of Radiohead (2007) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Vocal Jazz, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джазовая интерпретация хитов Radiohead.01. High and Dry
-02. Black Star
-03. Street Spirit
-04. Let Down(   Читать дальше...   )Жанр: Cool Jazz, Vocal Jazz, CoversПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B76CD3C817A6196E4E647D62B3BCF7F17B5297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302792   (579381) от 17.05.2019
-
-Franco Ambrosetti - Jazz at Prague Castle (2005) Multisonic [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thought About You [9:10]
-02. Autumn Leaves [8:12]
-03. My Funny Valentine [9:15]
-04. Bye Bye Blackbird [7:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB32B7C8DD334D99CA63FAF9BCF30661DEB3EE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042083   (579369) от 12.08.2016
-
-Joscho Stephan - Guitar Heroes feat. Tommy Emmanuel, Biréli Lagrène, Stochelo Rosenberg (2015) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Tommy (3:16)
-02. Love's Melody (3:24)
-03. Hungaria (4:04)
-04. Swing 42 (4:58)(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7028A715C339708DD992C2EDBC41480288AF3C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554171   (579098) от 29.05.2022
 
 Rufus Reid & Akira Tana - Looking Forward (1995) Evidence [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -759,6 +643,122 @@ La Machine Ronde - Music Makes The World Go Round (2015) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8A207AE80F58103D82F2BE97DCA747900FEF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042929   (576716) от 14.08.2016
+
+Paulinho da Viola - Samba E Choro Negro (1993) [APE|Lossless|tracks + .cue] <Brazilian Jazz, Samba Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576716.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Onde A Dor Não Tem Razão 2:31
+2. Coração Leviano 3:08
+3. Rumo Dos Ventos 2:37
+4. Recado - Argumento - Guardei Minha Viola 5:18(   Читать дальше...   )Жанр: Brazilian Jazz, Samba Jazz, Bossa NovaПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2096A714172A51B4694EA5D12B6EA33F1B92DFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811899   (576700) от 11.08.2014
+
+Count Basie - Classic Jazz Archive (2004) 2CD [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1 - One O'Clock Jump (01:09:03)
+CD2 - Rhythm Man (01:19:47)
+Трeклист CD1:(   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FE3A2069C31E14EEEFC24E04B8761090FCC82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042760   (576652) от 14.08.2016
+
+Joscho Stephan Trio meets Matthias Strucken - Gypsy Vibes (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean A Thing
+02. Things Are Getting Better
+03. Linea Blanca
+04. Seul Ce Soir(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26FABD9342905C0672FC34524D1F4FA7BB04755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151061   (576368) от 17.07.2017
+
+Max Roach - Long as You're Living (1960) 1990, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotus Blossom [07:34]
+02. Drum Conversation [06:56]
+03. The Villa [07:39]
+04. Long as You're Living [10:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC566AE244E6D8A022113C873F49C3C4E76C2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

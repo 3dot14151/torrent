@@ -1,3 +1,29 @@
+###  Публикация: 1331112   (334665) от 13.10.2019
+
+JP Sample Line - Junior Porciuncula - Nord Stage 3 Ultimate Stage Pianos [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фортепиано для сэмплера Kontakt от Junior Porciuncula. Звуки, снятые с клавиатуры Nord, содержащие 43 фортепиано и 16 синтезаторов с современным скриптом, с возможностью легко менять пианино и синтезаторы.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870E70135860C871CD527DC56CC03C3E58032363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331405   (332152) от 15.10.2019
 
 Evolution Series - World Colors Clar-Duduk v1.02 RePack Андрей650071 [Kontakt, WAV]
@@ -646,34 +672,6 @@ Embertone - Walker 1955 Concert D Full [Kontakt]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F38D5DFF66D5D059E7EFAF3692026D937BA739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962216   (294283) от 04.12.2015
-
-Звуковые библиотеки - AudioJungle Bundle vol. 6 (2015) [WAV, MP3]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная подборка музыкальных треков
-используемых для музыкального сопровождения проектов After Effects.
-Некоторые треки имеют различные версии.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2C86709A6F955DF213C397A926EB43101DCF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

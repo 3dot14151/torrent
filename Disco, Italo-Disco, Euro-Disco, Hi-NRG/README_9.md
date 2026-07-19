@@ -1,32 +1,3 @@
-###  Публикация: 1200650   (794842) от 22.01.2018
-
-VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue System - My Bed Is Too Big (3:16)
-02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
-03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
-04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B137AAD42A0977493FE25F14B5B5F1DCA57B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200918   (794815) от 22.01.2018
 
 VA - From Russia With Italo Disco Vol. I-VIII (2012-2014) 10CD, Compilation, Full Set Limited Edition [MP3|320 Kbps] <Italo-Disco, Synth-Pop, Hi-NRG>
@@ -743,6 +714,35 @@ Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4C187F02C92A9574CAEB64E6A33959B5115552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206192   (782949) от 12.02.2018
+
+De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782949.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 875 Dollars (5:59)
+2. These Are Some Of The Things That I Think About (4:41)
+3. Smarter Harder Darker (3:54)
+4. Cause For Concern (4:59)(   Читать дальше...   )Жанр: Dance-pop, Italo-DiscoПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D803D1DC770471F2F89DA00A2A26220F615A0329
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,102 +1,3 @@
-###  Публикация: 550111   (453446) от 24.09.2012
-
-VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453446.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lili - Lady Gaga Отдыхает!
-002. Bloody Faeries - Revolution
-003. Дискотека Авария & Джиган & Вика Крутая - Карнавал
-004. Shogun Feat. Melissa Loretta - Skyfire
-005. Глюкоза И Макс Барских - Адреналин
-006. Don Omar - Hasta Que Salga El Sol
-007. Женя Тополь - Угадай
-008. Sean Paul Feat. Ester Dean - How Deep Is Your Love
-009. Юрий Шатунов - Ромашки
-010. Юрий Титов И Алекса - Мое Счастье(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF93357F65295799EF057CA595C97BF2D452340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942581   (453234) от 01.10.2015
-
-Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cendres De Lune (1986)
-002. Chloe (1986)
-003. Libertine (1986)
-004. Maman A Tort (1986)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 08:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550981   (453109) от 24.09.2012
-
-VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453109.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tisha feat. Reforma - В главных ролях (DJ Nejtrino & DJ Kirill Clash remix)
-002. Coctail Royal feat. Марина Алиева - Ты Сводишь С Ума
-003. Интонация (In2nation) - Не со мной
-004. Снежана Фирсова - Благодарю
-005. Кирил Андреев - Не Умирает Любовь
-006. Амилио - Все, что захочешь
-007. Игорь Саруханов - Черно-белые полосы
-008. Татьяна Овсиенко - Тому, кого люблю
-009. Audio Girls feat. Батишта - Игра
-010. DJ Fisun feat. Ika - Москва слезам не верит(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50DF825444E7CADE162133AA8889E7B4BD1DEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322107   (452204) от 27.08.2019
 
 VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -775,6 +676,93 @@ VA - Попсовая соточка MTV. Сборник 8 (2015) [MP3|256-320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:323B574E4981B75ADBCF977EEF9D4C59103BB2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569691   (447086) от 15.08.2022
+
+Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night for Day
+02. Fight the Feeling
+03. Breathless
+04. Can't Resist(   Читать дальше...   )Жанр: Pop, Pop - RockПродолжительность: 03:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525F35D94DAEE7BC4BE58D22B9323835B0C5E42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943550   (447021) от 04.10.2015
+
+Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acapulco
+02. Alla Faccia Di Belzebu
+03. Amare, Ricominciare, No No No
+04. Amarti Un Po'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21057101095AB5B1C5CD12B8F05AE284F646C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943801   (446912) от 04.10.2015
+
+VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 15) (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Night Train( Dj Nikolay-D Remix ) (08:23)
+02. Saphir & Dj Nikolay-D - Shot In The Night(Dj Nikolay-D Remix Long Version) (07:40)
+03. Italove & Dj Nikolay-D - Strangers In The Night(Dj Nikolay-D Remix ) (06:38)
+04. Ken Laszlo & Dj Nikolay-D - Mary Ann(Dj Nikolay-D Remix ) (05:52)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D82302A1E8AB2D313E7F91743D73B9F3A81B4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

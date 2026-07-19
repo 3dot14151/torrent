@@ -312,59 +312,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742036   (979676) от 05.01.2014
-
-Сборник: День всех влюбленных / Valentine's Day [JPEG,PNG,PDF,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_979676.jpg" />
-</div>
-
-
-###  Подробнее
-
-День всех влюбленных
-готовимся   :kiss4:Формат: JPEG,PNG,PDF,EPS,AIРазрешение файлов: до 10600х5600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB18C7F7BC84FB9C2087B77937FBAB8FA28DC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742555   (978009) от 06.01.2014
-
-Сборник: День всех влюбленных 1 / Valentine's Day 1 [JPEG,PSD,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_978009.jpg" />
-</div>
-
-
-###  Подробнее
-
-День всех влюбленныхФормат: JPEG,PNG,PSD,EPS,AI,SVGРазрешение файлов: до 8700х6300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D29B7DCD11EF18FCB7A60D8C07D147CCA640B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745924   (966865) от 15.01.2014
 
 Сборник Логотипов 9 / Logo Collection 9 [EPS,AI,SVG,CDR,PNG,PSD]
@@ -550,33 +497,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 756884   (920973) от 14.02.2014
-
-Сборник - День всех влюбленных 3 / Valentine's Day 3 [JPEG,PSD,EPS,AI,PNG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения ко Дню всех влюбленных
-для тех, кто еще не поздравилФормат: JPEG,PSD,EPS,AI,PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B640CF63F8DAB65DDECAC11E7356019E50F360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368824   (906952) от 21.03.2020
 
 Сборник - Design Bundles - 24 Floral Snowflakes SVG Vector - Cliparts - 406146 [EPS, PDF, SVG, DXF, PNG]
@@ -674,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F864F98BA81901744714FD6357E7A3FC8E2C321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765197   (875765) от 11.03.2014
+
+Сборник - Свадьба 4 / Wedding 4 [JPEG,PSD,EPS,AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадебная тематикаФормат: JPEG,PSD,EPS,AIРазрешение файлов: 2500х3700-8500х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790D67FDDBE4C2584A1518E5E7CD9883E6DA4C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374188   (874136) от 09.04.2020
+
+Сборники - Dealjumbo.com - Deeezy - 8 Abstract Geometric Flowers - 14410 [PNG, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные абстрактные 3D формы в векторе и растре. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNG, AI, EPSРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38643CDC86B52B5290A3B3A960A5293E204D77FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765905   (872420) от 13.03.2014
+
+Сборник - Дизайн футболок 20 / T-Shirt Factory 2 [PSD,EPS,CDR]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн футболокФормат: PSD,EPS,CDR превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7320A9A116D913857095B15AB20E1FB093DABD94
 ```
 
 https://mybot314.ru/tekegram_catalog/

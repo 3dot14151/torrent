@@ -1,3 +1,177 @@
+###  Публикация: 1210785   (778520) от 04.03.2018
+
+Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (8:20)
+ 02. Heart Of The Sun (4:55)
+ 03. Flight In Weightlessness (7:36)
+ 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210692   (778474) от 04.03.2018
+
+Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Guitar, Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (3:33)
+02. El Condor Pasa (3:12)
+03. Those Were The Days (3:10)
+04. Zorba's Dance (4:31)(   Читать дальше...   )Жанр: Acoustic Guitar, Instrumental, FlamencoПродолжительность: 02:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012703   (778361) от 02.05.2016
+
+Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Spirit    11:13
+02. Sacred Companion    07:46
+03. And Wings to Protect You    04:14
+04. Watcher of Heaven    07:57(   Читать дальше...   )Жанр: New Age, Celtic, InstrumentalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012796   (778332) от 02.05.2016
+
+Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues, New-age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Blues, New-ageПродолжительность: 00:24:55
+
+01. Mr Gibson
+02. La Llorona(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4A207FB9F5622E5A81E28605985B5EABC0801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012754   (778285) от 02.05.2016
+
+Андрей Данилко - После тебя... (2005) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отрываясь от земли (5:40)
+02. Весна (4:00)
+03. Собирая жёлтые листья (3:53)
+04. 22 (4:50)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B19A48762073533024599D9A7BC27FEEB39274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210916   (778166) от 05.03.2018
+
+Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stars and Stripes Forever (Sousa) (3:27)
+02. The Syncopated Clock (2:21)
+03. Home On the Range (3:15)
+04. Yankee Doodle (2:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210964   (778148) от 05.03.2018
 
 Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
@@ -571,180 +745,6 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:623C865CCDEE8DD8CC752447C6D0310E09CB01A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014176   (776889) от 06.05.2016
-
-Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Earth (4:18)
-02. God Made Me An Indian (5:08)
-03. The Buffalo Dance (3:24)
-04. Indian Nations (3:56)(   Читать дальше...   )Жанр: World, Native American, Enigmatic, New AgeПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859D06943656A4B1393AF79A4C159A9D11579036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211571   (776874) от 09.03.2018
-
-Jeff Grace - Cold in July (2014) [FLAC|Lossless] <Soundtrack, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776874.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wait (2006 Remastered LP Version) – White Lion
-2. Intruder
-3. Whole Lot Like You
-4. Crank Call and Break-In(   Читать дальше...   )Жанр: Soundtrack, ElectronicПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA855CFCF7E72402BC0DD8A7C275699686673EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211695   (776673) от 09.03.2018
-
-Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises to Keep [02:17]
-02. Reunited [02:36]
-03. Remember Not to Forget [03:13]
-04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A199277BFC8C4759BE2EFCF713EB952B50E141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211696   (776661) от 09.03.2018
-
-Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protect and Defend [02:38]
-02. Redshift [03:54]
-03. Subversive Deed [03:14]
-04. Divine Hammer [02:32](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73897B238AD9BF9B577EAF2869886F10AFFCBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014409   (776559) от 07.05.2016
-
-Michael Sheehan - Radiance (2004) [MP3|320 кб/с] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Morning    08:42
-02. Sunrise    05:12
-03. A Walk On Forgotten Shores    03:59
-04. Radiance    09:03(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92910E2DD6AC7F9B7632D21D89727B18BB110712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014533   (776530) от 07.05.2016
-
-Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Skymood)
-02. Flying Birds
-03. Lost
-04. Awakening(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6FE63BA78E6EEAB3EA858572A2CD4C0DF8FFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

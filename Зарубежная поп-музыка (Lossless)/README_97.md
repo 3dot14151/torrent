@@ -1,3 +1,148 @@
+###  Публикация: 1741911   (47326) от 09.08.2024
+
+Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop Instrumental, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notturno Di Venezia
+ 02. Gentil Tenzone
+ 0. La Primavera
+ 04. Anonimo Veneziano(   Читать дальше...   )Жанр: Pop Instrumental, Easy ListeningПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39967584759CC555AED68EEF849E757FE8DA8FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742351   (47210) от 11.08.2024
+
+VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fito Páez - El amor después del amor (5:11)
+02. Tiago PZK - Mi corazón (2:44)
+03. Yami Safdie - El Bolero (Acústico) (3:29)
+04. Alex Ubago - A gritos de esperanza (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F5DB36EAFEE6B22205CA56077588900F1CC04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743776   (46389) от 18.08.2024
+
+Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Italiano
+ 02. Soli
+ 03. Voglio L'Anima
+ 04. Donna Donna Mia(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80255C41C934256AEF9B6F7A52EAE1ABA522A803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744239   (46167) от 20.08.2024
+
+Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know? [00:04:09]
+02. Faith in This Colour [00:04:06]
+03. Is There Something I Should Know (Monster Mix) [00:06:44]
+04. Faith in This Colour (Alternate Slow Mix) [00:04:06]Жанр: Synth-pop, Pop RockПродолжительность: 00:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744396   (46067) от 21.08.2024
+
+David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Everybody Happy
+02. Lonely Is The Night
+03. Je T'Aime Means I Love You
+04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746080   (45264) от 29.08.2024
 
 Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,153 +745,6 @@ Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CCF1E7D64FB7E5E7F68FE8740BD0671BD55A515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754363   (40857) от 09.10.2024
-
-Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many People
-02. 3 Legs
-03. Ram On
-04. Dear Boy(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B23974B1F615EC51C2234A02C6B829569F9D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754369   (40852) от 09.10.2024
-
-Paul McCartney, Wings - Band On The Run (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Band on the Run
-02. Jet
-03. Bluebird
-04. Mrs Vandebilt(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C8D6247AD05833D907150E30C479FC94193314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504481   (40620) от 12.10.2024
-
-Olivia Newton-John - Physical (1981) Deluxe Edition, Remastered, 2021, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tied Up - Remastered 2021 [00:04:29]
-02. Shaking You - Remastered 2021 [00:04:16]
-03. Face To Face [00:04:15]
-04. Physical - Long Version / Remastered 2021 [00:07:05](   Читать дальше...   )Жанр: Dance pop, Synth pop, BalladПродолжительность: 2 CD, 02:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E1D895F4E7CA4EC7965721FD7C6C111A3378A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755018   (40480) от 13.10.2024
-
-Army Of Lovers - Sexodus (2023) 2 x CD, Reissue, 2024, Maschina Records [FLAC|Lossless|image + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведское трио в составе Александра Барда, Жана-Пьера Барда и Доминики Печински с новым альбомом после 29-летнего молчания.
-В альбом вошли 7 новых песен и 3 классических хита в новой аранжировке.
-2-хдисковое переиздание от Maschina RecordsCD1 - Sexodus:
-01. Sexodus (3:32)
-02. Love Is Blue (featuring Olya Polyakova) (3:56)
-03. What’s That Look (featuring Tamer Wilde) (3:26)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834609830CEB67EBAF2CB9F4E8CE8EDE3720F48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755448   (40280) от 15.10.2024
-
-VA - Pop Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - Song for the Lonely (3:22)
-02. Jason Derulo - In My Head (3:18)
-03. Seal - Get It Together (3:58)
-04. New Order - World (The Price of Love) - Radio Edit (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5286E52F0A83ECFEE77415A76ACCCE804883AE99
 ```
 
 https://mybot314.ru/tekegram_catalog/

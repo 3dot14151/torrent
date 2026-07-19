@@ -1,3 +1,32 @@
+###  Публикация: 1101720   (893141) от 08.02.2017
+
+VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dianne Reeves - Smile [04:16]
+ 02.Holly Cole - (Looking For) The Heart Of Saturday Night [03:41]
+ 03.Marisa Monte - O Ceu [03:38]
+ 04.Cassandra Wilson - A Little Warm Death [05:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194EF900297E0ADA07D461C56702FA2857CA5F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102064   (893132) от 08.02.2017
 
 Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
@@ -426,35 +455,6 @@ Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55001477C3A4CBEF4352F1AF7FAC59DF8881755B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371582   (890274) от 31.03.2020
-
-Jeff Golub - Temptation (2005) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_890274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jeff Golub (Джефф Голуб) — известный американский джазовый гитарист, композитор, аранжировщик, продюсер. Родился 15 апреля 1955 года в городке Копли, штат Огайо. С ранних лет интересовался музыкой разных жанров и направлений: funk, jazz, blues, R&B, rock, pop, а в возрасте 8 лет уже взял в руки свою первую гитару. Формирование музыкального вкуса Джеффа прошло (   Читать дальше...   )01. Uptown Express
-02. On The Wes Side
-03. Metro Cafe
-04. Cream And Sugar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F590E221E02A9CCA03B04BD98021D37013C524
 ```
 
 https://mybot314.ru/tekegram_catalog/

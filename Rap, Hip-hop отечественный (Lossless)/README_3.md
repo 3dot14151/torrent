@@ -1,61 +1,3 @@
-###  Публикация: 1717623   (58972) от 21.04.2024
-
-White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Растаман
- 02. Ангел
- 03. За Окном
- 04. Вован Кожемякин(   Читать дальше...   )Жанр: HipHopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C171FA70AEFBC8078771AA12B2DC10F291E8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726306   (54992) от 29.05.2024
-
-NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Там, Где Клён Шумит
- 03. Дождь
- 04. Где Я Ангелом Не Стал(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36646B9A5A2C6A8E0D4E568B8A4826B0A9EBF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726304   (54986) от 29.05.2024
 
 Ноггано - Первый (2008) [WavPack|Lossless|image + .cue] <Hardcore Hip-Hop, Rap>
@@ -166,35 +108,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747678   (44417) от 06.09.2024
-
-Каста - Новинки зарубежного рэпа (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эмигрант эмигранту
-2. Кровопровод «Дружба»
-3. Священный мясокомбинат
-4. Ссылочка ВКонтакте(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FCCD742F54EE22B73DB0B8058782BA70681C02
 ```
 
 https://mybot314.ru/tekegram_catalog/

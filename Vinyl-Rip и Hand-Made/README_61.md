@@ -1,25 +1,25 @@
-###  Публикация: 1271279   (149756) от 23.12.2018
+###  Публикация: 1684158   (127971) от 14.12.2023
 
-Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. School (5:33)
-02. Bloody Well Right (4:30)
-03. Hide In Your Shell (6:44)
-04. Asylum (6:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:49
+Semblant - готик/экстремальный симфонический металл из Куритибы, Парана, Бразилия, образованная в 2006 году.2010 - Last Night of Mortality
+2011 - Behind the Mask
+2014 - Lunar Manifesto
+2020 - ObscuraЖанр: Extreme Symphonic MetalПродолжительность: 03:52:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
+magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677924   (149430) от 19.11.2023
+###  Публикация: 1684117   (127952) от 14.12.2023
 
-Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warfect - трэш-метал группа из Швеции, основана в 2008 г.2009 - Depicting the Macabre
-2013 - Exoneration Denied
-2016 - Scavengers
-2020 - Spectre Of DevastationЖанр: Thrash MetalПродолжительность: 03:04:35
+Phase I: Singularity
+A-a - Prologue: The Blackboard
+A-b - The Theory Of Everything Part 1
+A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:29:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
+magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434719   (149216) от 25.12.2020
+###  Публикация: 1684054   (127947) от 14.12.2023
 
-VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+M3U|MC-Rip] <Pop, Country>
+Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martina McBride - The Christmas Song (Chestnuts Roasting on an Open Fire)
-White Christmas
-1999 - RCA - Torme / Wells
-02. Gene Autry - Here Comes Santa Claus(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:32:03
+Anubis Gate - датская пауэр/прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
+2005 - A Perfect Forever
+2007 - Andromeda Unchained
+2009 - The DetachedЖанр: Progressive/Power MetalПродолжительность: 09:49:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
+magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271655   (148732) от 24.12.2018
+###  Публикация: 1684124   (127946) от 14.12.2023
 
-Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World & Country>
+System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Heittopussi
-A2 Sarkijarven Bolero
-A3 Vauhdin Maailma
-A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:40:41
+A1 Attack
+A2 Dreaming
+A3 Kill Rock 'N Roll
+A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
+magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271697   (148714) от 24.12.2018
+###  Публикация: 1684413   (127816) от 15.12.2023
 
-Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
+System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Johnny Come Home
-A2 Couldn't Care More
-A3 Don't Ask Me To Choose
-A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:42
+A1 Soldier Side - Intro
+A2 B.Y.O.B.
+A3 Revenga
+A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
+magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271681   (148620) от 24.12.2018
+###  Публикация: 1684524   (127797) от 15.12.2023
 
-Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Rock'n'Roll>
+Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Face A:
-01. Devil Woman
-02. The Young Ones
-03. Do You Wanna Dance(   Читать дальше...   )Жанр: Classic Rock, Rock'n'RollПродолжительность: 00:59:35
+Silent Force - немецкая группа Heavy Metal/Power Metal, образованная в 1999 году.2000 - The Empire Of Future
+2001 - Infatuator
+2004 - Worlds Apart
+2007 - Walk The Earth(   Читать дальше...   )Жанр: Power MetalПродолжительность: 05:03:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
+magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347940   (147033) от 25.12.2019
+###  Публикация: 1684362   (127793) от 15.12.2023
 
-Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues-Rock>
+Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash/Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In the Mood (3:47)
- 02. All My Love (3:38)
- 03. The Best Thing (4:52)
- 04. Bad Love (4:08)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:53
+Stam1na («Стойкость») — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
+2006 - Uudet Kymmenen Kaskya
+2008 - Raja
+2010 - Viimeinen AtlantisЖанр: Progressive/Thrash/Heavy MetalПродолжительность: 09:33:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
+magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087489   (146511) от 27.12.2016
+###  Публикация: 1684406   (127764) от 15.12.2023
 
-Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Love On The Line (4:41)
-A2. Alright Down Get Boogie (Muala Rusic) (3:58)
-A3. The Song (They Love To Sing) (6:09)
-A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
+A1 - The Day That The World Breaks Down
+A2 - Sea Of Machines
+A3 - Everybody Dies
+B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
+magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435126   (146183) от 27.12.2020
+###  Публикация: 1684782   (127351) от 17.12.2023
 
-VA - Песни из телефильма ''Тайна Снежной Королевы'' (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop, Children's>
+Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thrash, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 О. Ефремов - Песня Сказочника ''Однажды В Старой Дании...''
-A2 С. Степченко - Песенка Герды ''Когда Повзрослеешь...''
-A3 А. Фрейндлих - Песня Снежной Королевы ''Все Равно...''
-A4 С. Степченко - Песенка Герды ''Где Же Сказка?''(   Читать дальше...   )Жанр: Soundtrack, Pop, Children'sПродолжительность: 00:40:46
+A1 Rotten Plague
+A2 Stick In Back
+A3 Brainsuckers Spiders
+A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
+magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 959934   (146130) от 27.12.2016
+###  Публикация: 1685955   (126869) от 20.12.2023
 
-Михаил Боярский поёт песни Юрия Чернавского - Лунное Кино (1987) [APE 2.0 24/96|image+.cue (Vinyl-Rip)] <Pop, Synth-Pop>
+Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Лунное Кино
-02. Если Ты Помнишь
-03. Капитан
-04. Фараон(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 00:40:23
+A1 Queen Of Death
+A2 Protector
+A3 Demolition
+A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
+magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678462   (146041) от 21.11.2023
+###  Публикация: 1685908   (126863) от 20.12.2023
 
-Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal>
+Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Look In Her Eyes (05:51)
-02 - Sister Of Pain (05:03)
-03 - Can't Have Your Cake (03:56)
-04 - The Edge (04:54)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:48:24
+A1. Future Warriors
+A2. Starchild
+A3. Dead Man's Hand
+A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
+magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 969121   (145212) от 28.12.2015
+###  Публикация: 1686072   (126770) от 21.12.2023
 
-Группа Диалог - Просто (1985) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Indie Rock>
+Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Поймем Потом • We'll Understand One Day	3:35
-02. Свет в Окне • Light In The Window	3:20
-03. Маргарита • Margarita	1:40
-04. Любил Тебя • I Loved You	3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:05
+A1 Люди В Ожидании
+A2 Муха На Стекле
+A3 Город
+A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
+magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087703   (144425) от 28.12.2016
+###  Публикация: 1685934   (126751) от 21.12.2023
 
-П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
+Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-Сюита из балета Лебединое озеро
-01. Сцена 3:22
-02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
+A1 - Queen Of Death
+A2 - Protector
+B1 - Demolition
+B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
+magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271896   (144407) от 27.12.2018
+###  Публикация: 1686210   (126734) от 21.12.2023
 
-VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soundtrack>
+Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Old Bethpage Brass Band - Drums Of War"
-A2 Paul Roebling - Oliver Wendell Holmes (Quote)
-A3 Evan Stover, Jay Ungar, Matt Glaser (Fiddle) and Molly Mason, Russ Barenberg (Guitar) - Ashokan Farewell
-A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:37
+Kalmah — финская англоязычная метал-группа. «Kalmah» в переводе с карельского значит «до смерти». Kalmah специализируется на быстром и неоклассическом направлении метала.2000 - Swamplord
+2002 - They Will Return
+2003 - Swampsong
+2006 - The Black WaltzЖанр: Melodic Death/Power MetalПродолжительность: 07:00:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
+magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678765   (142479) от 23.11.2023
+###  Публикация: 1823947   (126077) от 13.10.2025
 
-Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A. The Moor (11:23)
-B1. Godhead's Lament (9:47)
-B2. Benighted (4:59)
-C1. Moonlapse Vertigo (8:59)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:02:20
+Unanimated — шведская метал-группа, основанная в 1988 году. Является одним из основоположников мелодичного блэк-метала.1993 - In The Forest Of The Dreaming Dead
+1995 - Ancient God Of Evil
+2009 - In The Light Of Darkness
+2018 - Annihilation (EP)Жанр: Melodic Death/Black MetalПродолжительность: 03:19:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
+magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272624   (142464) от 28.12.2018
+###  Публикация: 1823944   (126076) от 13.10.2025
 
-VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-01. ''Руки Вверх'' - Ай-яй-яй
-02. ''Вирус'' - Кап-кап
-03. ''Ночной Патруль'' - Первая любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:59
+Countless Skies - рок-руппа из Хартфордшира, Великобритания, образовалась в 2009 году под названием Hatespire, но в 2012 году сменила название на Countless Skies.2014 - Countless Skies (EP)
+2016 - New Dawn
+2020 - GlowЖанр: Melodic Death MetalПродолжительность: 01:51:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
+magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348452   (142401) от 28.12.2019
+###  Публикация: 1823936   (126075) от 13.10.2025
 
-Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Rock>
+Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Woman Blues (3:36)
- 02. War in My Mind (4:22)
- 03. Without Words in the Way (4:34)
- 04. Let It Grow (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: Кодек: FLAC 2.0 24/192
+Callenish Circle - метал-группа из Нидерландов, существовавшая с 1992 по 2007 годы1996 - Drift Of Empathy
+2000 - Graceful... Yet Forbidding
+2002 - Flesh_Power_Dominion
+2003 - My Passion, Your PainЖанр: Melodic Death MetalПродолжительность: 04:23:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
+magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520157   (141809) от 28.12.2021
+###  Публикация: 1823933   (126074) от 13.10.2025
 
-The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Hard Rock>
+Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death By Rock And Roll (3:54)
- 02. Only Love Can Save Me Now (5:12)
- 03. And So It Went (4:29)
- 04. 25 (5:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:13
+A1 Let's Begin
+A2 Lullaby Of Broadway
+A3 Let There Be Love
+A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:25:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
+magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435802   (141802) от 29.12.2020
+###  Публикация: 1823608   (125889) от 12.10.2025
 
-Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A So Weit So Gut (Maxi-Version)
-Written-By – Jurgen Attig, Michael Reincke
-B Hinein Ins Wilde Pralle Leben
-Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
+A1 Iti Citesc In Ochi
+A2 Toate Femeile
+A3 O Inima De 16 Ani
+A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:26:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
+magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +548,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679006   (141592) от 23.11.2023
+###  Публикация: 1686977   (125707) от 25.12.2023
 
-Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash/Death Metal>
+Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soulfly — американская грув-метал группа, образованная в Финиксе, штат Аризона, в 1997 году бывшим фронтменом Sepultura Максом Кавалера.1998 - Soulfly
-2000 - Primitive
-2002 - 3
-2004 - ProphecyЖанр: Nu-Metal with Folk influences; Groove/Thrash/Death MetalПродолжительность: 12:32:04
+Charred Walls of the Damned — американская хэви-метал супергруппа, образованная в 2009 году и состоящая из барабанщика Ричарда Кристи, басиста Стива Ди Джорджио, вокалиста Тима «Риппера» Оуэнса и гитариста Джейсона Суэкофа.2010 - Charred Walls Of The Damned
+2011 - Cold Winds on Timeless Days
+2016 - Creatures Watching Over The DeadЖанр: Power/Thrash MetalПродолжительность: 02:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
+magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,34 +576,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 740292   (141203) от 30.12.2013
+###  Публикация: 1687458   (125459) от 27.12.2023
 
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Electro, Synth-pop>
+Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. I Love You  3:23
-2. Lost Again  4:18
-3. No More Words  3:59
-4. Crash Dance  2:10
-5. Great Mission  2:57
-6. You Gotta Say Yes To Another Excess	2:10
-Сторона 2
-1. Swing  3:22
-2. Heavy Whispers  3:57(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 00:37:30
+Dissection — шведская мелодик-блэк-дэт-метал-группа, основанная вокалистом и гитаристом Йоном Нёдтвейдтом в Стрёмстаде в 1989 году.1993 - The Somberlain
+1995 - Storm of the Light's Bane
+2006 - ReinkaosЖанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 02:23:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
+magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348746   (140982) от 29.12.2019
+###  Публикация: 1688230   (125286) от 28.12.2023
 
-Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
+Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Experimental Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Happens to the Heart (4:34)
- 02. Moving On (3:12)
- 03. The Night of Santiago (4:15)
- 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
+A1. Denature (04:50)
+A2. Stilled the Hollows' Sway (06:11)
+A3. Penitent (05:52)
+A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:50:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
+magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679139   (140599) от 24.11.2023
+###  Публикация: 1688691   (125045) от 30.12.2023
 
-Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. The Leper Affinity (10:23)
-A2. Bleak (09:17)
-B1. Harvest (06:01)
-B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
+Deathstars — шведская индастриал-метал-группа, основанная в январе 2000 года. Группа не придерживается каких-либо жанровых рамок и играет в своем стиле, называемом deathglam.2002 - Synthetic Generation
+2006 - Termination Bliss
+2009 - Night Electric Night
+2014 - The Perfect CultЖанр: Industrial Metal, Gothic MetalПродолжительность: 05:26:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
+magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272661   (140587) от 29.12.2018
+###  Публикация: 1689087   (124859) от 31.12.2023
 
-VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-01. Балаган LTD & Филипп Киркоров - Наивная
-02. Таня Буланова - Пела Я Тебе
-03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
+Dark Lunacy - итальянская мелодик-дэт-метал группа, образованная в 1997 году в Парме.1998 - Silent Storm (EP)
+2000 - Devoid
+2003 - Forget Me Not
+2006 - The DiaristЖанр: Symphonic/Melodic Death MetalПродолжительность: 06:17:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
+magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272890   (140396) от 29.12.2018
+###  Публикация: 1690823   (123292) от 12.01.2024
 
-Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock And Roll (3:57)
-02. Celebration Day (3:38)
-03. Black Dog (3:45)
-04. Over The Hills And Far Away (6:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:15
+A1. An Ordinary Dream (Enla Momento)
+B1. To Love, A Tyrant
+B2. Her Halo
+C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:56:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
+magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -729,27 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678561   (139726) от 24.11.2023
+###  Публикация: 1690687   (123278) от 12.01.2024
 
-КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
+Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death/Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[4:16] 1. Атаман
-[4:16] 2. Атаман (Karaoke)
-[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
+Graveworm — итальянская дарк-метал-группа, образованная в 1993 году.1997/1998 - When Daylight's Gone & Underneath The Crescent Moon
+1999 - As The Angels Reach The Beauty
+2001 - Scourge Of Malice
+2003 - Engraved In BlackЖанр: Melodic Black/Death/Gothic MetalПродолжительность: 08:17:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
+magnet:?xt=urn:btih:85ADEDB81DB9292B0C30461F3BBB3935CD18747E
 ```
 
 https://mybot314.ru/tekegram_catalog/

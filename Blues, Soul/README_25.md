@@ -1,3 +1,61 @@
+###  Публикация: 938000   (486063) от 16.09.2015
+
+Leslie Blackshear Smith - How Love Works Part 1 (2015) [MP3|320 кб/с]<Blues, Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Love Works (04:06)
+02. Quit You (03:47)
+03. Everybody Stumbles (05:47)
+04. Redemption (04:00)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AE9064CE2952656CC5BAACC5861882E525DB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055600   (485784) от 23.09.2016
+
+VA - The Excello Blues Story (2015) 2CD [MP3|320 Kbps] <Funk , Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485784.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lightnin' Slim - I'm A Rollin' Stone (2:28)
+02. Slim Harpo - Buzz Me Babe (2:16)
+03. Roscoe Shelton - Let Me Believe In You (2:19)Жанр: Funk , Soul, BluesПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CA8CEBFE03F66FD0A36F58EB68989A0DBB3FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056050   (484079) от 24.09.2016
 
 Sari Schorr - A Force Of Nature (2016) [MP3|320 Kbps] <Blues Rock>
@@ -688,64 +746,6 @@ The Geoff Everett Band - The Quick And The Dead (2012) [MP3|320 Kbps] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5D7A85F10085483FCA530C6F2D42C90242D161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407508   (464116) от 08.09.2020
-
-Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Man Blues
-02. Key To The Highway
-03. Young Fashioned Ways
-04. I'm Gonna Move To The Outskirts Of Town(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454C0111FD403A38AA35C82AFF032B9A06931AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161770   (463558) от 30.08.2017
-
-The Dirty Mojo Blues Band - Made Cents At The Time (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Ice (02:52)
-02. Too Much Alcohol (02:50)
-03. That's Alright (04:28)
-04. Morrow County Jail (03:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F9315C3AF676A31715CB8A06EF9672A0ABA515
 ```
 
 https://mybot314.ru/tekegram_catalog/

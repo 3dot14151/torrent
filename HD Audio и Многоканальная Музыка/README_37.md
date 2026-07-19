@@ -1,3 +1,177 @@
+###  Публикация: 1319904   (477194) от 15.08.2019
+
+Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477194.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244967   (475535) от 04.09.2018
+
+Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475535.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Encounters
+A2 Seven Lives
+A3 Touchness
+A4 The Same Parents(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160621   (473898) от 25.08.2017
+
+Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473898.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Waiting on the Borderline (3:46)
+A2. How Do You Feel Now? (4:52)
+A3. Back to the Wall (5:12)
+A4. Highway For Fools (3:14)(   Читать дальше...   )Производство: Polydor - 32 992 0Жанр: Progressive RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823783   (473389) от 21.09.2014
+
+The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473389.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Hello Again (3:46)
+A2. Looking For Love (3:52)
+A3. Magic (3:57)
+A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939680   (473210) от 22.09.2015
+
+Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Viens, Viens
+Written-By – H.R. Barnes, R. Bernet, Sven-Linus
+02.	Arlequin
+Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939749   (473093) от 22.09.2015
+
+David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473093.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 5 A.M (3:04)
+A2. Rattle That Lock (4:56)
+A3. Faces Of Stones (5:32)
+A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Производство: Columbia RecordsЖанр: Progressive RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320246   (470791) от 18.08.2019
 
 Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues Rock>
@@ -567,180 +741,6 @@ A4. Heart's Grown Cold (4:15)(   Читать дальше...   )Произво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63C6F44FF58D39BCDEEF57E41650180BF44B7744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322081   (452297) от 27.08.2019
-
-Robert Miles - Dreamland (1996/2019) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Dream-House, Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452297.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Children (Dream Version) (7:05)
-A2. Fable (Message Version) (6:23)
-A3. Fantasya (5:44)
-B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, TranceПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061186   (448348) от 10.10.2016
-
-Московский Камерный оркестр - В. А. Моцарт – Симфонии №40, №24 (1975) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Симфония № 40 Соль Минор, К.550
-1. Molto Allegro  8:40
-2. Andante  15:30(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061105   (448338) от 10.10.2016
-
-Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <World Music, Ethnic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ancestor
-02. Black Elk
-03. Raben's Light
-04. Craftsman's Prelude(   Читать дальше...   )Жанр: World Music, Ethnic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061148   (448105) от 10.10.2016
-
-Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Соната №8 до минор "Патетическая", соч. 13
-1. Grave. Allegro Molto E Con Brio  8:22
-2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943330   (446906) от 04.10.2015
-
-Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Strangers [5:36]
-02. Deep Six [5:02]
-03. Third Day Of A Seven Day Binge [4:30]
-04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570206   (444820) от 16.08.2022
-
-David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Is Love
-02. Cowboy Movie
-03. Tamalpais High (At About 3)
-04. Laughing(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FC23E0C52ACD0F0356C7D7C0D12C86993D2A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

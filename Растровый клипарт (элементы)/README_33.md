@@ -1,29 +1,3 @@
-###  Публикация: 1783250   (69831) от 05.03.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Free Deco Geometry - 3D Lettering - 16762 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F6117DD34D74770DF6BD9183BD6B61447C9AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783251   (69827) от 05.03.2025
 
 Растровый клипарт - Dealjumbo.com - Deeezy - Steampunk Lights - Free 3D Lettering - 34667 [PNG]
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2010A98E2B75E56E9FCD0121438D608FCC161F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790219   (68132) от 08.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Purple Flowers Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный цветочный клипарт 300 DPI.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD030B0424B762A38F375EE787FDCDFAE065B68
 ```
 
 https://mybot314.ru/tekegram_catalog/

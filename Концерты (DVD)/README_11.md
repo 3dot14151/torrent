@@ -1,171 +1,3 @@
-###  Публикация: 1260516   (307108) от 09.11.2018
-
-Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия финального выступления Стивена Уилсона в зале The Royal Albert Hall 28.03.2018г в рамках тура в поддержку альбома «To The Bone». Стивен Уилсон (Steven Wilson) – один из крупнейших представителей прогрессивного рока, выпустивший более пятидесяти альбомов на протяжении трех десятилетий своей карьеры, его последний полноформатный альбом «To The Bone» стал (   Читать дальше...   )01. Intro Truth
-02. Nowhere Now
-03. Pariah
-04. Home Invasion / Regret #9(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: James RussellСубтитры: отсутствуютПродолжительность: 02:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183662   (305413) от 15.11.2017
-
-Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rоb Orlemans & Half Past Midnight - голландское трио, играющее блюз-рок в лучших его традициях. "Лицо" группы - Rob Orlemans, инновационный и интересный гитарист-левша, обладающий своим стилем и неповторимым тембром звучания – динамичным и захватывающим. Группа завоевала популярность и авторитет среди поклонников всего мира за их взрывные, живые концерты (   Читать дальше...   )01. Introduction
-02. Going Down (D.Nix)
-03. Libertyville (R.Orlemans)
-04. Buzzin'King Bee (R.Orlemans / J.Moore)(   Читать дальше...   )Производство: Нидерланды, Silvox RecordsЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:26:38 + 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158559   (303835) от 14.12.2009
-
-Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) 2*DVD-9
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal/Thrash MetalПеревод: ОригинальныйСубтитры: Английский, испанский, португальскийПродолжительность: 02:25:05 + 01:40:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960701   (303342) от 30.11.2015
-
-Cesaria Evora - Live D'amor (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cesaria Evora - Live D'amor En Concert Au Grand Rex Avril 5, 20041. Nutridinha
-2. Isolada
-3. Vaquinha Mansa
-4. Velocidade(   Читать дальше...   )Производство: BMG RecordsЖанр: Morna, Fado, FolkПеревод: ОтсутствуетПродолжительность: 01:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077840   (302413) от 30.11.2016
-
-Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
-02. See See Baby
-03. Some Other Day, Some Other Time
-04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184364   (301295) от 17.11.2017
-
-Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184338   (301180) от 17.11.2017
 
 Dio - Evil Or Divine (Live in New York City) (2003) DVD9
@@ -731,6 +563,179 @@ Part 1 - Accept
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7997953D6B31B63E8D69F5D664AB3CC56DC12381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266676   (269093) от 03.12.2018
+
+Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Beth Hart, состоявшегося 4 мая 2018г в зале The Royal Albert Hall.01. As Long As I Have A Song
+02. For My Friends
+03. Lifts You Up
+04. Close To My Fire(   Читать дальше...   )Производство: Provogue/Mascot Label GroupЖанр: RockРежиссер: Nigel DickАктеры: Beth Hart & bandСубтитры: отсутствуютПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080E9AB255F93D54AFF2A7C7CFD0B9DB96D5589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104052   (269038) от 03.12.2018
+
+Григорий Лепс - Парус Live (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Григория Лепса в Кремле "Парус" (Высоцкий 21 века)
+Идея записать песни Владимира Высоцкого возникла ещё 5 лет назад, когда впервые на концерте памяти великого артиста Григорий Лепс исполнил «Парус».
+Мощный темперамент, мужественная харизма, умение петь сердцем – то, что объединило двух певцов и то, что сделало возможным сам факт существования проекта, (   Читать дальше...   )Жанр: КонцертРежиссер: Даниил МишинАктеры: Ирина Завьялова, Роман Грачев, Анна Горнова, Михаил Чуваков, Ирина Усачева, Светлана Кирилина, Сергей БакинСубтитры: ОтсутствуетПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189568   (268732) от 08.12.2017
+
+Extreme - Take Us Alive (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление бостонских фанк-металистов EXTREME, проходившее в их родном городе в 2009-м году. "Это захватывающее дыхание, головокружительное выступление необыкновенно, - пишет в рецензии на DVD журнал Classic Rock, - оно способно остановить швыряющихся бутылками деревенщин из Миссисипи, заставить улыбнуться гранджеров из Сиэттла и побудить амазонские (   Читать дальше...   )01. Decadence Dance
+02. Comfortably Numb
+03. Rest In Peace
+04. It's a (Monster)(   Читать дальше...   )Производство: Frontiers RecordsЖанр: РокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C67F18876DED3D3B8200FD166775A7867293A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189827   (268700) от 08.12.2017
+
+Bad Company - In Concert. Merchants of Cool (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268700.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2002-м году Bad Company, которые готовятся вскоре отметить 30-летие (на тот момент) своего подвижничества на ниве рок-н-ролла, проехали с гастрольным туром по США и Великобритании. К этому времени из оригинального состава, сформированного еще в 1973 году и принесшего группе известность, остались только вокалист Paul Rodgers и барабанщик Simon Kirke. Для участия (   Читать дальше...   )01. Burnin' Sky
+02. Can't Get Enough
+03. Good Lovin' Gone Bad
+04. Feel Like Makin' Love(   Читать дальше...   )Производство: Sanctuary RecordsЖанр: Хард-рок, блюз-рокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AA327923E1A50C6BBDCD1558F844303862C8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266899   (268346) от 04.12.2018
+
+The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная видеоверсия выступления The Rolling Stones на сцене Miami’s Joe Robbie stadium 25.11.1994г.Бонусом добавлен фрагмент чуть более раннего выступления в Нью-Джерси на сцене Giants Stadium из того же тура Voodoo Lounge.Disc 1
+01. Whoopi Goldberg Intro
+02. Not Fade Away
+03. Tumbling Dice(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: David MalletАктеры: The Rolling StonesСубтитры: отсутствуютПродолжительность: 02:29:38 + 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A710325C686D2A5BFC6673DB17F179F9BF761192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 427798   (267605) от 28.12.2011
+
+Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
+02. Throughout
+03. Ron Carter
+04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

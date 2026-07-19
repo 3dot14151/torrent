@@ -1,3 +1,90 @@
+###  Публикация: 1220971   (698699) от 22.04.2018
+
+Gus G. - Fearless (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греческий гитарист-виртуоз Gus G., хорошо известный по сотрудничеству с Оззи Осборном и собственной группе Firewind, выпустил свой новый сольный альбом. Пластинка получила название "Fearless" и вышла 20 апреля 2018 года на лейбле AFM Records.1. Letting Go (4:10)
+ 2. Mr. Manson (4:35)
+ 3. Don't Tread on Me (4:48)
+ 4. Fearless (4:25)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06CD077540A206F83D0DD21B3BA1716B02F5614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220977   (698603) от 22.04.2018
+
+Temperance - Of Jupiter and Moons (2018) [MP3|320 Kbps] <Melodic Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская метал-группа Temperance выпустила свой новый альбом. Пластинка под названием "Of Jupiter and Moons" появилась 20 апреля 2018 года и включила 10 композиций.01. The Last Hope in a World of Hopes (4:50)
+ 02. Broken Promises (4:32)
+ 03. Of Jupiter and Moons (4:05)
+ 04. Everything That I Am (3:30)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Modern MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A98A9C07D307353862AA6E7ACF39879C6FDC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960418   (697923) от 18.06.2016
+
+Nemesea - 5 альбомов (2004-2016) [MP3|320 кб/с]<Gothic, Symphonic, Industrial, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nemesis (Intro)
+02 - Threefold Law
+03 - Empress
+04 - Angel In The Dark(   Читать дальше...   )Жанр: Gothic, Symphonic, Industrial, Alternative MetalПродолжительность: 04:15:09 ll
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B931BDF111D39B93DB72732AF1DC22F7E40E05D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288176   (697874) от 10.03.2019
 
 Kriegsmaschine - Apocalypticists (2018) [MP3|320 Kbps] <Black Metal>
@@ -666,99 +753,6 @@ Misery Index - 6 Альбомов + 2 EP (2003-2019) [MP3|~245-320 кб/с]<Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79A4C031F799B0B67AC965E7FB65D348B81732B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819689   (687987) от 15.03.2019
-
-Any Given Day - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с]<Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687987.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - My Longest Way Home
-2016 - Everlasting
-2018 - Loveless (Single)
-2019 - OverpowerЖанр: Melodic MetalcoreПродолжительность: 02:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84481EB9ABD3B3DD3809AE7A58E186EC371D7C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504638   (687699) от 06.06.2012
-
-Delain - We Are The Others (2012) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal,Melodic Metal,Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Machine (4:36)
-02. Electricity (4:11)
-03. We Are The Others (3:19)
-04. Milk And Honey (4:28)
-05. Hit Me With Your Best Shot (3:58)
-06. I Want You (4:52)
-07. Where Is The Blood (feat. Burton C. Bell) (3:16)
-08. Generation Me (3:44)
-09. Babylon (4:07)
-10. Are You Done With Me (3:07)(   Читать дальше...   )Жанр: Symphonic Metal,Melodic Metal,Female VocalsПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F6FD0B88CB7A0A5F9E5D3252729DADC54B72BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222083   (687479) от 28.04.2018
-
-Riot V - Armor Of Light (2018) 2CD Digipak Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687479.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Victory
-02. End of the World
-03. Messiah(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC67217739F83060BA8FD5828E908D66C51FD5A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

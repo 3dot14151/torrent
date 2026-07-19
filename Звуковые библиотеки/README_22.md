@@ -1,3 +1,29 @@
+###  Публикация: 1712576   (112141) от 03.04.2024
+
+Звуковые библиотеки - Amazon - Blastwave FX Haunted Halloween 300 Scary Sound Effects from Beyond the Grave [FLAC]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные сэмплы звуковых эффектов Хэллоуина  для создания фильмов данной тематики.Формат: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE2FFB2BD850FECA45A780EEF94788AB4052420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712583   (112140) от 03.04.2024
 
 Звуковые библиотеки - Splice - Blastwave FX Water and Aquatic Bible [WAV]
@@ -649,32 +675,6 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 ###  Подробнее
 
 MIDI Pack - Collection TWO - Это огромнейший сборник содержащий 35 000 Миди файлов для вашего творчества!Название программы: MIDI Pack - Collection TWO Part 1Язык интерфейса: АнглийскийФормат: MIDI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478460   (86549) от 05.04.2012
-
-MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86549.jpg" />
-</div>
-
-
-###  Подробнее
-
-MIDI Pack - Collection TWO - Это огромнейший сборник содержащий 35 000 Миди файлов для вашего творчества!Название программы: MIDI Pack - Collection TWO Part 4Язык интерфейса: АнглийскийФормат: MIDI
 
 ## Скачать торент
 ```bash

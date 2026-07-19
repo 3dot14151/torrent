@@ -1,3 +1,30 @@
+###  Публикация: 1360220   (961842) от 14.02.2020
+
+VideoSolo Video Converter Ultimate 1.0.30 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертировать видео / аудиоматериалы между форматами 300 +
+VideoSolo Video Converter Ultimate позволяет конвертировать практически все существующие форматы, включая AVI, FLV, MP4, M4V, MKV, MOV, 3GP, 3G2, SWF, WMV, ASF, AAC, AC3, AIFF, FLAC, M4A, MP3, OGG, WAV, WMA и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: VideoSoloПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7DDD0BD4DF6AFADAD29A4421A8C52B75BDAD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360104   (961812) от 14.02.2020
 
 Google Chrome 80.0.3987.106 Portable by Cento8 [Ru/En]
@@ -672,35 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16AFC05382335412964E1FE8190FC6B1EA56336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978447   (961271) от 25.01.2016
-
-Футбол. Чемпионат Франции 2015-2016. 22 тур. Ренн - Газелек Аяччо (22.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961271.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 января 2016, пятница. 22:30 МСК
-22-й тур
-
-Стадион: Стад де ла Рут де Лорьян (Ренн, Франция) , 18 022 зрителя (58 % при вместимости 31 127)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ADAF53B2425C0AB42CEFAF254E46A3408BA246
 ```
 
 https://mybot314.ru/tekegram_catalog/

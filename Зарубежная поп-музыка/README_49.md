@@ -1,3 +1,32 @@
+###  Публикация: 1567231   (476313) от 01.08.2022
+
+VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JP Cooper - The Only Reason (3:39)
+02. Stephen Sanchez - Until I Found You (2:57)
+03. Billie Eilish - Your Power (4:05)
+04. a-ha - Take On Me (2017 Acoustic) (3:04)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C105D9B5B2B23CD7C9088691DEBCE30C86AE4D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160356   (475854) от 24.08.2017
 
 Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|320 Kbps] <Pop Rock, New Wave>
@@ -757,35 +786,6 @@ VA - The Best Of TVI Records - Dance The Night Away (1995) CD [MP3|320 Kbps] <Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5817210B266A445266302D1F048F71EC92BC667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162476   (459152) от 01.09.2017
-
-Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 [MP3|320 Kbps] <Electronic, Reggae, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get On Up And Dance (4:02)
-02. Ninos De La Playa (3:06)
-03. Marinero (3:30)
-04. Mandela (4:47)(   Читать дальше...   )Жанр: Electronic, Reggae, Pop, DiscoПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

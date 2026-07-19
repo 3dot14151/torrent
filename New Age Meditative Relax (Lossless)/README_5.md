@@ -1,3 +1,32 @@
+###  Публикация: 1371160   (885382) от 03.04.2020
+
+Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|tracks + .cue] <World, Tibetan Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagination (18:36)
+02. Faires (14:34)
+03. The Bliss (14:48)
+04. Maitighar (9:33)(   Читать дальше...   )Жанр: World, Tibetan FluteПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F706956393DBF179BC9B6B0EF512D5633BDD321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373149   (882074) от 05.04.2020
 
 Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
@@ -715,35 +744,6 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110292   (853735) от 02.03.2017
-
-Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrossover, Pop-art, Progressive>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (3:28)
-02. No Man's Land (5:48)
-03. Shine On (4:54)
-04. You Didn't Fall (4:35)(   Читать дальше...   )Жанр: New-Age, Сrossover, Pop-art, ProgressiveПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

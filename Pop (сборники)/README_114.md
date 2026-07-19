@@ -1,90 +1,3 @@
-###  Публикация: 1424673   (227555) от 17.11.2020
-
-VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anastasia Moutsatsou - I Rodia
-002. Black Eyed Peas - Mamacita
-003. Ellie Goulding - Power
-004. John Legend - Actions(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341944   (227485) от 30.11.2019
-
-VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Apache 207 - Roller
-03. Apache 207 - Wieso tust Du dir das an
-04. The Cratez - Skifahren (mit Bausa Maxwell Joshi Mizu)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC035975D126B716F9CEEF96995ED905848AA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342227   (225040) от 01.12.2019
-
-VA - Рождество Новые песни 2020 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alessia Cara - Make It To Christmas (3:31)
-2.Timi Dakolo, Emeli Sande - Merry Christmas, Darling (3:16)
-3.Jack Savoretti - Christmas Morning (2:46)
-4.Jamie Cullum - It's Christmas (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442842CB56F989402411864277B7013003CBCE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513187   (224994) от 28.11.2021
 
 VA - Fresh Pop 4 (2021) [MP3|320 Kbps] <Pop>
@@ -763,6 +676,93 @@ VA - German Top 100 Single Charts 17.12.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66BC05AC66B2F2DA49EE69CDA97367097EE5EE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269585   (216089) от 17.12.2018
+
+VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Mero - Baller los
+004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586698   (215647) от 27.10.2022
+
+No Angels - Compilation Part 2 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance-Aholic
+02. Cold as Ice (Instrumental)
+03. Go Ahead and Take it (Instrumental)
+04. Too Old(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3520FA273D872422CA94ADF0F0E5CC6CBBB0CEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270179   (215595) от 17.12.2018
+
+VA - Новый Год вдвоём (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Odell - Real Love
+02. Why Don't We - You and Me at Christmas
+03. Ed Sheeran - Perfect Duet (with Beyonce)
+04. The Guess Who - Love Is All Around(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5077AF325F83627F2225F189228CDADDE9467D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

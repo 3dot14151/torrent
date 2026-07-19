@@ -1,32 +1,3 @@
-###  Публикация: 1552239   (588555) от 19.05.2022
-
-Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шамбала, Ч. 2 (5:25)
-02. Вояджер, Ч. 2 (2:55)
-03. Когда я один, я скучаю по тебе (Remix) (3:10)
-04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07702B28E16699CD9115BFCCF4BF7BF956890093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552238   (588551) от 19.05.2022
 
 Angelo Taylor - Alone in the Universe (2006) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
@@ -743,6 +714,35 @@ Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F75081C328C5502CA253BA495454839743E03DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818892   (531310) от 08.09.2014
+
+And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержимое релиза:
+16 альбомов
+17 синглов
+6 EPЖанр: EBM, SynthpopПродолжительность: 27:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C6954D510E08295D19C0C04A12C143B7A012A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

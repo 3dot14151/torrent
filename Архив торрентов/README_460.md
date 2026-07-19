@@ -1,3 +1,29 @@
+###  Публикация: 1360568   (959337) от 16.02.2020
+
+Firefox Browser 73.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox – популярнейший браузер для навигации в сети Интернет. Среди большого  списка аналогичных бесплатных программ для Windows, данный веб-обозреватель является если не лучшим, то одним из фаворитов. Обладает целым списком достоинств, которые должны иметь современные продукты для серфинга. Основные можно выделить так: быстрота работы, легкость в эксплуатации, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39B05BBF01FBDFE73942140F60DB05AF44425E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360702   (959336) от 16.02.2020
 
 Формула-Е 2019-2020. Этап 4. Мехико (Мексика). Квалификация, Гонка / Formula-E: Mexico City E-Prix (15.02.2020) WEB-DL [H.264/720p-LQ]
@@ -668,35 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55DDD14032A02120C2DF2A073994BF5C271DB85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856077   (959049) от 04.01.2015
-
-Tokyo Prose - Presence (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16 Bar Cycles (feat. Christoph El Truento) (04:50)
- 02. Won't Let Me Go (feat. Lenzman & Fox) (04:53)
- 03. Small Gains (05:11)
- 04. Ventura (05:14)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB588E7C465F73D9D76589A06B677A399EC7267
 ```
 
 https://mybot314.ru/tekegram_catalog/

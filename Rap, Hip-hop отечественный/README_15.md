@@ -1,177 +1,3 @@
-###  Публикация: 1431836   (165867) от 15.12.2020
-
-25/17 - Байки из склепа (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165867.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звёзды
-2. Левиафан
-3. Мой 98-й
-4. Поколения (feat. Hash Tag, Хаски)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F825A19A5409B8B5DAAF4C6F4CEC410D45E6140A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597746   (164988) от 16.12.2022
-
-Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Холоден [00:03:04]
-02 - Номад [00:04:03]
-03 - Адонай [00:03:42]
-04 - Красный урожай [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598786   (161921) от 20.12.2022
-
-Гуляй Рванина (Черная Экономика) - Сонный паралич (2022) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мост на остров [00:02:18]
-02 - Кисть касается полотен [00:02:01]
-03 - Сеанс гипноза [00:02:36]
-04 - Каждый верит [00:02:16](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A2B25716AB5D615C0AFA355FF799DD511FF978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517925   (161595) от 17.12.2021
-
-Кравц - DUSHEVNIJ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161595.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тяп ляп [02:04]
-2. Ты меня знаешь [02:49]
-3. Зимний регги (feat. Зомб) [02:18]
-4. Игристое (feat. Alenka) [03:47](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA5A06F812C56BE1F4767D8B80D6624F0EC2BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517784   (161432) от 17.12.2021
-
-Макс Корж - Психи попадают в топ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161432.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Снадобье
-2. Афган
-3. Сожжены
-4. Лучший вайб(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFADB2386922654631A37B8DE01D01B614E92A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517783   (161418) от 17.12.2021
-
-Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вояджер-1 (Interview)
-2. Вояджер-1
-3. Выход в город (Interview)
-4. Выход в город(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9133F8BB83D813000E8DEA70D13A5C7EC1A36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968080   (158171) от 22.12.2015
 
 Карандаш - Монстр (2015) [MP3|320 кб/с] <Rap>
@@ -310,64 +136,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823112   (117633) от 10.10.2025
-
-Заточка - Опять за старое (2025) [MP3|320 Kbps] <Rap, Hip-Hop, Country>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_117633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С горы
-2. Одинаковые лица
-3. Останемся (skit)
-4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718663   (110877) от 26.04.2024
-
-Нигатив - Кризис среднего (2024) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Роки
-2. Нить
-3. Слово чушпана
-4. Дело молодых(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7A0F546FC36C70950FB57D7ABD888B3803AE05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -763,6 +531,209 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8DC97F6F79FA3CDE12811C478EFE9EDA08A161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807731   (65122) от 20.07.2025
+
+Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macan, Alblak 52 - Flagman [00:03:05]
+02. Macan, Баста - Пусть Бог Будет Рядом С Твоими Планами [00:03:16]
+03. Macan, Гуф - Бордовая 99 [00:03:26]
+04. Macan, Брутто - Золотые Купола [00:02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC57B6C65C6278922FC27A1B888100F8382128A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750562   (42925) от 20.09.2024
+
+МАВАШИ group - Нетолерантность (2024) [MP3|320 Kbps] <Alternative, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Манифест
+2. Нетолерантность
+3. Русский Стяг
+4. Не забудь про меня(   Читать дальше...   )Жанр: Alternative, RapПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52622B539AB4F2C7FC822B0440655153D11345F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751799   (42183) от 27.09.2024
+
+Карандаш - Дом невысокой культуры (2024) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Горд
+2. 21 регион
+3. Зубодробительный саунд
+4. Сам(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC10240E7355B46FA60D42020889EC3EB8446F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762498   (36049) от 26.11.2024
+
+Саграда (Соль Земли) - Преданность реальности (2023) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камуфляжные времена
+02. Чаша (feat. Ария)
+03. Девочка с бедою (feat. 25/17)
+04. На шаг (feat. Кукрыниксы)(   Читать дальше...   )Жанр: RapПродолжительность: 00:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A0099C222AEB52C3ACB544591B9A87AC4162D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780504   (26995) от 20.02.2025
+
+Невзатяг - Бубнеж (2015) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет денег
+02. Велосипед
+03. Песня пиратов
+04. Пробирает жуть(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663EF6B28FF2AC735BA48C675B45E203CD4A2CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785075   (24679) от 14.03.2025
+
+Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Все Дома
+02. Атлантида (feat. Дмитрий Емельянов)
+03. Криокамеры (feat. Монеточка, Витя Исаев)
+04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816411   (4420) от 04.09.2025
+
+Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4420.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 - SLIMUS - Выплывем [00:02:31]
+03 - SLIMUS - Центровые замесы [00:02:43]
+04 - SLIMUS - Ковёр-самолёт [00:02:50]
+05 - SLIMUSБилли Ногами - Блинг [00:03:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31403455C3D2FB020D922A73DAC147228E1783EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

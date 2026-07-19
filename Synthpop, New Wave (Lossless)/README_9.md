@@ -1,32 +1,3 @@
-###  Публикация: 1528599   (734434) от 02.02.2022
-
-VA - Hungarian Synthwave Allstars Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quixotic - Escape from Budapest (3:40)
-02. The Neon Droid - Sonny's Justice (6:36)
-03. Lazerpunk! - Nightcrawler (5:01)
-04. Retroxx - Insane (4:10)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED9702CCB9F24F053881DDA96CB9CE2DA9CC5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528639   (733582) от 04.02.2022
 
 VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
@@ -744,6 +715,35 @@ Faderhead - Starchaser (2019) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD88A1ED6EB0FB5A5F02C09B9AEFE8333F90647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534635   (686721) от 06.03.2022
+
+LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undecided (4:11)
+02. Give Her Your Love (3:42)
+03. What To Do (4:29)
+04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

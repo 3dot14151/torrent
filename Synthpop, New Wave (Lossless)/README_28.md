@@ -1,32 +1,3 @@
-###  Публикация: 1711692   (112428) от 31.03.2024
-
-Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kozmoz Intro
-02. Refit Your Mind
-03. Predators From Space
-04. Mission Hyperdrive(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0297309D47EBB9CFCED167C0F495F2A97FF9D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711995   (112266) от 01.04.2024
 
 Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Retrowave, Synthpop>
@@ -745,6 +716,35 @@ autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F34435EDFB372B0F03062947E9F095879D31385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731388   (107663) от 21.06.2024
+
+3force - Unleash (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Down [00:03:32]
+02. Voyager [00:03:13]
+03. Unleash [00:03:24]
+04. Meet the Devil [00:03:57](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D883A7F89CB6A98F236AA864B6557CA04807E0F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

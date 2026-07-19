@@ -1,32 +1,3 @@
-###  Публикация: 1374607   (872832) от 10.04.2020
-
-Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To The Battle Line (5:38)
-02. Artix Space (4:41)
-03. Power Invasion (5:55)
-04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998139   (866114) от 21.03.2016
 
 a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
@@ -745,6 +716,35 @@ VA - Super Eurobeat Vol. 237 (2016) Extended Version [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F6D28063BC68960E68933ACDDDEA78903C83ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505717   (802940) от 28.10.2021
+
+Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Of Death And The Holy Rose (4:05)
+02. Sin In Me (7:09)
+03. Jetpack (6:27)
+04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

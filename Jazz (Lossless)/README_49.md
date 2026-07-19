@@ -1,90 +1,3 @@
-###  Публикация: 1106777   (871805) от 20.02.2017
-
-The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.On The Street Where You Live [05:03]
- 02.The Thrill Is Gone [06:25]
- 03.Ow [05:56]
- 04.Milestone [05:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7660C865C1C49C74F17B6C28C68B6E2C6C9D6228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106144   (871675) от 20.02.2017
-
-Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peel Me A Grape
-02. The Moon Is Swinging On A Line
-03. She Ain't The Kinda' Girl
-04. You're My Thrill(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106782   (871674) от 20.02.2017
-
-Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Imagine That [04:11]
- 02.Savannah [05:03]
- 03.After Hours [03:54]
- 04.Another Time [05:02](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106816   (871671) от 20.02.2017
 
 Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -743,6 +656,93 @@ Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873582   (868547) от 28.02.2015
+
+Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Suit (ft. Chuck Loeb)
+02. Peg (ft. Chuck Loeb)
+03. Swift Kick (ft. Chuck Loeb)
+04. Yorkville (ft. Chuck Loeb)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBEFDD559731704A40755291A219D5ED3FABA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998698   (868405) от 20.03.2016
+
+Tommy & Jimmy Dorsey - Swingin' In Hollywood (1940-e) 1998, Rhino[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.We'll Get It [04:14]
+ 02.Song Of India [02:54]
+ 03.So Long, Sarah Jane [05:53]
+ 04.If I Had You [03:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA1E95D8F41E0711FA497686A9F6604B086E06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106998   (868346) от 22.02.2017
+
+Urs Leimgruber, Don Friedman, Bobby Burri - Reflexionen (1983) Remaster, 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The New Apartment [15:41]
+ 02.Bradleys [06:05]
+ 03.Bla-Bla-Bla [14:11]
+ 04.For Joel [04:51]Жанр: Modern CreativeПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE36064223E3A86E77273F516A6617465DF59B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

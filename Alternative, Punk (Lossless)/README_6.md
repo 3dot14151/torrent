@@ -1,3 +1,154 @@
+###  Публикация: 623741   (953508) от 27.02.2013
+
+Republica - 3 Albums + 7 Singles + 1 Compilation (1994-2002) [FLAC, APE, WavPack|Lossless] <Dance-Punk, Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance-Punk, Alternative Rock, Pop-Rock |Продолжительность: 01:10:46
+
+01 | Ready to Go | 05:02
+02 | Drop Dead Gorgeous | 04:30(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749228   (952616) от 26.01.2014
+
+Eskimo Callboy - 3 альбома (2010-2014) Дискография [FLAC|Lossless]<Post-Hardcore / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - CSTRP  01:17
+02 - We Are The Mess  03:11
+03 - Party At The Horror House  03:34
+04 - Blood Red Lips  03:36
+05 - Never Let You Know  03:20
+06 - #elchtransformer  01:22
+07 - Jagger Swagger (Feat. Deuce & BastiBasti Of Callejon)  03:21
+08 - Ghosts Of The Night  03:28
+09 - Final Dance  03:25
+10 - Voodoo Circus  03:14(   Читать дальше...   )Жанр: Post-Hardcore / ElectronicПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A21D3CDA330DF4F29C45BBB294E8241BF36DD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361740   (952197) от 21.02.2020
+
+Agnes Obel - Myopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camera's Rolling (04:43)
+02. Broken Sleep (04:55)
+03. Island Of Doom (05:29)
+04. Roscian (02:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FBB986E668F184947DEAACBBAA4B7E08F4FB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362474   (949585) от 23.02.2020
+
+The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coffin (01:55)
+02.All My Friends Are Dead (03:48)
+03.Soak Me In Bleach (03:46)
+04.All I Do Is Sink (03:34)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1FFA0CC9449E41BE731411E0D91745A0C2210F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362571   (948505) от 24.02.2020
+
+Indoor Pets - Be Content (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi (03:12)
+02. Teriyaki (02:13)
+03. Thick (03:26)
+04. Spill (My Guts) (03:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B530ED3A07AAE61006B7A91ACB23660EE8A2A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362764   (948504) от 24.02.2020
 
 Klangstof - Close Eyes to Exit (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -600,151 +751,6 @@ Frances Quinlan - Likewise (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97EB9E8611989428E6D971B2241D440953A1E0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364145   (939615) от 01.03.2020
-
-Refused - Songs to Fan the Flames of Discontent (1996) [APE|Lossless|image + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rather Be Dead
-02. Coup D'Etat
-03. Hook, Line & Sinker
-04. Return To The Closet(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEA4722A3CFB97EA12C636EEF2BB231EA923164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984619   (938936) от 09.02.2016
-
-The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defying Gravity
-02. Watch You Lose
-03. You Can't Have It All
-04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092571   (938860) от 12.01.2017
-
-Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [FLAC|Lossless|WEB-DL]<Celtic Punk, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938860.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:42] 01. The Lonesome Boatman
-[03:00] 02. Rebels With A Cause
-[04:01] 03. Blood
-[03:44] 04. Sandlot(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E856F61F4E81F49F622D19135F8500C74F667141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984776   (938591) от 09.02.2016
-
-Siouxsie And The Banshees - The Best Of Siouxsie And The Banshees (2004) Box Set 2CD+DVD5, Polydor, Universal. [FLAC|Lossless|image + .cue] <New Vawe, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938591.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1	Dear Prudence 3:49
-2	Hong Kong Garden	2:55
-3	Cities In Dust	4:04(   Читать дальше...   )Жанр: New Vawe, PunkПродолжительность: CD1 - 00:57:11, CD2 - 01:04:00, DVD - 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A241EB8A3024F023EAA0ED7A6DBE81EF0B4D5EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860943   (937538) от 18.01.2015
-
-Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shelf In The Room (4:44)
-	02. Touch, Peel And Stand (4:58)
-	03. Face Of The Earth (5:17)
-	04. Solitude (4:11)(   Читать дальше...   )Производство: 1997, Outpost Recordings/OPRD-30004Жанр: Post-GrungeПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
 ```
 
 https://mybot314.ru/tekegram_catalog/

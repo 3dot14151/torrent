@@ -1,3 +1,76 @@
+###  Публикация: 523505   (616612) от 16.07.2012
+
+Nine Inch Nails - Greatest Hits (2 CD) /Russian Release/ (2008) [MP3|320 кб/с]<Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616612.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1| Продолжительность: 01:19:31
+01. Down In It
+02. Head Like a Hole
+03. Sin
+04. Terrible Lie
+05. Something I Can Never Have
+06. Pinion
+07. Wish
+08. Gave Up
+09. Happines In Slavery(   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:18:49
+01. The Perfect Drug
+02. The Day The World Went Away
+03. We're In This Together
+04. Into The Void
+05. Starfuckers, Inc
+06. Where Is Everybody
+07. The Fragile
+08. Deep
+09. And All That Could Have Been(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DAB44689CBC826D04BA58C10BE7B1F2176FE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911381   (616441) от 23.06.2015
+
+Oh Mercy - When We Talk About Love (2015) [MP3|320 кб/с]<Indie, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Without You (4:17)
+2. I Don't Really Want To Know (2:57)
+3. Sandy (3:52)
+4. Lady Eucalyptus (4:23)(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD57DCEA4DB2B447B53FFC749B7950AE420B428A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911371   (616440) от 23.06.2015
 
 The Armed - Untitled (2015) [MP3|320 кб/с]<Chaotic Hardcore>
@@ -691,64 +764,6 @@ The Fifty Dollar Band - One Hundred Years Of Grace (2015) [MP3|320 кб/с]<Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8AE92F9F7FAFCCC92849AAF6386B0BFA2741BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150223   (595218) от 14.07.2017
-
-Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Looks
-02. Retrograde
-03. Lost Positives
-04. Ghost(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B5B69DF77974B9C9FCEF5D40E3D8C494649193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915065   (595132) от 04.07.2015
-
-Aranda - Not the Same (2015) [OGG|474-530 кб/с]<Alternative, Modern Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are the Enemy
-02. Not the Same
-03. Don't Wake Me
-04. Dead Man Runnin'(   Читать дальше...   )Жанр: Alternative, Modern Hard Rock, Post-GrungeПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A4C507E9C78BAF57AEE8B226DB0138B16ADDC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

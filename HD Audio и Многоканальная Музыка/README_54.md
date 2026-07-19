@@ -1,235 +1,3 @@
-###  Публикация: 1630326   (237126) от 30.04.2023
-
-Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с оркестром (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каприччио Для Ф-но С Оркестром
-A1 Presto
-A2 Andante Rapsodico
-A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628032   (236992) от 21.04.2023
-
-Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236992.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Hang On To My Vertigo 4:40
-A2 Misplaced Love 4:14
-A3 Samsara 5:15
-A4 Surface Tension 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630590   (236921) от 01.05.2023
-
-Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236921.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Круги · Circles
-A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
-A3 Институт В Чикаго · Chicago Institute
-A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575129   (236491) от 08.09.2022
-
-John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly As In A Morning Sunrise《 S. Romberg 》
-02. Michelle《 J. Lennon 》
-03. Vesti La Giubba《 R. Leoncavallo 》
-04. Lamento Borincano《 R. Hernandez 》(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630815   (236410) от 04.05.2023
-
-Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236410.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Pain That I'm Used To (4:11)
-A2. John The Revelator (3:43)
-A3. Suffer Well (3:49)
-B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629913   (236395) от 28.04.2023
-
-Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236395.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Change The Weather
-A2 Stand Up
-A3 Fever
-A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640413   (236312) от 17.06.2023
-
-Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkseed — немецкая готик-метал-группа, образованная в 1992 году.1996 - Midnight Solemnly Dance
-1997 - Spellcraft
-1998 - Romantic Tales
-1999 - Give Me LightЖанр: Gothic MetalПродолжительность: 07:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F1C6AC053FEA983DB4813116F75EE2F2ABA434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640596   (236104) от 18.06.2023
-
-Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal with Doom Metal influences>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danzig — американская метал-группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями.1994 - Danzig 4
-1996 - Blackacidevil
-1999 - 6.66 Satan's Child
-2002 - I LuciferiЖанр: Heavy Metal with Doom Metal influencesПродолжительность: 08:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631725   (236092) от 07.05.2023
 
 VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop>
@@ -635,35 +403,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635042   (233007) от 23.05.2023
-
-Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonspell — португальская метал-группа, основанная в 1992 году. На первых порах группа играла фолк/блэк-метал, позднее творчество группы обычно характеризуют как готик-дум-метал.1995 - Wolfheart
-1996 - Irreligious
-1998 - Sin Pecado
-1999 - The Butterfly EffectЖанр: Gothic MetalПродолжительность: 13:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642992   (232991) от 30.06.2023
 
 Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Symphonic Black Metal>
@@ -744,6 +483,267 @@ B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643848   (232419) от 03.07.2023
+
+Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO (2:34)
+02. Dive (3:21)
+03. Ladies Room (3:40)
+04. No Man (2:59)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934981   (231774) от 02.10.2022
+
+Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and other Great Hits (1971) [FLAC 2.0 24/192|image+.cue (Vinyl Rip)]<Pop/Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chirpy Chirpy Cheep Cheep
+02. Lingering Sounds
+03. Fate Strange Fate
+04. I Can't Tell The Bottom From The Top(   Читать дальше...   )Жанр: Pop/EuropopПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312267   (231406) от 04.10.2022
+
+Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231406.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Impossible Dream
+A2 An Improvisation On ''None But The Lonely Heart''
+A3 Yonger Than Springtime
+A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637016   (231036) от 02.06.2023
+
+Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stairway To Heaven
+A2 Custard Pie
+A3 D'Yer Mak'er
+A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637048   (230996) от 02.06.2023
+
+Queen - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230996.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Kind Of Magic (A Kind Of Magic)
+A2 Killer Queen (Sheer Heart Attack)
+A3 You're My Best Friend (A Night At The Opera)
+A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic Rock, Arena RockПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637289   (230957) от 03.06.2023
+
+Krokus - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 24/48|Lossless|image + .cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Wild Love
+02. Winning Man
+03. Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850096   (230927) от 06.06.2022
+
+Владимир Высоцкий - Лукоморья больше нет. Песни 1967 - 1968 годов (1995) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня про правого инсайда
+02. ''У нас вчера с позавчера...''
+03. Аисты
+04. Лукоморья больше нет(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637232   (230921) от 03.06.2023
+
+Creedence Clearwater Revival - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before You Assure Me
+02. Green River
+03. I Put A Speel On You
+04. Travelin' Band(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637784   (230481) от 06.06.2023
+
+10СС - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Dreadlock Holiday
+02. Take This Woman
+03. Nothing Can Move Me(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
 ```
 
 https://mybot314.ru/tekegram_catalog/

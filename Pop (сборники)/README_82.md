@@ -1,90 +1,3 @@
-###  Публикация: 1056324   (481762) от 25.09.2016
-
-VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Haan - Gods From Outer Space (Created Synthleslie) 5:16
-02. The Starforce - Saviours In The Sky (Leroy Dub Mix) 3:51
-03. Franck Choppin - The Lonely Pianist 4:46
-04. Why Not - Smile 6:39(   Читать дальше...   )Жанр: Pop, Synthpop, Italo DiscoПродолжительность: 04:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9EBF80E4BCCF51C3CBDE2B6AE310DF3A5797AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405697   (480957) от 31.08.2020
-
-VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. twocolors - Lovefool (3:10)
-02. MARUV & Boosin - I Want You (2:55)
-03. Dotan - NUMB (Addal vs. Balzanellli & Bedo Edit) (3:19)
-04. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056236   (480679) от 25.09.2016
-
-VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
-02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
-03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
-04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938597   (479788) от 19.09.2015
 
 VA - Попсовая соточка MTV Сборник 5 (2015) [MP3|256 кб/с]<Pop>
@@ -769,6 +682,93 @@ VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939987   (470977) от 23.09.2015
+
+VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Овсиенко - В Сердце
+02. Zlata (Злата) Feat. Dj Рубль - Курс Рубля
+03. Зарина Тилидзе - Нежность
+04. Mozgi (Потап) - Хлам(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406761   (470853) от 05.09.2020
+
+VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethnik>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nameless In August - Been There Before
+002. Georgia Ruth - In Bloom
+003. Calimeros - Playa Blue
+004. Issam Hajali - Ana Damir El Motakallim(   Читать дальше...   )Жанр: Pop, Folk, EthnikПродолжительность: 10:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939942   (470687) от 23.09.2015
+
+VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rap, R&B, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
+002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
+003. Время и Стекло - Имя 505 (03:19)
+004. Паола - #Девочкитакиедевочки (02:24)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, Rock, ChansonПродолжительность: 05:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
 ```
 
 https://mybot314.ru/tekegram_catalog/

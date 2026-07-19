@@ -1,119 +1,3 @@
-###  Публикация: 1013196   (777998) от 03.05.2016
-
-VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Toots Thielemans - Best of Yourself [05:22]
-02.David Linx & Brussels Jazz Orchestra - Fraternity [05:02]
-03.Philip Catherine - Friendship [04:04]
-04.Nathalie Loriers Trio - Confidence [05:24](   Читать дальше...   )Жанр: Post-Bop, Big Band, Smooth Jazz, Vocal JazzПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48741503701EAB4470CB85304BF430E5FEFFBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012995   (777996) от 03.05.2016
-
-Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Back Home
-02. Joers Tune
-03. Someday Werll All Be Free
-04. Butterfly(   Читать дальше...   )Жанр: FusionПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA9B39D8D293607CE81ED2A84DF3603397A945A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012999   (777992) от 03.05.2016
-
-Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Me Blues
-02. Full Circle
-03. Sneaky Pete
-04. Saturday Night In The Village(   Читать дальше...   )Жанр: Bop, Post BopПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A44B1DA36FB91CFFF75FF02E401AA33FE972AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013123   (777990) от 03.05.2016
-
-Natalia M. King - Bluezzin T'il Dawn (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traces In The Sand
-02. Don't Explain
-03. Insatiable
-04. This Time Around(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15DD8D867A9F2693D15EFE1C224CEC616C5C9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211229   (777900) от 06.03.2018
 
 Hal Galper - Wild Bird (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -745,6 +629,122 @@ VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A64C4FBF8A4820D613E2BC86EE7245BBB7B011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013129   (776940) от 06.05.2016
+
+Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Masquerade
+02. The Lights Still Burn In Paris
+03. Land Of Make Believe
+04. Black Coffee(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64F3BD2FCE28EB3195164D447FA63897CDD5485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014024   (776927) от 06.05.2016
+
+VA - Smooth Jazz Vocal Grooves (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Cole - So Good 4:16
+02. Lin Rountree - Givin' You Love 4:02
+03. James Vargas - Say You Will 5:34
+04. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A376C4C76108142FC7C284FFFAA4094C75E81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013685   (776923) от 06.05.2016
+
+Allan Holdsworth - One City Night (1995) [FLAC|Lossless|tracks] <Jazz, Fusion, Free Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funnels (06:24)
+02. Looking Glass (08:50)
+03. Auhkukah (05:49)
+04. Low Levels, High Stakes (07:12)(   Читать дальше...   )Жанр: Jazz, Fusion, Free Jazz, Contemporary JazzПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4352A0A157D669C15C3076EBD853BD70C35E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211900   (776912) от 09.03.2018
+
+Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Mississippi [05:41]
+02. Well You Needn't [06:48]
+03. Blue Monk [08:41]
+04. Stuffy Turkey [06:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB36931230A8BA438E4A36830BBE6492ADCB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

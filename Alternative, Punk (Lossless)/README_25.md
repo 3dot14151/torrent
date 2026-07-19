@@ -1,3 +1,119 @@
+###  Публикация: 1291595   (652669) от 26.03.2019
+
+Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letting Go (03:42)
+02. Oscillation (03:51)
+03. Partners in Motion (04:21)
+04. Wheel of Misfortune (04:16)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905376   (651197) от 05.06.2015
+
+Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger
+02. My Cocaine (feat. Elize Ryd from AMARANTHE)
+03. Disaster Highway
+04. Checkmate(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905415   (651014) от 05.06.2015
+
+Florence + The Machine - How Big, How Blue, How Beautiful (2015) Deluxe Edition, Target Edition [FLAC|Lossless] <Indie Rock, Indie Pop, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ship To Wreck (03:55)
+  02. What Kind Of Man (03:36)
+  03. How Big, How Blue, How Beautiful (05:35)
+  04. Queen Of Peace (05:07)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Alternative RockПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEC3CD84FB1F750A3E2F0A6FEC0C1E0509B96D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905432   (650996) от 05.06.2015
+
+Muse - Drones (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650996.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "Dead Inside" 4:24
+2. "Drill Sergeant" 0:21
+3. "Psycho" 5:28
+4. "Mercy" 3:52(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D8067E106B91D5A1F682BD75426D9B36B60C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540620   (650590) от 31.03.2022
 
 Placebo - Never Let Me Go (2022) Remixes [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
@@ -628,122 +744,6 @@ Iggy Pop - Preliminaires (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A26E63E74B14127BD02315D68CA0201A8141C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142664   (640787) от 15.06.2017
-
-Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Machine (5:02)
- 02. Coin For The Ferryman (4:50)
- 03. Song On Fire (3:51)
- 04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3CFE8749609DACB608FEF541C34DC2040E4605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033197   (639994) от 10.07.2016
-
-Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves of Winter
-02. Friends and Enemies
-03. Animal Style
-04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907229   (639541) от 11.06.2015
-
-Deftones - The Very Best Of The Deftones (2015) [FLAC|tracks + .cue]<Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639541.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:06) 01.Bored
-(03:44) 02.7 Words
-(03:26) 03.Engine No. 9
-(03:35) 04.My Own Summer (Shove It) (From The Matrix Soundtrack)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64828AE08A7289F483869F3CB5978D63352A4F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542113   (639244) от 06.04.2022
-
-Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Live at the Hotspot (00:04:35)
-02 - Hot Shot (00:02:26)
-03 - Eight Minute Machine (00:02:26)
-04 - Wild Flowers (00:03:34)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A7199F0D8AE4072C59455EF5907E7425967A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

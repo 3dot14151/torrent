@@ -1,90 +1,3 @@
-###  Публикация: 1309647   (550222) от 20.06.2019
-
-VA - Love Ballad (2019) [MP3|320 Kbps] <Pop, Rock, Love Ballads>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sarah Jane Morris - Promised Land
-002. Markus Feehily - Wash The Pain Away
-003. Enric Verdaguer - Not My Moment
-004. Toni Braxton - Yesterday(   Читать дальше...   )Жанр: Pop, Rock, Love BalladsПродолжительность: 09:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E9E3271E54DCE04F851373F42B679A02205E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047232   (550103) от 29.08.2016
-
-VA - Breathe We Love The 90s (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nine Inch Nails - Hurt 06:16
-02. Michael Hutchence - The Passenger 04:36
-03. Fatboy Slim - Praise You 05:23
-04. Cradle Of Love - Billy Idol 04:39(   Читать дальше...   )Жанр: Dance, Hip-Hop, RockПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047381   (550024) от 29.08.2016
-
-VA - Хитовый бум. Сборник 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pierce Fulton - Make Me Blue
-002. Илья Гуров - Знаешь Я Скучаю
-003. Cats On Tree - Jimmy
-004. Алиса Кожикина - Мы Вместе(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390DBA4DAF3B0403AB3ABAC1FA0DAA7578B7A5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047299   (550022) от 29.08.2016
 
 VA - Реальные пацаны (2016) [MP3|320 Kbps] <Pop, Hip Hop, Soundtrack>
@@ -746,6 +659,111 @@ VA - Top 100 Популярный Сборник (2015) [MP3|256 кб/с]<Рор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52AAB9336DB830F077C3B68D2C604425C0047CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531615   (542600) от 05.08.2012
+
+VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lykke Li - I Follow Rivers [04:41]
+ 02. Asaf Avidan & The Mojos - One Day / Reckoning Song [03:33]
+ 03. Gusttavo Lima - Balada (Tche Tcherere Tche Tche) [03:23]
+ 04. Tacabro - Tacate [03:31]
+ 05. Loreen - Euphoria [03:02]
+ 06. Carly Rae Jepsen - Call Me Maybe [03:14]
+ 07. Lana Del Rey - Summertime Sadness [04:25]
+ 08. Flo Rida - Whistle [03:45]
+ 09. Cro - Du [02:54]
+ 10. Triggerfinger - I Follow Rivers [03:37](   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F2201ED7B6A7B150BD67E10B879E15D2059853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531298   (542596) от 05.08.2012
+
+VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Delta pro. - Наше лето
+02 Mike Indigo - Bam Baram (Original Radio Edit)
+03 Dan Balan - Не любя
+04 Sean Paul feat. Pitbull - She Doesn't Mind
+05 Бьянка - Весна-Лето 3 (Про Зою)
+06 Jennifer Lopez feat. Flo Rida - Goin' In
+07 SPACE4 и Антон Зацепин - Невозможно Не Любить
+08 Linkin Park - Burn It Down
+09 Слава - Sex не любовь
+10 Nelly Furtado - Big Hoops (Bigger The Better) (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531650   (542441) от 05.08.2012
+
+VA - Главная дискотека августа (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ева Польна - Весь мир на ладони моей
+02 Наталья Подольская Интуиция
+03 ВегаS - Слезы
+04 Юлия Савичева - Юлия
+05 Дмитрий Колдун - Ничего
+06 Николай Басков и Валерия - Сохранив любовь
+07 Алсу - Ссора
+08 Митя Фомин - Хорошая Песня
+09 Ирина Дубцова - Ешь, молись, люби
+10 Денис Любимов - Любви больше нет(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6409414CFFF3AFB3B8D94E71CF410EEBA7119828
 ```
 
 https://mybot314.ru/tekegram_catalog/

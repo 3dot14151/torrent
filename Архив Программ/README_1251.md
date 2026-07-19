@@ -1,3 +1,29 @@
+###  Публикация: 1324826   (420661) от 11.09.2019
+
+Windows 10 Manager 3.1.4.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526ACD50E6DB894841DFE2343E9D9B94418A9A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324875   (420659) от 11.09.2019
 
 Auslogics BoostSpeed 11.1.0.0 RePack (& Portable) by D!akov [Ru/En]
@@ -647,32 +673,6 @@ Ashampoo Music Studio – полнофункциональный програм�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61DD52C4B6FAD9D13ECD9B96328FAAC5A2DD44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412290   (420218) от 28.09.2020
-
-dBpowerAMP Music Converter 17.2 (Retail) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420218.jpg" />
-</div>
-
-
-###  Подробнее
-
-illustrate dBpowerAMP Music Converter & CD Ripper - программа для рипания и конвертации в/из WAVE, MP3, MP4, WMA, Ogg Vorbis, AAC, Monkeys Audio, FLAC, CDA и много других форматов. Позволяет быстро и качественно сриппать CD-Audio, используя практически любой кодек. Скорость копирования быстрее чем у Easy CD-DA Extractor! Есть "выравниватель" громкости, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C613CCB3F336CF8F51B4D3E1273BBF49AF57281
 ```
 
 https://mybot314.ru/tekegram_catalog/

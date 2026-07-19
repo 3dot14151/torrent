@@ -1,3 +1,67 @@
+###  Публикация: 1126756   (764480) от 19.04.2017
+
+Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Texas Man (05:34)
+02. The Way You Left Me Girl (03:12)
+03. Wild About You (04:32)
+04. Guitar Rhumbo (02:59)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740C7298388933E5074D331E1609A92E097BB887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319942   (761831) от 07.04.2011
+
+VA - Atlantic Blues  (1991) 4 CD Box Set [MP3|320 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_761831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Jones - Chicago Blues (3:12)
+02. Buddy Guy & Junior Wells - Poor Man's Plea (3:10)
+03. Buddy Guy & Junior Wells - My Baby She Left Me (3:09)
+04. Buddy Guy & Junior Wells - T-Bone Shuffle (4:16)
+05. Freddie King - I Wonder Why (3:18)
+06. Freddie King - Play It Cool (3:45)
+07. Freddie King - Wake up This Morning (3:10)
+08. Otis Rush - Gambler's Blues (5:41)
+09. Otis Rush - Feel So Bad (3:38)
+10. Otis Rush - Reap What You Sow (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08B00BA3A384F93F1A56992E8DD50F02DBBCD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017300   (761102) от 17.05.2016
 
 Muddy Waters -  Les Genies du Rock - Got My Mojo Working (1993) [MP3|320 кб/с] <Blues>
@@ -687,64 +751,6 @@ Daryl Hance - Wild Blue Iris (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E210A1776BC70733D89D42077FF8724F8024AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021129   (740980) от 29.05.2016
-
-Dan Patlansky - 2 Альбома (2006, 2012) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real    04:30
-02. Dead Shrimp Blues    05:39
-03. Only An Ocean    06:22
-04. Bad Weather Blues    07:22(   Читать дальше...   )Жанр: Blues Rock ♦Продолжительность: 01:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2122BDA6C58C19C529C402119BC2D3B3909FDFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021045   (740895) от 29.05.2016
-
-Janiva Magness - Love Wins Again (2016) [MP3|320 кб/с] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Wins Again (03:18)
-02. Real Slow (03:51)
-03. When You Hold Me (03:58)
-04. Say You Will (03:50)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBD5A6D250FE30CAB102292675632B563538226
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1060366   (452464) от 08.10.2016
+
+Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyr (06:30)
+02. UruR (10:11)
+03. Isa (07:13)
+04. MannaR - Drivande (04:09)(   Читать дальше...   )Жанр: Dark Folk, Pagan FolkПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247753   (451216) от 16.09.2018
+
+Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow
+02. No More Shame
+03. While the World Passed Me By
+04. Here I Am(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B95AA942C8541B8389761C5A82F96BD93769A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942588   (451029) от 02.10.2015
+
+VA - Лучшие цыганские песни конца ХХ века - Альбом №3 (2000) [APE|image+.cue]<Folk, Gypsy>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цыганский талисман - Бричка
+ 02. Цыганский талисман - Снова слышу голос твой
+ 03. Цыганский талисман - Кай ёнэ
+ 04. Цыганский талисман - Ванёнок(   Читать дальше...   )Жанр: Folk, GypsyПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BA0AEB67232155E6294C103A28E55F8C128C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061183   (450981) от 09.10.2016
+
+Dark Territory - Libera Me (2005) [FLAC|Lossless|image + .cue] <Gothic, Medieval Folk , Neo-Classic , Etheral>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ptolomea [05:06]
+02. Deliver Me [05:27]
+03. Dark Flower [04:34]
+0. Tora Firome [03:55](   Читать дальше...   )Жанр: Gothic, Medieval Folk , Neo-Classic , EtheralПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26251D1863AD114C242C13034EA1878DB60728D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163463   (450346) от 05.09.2017
+
+Prem Joshua - Breath Of Voavah (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Spoonful of Infinity
+02. Lalitha (Prelude)
+03. Lalitha
+04. Voavah Metro Station(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52535AF5B93B884D5D05551279C3EC2EF6C98651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163327   (450215) от 05.09.2017
+
+Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinema paradiso (From "Cinema paradiso") (Titles)
+03. The Verdict (Dopo la condanna) (From "La resa dei conti - The Big Gundown")
+04. La califfa (From "La califfa - The Lady Caliph / The Queen")
+05. Belinda May (From "L'Alibi")(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA64642B0CC0192D1AF826A0004663F4B323D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163307   (450102) от 05.09.2017
 
 Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack>
@@ -597,180 +771,6 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA63E01C760892AC3DFB211AC77580EA3F6D6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706139   (446618) от 01.10.2013
-
-VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halo(Side Mix)   (4:54)
-02.  Need to Feel Loved   (3:44)
-03.  Speak to Me   (5:12)
-04.  Love   (4:54)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248108   (446500) от 18.09.2018
-
-Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hui Hou (Until We Meet Again) (3:44)
-02. Blue Moon Rising (3:27)
-03. Recalling Beauty (4:28)
-04. Deep Grace-Scarborough Fair (6:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6C9EC57C61E323F0885169E269DA90992A7F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061877   (446430) от 11.10.2016
-
-Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthlight
-02. Falling Star
-03. Daybreak
-04. Satellites(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDCA3B85B3DA1B6E092DDA7381EEB6FCF6BAA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061754   (446420) от 11.10.2016
-
-Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonrise
-02. Lake of the Clouds
-03. Time Is Still
-04. Dans Ma Memoire(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064303A0F368BCDDDBE88F8CD00653611A8F5C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941285   (445063) от 05.10.2015
-
-Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downtempo>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. feather in the wind
-02. good times
-03. why
-04. in the_moonlight(   Читать дальше...   )Жанр: Pop-Folk, Acoustic, DowntempoПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C400467E6C2EEA98F1D69DBF57E992E22C4992AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827530   (444871) от 04.10.2014
-
-Nile Rodgers & VA - Путешествие в Америку / Coming to America (Original Score + Original Soundtrack) (1988) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Credits (02:44)
-02. Akeem Wakes Up (01:36)
-03. Bathing (00:30)
-04. Happy Birthday (01:14)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C7273C99214364A3C022DF70826F2A92EF5828
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 990130   (911723) от 25.02.2016
+
+КичКок - Три Товарища (2009) 3CD [FLAC|Lossless|tracks + .cue] <Mash up>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Один Dj - хорошо, а три - еще лучше!» - решили 3 давних друга, Георгий Петрушин, Дмитрий Ашман и Сергей Минаев, 24 апреля 2009 встав за диджейский пульт. Результатом работы этого трио стал диск с любимой музыкой в стиле mash up. Похоже, именно любовь к хорошей музыке объединяет 3 товарищей: Георгия Петрушина – модного клубного промоутера, организатора самых ярких (   Читать дальше...   )01. Elvis Presley vs Junkie XL - A Little Less Conversation (2:18)
+02. Goran Bregovic - Mesecina (1:00)
+03. Manu Chao - Me Gustas Tu (3:02)
+04. Madness - One Step Beyond (1:48)(   Читать дальше...   )Жанр: Mash upПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990796   (909762) от 26.02.2016
+
+Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necksa Rising
+02. Calming Tides
+03. Drifting On Waves
+04. Etheric Weavers(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368087   (909160) от 20.03.2020
+
+Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cathy's Waltz
+02. Pofacetilly
+03. I Heard You Smiling
+04. Winter Magic(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0689E485DBB663440A13621132DC035AE56B6784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368005   (909135) от 20.03.2020
+
+Александр Рябцев - Сквозь вечность (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между небом и землёй (1:42)
+02. Первое свидание (3:07)
+03. Сон во сне (3:38)
+04. Контакт (4:25)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0F44E57FEB4A2EE1A2A8C68910889870A2369C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368006   (909122) от 20.03.2020
+
+Александр Рябцев - Между прошлым и будущим (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между прошлым и будущим (4:45)
+02. Листопад (3:59)
+03. Скажи своё имя (4:00)
+04. Полнолуние (5:55)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367998   (909095) от 20.03.2020
+
+Александр Рябцев - Дайте мне крылья (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дайте мне крылья (5:04)
+02. Пробуждение (4:02)
+03. В вечность (3:34)
+04. Ледяной замок (4:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368008   (909074) от 20.03.2020
 
 Александр Рябцев - Ностальгия (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
@@ -572,180 +746,6 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991907   (904357) от 29.02.2016
-
-Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat. Josie Quick)
-02. Distant Horseman (feat. Josie Quick)
-03. Turn and Walk Away
-04. A Night so Cold (feat. Josie Quick)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991722   (904238) от 29.02.2016
-
-Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Music, Mantras, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By The Stream (10:55)
-02. PM Dance (8:30)
-03. Dream the Dark (10:02)
-04. The Beloved (11:05)(   Читать дальше...   )Жанр: World Music, Mantras, HealingПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369290   (903803) от 23.03.2020
-
-Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norðanátt (6:24)
-02. Eilífðina á Veturna (7:29)
-03. Jökulvíðerni (3:43)
-04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368871   (903649) от 23.03.2020
-
-Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Innocence (From "Man of the House")
-02. The Last of the Mohicans (From "The Last of the Mohicans")
-03. Hinayana Vision (From "Pocahontas")
-04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369204   (903547) от 23.03.2020
-
-Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales of a Broken Planet (4:32)
-02. Cayo Coco (6:18)
-03. The Choice (4:35)
-04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368661   (903513) от 23.03.2020
-
-Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. May You Walk In Sunshine
-03. Enchantment
-04. A-La-Ke(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

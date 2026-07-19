@@ -1,136 +1,3 @@
-###  Публикация: 1387682   (791218) от 02.06.2020
-
-LDPlayer 4.0.28 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791218.jpg" />
-</div>
-
-
-###  Подробнее
-
-LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E2B2A2ACB3F8E07A756539EAF50E3BF1794E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387665   (791206) от 02.06.2020
-
-AIMP 4.70 build 2217 RC 2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791206.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD50E810B9827615DF0EFF384FC36501005820FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387349   (791197) от 02.06.2020
-
-R-Drive Image 6.3 Build 6303 + BootCD [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791197.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image восстанавливает образ диска на оригинальный диск, на другой раздел или на свободное неформатированное пространство диска без перезагрузки системы. Для восстановления системного или заблокированного раздела R-Drive Image переключается в псевдографический режим напрямую из Windows или запускается загрузочная версия программы с CD или комплекта дискет. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BD3A9718D77BBF836970B523C8AD8BABD895A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387549   (791192) от 02.06.2020
-
-Brackets 1.14.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brackets - удобный и простой редактор исходного кода от компании Adobe, предназначенный для разработчиков, использующих в своих проектах языки CSS, HTML, JavaScript и др. Программа предлагает удобный и приятный глазу интерфейс, и множество необходимых в работе функций.
-Широкие возможности открываются у кодера при использовании различных комбинаций горячих клавиш, (   Читать дальше...   )Язык интерфейса: Русский , Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8012955568B4CCA6824BCEBEA571101C21DD4315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387066   (791191) от 02.06.2020
-
-BELOFF [dp] 2020.05.4 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
-
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12939D609A654B02B00AAEB3E2707AF171A089DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387629   (791188) от 02.06.2020
 
 Google Earth Pro 7.3.3.7721 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -687,6 +554,145 @@ VA - Found Sound (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF76ADD4A1E3FB3E2E5E500C0DED789CE09AEFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201125   (790986) от 27.01.2018
+
+Martin Hannett - Hannett's Electronic Recordings - Homage To Delia Derbyshire (2017) [FLAC|Lossless|tracks] <Experimental, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin On Synths, Keyboards Etc - Track A (03:41)
+02. Homage To Delia Derbyshire, Pt. 2 (02:38)
+03. Homage To Delia Derbyshire, Pt, 3 (02:02)
+04. Martin Plays Bass (03:26)(   Читать дальше...   )Жанр: Experimental, SynthwaveПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E24054960AA84A7059A244EF0B723187EEB2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201859   (790985) от 27.01.2018
+
+Nightmares on Wax - Shape the Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Nature (feat. Kuauhtli Vasquez & Wixarika Tribe) (07:35)
+02. Tell My Vision (feat. Andrew Ashong) (04:14)
+03. Shape the Future (06:19)
+04. On It Maestro (04:15)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B18CB2B20F7F812A726F379481564082C28D806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202002   (790980) от 27.01.2018
+
+Above & Beyond - Common Ground (2018) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inconsistency Principle
+02. My Own Hymn (Feat. Zoë Johnston)
+03. Northern Soul (Feat. Richard Bedford)
+04. Naked (Feat. Justine Suissa)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4B18A50127393229A4B61668D6D0B19658E745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201926   (790975) от 27.01.2018
+
+Alternate File Shredder 2.211 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для безвозвратного удаления файлов и папок. Может не только удалять существующие файлы, но и затирать свободное пространство. Из дополнительных настроек присутствует изменение количество проходов стирания, игнорирование защиты от записи, затирание имен файлов, изменение размеров файлов, замена информации случайными данными вместо нулей и др.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457319186CE0C9AA5B09FBE80A54A9C5416C2338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275340   (790968) от 10.01.2019
+
+Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 09.01.2019 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54B92965316BFA6D0F0640A1A99AA2DAF38D59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

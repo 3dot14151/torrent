@@ -1,3 +1,125 @@
+###  Публикация: 1106496   (871800) от 20.02.2017
+
+VA - Музыкальное зимнее настроение выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Снег - О Тебе 3:24
+002. Восемь По Гринвичу - Разбуди Меня 4:13
+003. Андрей Ковалев - Синий Лед 3:03
+004. Смирнов & Компания & Мария Богомолова - Шипы У Роз 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D20042F914BA317596F607B01538EFBEEF433B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642266   (871782) от 15.04.2013
+
+VA - Солнечный Заряд Хорошего Настроения (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Котова - Признание
+02. Demo - Это Лето
+03. Чай Вдвоем - Время вода
+04. НашеVrемя feat. Zlata (Злата) - Крылья
+05. Ксения Новикова (Блестящие) - Хочу забыть
+06. Потап и Настя - Вместе
+07. Reflex - Потому что не было тебя (версия 2012)
+08. София Ротару - Научи Смеяться
+09. A - Sen - Карие
+10. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C248C759D168F54BF32A731E14232DE3DE3EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997970   (871769) от 18.03.2016
+
+VA - Танцевальная Весна (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arty ft. Conrad - Braver Love 03:33
+002. Би-2 - Дурочка (S.p.l.a.s.h. Сlub radio Mix) 04:05
+003. Dj Antonio feat. Natasha Grineva - Last Kiss (Radio Edit) 03:08
+004. Jax - La La Land 03:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCC3F52EFBDFF21FC10810DCBC8FA9D53D28FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106608   (871379) от 20.02.2017
+
+VA - 100 пудовые зимние хиты на Europa Plus. Сборник № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871379.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Слава Благов - Она Как Солнце 3:17
+002. Max - You Want More 3:00
+003. Карина - Мой Мир 2:31
+004. Swanky Tunes & Going Deeper Feat. Boogshe - Be Okay 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B10733BF3C535D9FDEE6F46D3E07E4C1D1CDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374769   (871188) от 11.04.2020
 
 VA - German Top 100 Single Charts 10.04.2020 [MP3|320 Kbps] <Pop>
@@ -372,32 +494,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 302537   (865674) от 02.03.2011
-
-VA - Встречаем весну с лучшими хитами (2011) [MP3|320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_865674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993B5F02C1CAD79A3B5268DC1D2D2B93762D1E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375392   (865491) от 14.04.2020
 
 VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -649,93 +745,6 @@ VA - Музыка хорошего настроения 5 (2016) [MP3|256-320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924FC017B078EC42F7C7D01E36A297BA218B6AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497923   (859641) от 25.09.2021
-
-VA - The Presents Of Autumn (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859641.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Hopperman - Feel
-002. Groove Stata - Angel
-003. Kevin Johnson - Looking For Love
-004. Hiatus Kaiyote - Chivalry Is Not Dead(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF53664991C56566FFE59F56DEE65F6A85AAC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497927   (859639) от 25.09.2021
-
-VA - Twisted Disco Stick (2021) [MP3|320 Kbps] <Dance, Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vibes4yoursoul - Si Ma Chanson Pouvait
-002. Jack Tennis - Jorge’s Pipa
-003. Stewart Birch - I Jus Wanna
-004. Discotron & Hp Vince - Hands Together(   Читать дальше...   )Жанр: Dance, Disco, Nu Disco, Funky HouseПродолжительность: Dance, Disco, Nu Disco, Funky House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AA5FADF6DBE116CA46A33A6D6087553D01B88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109224   (859209) от 27.02.2017
-
-VA - Зимняя русская радиоволна. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859209.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Смирнов & Комапния - Я Люблю Тебя 3:13
-002. Fahmi - Мы Были Вдвоем 3:00
-003. Александр Рипчанский - Она 4:56
-004. Катерина Красильникова - Пусть Станет Раем 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9125D21C60C06D01DF5CB1B54D77020A56126D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

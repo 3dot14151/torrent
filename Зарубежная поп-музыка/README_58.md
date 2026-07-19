@@ -1,3 +1,32 @@
+###  Публикация: 953994   (343820) от 06.11.2015
+
+Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellaires
+02. Stolen Car (en duo avec Sting)
+03. À Rebours
+04. C'est pas moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257885   (343137) от 27.10.2018
 
 VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <Eurodance, Disco, Pop>
@@ -720,35 +749,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E0EBA0B81C14B1798EAC1E9187D7DD28C69019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074978   (335920) от 20.11.2016
-
-Emin - Love Is A Deadly Game (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is a Deadly Game
-02. Creative
-03. It's Impossible
-04. Let There Be Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5B23E209D8428EE4662192B67EC09EB01C5297
 ```
 
 https://mybot314.ru/tekegram_catalog/

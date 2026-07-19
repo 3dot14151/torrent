@@ -1,3 +1,90 @@
+###  Публикация: 1016208   (771466) от 13.05.2016
+
+DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testimony Of Truth (4:44)
+02. Bad Deeds (3:47)
+03. My Night Sky (4:29)
+04. This Deception (3:48)(   Читать дальше...   )Жанр: Groove, Melodic Death MetalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B02ABB0AA378B938B9B826E6837C4AD65C3AE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526855   (770997) от 13.05.2016
+
+Hatebreed - 9 Albums (1996-2016) [MP3|320 кб/с]<Hardcore, Metalcore, Trash Metal>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1996 - Under The Knife (EP)
+1997 - Satisfaction Is The Death Of Desire
+2002 - Perseverance
+2003 - The Rise Of Brutality(   Читать дальше...   )Жанр: Hardcore, Metalcore, Trash MetalПродолжительность: 05:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD98D4DBECA7F8586DA61D3A20F2646520BE2933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391859   (770714) от 23.06.2020
+
+Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filaments Dissolve (06:50)
+ 02. Into the Maw (04:13)
+ 03. The Absolute Nothing (04:18)
+ 04. Unborn (03:51)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A358888D2265CBB66206348CE40661A272A091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391787   (770689) от 23.06.2020
 
 Oceans of Slumber - The Banished Heart (2018) [MP3|320 Kbps] <Doom Metal>
@@ -657,93 +744,6 @@ Havok - V (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AEE7D5DE9226603692C250510DE2E933B535C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394111   (765472) от 03.07.2020
-
-Poltergeist - Feather of Truth (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time at Hand (04:47)
- 02. Saturday Night s Alright for Rockin (05:11)
- 03. Feather of Truth (05:13)
- 04. The Attention Trap (03:41)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC07AECAA4D3BE449849CF0C7C9E47ADBE9F63AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215010   (765076) от 02.01.2022
-
-Raven Black - Discography 13 Releases (2016-2021) [MP3|320 Kbps] <Alternative Metal, Nu Metal, Theatrical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765076.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Seven Sins
-2018 - 13
-2020 - The Key
-Singles:(   Читать дальше...   )Жанр: Alternative Metal, Nu Metal, Theatrical MetalПродолжительность: 01:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1F7224355592D464DDEBEE43644A1203BE9137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394254   (764696) от 04.07.2020
-
-Lost Conduit - Astral (2020) [MP3|320 Kbps] <Metalcore, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral (04:11)
- 02. Eternity (feat. Ben Duerr) (04:07)
- 03. Ember (04:04)
- 04. Aversion (feat. Luke Griffin, Greg Gilbert & Lucca Schmerler) (03:51)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE3F9E5B8B6D73E76B1940FAEC206BE66FB5211
 ```
 
 https://mybot314.ru/tekegram_catalog/

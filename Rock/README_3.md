@@ -1,32 +1,3 @@
-###  Публикация: 1615730   (1037294) от 27.02.2023
-
-Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow [00:06:17]
-02 - How Old [00:06:31]
-03 - Follow [00:10:08]
-04 - Eyes, Lungs, Arms & Mind [00:07:47](   Читать дальше...   )Жанр: Heavy Rock, Stoner RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DD85483C7F5A9E344DF6744776D18D2AFAC47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616195   (1036703) от 01.03.2023
 
 The Alan Parsons Project - The Turn Of A Friendly Card (1980) Limited Edition Boxset, 3CD, 2023, Esoteric Records [MP3|320 Kbps] <Simphonic Progressive Rock>
@@ -745,6 +716,35 @@ The Bryan Hughes Group - Break the Rules (1990) [MP3|320 Kbps] <AOR, Melodic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2009A9D433745A7076A3D3DBE7E776A89527D2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448575   (1030711) от 18.02.2021
+
+The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (2012) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Jungle (Karaoke Version)
+02. Jump (Karaoke Version)
+03. Another One Bites the Dust (Karaoke Version)
+04. Dude (Looks Like a Lady)Жанр: Rock, Hard RockПродолжительность: 03:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3049F3F9DBD020EDE4C64A9E90E0139F6F22D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

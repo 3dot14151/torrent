@@ -1,3 +1,119 @@
+###  Публикация: 1189221   (271270) от 05.12.2017
+
+Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious (02:50)
+02. Ready for War (Pray for Peace) (03:32)
+03. Trapped 04:01)
+04. Tell Me 03:30)(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224374EE33E4D8C61A0A005BE965D8E7760792E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338117   (270632) от 14.11.2019
+
+blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time (02:26)
+02. Happy Days (02:59)
+03. Heaven (03:17)
+04. Darkside (03:00)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037AD55342F3719A3F9E9977090877CBC0496C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534805   (270183) от 06.12.2017
+
+Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, Brit-pop, Neo-Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя все участники группы Spacehog родом первоначально из Лидса, Англия, группа, сформирована в Нью-Йорке в 1994, когда Antony Langdon встретил Cragg случайно в кафе. Вскоре брат Langdon, Royston, и гитарист Richard Steel присоединился к группе, Spacehog родился. Их звук так сильно отличался от нео-гранж движения начала 90-х годов, что в течение короткого времени (   Читать дальше...   )Список альбомов:
+1995 - Resident Alien (EKCD 6243)
+1998 - The Chinese Album (Sire 9 46851-2)
+2001 - The Hogyssey (Artemis 751068-2)Жанр: Indie, Brit-pop, Neo-GlamПродолжительность: 03:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189826   (269593) от 07.12.2017
+
+Joywave - Content (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Content (04:28)
+02. Shutdown (03:42)
+03. It's a Trip! (03:03)
+04. Rumors (03:47)(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD6EADC60B39106CF54179F77E21BFECFFD2535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338792   (268214) от 17.11.2019
 
 The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, 80s, 90s>
@@ -637,122 +753,6 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749497682498C54B2319D25D8CF38C97C4BD154A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833574   (247788) от 02.11.2025
-
-The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellfire (3:32)
-02. I Give You The Creeps (3:44)
-03. A Ghost From The '80S (3:33)
-04. Hier Sein (2:48)(   Читать дальше...   )Жанр: Horror Punk, Heavy MetalПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35892A27CBC67773163C2B12949CF0C9B369D948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624100   (245432) от 04.04.2023
-
-Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LET'S GO! [00:02:53]
-02. VANDAAG NOG WEL [00:03:05]
-03. FAKE [00:02:41]
-04. NEE! [00:02:40](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7425D592ABACF21C70519F27320BD1C5C70D9E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624098   (245425) от 04.04.2023
-
-Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:40]
-02. Grotesk [00:03:55]
-03. Man-Made Tragedy [00:03:08]
-04. H.E.L.L. [00:03:51](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BA26EFB3B75E4C7A978EC3DFBC614E1C9C5BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624064   (245399) от 04.04.2023
-
-The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAGEBOI [00:01:08]
-02. RIGHT NOW [00:03:16]
-03. END OF EVERYTHING [00:04:49]
-04. ALONE IN THE CITY [00:03:30](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F3618496937529CD895CEE58F6AC5A035BD617
 ```
 
 https://mybot314.ru/tekegram_catalog/

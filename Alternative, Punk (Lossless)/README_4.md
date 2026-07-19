@@ -1,3 +1,147 @@
+###  Публикация: 1349504   (1004269) от 02.01.2020
+
+Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Trip-Hop, Ambient, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal Something. (10:12)
+ 02. Candy Truck / You Expected: LAB Your Result: Green (7:15)
+ 03. A Devastating Liberation (4:40)
+ 04. ¿ (5:13)(   Читать дальше...   )Жанр: Alternative Rock, Trip-Hop, Ambient, MetalcoreПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487593   (1003351) от 06.08.2021
+
+Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Threat [3:49]
+02. Head 2 Head [3:38]
+03. Poison Well [3:30]
+04. Natural High [3:22](   Читать дальше...   )Жанр: Hardcore, Nu MetalПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7EBC23CED2B94D63F6CEFEC8583205005786E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350861   (1003009) от 07.01.2020
+
+Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003009.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
+CD2 - 8 Spring Street
+CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487591   (1002524) от 09.08.2021
+
+VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triple J Hottest 100 - ежегодный музыкальный сборник, основанный на голосовании, проходящем на национальном австралийском радио Triple J, в в котором слушатели выбирают лучшего исполнителя года. Голосование проходит через интернет и начинается примерно за две недели до Нового Года и подводит его итоги, учитывая композиции, выпущенные только за этот год. 100 наиболее (   Читать дальше...   )CD1
+
+01. Gotye - Somebody That I Used To Know (Ft. Kimbra) (4:04)
+02. The Black Keys - Lonely Boy (3:13)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351639   (1001995) от 11.01.2020
+
+Circa Waves - Happy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacqueline (02:42)
+02. Be Your Drug (02:28)
+03. Move to San Francisco (03:01)
+04. Wasted On You (03:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3EA688CE09CAD6FAE765F596C0584DF67CB149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351637   (1001992) от 11.01.2020
 
 The Big Moon - Walking Like We Do (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -618,158 +762,6 @@ Wire - Mind Hive (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04D3767E6C75BE1A38E48647569502A4008DB2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354813   (986166) от 24.01.2020
-
-Andy Shauf - The Neon Skyline (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Skyline (03:38)
-02. Where Are You Judy (03:21)
-03. Clove Cigarette (02:55)
-04. Thirteen Hours (02:58)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8334A1E4623A544F27809C0B2B3F3E0C6EDE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971363   (985768) от 03.01.2016
-
-Tupelo Honey - Brave New World (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская рок группа, основанная в St. Albert, Канада в феврале 2003 года.
-Они играли с многочисленными хедлайнерами такими, как Bon Jovi, Default, Theory of a Deadman, Bif Naked, Three Days Grace, Thornley, The Trews, Billy Talent и Sam Roberts
-Члены Tupelo Honey познакомились во время поступления в музыкальную программу Grant MacEwan колледжа, Edmonton, Alberta, (   Читать дальше...   )01. Nothing Left To Lose
-02. Halo
-03. Dancing With Your Ghost
-04. These Walls(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87816A910055FAE1C6E4AF6EA1612BC6C79D109A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355382   (983620) от 26.01.2020
-
-Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandoz
-02. Positive Drug Test
-03. John Balance Enters Valhalla
-04. John Valour(   Читать дальше...   )Жанр: Krautrock, Alternative Rock, ExperimentalПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EB2E544CC1E226140197E16DE30B0134B0DE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614272   (981019) от 05.02.2013
-
-Nick Cave & The Bad Seeds - Push The Sky Away (2013) /WEB/ [FLAC (tracks)|Lossless]<Post-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We No Who U R
-02. Wide Lovely Eyes
-03. Water's Edge
-04. Jubilee Street
-05. Mermaids
-06. We Real Cool
-07. Finishing Jubilee Street
-08. Higgs Boson Blues
-09. Push The Sky AwayЖанр: Post-Punk, Alternative RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355995   (980568) от 29.01.2020
-
-We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Killer B-Side Music (04:05)
-02 - Song in My Head (02:57)
-03 - Night Guest (03:07)
-04 - Obviously (04:27)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD839E77BE42B31E8B090DAA275A11BB3ED4D589
 ```
 
 https://mybot314.ru/tekegram_catalog/

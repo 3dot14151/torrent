@@ -1,32 +1,3 @@
-###  Публикация: 1104214   (881328) от 14.02.2017
-
-Оля Полякова - Шлёпали шлёпки (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Polyakova Style
-2. #Шлепки
-3. Плавочки
-4. Люли(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4F2B3B110EFCAEEE8D9C13E898398B0CFEB174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996592   (878969) от 14.03.2016
 
 OQJAV (Окуджав) - Марта (2016) [MP3|320 кб/с] <Dance pop, New Wave, Synthpop, Indie Pop>
@@ -730,6 +701,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33BCF198FC1AAF7E4C1CF64ED86AE6FB5DAC645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004978   (836661) от 07.04.2016
+
+Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Искренность
+02. Деревья
+03. Ева (Slow)
+04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
 ```
 
 https://mybot314.ru/tekegram_catalog/

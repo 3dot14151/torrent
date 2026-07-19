@@ -1,119 +1,3 @@
-###  Публикация: 37377   (351037) от 03.11.2015
-
-(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_351037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ностальгия (Nostalgie)
-02. Башня из Слоновой Кости (Ivory Tower)
-03. Тайна (Mystery)
-04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578022   (350395) от 21.09.2022
-
-Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Sho' Can Talk [3:41]
-02. Brethren [5:10]
-03. Crib Theme [10:16]
-04. The Burner [10:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329650   (350285) от 06.10.2019
-
-Wes Montgomery - Back On Indiana Avenue: The Carroll DeCamp Recordings (1950-e) 2CD, 2019, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350285.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Four on Six [4:48]
-02. Mr. Walker [3:47]
-03. 'Round Midnight [7:14](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE84CD36D856042F98D4CB928D4B6FBF2B28E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072910   (350135) от 14.11.2016
-
-Sonny Rollins - Global Warming (1998) Milestone Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Island Lady [09:12]
- 02.Echo-Side Blue [07:17]
- 03.Global Warming [06:32]
- 04.Mother Nature's Blues [11:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE8CA1AE96CF0A5980126DE36344636A0AF9EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072837   (350124) от 14.11.2016
 
 Perrine Mansuy - Rainbow Shell (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -750,6 +634,122 @@ Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D046F491B92EF7945DFE39326EF8F851A3657F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953403   (347095) от 05.11.2015
+
+Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vichakani [15:36]
+ 02.Musitoni [09:17]
+ 03.Pamoja [14:31]
+ 04.Ev'rytime We Say Goodbye [08:36]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F78712DBA4C33ACEC078477C81EDC6DAF683734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953391   (346977) от 05.11.2015
+
+Enrico Rava Quartet with Gianluca Petrella - Wild Dance (2015) /ECM/[FLAC|tracks+.cue]<Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Diva [07:39]
+ 02.Space Girl [07:21]
+ 03.Don't [04:46]
+ 04.Infant [03:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83342FE8FC08EB2B463992BA1F8B7CE5E5AB1A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418642   (346944) от 25.10.2020
+
+J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Devil Moon [3:38]
+02. Jay [3:43]
+03. Time After Time [3:54]
+04. Too Marvelous for Words [4:07](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68644FC117C8B63A838C9FF7DC97EE75E2BD22C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418640   (346942) от 25.10.2020
+
+J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capri (alternate take) [3:51]
+02. Capri [3:42]
+03. Lover Man [3:57]
+04. Turnpike [4:22](   Читать дальше...   )Жанр: BopПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72FC120986611BED3BCE99C43F4F1F68477BE99
 ```
 
 https://mybot314.ru/tekegram_catalog/

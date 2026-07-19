@@ -1,3 +1,61 @@
+###  Публикация: 1211328   (777557) от 07.03.2018
+
+Lilly Martin - Right Now (2015) [MP3|320 Kbps] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealous Kind (04:44)
+02. Lonely Avenue (03:52)
+03. New York City (03:43)
+04. Next To Me feat. Ellis Hall (03:49)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C4E80B5C708E7E712F74562F16AB1FB9B8CE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013769   (777326) от 05.05.2016
+
+Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain
+02. Life On Hold
+03. Drinking
+04. Beautiful Eyes(   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66994179E991444C17C79480A0FF216A7D6394DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211648   (777240) от 08.03.2018
 
 Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
@@ -689,70 +747,6 @@ Mike Morgan and the Crawl - The Road (1998) [MP3|320 Kbps] <Texas Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13CBB9C3DBCA4DDC298FEBBC713551A26BF43CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126756   (764480) от 19.04.2017
-
-Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Texas Man (05:34)
-02. The Way You Left Me Girl (03:12)
-03. Wild About You (04:32)
-04. Guitar Rhumbo (02:59)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740C7298388933E5074D331E1609A92E097BB887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319942   (761831) от 07.04.2011
-
-VA - Atlantic Blues  (1991) 4 CD Box Set [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_761831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Jones - Chicago Blues (3:12)
-02. Buddy Guy & Junior Wells - Poor Man's Plea (3:10)
-03. Buddy Guy & Junior Wells - My Baby She Left Me (3:09)
-04. Buddy Guy & Junior Wells - T-Bone Shuffle (4:16)
-05. Freddie King - I Wonder Why (3:18)
-06. Freddie King - Play It Cool (3:45)
-07. Freddie King - Wake up This Morning (3:10)
-08. Otis Rush - Gambler's Blues (5:41)
-09. Otis Rush - Feel So Bad (3:38)
-10. Otis Rush - Reap What You Sow (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08B00BA3A384F93F1A56992E8DD50F02DBBCD23
 ```
 
 https://mybot314.ru/tekegram_catalog/

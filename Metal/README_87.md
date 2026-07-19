@@ -1,3 +1,90 @@
+###  Публикация: 1289518   (244530) от 16.03.2019
+
+Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244530.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Illborn Augury
+2. Sovereign Sacrifices
+3. Alchemic Web Of Deceit
+4. A Suit Of My Flesh(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C0F4AB7818FAD32C9B841B293B60AD32A5125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609763   (244519) от 05.02.2023
+
+Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Sorcery [00:06:27]
+02. The Cursed Crown [00:05:40]
+03. The Legend of the Demon's Cry [00:06:21]
+04. Assault on the Castle [00:04:43](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 2 CD, 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A81EE261DD548EBFB203F0F47302E296318B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625502   (244510) от 10.04.2023
+
+Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Act (05:33)
+02. Alliance Ov Snakes (04:03)
+03. Belial (04:03)
+04. Darkbringer (03:37)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9387C4B06D163AF7CD5BD30FDD89EEE76EC32127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609778   (244490) от 05.02.2023
 
 Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive Metal>
@@ -658,93 +745,6 @@ Drakkar - Chaos Lord (2021) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D2122429C7A8B70BC3FA8514833FAB35598EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457390   (242688) от 26.03.2021
-
-Imperia - The Last Horizon (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Away [00:05:54]
-02 - Starlight [00:05:26]
-03 - To Valhalla I Ride [00:06:09]
-04 - Flower and the Sea [00:05:31](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D7401AACEF31DB200120069432744A8F831F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635165   (242113) от 24.05.2023
-
-Carpe Diem - In Nomine Honoris (2023) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242113.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 – Horrida Bella
-2 – Batallas De Leyenda
-3 – El Libertador
-4 – El Vengador(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6486B6EC1610AA92E42B1221D07FC1F02B2A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374550   (241941) от 10.04.2020
-
-Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thrones
-02. Collapse
-03. Animals
-04. Tremors(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6A9C7773DED8FB434876376FEC5EE932442DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

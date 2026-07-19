@@ -1,3 +1,90 @@
+###  Публикация: 1482080   (1007715) от 07.07.2021
+
+VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nirvana - The Man Who Sold The World (4:21)
+02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart (3:30)
+03. Jeff Beck, Johnny Depp - Isolation (5:14)
+04. Halestorm - Get Lucky (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482682   (1007409) от 09.07.2021
+
+VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1975 – The Sound (04:08)
+02. Grimes – Kill V. Maim (04:06)
+03. Foals – Mountain at My Gates (04:04)
+04. Arctic Monkeys – Do I Wanna Know? (04:32)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 06:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483444   (1006883) от 13.07.2021
+
+VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006883.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pale Waves - Wish U Were Here
+002. The Natvral - Sylvia, The Cup Of Youth
+003. That Handsome Devil - Punch In The Face
+004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484270   (1006081) от 19.07.2021
 
 VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
@@ -658,90 +745,6 @@ VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353773   (990547) от 19.01.2020
-
-VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nirvana - Smells Like Teen Spirit
-002. Rage Against the Machine - Killing In The Name
-003. Green Day - Basket Case
-004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: RockПродолжительность: 07:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163675   (987371) от 06.01.2010
-
-VA - XXXL Русский Рок (2009) [MP3|192 kbps]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 06:25:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354737   (986940) от 23.01.2020
-
-Barclay James Harvest - Greatest of All Time (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock, Art Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love On The Line
-02. Alone In The Night
-03. Alright Down Get Boogie
-04. Paper Wings(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Art RockПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8501F4390EE322F03091C139573EFBAC5965F591
 ```
 
 https://mybot314.ru/tekegram_catalog/

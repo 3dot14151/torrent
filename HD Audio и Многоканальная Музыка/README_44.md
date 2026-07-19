@@ -1,3 +1,191 @@
+###  Публикация: 1421303   (319542) от 04.11.2020
+
+Barbra Streisand - Guilty (1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Easy Listening, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319542.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Guilty
+A2 Woman In Love
+A3 Run Wild
+A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582107   (319528) от 29.11.2012
+
+Uriah Heep - Magic Night /Live at Astoria Theatre, London/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Hard Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Livin' (2:45)
+02. Shadows Of Grief (6:12)
+03. Cry Freedom (3:42)
+04. Pilgrim (6:18)
+05. Bad Bad Man (3:40)
+06. Devil's Daughter (4:44)
+07. Wise Man (4:13)
+08. Firefly (2:00)
+09. Heartless Land (1:49)
+10. Free Me (3:25)(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 01:03:12 (2.0), 01:02:59 (5.1)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B676222168E7AA4C36C45B3F2770328ED86B4B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580076   (319518) от 29.11.2012
+
+ДДТ - Актриса Весна (1992) [DTS 5.1|1411]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дождь
+2. В последнюю осень
+3. Фома
+4. Родина
+5. У тебя есть сын
+6. Храм
+7. Что такое осень
+8. Ночь
+9. Актриса ВеснаЖанр: RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFACC48AF20B6756BED1487B710C5FAD7789288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580099   (319516) от 29.11.2012
+
+Владимир Высоцкий - Vladimir Vissotski (1985) [DTS 5.1|1411 кб/с]<Авторская песня>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (Side A-B)
+
+1. Он не вернулся из боя
+2. Черные бушлаты
+3. Как призывный набат
+4. Недолюбил
+5. Про прыгуна в высоту
+6. Боксер
+7. Расстрел горного эха
+8. К вершине(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 35:02+37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0081D644863CFF8B5AD679ACEDFE6EC4C97CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 417241   (318734) от 30.11.2011
+
+Celine Dion - A New Day Has Come (2002) [DSD 5.1 1bit/2822,4kHz|SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABCA6684D72975A62C6D2D4DAFFF70453404AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582759   (318609) от 11.10.2022
+
+Tina Turner - Foreign Affair (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318609.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Steamy Windows
+A2 The Best
+A3 You Know Who (Is Doing You Know What)
+A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: Pop Rock, Soul, Rhythm & BluesПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037035   (317802) от 23.11.2016
 
 King Crimson - THRAK (1995) 2015, Discipline Global Mobile [DTS 5.1|LPCM 2.0, 5.1|48,96/24|2Blu-ray]  <Rock, Prog Rock, Art Rock, Avant-Prog>
@@ -580,180 +768,6 @@ A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Произв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077900   (304303) от 29.11.2016
-
-The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Two Of Us 3:34
-02. Dig A Pony 3:52
-03. Across The Universe 3:46(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261463   (303385) от 11.11.2018
-
-Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01 Overture
-02 Libiamo Ne' Lieti Calici
-03 Un Di' Felice, Eterea (Duet)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184079   (303202) от 16.11.2017
-
-Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303202.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Daddy Daddy 3:15
-A2 Bad Boy You 4:06
-A3 Baciami (Kiss Me) 4:14
-A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184149   (303058) от 16.11.2017
-
-Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness (4:05)
-02. The Pop Kids (3:56)
-03. Twenty-something (4:23)
-04. Groovy (3:30)(   Читать дальше...   )Жанр: Synth-pop, BalladПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730880   (303017) от 05.12.2013
-
-БГ и Сева Гаккель - Концерт на Таганке (1984) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303017.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Пока не начался джаз (2:41)
-C2. Рождественская песня (5:13)
-C3. 25 к 10 (2:12)
-C4. Электрический пес (3:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261605   (302952) от 11.11.2018
-
-Steve Hackett – Wolflight (2015) [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <progressive rock, folk rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Body (02:31)
-02. Wolflight (07:58)
-03. Love Song To A Vampire (09:18)
-04. The Wheel's Turning (07:23)(   Читать дальше...   )Жанр: Prog Rock, Folk RockПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DE2C5C5045732249C0CB2D16B0AEA4095A551A
 ```
 
 https://mybot314.ru/tekegram_catalog/

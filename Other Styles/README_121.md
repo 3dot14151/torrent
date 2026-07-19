@@ -1,3 +1,188 @@
+###  Публикация: 559860   (407116) от 14.10.2012
+
+VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
+ 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
+ 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
+ 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
+ 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
+ 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
+ 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
+ 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
+ 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
+ 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414035   (406805) от 06.10.2020
+
+Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Got Struck By Lightning (3:13)
+02. Hurricane (3:10)
+03. Whisky & Blankets (3:57)
+04. Wires Crossed (5:05)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD76D7B7D6B7E2C46EAC58FE6A44C7D4044F93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168749   (404890) от 25.09.2017
+
+Neil Young - Theme From Dead Man (1996) Single [FLAC|Lossless|tracks + .cue] <Soundtrack, Rock, Post Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From Dead Man (Edit) (3:18)
+02. Theme From Dead Man (Edit w. Johnny Depp spoken words) (3:18)
+03. Theme From Dead Man (Long Version) (5:04)Производство: Vapor Records – PRO-CD-8142Жанр: Rock, Soundtrack, Folk Rock, Post RockПродолжительность: 00:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05BA5A6EA54B7EFAE336C6275A028395FE7441B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194686   (404633) от 21.10.2012
+
+Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, Acoustic guitar>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404633.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:35) 01. Elephant King
+(5:02) 02. Joy & Sorrow
+(4:59) 03. Traverse
+(4:43) 04. Tres Capos
+(3:49) 05. Timepiece
+(1:55) 06. Adventures In Sawyerland
+(3:38) 07. Be Still
+(4:39) 08. Overtime
+(4:52) 09. Bongolo
+(3:37) 10. Coronation(   Читать дальше...   )Жанр: New age, Instrumental, Folk, Acoustic guitarПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169085   (403152) от 27.09.2017
+
+Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Designs
+02 - Predestined
+03 - Mechanical Mind
+04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169097   (403148) от 27.09.2017
+
+Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Truth Is (3:24)
+02 - Nothin' About Love (2:51)
+03 - Waves (2:55)
+04 - First Kiss (2:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168870   (403104) от 27.09.2017
 
 Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo Piano, Relax>
@@ -595,198 +780,6 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82E0FE49F119C342C78EFD16CB2DFD9D937F7DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490215   (397662) от 28.10.2012
-
-The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397662.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:39) 01. Moonlight Dreams
-(2:07) 02. Shiny Tomorrow
-(3:34) 03. Irony
-(9:35) 04. Rainy Scent
-(4:12) 05. Graduation
-(5:37) 06. For Steve Jobs
-(2:19) 07. Little Smile
-(2:27) 08. So Far Away
-(7:45) 09. Secret Stairs
-(3:28) 10. Nocturne In Autumn(   Читать дальше...   )Жанр: New Age, Neoclassical, Instrumental, Relax, PianoПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C771BBAFB7725053B90664EDD81BBC80659635F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171133   (397607) от 03.10.2017
-
-Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardiowave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро 0:49
-02. Пустота 3:54
-03. Почти реально 5:11
-04. Формалин 4:05(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDBB0688D44067D7C0A02DDE83868501120548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567206   (396850) от 29.10.2012
-
-Delerium - Music Box Opera (2012) [MP3|320 кб/с]<New Age, Ambient, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Consciousness Of Love (feat. Stef Lang) [4:39]
-02.  Monarch (feat. Nadina) [5:20]
-03.  Days Turn Into Nights (feat. Michael Logen) [6:10]
-04.  Chrysalis Heart (feat. Stef Lang) [3:51]
-05.  Light Your Light (feat. Jael) [5:40]
-06.  Raindown [5:50]
-07.  Sky (Tears From Heaven) (feat. Kristy Thirsk) [7:11]
-08.  Hammer (feat. Leona Naess) [5:35]
-09.  Awakening (feat. Nadina) [6:46]
-10.  Frostbite (feat. Anna-Lynne Williams) [6:02](   Читать дальше...   )Жанр: New Age, Ambient, Chillout, DowntempoПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214A3A13290A733C6825F0895FBC637E8A6CE33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171439   (396779) от 04.10.2017
-
-Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening
-02 - Annabelle
-03 - Fight
-04 - Coop(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31688D2DF8E4CE94CDC613B9AAE4DF72BA13703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567217   (396755) от 29.10.2012
-
-Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Consciousness Of Love (feat. Stef Lang) [4:39]
-02.  Monarch (feat. Nadina) [5:20]
-03.  Days Turn Into Nights (feat. Michael Logen) [6:10]
-04.  Chrysalis Heart (feat. Stef Lang) [3:51]
-05.  Light Your Light (feat. Jael) [5:40]
-06.  Raindown [5:50]
-07.  Sky (Tears From Heaven) (feat. Kristy Thirsk) [7:11]
-08.  Hammer (feat. Leona Naess) [5:35]
-09.  Awakening (feat. Nadina) [6:46]
-10.  Frostbite (feat. Anna-Lynne Williams) [6:02](   Читать дальше...   )Жанр: New Age, Ambient, Chillout, DowntempoПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171390   (396734) от 04.10.2017
-
-David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stargate Overture
-02 - Wild Abduction
-03 - Giza, 1928
-04 - Unstable(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3C91A4B0DB0279C30EBF2BAF0CCECF5815D97A
 ```
 
 https://mybot314.ru/tekegram_catalog/

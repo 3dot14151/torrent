@@ -1,3 +1,32 @@
+###  Публикация: 1115987   (824751) от 19.03.2017
+
+Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps] <Disco,  Funk-Soul, Classical, Easy Listening, Modern>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный проект итальянского пианиста, композитора, руководителя оркестра и мюнхенской группы Giorgio Moroder - Munich Machine.01. Sheherazade (4:14)
+02. Ol' Man River (3:16)
+03. From The New World Symphony (7:10)
+04. Serenade (4:13)(   Читать дальше...   )Жанр: Disco,  Funk-Soul, Classical, Easy Listening, ModernПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116429   (824450) от 19.03.2017
 
 VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
@@ -714,35 +743,6 @@ VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6F2F71FA957640FFBDFC9A211840CD17F07C981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198371   (808286) от 11.01.2018
-
-VA - Best Of Love Songs (2017) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808286.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  The Drifters  -  Save The Last Dance For Me  2:28
-02.  Laura Branigan  -  Power Of Love  5:20
-03.  All Saints  -  Never Ever  3:51(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC1A22726EEFA33F64FB07060BCBCCF60D8FC3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

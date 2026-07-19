@@ -1,3 +1,29 @@
+###  Публикация: 1468457   (1017104) от 08.05.2021
+
+DEVONthink Pro Office/Server 3 v3.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.05.2021Разработчик: DEVONsphere™Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D281E49CD2865B6B0CD08807DE0839BBE6FAC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468641   (1017100) от 08.05.2021
 
 Image Optimizer - Compression 2.4 [En]
@@ -653,35 +679,6 @@ IK Multimedia официально представила новую верси�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940DDCE3C99913EB81FE847C527B52631B450DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94710   (1016877) от 09.05.2021
-
-MIDWAY feat. 21 Squad - Get Down (2008) [MP3|320 kbps] <Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (By TREXX)
-02. 21
-03. Сальса (feat. B.Kon & TREXX)
-04. Can't Lie (feat. B.Kon)(   Читать дальше...   )Жанр: RapПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6468BE3F29502990F849D30CE8B15A671C83F955
 ```
 
 https://mybot314.ru/tekegram_catalog/

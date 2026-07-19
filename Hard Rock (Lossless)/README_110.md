@@ -1,25 +1,25 @@
-###  Публикация: 1811040   (16620) от 07.08.2025
+###  Публикация: 1761481   (36562) от 21.11.2024
 
-Skip House - Outlaw Redux (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Saturday Night Satan - All Things Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Outlaw Redux (4:05)
-02.  Big Daddy Blues (3:48)
-03.  Paradoxical Lady (5:57)
-04.  Simple Stupid Groove (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:18
+01. 5AM [00:03:26]
+02. Rule With Fire [00:04:44]
+03. Devil in Disguise [00:04:29]
+04. All Things Black [00:05:29](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43EC5C38AC09FCF995F5E01166D79E92522E12C4
+magnet:?xt=urn:btih:353B08350C3C2D4D3A0558CB3168B8701F555919
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800873   (15473) от 06.06.2025
+###  Публикация: 1761859   (36489) от 22.11.2024
 
-Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's Too Late (03:24)
- 02. Satellite (04:33)
- 03. Dead Will Rise (05:33)
- 04. You Don't Love Me (04:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
+01. Evil World Machine
+02. The Boom Went the Boom (feat. Phil Collen of Def Leppard)
+03. Money Sex or God
+04. Flip The Bird(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
+magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800883   (15471) от 06.06.2025
+###  Публикация: 1294346   (36399) от 23.11.2024
 
-Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Rainbow - De Luxe Collection (2002) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Want Out (04:17)
- 02. I Don't Know (06:35)
- 03. Reach For The Sky (04:12)
- 04. Life's What You Make It (04:58)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:14
+01. Can't let you go (4:21)
+02. Street of dreams (4:26)
+03. Gates of Babylon (6:46)
+04. Lost in Hollywood (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F38A5D43723705540C2C5C9ED5C6C98ED3C7C1EF
+magnet:?xt=urn:btih:EACD6549177BCB2ADA0D32CBDF36A5173CF47EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800894   (15466) от 06.06.2025
+###  Публикация: 1762832   (35958) от 27.11.2024
 
-A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Uriah Heep - Living The Dream (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire Away (04:38)
- 02. Running In Place (04:58)
- 03. Nothing Is Over (04:18)
- 04. A Wordless Prison (06:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:55
+01. Grazed by Heaven 4:31
+02. Living the Dream 5:34
+03. Take Away My Soul 6:13
+04. Knocking at My Door 4:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:109B8BB1B5EBCEF864C62E61B90DDEEFCC2B1DBB
+magnet:?xt=urn:btih:78496E9C9A2D985B5887CBB6541450E8CBFF6715
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,27 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533312   (15215) от 09.06.2025
+###  Публикация: 1762785   (35928) от 27.11.2024
 
-Triumph - 16 Albums (1976 - 2015) 25 CD [FLAC|Lossless|tracks + .cue|image + .cue]<Hard Rock>
+Black Whiskey - Last Temptation (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Канадская группа "Triumph" образовалась в 1975 году в Торонто, а в ее оригинальный состав вошли Рик Эмметт (вокал, гитара), Майк Ливайн (бас, клавишные) и Гил Мур (вокал, ударные). Вскоре в состав коллектива вошел гитарист Рик Сантерс. Благодаря Эмметту и Сантерсу группе удавалось создавать великолепные хард-рок-композиции. Настоящий вкус успеха канадские (   Читать дальше...   )1976 In The Beginning
-1977 Rock & Roll Machine
-1979 Just A GameЖанр: Hard RockПродолжительность: 19:23:40
+01 - Riding On The Wind (03:58)
+ 02 - Break Me (02:16)
+ 03 - Eat You Alive (03:49)
+ 04 - Down (Devils Highway) (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D849015917A3645302566982D74A2A905B9B3AA6
+magnet:?xt=urn:btih:3611A735B3521CE0B60D0B84F58005DC797FEE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801411   (15031) от 10.06.2025
+###  Публикация: 208821   (35575) от 01.12.2024
 
-Animalyze - Powerhouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Powerhouse (04:05)
- 02. Hunter Of The Night (04:00)
- 03. Beauty Is A Killer (03:01)
- 04. Trigger For Love (03:14)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:39:42
+1. Intro (1:36)
+2. Night Songs (3:16)
+3. The Last Mile (3:16)
+4. Somebody Save Me (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16CC1240269F95F6590280E34550191A0877F154
+magnet:?xt=urn:btih:769F91094751B3BD8B6284B071006D01ABDE6D59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801880   (14751) от 13.06.2025
+###  Публикация: 407819   (35568) от 01.12.2024
 
-Wildheart - Wild 'N Three (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Electric Atmosphere (01:00)
- 02. Miss Treat Me Right (05:21)
- 03. Last Goodbye (04:38)
- 04. Sands Of Time (04:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:22
+01. Black Cat
+02. Natural Born Loser
+03. Ain't It Just Like A Woman
+04. Strange Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0719664311DF06B192C5F4E06AB49CE025743D42
+magnet:?xt=urn:btih:7EAEF15921D6FC921579631ADD39F98B562B2381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802420   (14311) от 17.06.2025
+###  Публикация: 201073   (35550) от 01.12.2024
 
-Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Groove Metal, Hard Rock>
+No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Devils are Awake [4:55]
-02 - By a Monster's Hand [3:43]
-03 - Acid Rain [4:45]
-04 - Demonic Depression [3:59](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Hard RockПродолжительность: 00:44:17
+01 Dark-Blue Water 2:47
+02 Market-Place Rooster 2:32
+03 So Far Away From You 3:13
+04 If You Want Me 1:31(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B1430685DECEE5D64163F5398EDD2FE482E1DC4
+magnet:?xt=urn:btih:CB199C692831FC9AC00AD6BC1059F04F2724A2BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804077   (13244) от 27.06.2025
+###  Публикация: 208974   (35529) от 01.12.2024
 
-Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (The Manticore Tapes) (Instrumental) (03:46)
- 02. Leavin' Here (The Manticore Tapes) (03:23)
- 03. Vibrator (The Manticore Tapes) (03:26)
- 04. Help Keep Us on the Road (The Manticore Tapes) (04:59)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:18
+01. There She Goes Again
+02. Devil Of A Man
+03. Love To Love
+04. Mona Lisa Smiled(   Читать дальше...   )Жанр: rock, glamПродолжительность: 00:51:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC1DB949A8359CE4825FB17F1932F1A0F7ADF83F
+magnet:?xt=urn:btih:7EFEA90E8E411519D9F9DD1F08A4C10A594C17F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804814   (12730) от 02.07.2025
+###  Публикация: 1764694   (34803) от 08.12.2024
 
-UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+House Of Lords - Full Tilt Overdrive (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let It Roll (4:51)
-02. Shoot Shoot (4:05)
-03. Let It Rain (4:01)
-04. When It's Time To Rock (5:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:08
+01. Crowded Room (4:47)
+02. Bad Karma (4:12)
+03. Cry Of The Wicked (5:09)
+04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB7BC74C435130EC5B65AE0AB7330E6DEBF12FCA
+magnet:?xt=urn:btih:03267E1BA532BB61193C061A7623E4B50B48FC16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805417   (12325) от 06.07.2025
+###  Публикация: 1765427   (34418) от 12.12.2024
 
-Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Stole Your Love [00:03:04]
-02. Christine Sixteen [00:03:12]
-03. Got Love For Sale [00:03:28]
-04. Shock Me [00:03:46](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 01:19:45
+01. Final Resting Place (4:23)
+02. Wake-up Call (4:05)
+03. Your Time Has Run Out (4:04)
+04. Strung Out (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B7652F3A79C3A71CB91AAB48371C04CAE765512
+magnet:?xt=urn:btih:4D558826798C7196C1CBE5F91593906B141280BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790084   (12061) от 09.07.2025
+###  Публикация: 1765410   (34391) от 12.12.2024
 
-AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 - A Long Way To The Top - Festival Hall, Melbourne. 31st December 1974
-Disc 2 - Problem Child - The Hippodrome, Golders Green. 17th October 1977
-Disc 3 - Whole Lotta Rock - Agora Ballroom, Cleveland. 22th July 1977
-Disc 4 - Maximum Voltage - The Old Waldorf, San Fransisco. 3rd September 1977(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:44:04
+01. The Land of Milk and Honey (4:15)
+02. Reef Summer (5:02)
+03. Scars (3:43)
+04. Split (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DBD3852614068DDCDF7A6516F41BFE654966069
+magnet:?xt=urn:btih:C9D98C148FBC26410BE7785B05410B18A8923BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806669   (11502) от 14.07.2025
+###  Публикация: 1765393   (34390) от 12.12.2024
 
-Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam, Heavy Metal>
+Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Does a Fool Ever Learn (3:23)
-02. Let's All Do It Tonight (2:51)
-03. Heavy Metal Love (3:01)
-04. Check Out the Love (3:02)(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 00:32:56
+01. We Of the Never Never (03:51)
+02. Call the Ball (04:36)
+03. Grape & the Grain (04:22)
+04. Just Saying (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
+magnet:?xt=urn:btih:DD0D081403CBF4EC56E886B3AB67AC1452319FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807008   (11311) от 16.07.2025
+###  Публикация: 1765408   (34382) от 12.12.2024
 
-Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Alternative Rock>
+Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Is My God 4:57
-02. Lost Worlds 4:59
-03. Karma Killer 5:29
-04. Us Against The World 4:12(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative RockПродолжительность: 00:52:13
+01. Northern  Comfort (1:47)
+02. Praise  The Loud (3:01)
+03. Chaq Mol - G-String Drop (3:43)
+04. Ralf Gyllenhammar - Road To Nowhere (3:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
+magnet:?xt=urn:btih:E1D87B7E7E7F5DE77AB84266C9B3E5AB68533325
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807059   (11310) от 16.07.2025
+###  Публикация: 1765406   (34380) от 12.12.2024
 
-Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
+Cole Havoc - My Former Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Queen at the Gates (02:27)
- 02. Bringer of the Sword (04:46)
- 03. Bad Blood (04:55)
- 04. Aspirin for Breakfast (2025 Version) (04:35)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:48:57
+01. Monster You Made (3:18)
+02. Savior You Seek (3:16)
+03. Taking Back My Life (3:55)
+04. Disarray (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC2AEE4900EFBB844D366719D254A48AEB3AB751
+magnet:?xt=urn:btih:60D776DDB2CA08F1750E2698A241E0DD0FF641C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807931   (10771) от 21.07.2025
+###  Публикация: 1765428   (34379) от 12.12.2024
 
-Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+Texas TNT - Crossroads Are Burning (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Human (05:47)
-02. Breathe (03:03)
-03. Delusion (03:07)
-04. Holy Odyssey (07:05)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:46
+01. I Swallowed A Fly (4:32)
+02. King Of The Jungle (3:42)
+03. I Wanna Be Ozzy (4:19)
+04. Crossroads Are Burning (4:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38077AD56F2A5660D593041D2D1BC5A0F7F0CFFA
+magnet:?xt=urn:btih:7EE39B23E87D746A022C3594C4E9AD554F980623
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809448   (9748) от 31.07.2025
+###  Публикация: 1765430   (34375) от 12.12.2024
 
-Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Todd Michael Hall - Off the Rails (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Mamba
-02. Wild Ones
-03. Up All Night
-04. Kill The Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:06
+01. Are You With Me (4:31)
+02. The Doctor (3:50)
+03. Start With Love (4:49)
+04. Sitting On Top Of The World (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
+magnet:?xt=urn:btih:A6F26C3C83C4B3C59E46B3CC7FE699C0E094385A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,27 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191154   (9580) от 02.08.2025
+###  Публикация: 1765567   (34286) от 13.12.2024
 
-Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock, Art Rock, Progressive>
+Nazareth - Razamanaz (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа "Styx" возникла на основе существовавшей еще в 60-х годах чикагской студенческой команды "The Tradewinds". Первые альбомы особым спросом не пользовались, однако на "Styx II" присутствовала баллада "Lady", с которой позже и начался успех группы. В 1974-м эта песня, переизданная на сингле, поднялась до шестого места в (   Читать дальше...   )1972 - Styx
-1973 - Styx II
-1973 - The Serpent Is RisingЖанр: Classic Rock & Hard Rock, Art Rock, ProgressiveПродолжительность: 54:20:30
+01. Razamanaz
+02. Alcatraz
+03. Vigilante Man
+04. Woke Up This Morning(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFCDAFBD2E8687F132548C16CF3080F4C7B0B54F
+magnet:?xt=urn:btih:EFC0F404B31FADD8E4C06996ED8A350F4C7D1EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261767   (9397) от 04.08.2025
+###  Публикация: 1766132   (33997) от 16.12.2024
 
-Golden Earring - 31 Albums, 3 Box Set (1965 - 2022) (91 CD) [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock, Hard Rock>
+Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Golden Earring - рок-группа, пожалуй, самая долгоиграющая на данный момент команда-долгожительница, образованная в 1961 году в Гааге, Южная Голландия, первоначально (и до 1969 года) под названием The Golden Earrings. Golden Earring начинали как бит и поп-группа, поначалу подражая The Beatles, но постепенно утяжеляли и усложняли звучание; в годы наибольшего успеха (   Читать дальше...   )Список альбомов:
-1965 Just Ear-Rings
-1967 - Winter-Harvest
-1968 - Miracle Mirror(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 83:02:11
+01. Silver Dollar Forger (Parts 1 & 2)
+02. Glad When You're Gone
+03. Loved And Lost
+04. Shanghai'd In Shanghai(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D085474E4C91E8D5E05020EEAEEA271799BFB8B8
+magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000192   (9267) от 05.08.2025
+###  Публикация: 1769771   (32567) от 30.12.2024
 
-James Gang - 12 альбомов (1969 - 2000) 19 CD [FLAC|Lossless|tracks/image +.cue] <Hard Rock>
+Godsmack - Godsmack Power Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-James Gang, американское хард-рок группа. Хотя за десять лет своей бурной и наполненной многочисленными событиями биографии James Gang не сделало ни одного хита (правда, три их альбома были отмечены в Топ 40), все это время они, наряду с Grand Funk Railroad и Mountain, оставались одним из самых привлекательных концертных аттракционовСписок альбомов:
-1969 James Gang - Yer' Album
-1970 James Gang Rides Again
-1971 James Gang - ThirdsЖанр: Hard RockПродолжительность: 16:30:36
+01. Sick Of Life [00:03:51]
+02. I Fucking Hate You [00:04:07]
+03. The Enemy [00:04:08]
+04. Whatever [00:03:26](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:32:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:468370666AC2C3B24C90FB84844AF47D856855D1
+magnet:?xt=urn:btih:9FF2D6F8DABBA7680ED527DB50F8355533436D8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812730   (7467) от 16.08.2025
+###  Публикация: 1770169   (32403) от 31.12.2024
 
-Bruce Dickinson - More Balls To Picasso (1994) Tri-fold Digisleeve, Remasterd, 2025, BMG [FLAC|Lossless|image + .cue] <Hard Rock, Alternative Rock>
+Fast Eddie Clarke - The Rock 'n' Roll Story of Fast Eddie Clarke (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Rock, Blues>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cyclops (7:58)
-02. Hell No (5:08)
-03. Gods Of War (5:05)
-04. 1000 Points Of Light (4:24)(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 01:01:45
+01. Snakebite (New version) [00:03:20]
+02. Laugh at the Devil (New version) [00:03:53]
+03. All Over Bar the Shouting [00:04:31]
+04. No Satisfaction [00:05:01](   Читать дальше...   )Жанр: Hard-Rock, Rock, BluesПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E88935D0748E42A8B55240224162DA88FEDEF853
+magnet:?xt=urn:btih:8758C8C2908EA44D19CA39B56ED9F55AD117A308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812792   (7462) от 16.08.2025
+###  Публикация: 1772294   (31368) от 10.01.2025
 
-Ellefson-Soto - Unbreakable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbreakable (03:30)
- 02. Soab (03:57)
- 03. Shout (04:10)
- 04. Hate You (Hate Me) (04:16)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:58
+01 - Not Afraid (04:02)
+ 02 - Out of Sight (04:22)
+ 03 - On My Own (05:22)
+ 04 - Where Is the Love (04:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A13892E9177629B038C22FFAA1420B3C85F9827
+magnet:?xt=urn:btih:6B06EF96CD2F96A6D477769B724B58E5631BB940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,27 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219516   (6542) от 22.08.2025
+###  Публикация: 1774651   (30101) от 22.01.2025
 
-Ted Nugent - 35 Albums (1967 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ted Nugent (13.12.1948 ) - американский гитарист, вокалист, автор песен, продюсер. Его популярность пришлась на 70-е и начало 80-х годов прошлого века. Место его рождения - автомобильная столица США - Детройт или Motor City. Именно оттуда пошло сценическое прозвище музыканта - Motor City Madman - сумашедший из Детройта. Стиль игры музыканта определяется как агрессивный (   Читать дальше...   )1975 - Ted Nugent
-1976 - Free-For-All
-1977 - Cat Scratch FeverЖанр: Hard RockПродолжительность: 39:55:11
+01. Living On The Edge
+02. Lock up the Children
+03. Misguided (Remixed)
+04. Midnight Strike (Remixed)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:625E16B0A8C34CBBDB7BBA46AED831A9B773B1CD
+magnet:?xt=urn:btih:AAE684ABDB1B264225363B61CB303C4B061A6746
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813634   (6456) от 22.08.2025
+###  Публикация: 1774890   (30027) от 23.01.2025
 
-Michael Schenker's Temple Of Rock - Spirit On A Mission (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
+Bonfire - Higher Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live And Let Live (04:13)
-02. Communion (03:37)
-03. Vigilante Man (04:52)
-04. Rock City (04:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:02
+01 - Nostradamus (01:30)
+ 02 - I Will Rise (04:37)
+ 03 - Higher Ground (04:13)
+ 04 - I Died Tonight (04:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB5CC12A013BD007E1E1C8DDB03238526BAEF0A6
+magnet:?xt=urn:btih:34B95A4142CE5891C8886A50A7D6497EC9A3C83E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813961   (6439) от 22.08.2025
+###  Публикация: 1088127   (29654) от 27.01.2025
 
-Strangers - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Uriah Heep - 26 Studio Albums, 8 Live, 27 Compilations (1970 - 2023) 167 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Classic Rock & Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Night
-02. Enemy
-03. My Dream
-04. Freedom(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:52
+Британская рок-группа Uriah Heep начала своё существование в 1969 году в самом сердце Англии - Лондоне. Музыканты в группе менялись не раз, самым первым составом считается момент, когда продюсер Джерри Брон пригласил в группу Spice (тогда они так назывались) клавишника Кена Хенсли, который ранее играл с такими группами, как The Gods и Toe Fat. Всемирную известность (   Читать дальше...   )Список альбомов:
+1970 - ...Very 'eavy ...Very 'umble
+1971 - Salisbury
+1971 - Look At YourselfЖанр: Classic Rock & Hard RockПродолжительность: 160:36:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E0CF5E10D23F42E1E85AEC52ED91745F6A3D8F0
+magnet:?xt=urn:btih:DB206380A25B080AB2679D082225EAC960149808
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023875   (6381) от 23.08.2025
+###  Публикация: 368477   (28221) от 09.02.2025
 
-Van Halen - 12 Studio Albums, 3 Live, 2 Compilation, 8 EPs, Singles, 3 Box Set (1978 - 2025) 57 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
+House Of Lords - 16 альбомов (1988 - 2024) 17 CD [FLAC|Lossless|image + .cue, tracks + .cue]<Melodic Hard Rock>
 
 >>След.
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Van Halen - американская хард-рок группа. Слушатели конца 70-х 80-х были покорены великолепным яростным вокалом David Lee Roth и виртуозной гитарной техникой Edward Van Halen. Последнего мгновенно провозгласили "наследником" Ritchie Blackmore. Действительно, именно Van Halen стал наиболее ярким продолжателем дела Jimi Hendrix, Blackmore и Robert Fripp, (   Читать дальше...   )Список альбомов:
-1978 Van Halen
-1979 Van Halen II
-1980 Women And Children FirstЖанр: Hard RockПродолжительность: 39:29:30
+Команда с амбициозным названием "House Of Lords" появилась на свет после развала группы Giuffria (лидером которой был клавишник экс-"Angel" Gregg Giuffria), когда знаменитый Gene Simmons из Kiss, заинтересовавшись бандой, перекроил слегка состав Giuffria и хитроумно зарегистрировал на свое имя марку "House Of Lords", взяв руководство (   Читать дальше...   )Список альбомов:
+1988 House Of Lords
+1990 Sahara
+1992 Demons DownЖанр: Melodic Hard RockПродолжительность: 15:09:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74B2A3E10E18727639556B46031C18EA58729CA4
+magnet:?xt=urn:btih:1A838D706892F53F25A626F0E1BEFDE7FD3E1A49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 904536   (654092) от 03.06.2015
+
+Mozilla Firefox SM 38.0.5 (32-bit & 64-bit) + Portable by Browsers-SM [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox SM - это сборка браузера Mozilla Firefox которая в отличии от оригинальной версии устанавливается с набором расширений, плагинов, утилит, пользовательских скриптов, стилей, кнопок, поисковиков и оптимизированными настройками,что делает её более быстрой и удобной, а так же интуитивно понятной для работы и серфинга по интернету. Mozilla Firefox - один (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7E2818AE2F7F82B61FDC92603A48D937511E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904716   (654091) от 03.06.2015
 
 Waves Complete v9r28 [En]
@@ -645,32 +671,6 @@ PDFMate PDF Converter Professional - является очень действе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77A13390DFDBBC1DF8E94476B90B564AA7E4ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226790   (653686) от 22.05.2018
-
-MetaProducts Offline Explorer Enterprise 7.5.4620 SR1 Portable by punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653686.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaProducts Offline Explorer Enterprise — мощнейшая программа, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офлайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно качать неограниченное количество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822F2AB8AD61D1D75F95CF0C814B1603C6DDECAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

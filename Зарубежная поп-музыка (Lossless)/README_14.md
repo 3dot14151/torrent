@@ -1,3 +1,206 @@
+###  Публикация: 977983   (964660) от 22.01.2016
+
+Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Since You've Been Gone
+02	Don't Give Up
+03	Your All I Ever Wanted
+04	Living On a Desert Island(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977982   (964556) от 22.01.2016
+
+VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mango - Nella Mia Città (7:02)
+02. Patty Pravo - Per Una Bambola (3:21)
+03. Luca Barbarossa - Roma Spogliata (3:47)
+04. Massimo Ranieri - Perdere L'amore (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE83D9F6D4C8C0FBAE9D0B9F8C0FF5298A62A255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977956   (964535) от 22.01.2016
+
+VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
+02. Raf - Inevitabile Follia (4:32)
+03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
+04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978003   (963639) от 23.01.2016
+
+VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Daniele - Quando (3:35)
+02. Umberto Tozzi - Gli altri siamo noi (5:31)
+03. R.Casale e G.Di Michele - Gli amori diversi (3:39)
+04. Cristiano De Andre - Dietro la porta (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978085   (963515) от 23.01.2016
+
+VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gepy & Gepy - Angelo Blu (3:17)
+02. Morena - Attenti Al Lupo (4:08)
+03. Stefano Borgia - Se Ti Senti Veramente Un Amico (3:28)
+04. Aleandro Gualdi - Passera' (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978316   (963341) от 23.01.2016
+
+a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros [FLAC|Lossless|image + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (04:01)
+02. The Swing Of Things (04:14)
+03. I've Been Losing You (04:26)
+04. October (03:54)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 02:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359982   (963264) от 13.02.2020
+
+Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Haunt You (02:32)
+02. Need Your Love (03:51)
+03. How to Forgive (03:36)
+04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979091   (961122) от 25.01.2016
 
 Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
@@ -539,209 +742,6 @@ Celine Dion - Celine Une Seule Fois / Live 2013 (2014) 2CD [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD22E5A811F4AC9CF0D47B26DE0A1A7298E2A6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981593   (951298) от 01.02.2016
-
-VA - 80s Movie Hits (2006) 2CD [FLAC|Lossless|image + .cue] <Pop, Soul, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Forget About Me (The Breakfast Club) (04:23)
- 02. The Power Of Love (Back To The Future) (03:57)
- 03. Ghostbusters (04:07)
- 04. Fame (03:46)(   Читать дальше...   )Жанр: Pop, Soul, Pop RockПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A79B18CCFB737F63EBE7476754469763F68412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981907   (949988) от 02.02.2016
-
-Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le problème avec toi
-02. C'est d'l'amour ou c'est comme
-03. Mad dogs and englishmen
-04. Comme(   Читать дальше...   )Жанр: French PopПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4230AC5AA5B6657F5EBA0E28A546286365299D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981781   (949827) от 02.02.2016
-
-Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Within
-02. Only He Can Heal Me
-03. So Real
-04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362353   (949696) от 23.02.2020
-
-Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (Original Mix) (4:12)
-02. Stars (Sky Edit) (4:32)
-03. Stars (Mother Dub) (6:27)
-04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361729   (949598) от 23.02.2020
-
-Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Around Me (02:16)
-02. Habitual (02:48)
-03. Come Around Me (03:20)
-04. Intentions (feat. Quavo) (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362420   (949590) от 23.02.2020
-
-Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare (3:41)
-02. Dance Again (2:50)
-03. Look At Her Now (2:43)
-04. Lose You To Love Me (3:26)(   Читать дальше...   )Производство: Interscope Records – B003154102Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57480E3AA00F3E83B72CF47CAD11CB8A8C74581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362415   (949561) от 23.02.2020
-
-Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concrete (3:20)
-02. I Disagree (3:13)
-03. BLOODMONEY (3:02)
-04. Anything Like Me (3:19)(   Читать дальше...   )Производство: Sumerian Records – SUM1247Жанр: Pop, Rock, HardcoreПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

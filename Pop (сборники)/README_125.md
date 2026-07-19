@@ -1,108 +1,3 @@
-###  Публикация: 481639   (99549) от 13.04.2012
-
-VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99549.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Pitbull feat. Havana Brown - We Run The Night
-002 Григорий Лепс - Водопадом (new version)
-003 Kelly Clarkson - Hello
-004 Николай Басков - Странник
-005 Polina Griffith & Miami Kidz - Feeling This Way
-006 Филипп Киркоров - Я просто счастлив
-007 Christina Perri - Jar Of Hearts
-008 Чай Вдвоём - Улетай
-009 Sunstroke Project & Offbeat - Epic Sax
-010 ВИА Гра - Диско(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481346   (99293) от 11.04.2012
-
-VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Инфинити - Фотоальбом
-02 Linkin Park - Wretches And Kings
-03 Всё Включено - Девочка Столичная
-04 Dan Balan - Freedom
-05 Kamon! Ft Ричард Горн - Фотоаппарат
-06 Darren Hayes - Black Out The Sun
-07 Юрий Шатунов - Глупые Снежинки (Ремейк)
-08 Ray & Anita - Nothing 2 Lose
-09 Алишер - Море
-10 Jedward - Biggest Fan2012Жанр: PopПродолжительность: 06:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479152   (99133) от 09.04.2012
-
-VA - В Машину! Русский (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Размер Project - My Moscow Love
-02. T1One - Одна На Миллион
-03. Юля Волкова (Julia Volkova) - All Because Of You
-04. Макс Барских - Dance
-05. Полина Гагарина - Спектакль Окончен
-06. Тимати feat. Григорий Лепс - Реквием По Любви
-07. Потап и Настя Каменских - Если Вдруг тебя не станет
-08. Филипп Киркоров - Мне Не Жаль Тебя
-09. Каста (Влади) - Сочиняй Мечты (ft. Уля (Wow Band))
-10. Легенды Про & Centr - Город Дорог(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C90744FE29443684335751E21FBA2A4A4DE5116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479239   (99132) от 09.04.2012
 
 VA - Авто Дискотека DFM (2012) [MP3|256 kbps]<Pop | Dance>
@@ -901,6 +796,111 @@ VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472391   (97680) от 25.03.2012
+
+VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97680.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Потап И Настя Каменских - Если Вдруг
+002. Romadi - My Sister
+003. Непара - В Облаках
+004. Sasha Dith & Dreamway - Crazy Sun
+005. Жанна Фриске И In-Grid - Падает Снег
+006. Ilhama Feat. Dj Ogb - Bei Mir Bist Du Scheen
+007. Гайтана - Самый Лучший
+008. Aqua - How R U Doin
+009. Елка - Около Тебя
+010. Mylene Farmer - Du Temps(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472646   (97676) от 25.03.2012
+
+VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арина Перчик - Шторм
+02. Алекс Малиновский - Я Люблю И От Этого Легче
+03. Vlada Crystal - Я Разрешаю Тебе
+04. Driu Mc Feat. Funky Inlite - Только Тебе
+05. Mc Zali - Облака (Kolya West Remix)
+06. Анастасия Коновалова - Люблю Тебя
+07. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
+08. Сацура - Больше Чем Слова
+09. Music Hayk - Деньги И Слава
+10. Миша Романова - Невесомая(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472752   (97595) от 24.03.2012
+
+VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пропаганда - Нет-Да (3:37)
+2. Britney Spears - Criminal (DJ Sergey Fisun Bootleg Remix) (2:41)
+3. Ирина Нельсон - Теплое солнце (3:10)
+4. Руслана - Скучаю (3:39)
+5. Вирус - За Тобой - копия (3:11)
+6. Арина Домски - Просто Любить (3:10)
+7. T - Killah Feat. Ольга Бузова - Не Забывай (3:26)
+8. Taio Cruz Feat. Flo Rida - Hangover (Hardwell Radio Edit) (3:12)
+9. Armin Van Buuren feat. Adam Young - Youtopia (2:48)
+10. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri feat. Mat Twice - Tell Me WAF (Radio (3:09)2012Жанр: PopПродолжительность: 05:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1649906   (228646) от 29.07.2023
+
+Anna Fiori - Magna Mater (2013) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libera Me
+02. El día de la irá
+03. Sueños de libertad
+04. Sólo una vez(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046B66AA939A80DDD73782E8EDF01B207D2949F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583513   (228623) от 15.10.2022
+
+U.D.O. - The Legacy (2022) 2CD, Compilation [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mastercutor [00:05:17]
+02. Vendetta [00:04:11]
+03. 24/7 [00:03:58]
+04. Blind Eyes [00:04:19](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E13EDC106E0A05DB1932E784100524F5F5125F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649915   (228608) от 29.07.2023
+
+Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed & Remastered, 2023, Anna Fiori [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libera Me
+02. El Día de la Ira
+03. Sueños de Libertad (feat. Alfred Romero)
+04. Sólo Una Vez(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6ACD694A53DF42A9890607993A079315893695D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649784   (228588) от 29.07.2023
+
+Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:57]
+02. Starting Over [00:04:02]
+03. Bitch We Got a Problem [00:03:22]
+04. Evolution (Album) [00:03:37](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583713   (228071) от 16.10.2022
+
+The Most Rated Death Kills - 4 Releases (2017-2022) [MP3|320 Kbps] <Black, Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_228071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:04:46]
+02. Unexpected Acid [00:04:29]
+03. Crush [00:05:10]
+04. Claim [00:03:48](   Читать дальше...   )Жанр: Black, Death, Doom MetalПродолжительность: 4 CD, 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3407E2E5B1D463F1065A6322AEA0B74C5DB4D824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649953   (228012) от 30.07.2023
+
+Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Don't Care About Us 1 / 2
+02. They Don't Care About Us 3
+03. They Don't Care About Us 4 / 5Жанр: Death Metal, Doom MetalПродолжительность: 00:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DEC9E3798AC60373D9675562310E65F411AAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649994   (227914) от 30.07.2023
 
 Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, NWOAHM>
@@ -570,179 +743,6 @@ Satin - Appetition (2022) [MP3|320 Kbps] <Rock & Metal World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F7900B2A8EBD2421B9735CA408F1A2F219C761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650468   (225670) от 02.08.2023
-
-Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worship And Control (04:27)
-02. Subliminal Brutality (03:57)
-03. Miss Democracy (04:09)
-04. Keep Thy Religion To Thyself (03:59)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A796C8E1DBD04D8C06D1BD2C4FFFFACB09CA5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650644   (225030) от 03.08.2023
-
-Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Bebedor
-2023 - HechiceríasЖанр: Heavy Metal, Doom Metal, Hard RockПродолжительность: 2 CD, 02:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370E21283BFD376FD61BCA29253349F55B1CB7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650631   (224897) от 03.08.2023
-
-Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Adharma
-2021 - Burn It Down
-2023 - Lies in DisguiseЖанр: Gothic, Heavy MetalПродолжительность: 3 CD, 02:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DDED8251A5000D0DD33215339075ED3F4A56B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584345   (224810) от 19.10.2022
-
-Diamond Chazer - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Stargate [00:01:12]
-02. Starrriders I - Lords of the Space [00:04:20]
-03. Lightning [00:03:59]
-04. Into the Vortex [00:03:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 2 CD, 01:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A47906C0EF75D27399D9DBBA0AE66BD6D7FDA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584334   (224770) от 19.10.2022
-
-Hangar 55 - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:02]
-02. Asylum [00:04:29]
-03. Wings [00:04:53]
-04. Pilots [00:03:58](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 2 CD, 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27803BE96A6E7A5335C19A9265469C6C80AE8EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584778   (224767) от 19.10.2022
-
-Ira - Identidad (2022) [FLAC|Mp3|320 kbps] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Identidad [00:04:15]
-02. Mundo Enfermo [00:03:55]
-03. Cuestion de Fe [00:03:51]
-04. Cosas Raras [00:05:21](   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B145510F6F2F57A412A43E30A69B9372B634DFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

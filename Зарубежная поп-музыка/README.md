@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1879647   (1075589) от 03.07.2026
+
+Madonna - CONFESSIONS II (2026) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel So Free
+02. Good For The Soul
+03. One Step Away
+04. Bring Your Love (feat. Sabrina Carpenter)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D306010C959DFFED83B481E9CF02B5F65CFEA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858127   (1060173) от 08.03.2026
 
 Salvatore Adamo - Mes Plus Grands Succes (1981) 1992, Compilation [MP3|320 Kbps] <Pop>
@@ -717,35 +746,6 @@ VA - AM Gold 1967 (1991) [OGG Vorbis|480 Kbps] <Rock & Roll, Folk Rock, Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F554A06D60F5AE7EA4BA32E1EB1A3AC58A0638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846178   (1051245) от 06.01.2026
-
-VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rascals - A Beautiful Morning
-02. The Classics IV - Spooky
-03. Jose Feliciano - Light My Fire
-04. Sergio Mendes & Brasil '66 - The Look Of Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68E55C8AD9B61CDE7A1D0323BDB56E6AB9617F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

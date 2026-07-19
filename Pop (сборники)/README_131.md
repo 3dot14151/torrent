@@ -1,90 +1,3 @@
-###  Публикация: 1754828   (40557) от 12.10.2024
-
-VA - Red System Records presents ... CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Flames of Love
-02. Ai Talking - First Date Fears
-03. Modern Talking/  Red System - In 100 Years
-04. Modern Talking/  Red System - Cheri Cheri Lady(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991A4A491E0E9B5A94EA9084BDC3B8F3226A18F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754962   (40482) от 13.10.2024
-
-VA - New Pop Revolution (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Gray - Switch (3:00)
-02. Gracie Abrams - I Love You, I'm Sorry (2:37)
-03. Bea and her Business - Safety Net (3:23)
-04. Tate McRae - It's ok I'm ok (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 04:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E91B88BAFF44BB3662B9169A6F8DD34A0D82B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755444   (40177) от 16.10.2024
-
-VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evgenypt - Hi Love My
-02. Ai Talking - Love Hotel
-03. Evgenypt - To Danger (Continuation)
-04. Evgenypt - Totally Miss You(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757020   (39295) от 25.10.2024
 
 VA - A Romantic World (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
@@ -745,6 +658,93 @@ VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C0AD1EAD734E093107799F23D88E0ED0F02067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771871   (31593) от 08.01.2025
+
+Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, Electronic dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supreme (Sing When You're Winning 2000)
+02. No Regrets (I've Been Expecting You 1998)
+03. Love Somebody (Escapology 2002)
+04. Lovelight (Rudebox 2006)(   Читать дальше...   )Жанр: Pop rock, Soft rock, Electronic danceПродолжительность: 07:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37349530CDC5463C36BE4E0C286DA149741520D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773242   (30729) от 16.01.2025
+
+Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels In The Night (5:00)
+02. Another World (4:40)
+03. Apocalypse (5:38)
+04. Back To Disco (3:27)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 03:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE09ED3F5E78B52B2A55392E6992FA06DB91BF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774040   (30563) от 18.01.2025
+
+VA - Зима на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (3:53)
+02. Люся Чеботина - ФАРАОН (2:39)
+03. Bella Poarch - Sweet Delusion (2:52)
+04. ANNA ASTI - Топит (3:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E222166F26B09B297FD19998A1C817D9CC53E758
 ```
 
 https://mybot314.ru/tekegram_catalog/

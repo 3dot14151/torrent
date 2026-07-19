@@ -1,3 +1,90 @@
+###  Публикация: 1545418   (614903) от 19.04.2022
+
+Die Apokalyptischen Reiter - Wilde Kinder (2022) [MP3|320 Kbps] <Melodic Death Metal, Neue Deutsche Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Freiheit will Ich singen (03:36)
+02. Volle Kraft (04:22)
+03. Alles ist gut (03:38)
+04. Wilde Kinder (04:22)(   Читать дальше...   )Жанр: Melodic Death Metal, Neue Deutsche HarteПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1963D05CF3B1044E0E52DAB97920B1D8203527C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146405   (614449) от 29.06.2017
+
+Stone Sour - Hydrograd (2017) [MP3|320 Kbps] <Alt. Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ysif
+02. Taipei Person/Allah Tea
+03. Knievel Has Landed
+04. Hydrograd(   Читать дальше...   )Жанр: Alt. Metal, Nu-MetalПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16134B705262B675050417958CB520AE54E24D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911656   (614153) от 24.06.2015
+
+Two Dead Roses - Overlords Ov the Ufo (2015) [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Propaganda
+02. Dead Remains
+03. Overlords of the Ufo
+04. We All Fall Down(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40F886C542B5F2055F92E4227408F2E8E2E4DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036950   (613981) от 24.07.2016
 
 Toxic Holocaust - Chemistry Of Consciousness (2013) Deluxe Edition [MP3|320 Kbps] <Thrash, Black Metal>
@@ -664,104 +751,6 @@ Accept — один из ведущих коллективов германск�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231215   (608847) от 16.06.2018
-
-Megadeth - Killing Is My Business...And Business Is Good - The Final Kill (1985) Remastered, 2018, Legacy [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Rites / Loved to Deth (Remastered) (4:52)
- 02. Killing Is My Business...And Business Is Good! (Remastered) (3:05)
- 03. The Skull Beneath the Skin (Remastered) (3:44)
- 04. Rattlehead (Remastered) (3:40)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A259B228C294B7AD76A4224D31233F2A6ADAB622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525245   (607489) от 21.07.2012
-
-Avantasia - Tobias Sammet's (2СD) (2010) [MP3|320 кб/с]<The Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: The Metal OperaПродолжительность: 00:59:08
-
-01. Stargazers
-02. Angel Of Babylon
-03. Your Love Is Evil
-04. Death Is Just A Feeling
-05. Rat Race
-06. Down In The Dark
-07. Blowing Out The Flame
-08. Symphony Of Life(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5C7C25DE21DD98C1F8D1CCAB05FDD109E09FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525257   (607395) от 21.07.2012
-
-Ayreon - 01011001 (2008) [MP3|320 кб/с]<Sympho Progressive Metal/Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Sympho Progressive Metal/Rock OperaПродолжительность: 00:52:04
-
-01. The Fifth Extinction
-02. Waking Dreams
-03. The Truth Is In Here
-04. Unnatural Selection
-05. River Of Time
-06. E=MC2
-07. The Sixth Extinction
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4556B63561B74ADAC5AE269AF99AEB95FEF2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

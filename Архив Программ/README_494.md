@@ -1,3 +1,29 @@
+###  Публикация: 1386588   (794334) от 29.05.2020
+
+ClipGrab 3.8.12 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794334.jpg" />
+</div>
+
+
+###  Подробнее
+
+ClipGrab - программа для скачивания и конвертирования видео, независимо от браузера, может качать и конвертировать видео практически со всех популярных видео-сервисов: YouTube, Vimeo, Dailymotion, CollegeHumor, MyVideo, Sevenload, Clipfish, MySpass, Tudou... Позволяет полученное видео сразу преобразовать в MPEG4, WMV, OGG Theora, MP3 и OGG Vorbis или оставить в оригинальном (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEABCB7E1949D239B809BC3C53A8EF82B452BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386461   (794330) от 29.05.2020
 
 GOM Player Plus 2.3.53.5317 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -645,32 +671,6 @@ WSCC (Windows System Control Center) - портативная программа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E3B45B40FBD1676D39EC0D9DA65050714FDE62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201004   (793816) от 23.01.2018
-
-MKVToolNix 20.0.0 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793816.jpg" />
-</div>
-
-
-###  Подробнее
-
-MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBE0F03A55CEB61DDC8E6FD165627DAC9587E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

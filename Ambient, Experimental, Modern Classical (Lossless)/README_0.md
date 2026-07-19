@@ -441,35 +441,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451475   (1028368) от 02.03.2021
-
-α·Pav - Lamp (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Post Rock, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1028368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Street (02:48)
- 02. I Need Nothing But Loneliness (03:55)
- 03. Only The Frozen Heart (04:17)
- 04. A Walk Under The Moonlight (08:00)(   Читать дальше...   )Жанр: Ambient, Post Rock, Modern ClassicalПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB9217098E9C5CB8D991D4EAD33C24B9698C435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451892   (1028085) от 04.03.2021
 
 Hilyard, Marco Uson, Collapsed Textures - United Soundscapes Oriented To Nature (2020) USON [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
@@ -715,6 +686,35 @@ Tim Hecker | Jetone - Discography 28 Releases (2000-2019) Alien8 Recordings, Roo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6CDA8AF2FE5B188A681811F2E26FBA3F728D963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459586   (1023134) от 02.04.2021
+
+Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sentience of Touch (04:51)
+ 02. A Skein for Skin (04:42)
+ 03. Fabric Improvisations (13:30)
+ 04. Transpiration (04:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36113857D9E96AB19BC495BEACEDB9126E48262E
 ```
 
 https://mybot314.ru/tekegram_catalog/

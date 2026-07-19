@@ -1,3 +1,178 @@
+###  Публикация: 1705795   (63393) от 10.03.2024
+
+Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flor di nha esperança    [0:04:16.45]
+02. Vaquinha mansa    [0:04:49.28]
+03. Amor di mundo    [0:04:07.45]
+04. Paraiso di Atlantico    [0:03:57.30](   Читать дальше...   )Жанр: Latin, Folk, World, & CountryПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D766CA8BD892DCD5E1EA7F1DC2C27714375DC11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705956   (63385) от 10.03.2024
+
+Лёдъ - Ни Чужих, Ни Своих (2024) [MP3|320 Kbps] <Dark Folk, Neofolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорогой Мёртвых…
+02. Скёль
+03. В Чащу Не Ходи
+04. Проклятье Сов (feat. Bjarla)(   Читать дальше...   )Жанр: Dark Folk, NeofolkПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DA9521E5E95950A368E45A77F43D536B190941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705603   (63382) от 10.03.2024
+
+VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noam Garcia, Diego Galloso, Tibetania - Mantra (9:12)
+02. Tibetania, Air Paradise - Shawarma (6:14)
+03. Soldatov, Tibetania - Pegasus (4:17)
+04. Tibetania, Lost Bird - Jara (5:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0066449E8CE10F74618F1698450786B5ABFB80D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705267   (63183) от 12.03.2024
+
+Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reincarnation - Qani Vur Jan Im....
+02. Jazz Trio Levon Malkhasyan - Lorik
+03. Inga and Anush Arshakyans - Hala, Hala
+04. Mr. Avant-Garde Folk Arto Tunçboyaciyan, Armenian Navy Band - Gulo(   Читать дальше...   )Жанр: Ethno JazzПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F857080E734CC5B0D1144525405D0A44FF2AAA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512148   (63124) от 13.03.2024
+
+Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest - французский дуэт, состоящий из музыкантов, Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».
+В 1994 году они (   Читать дальше...   )1992 - 1994 - World Mix
+1995 - Boheme
+1997 - Comparsa
+2000 - Pacifique(   Читать дальше...   )Жанр: Electronic, new-age, ambient, world, ethnic electronicaПродолжительность: 13:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B6A4BEF278DD4FF4F1DE8800A610444AFDF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708196   (62342) от 20.03.2024
+
+Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, House>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Детство [00:06:28]
+02. Жар-Птица [00:03:30]
+03. Сирена [00:03:52]
+04. Ведьмы [00:05:24](   Читать дальше...   )Жанр: Folk, Ethnic, HouseПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC2D337FE080EC56AC84CA6D8B2C441204058F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538913   (62123) от 22.03.2024
 
 Лёдъ - Неведомо, не страшно (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Neofolk, Nordic Folk>
@@ -559,180 +734,6 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A1BA7A4AE7369E73CE4A7CADC74ADC28492BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734810   (50998) от 05.07.2024
-
-David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophecy (5:24)
-02. The Soothsayer Speaks (5:24)
-03. Ancient Magic Awakens (4:53)
-04. Réann (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738585   (48981) от 24.07.2024
-
-Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juno (Zabi Hneff) (6:13)
-02. Mozna (4:02)
-03. 1981 (4:44)
-04. Oda Na Zivot (4:44)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737464   (48962) от 24.07.2024
-
-VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, Застольное настроение>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Божья Коровка - Застольная
-02 Унесенные ветром - Давай наливай
-03 Натали - О, Боже, какой мужчина!
-04 Игорь Николаев - Выпьем за любовь(   Читать дальше...   )Жанр: Поп, Застольное настроениеПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740070   (48273) от 31.07.2024
-
-101 Strings Orchestra - Under Paris Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Paris Skies
-02. Can-Can (From Can-Can)
-03. Fleur de Paris (2015 Remastered Version)
-04. The Poor People of Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8688BD397778F3C4D708C33507712DEA73ACAA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741690   (46915) от 13.08.2024
-
-Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin Wild
- 02. I'm Thru With Love
- 03. When Love Goes Wrong
- 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743492   (46583) от 16.08.2024
-
-Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adagietto
-02. Sandrine's Dream
-03. Franz
-04. Evening in Gourmos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
 ```
 
 https://mybot314.ru/tekegram_catalog/

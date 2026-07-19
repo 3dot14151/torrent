@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1879108   (1074944) от 
+
+VA - Meet Me at Kuiper’s (2022) [MP3|320 Kbps] <Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Pluto (48:31)
+02. Various Artists - Charon (31:51)
+03. Various Artists - Albion (35:52)
+04. Stereophoney - Thunder (2:47)(   Читать дальше...   )Жанр: Synthwave, DarkwaveПродолжительность: 04:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006139FE25358B9A01A3CE75B20F931C29CC5B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877919   (1074230) от 23.06.2026
 
 VA - Summer In Space Vol. 9 (2026) 3CD [MP3|320 Kbps] <Spacesynth>
@@ -260,35 +289,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840416   (1047249) от 05.12.2025
-
-Стереополина - Феерия (2025) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1047249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Красный платочек
-3. Ночной гость
-4. Мы как птицы(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F288C71CB7635C982F91C59CEB049DAD6001D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604006   (1045299) от 14.01.2023
 
 Kraftwerk - Minimum-Maximum (2005) 2 CD [OGG Vorbis|520 Kbps] <Electronic, Electro, Synth-pop>
@@ -396,35 +396,6 @@ Saigon Blue Rain - Oko (2023) [MP3|320 Kbps] <Synthpop, Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A751EC3DE6F761D9BAC482A529FC125A5F31615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610080   (1042655) от 06.02.2023
-
-Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1042655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Against Machines (4:50)
-02. Gravity (5:29)
-03. Personal Wormhole (7:13)
-04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37065DD321D9F20E1DC7CE2E184F435F201E0586
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,6 +715,35 @@ VA - Space Odyssey - Trip Four: Journey To The Sun (2018) [OGG Vorbis|480 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E74172415EBC8C7DD20CAC85B584531CAEF55690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457303   (1024626) от 25.03.2021
+
+Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Telemark [00:05:56]
+02 - Chevrolée [00:05:50]
+03 - Orbit Anthem [00:05:32]
+04 - Europa Supersaw [00:05:57](   Читать дальше...   )Жанр: Nu Disco, SynthpopПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B481CE72AB9DC951E2F0D7B5598B7989A0A78E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 616170   (976308) от 09.02.2013
+
+Mylene Farmer - Monkey Me (2012) [PCM 4.0 48/24 |DVD-Audio (WEB-DL)]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle a dit (3:52)
+02. A` l'ombre (4:51)
+03. Monkey Me (4:14)
+04. Tu ne le dis pas (4:22)
+05. Love Dance (4:06)
+06. Quand (4:06)
+07. J'ai essaye' de vivre… (4:40)
+08. Ici-bas (4:32)
+09. A-t-on jamais (4:07)
+10. Nuit d'hiver (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276C1E7F96430A9268CA6B1AF389828FADA0980D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356696   (976303) от 01.02.2020
 
 Norton Internet Security 22.20.1.69 [Ru]
@@ -686,40 +721,6 @@ Digital-Tutors | Creating a 2D Avatar from a Photo Reference [2012] [EN] PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A1B0D9ACF8DE1A608028AD7B9FDD87E7357F6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616000   (976016) от 09.02.2013
-
-Boney M. - Take The Heat Off Me (1976) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976016.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Daddy Cool [03:30]
-A2. Take The Heat Off Me [04:51]
-A3. Sunny [04:03]
-A4. Help, Help [06:13]
-B1. No Woman, No Cry [05:02]
-B2. Fever [04:03]
-B3. Got a Man On My Mind [03:30]
-B4. Lovin' Or Leavin' [04:42]
-B5. Baby Do You Wanna Bump (Bonus track) [06:54]Жанр: Pop, DiscoПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838EC7DDBD1A8A9378CFCEA08E8377090D32C9BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

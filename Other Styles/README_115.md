@@ -1,3 +1,177 @@
+###  Публикация: 706139   (446618) от 01.10.2013
+
+VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Halo(Side Mix)   (4:54)
+02.  Need to Feel Loved   (3:44)
+03.  Speak to Me   (5:12)
+04.  Love   (4:54)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248108   (446500) от 18.09.2018
+
+Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hui Hou (Until We Meet Again) (3:44)
+02. Blue Moon Rising (3:27)
+03. Recalling Beauty (4:28)
+04. Deep Grace-Scarborough Fair (6:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6C9EC57C61E323F0885169E269DA90992A7F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061877   (446430) от 11.10.2016
+
+Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthlight
+02. Falling Star
+03. Daybreak
+04. Satellites(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDCA3B85B3DA1B6E092DDA7381EEB6FCF6BAA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061754   (446420) от 11.10.2016
+
+Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonrise
+02. Lake of the Clouds
+03. Time Is Still
+04. Dans Ma Memoire(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064303A0F368BCDDDBE88F8CD00653611A8F5C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941285   (445063) от 05.10.2015
+
+Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downtempo>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. feather in the wind
+02. good times
+03. why
+04. in the_moonlight(   Читать дальше...   )Жанр: Pop-Folk, Acoustic, DowntempoПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C400467E6C2EEA98F1D69DBF57E992E22C4992AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827530   (444871) от 04.10.2014
+
+Nile Rodgers & VA - Путешествие в Америку / Coming to America (Original Score + Original Soundtrack) (1988) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Credits (02:44)
+02. Akeem Wakes Up (01:36)
+03. Bathing (00:30)
+04. Happy Birthday (01:14)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C7273C99214364A3C022DF70826F2A92EF5828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943914   (444762) от 05.10.2015
 
 Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical>
@@ -586,180 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E6EC68889CD857F03042C49E18A9ADA428ADD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944948   (438318) от 08.10.2015
-
-Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf Spirit Invocation [00:18:10]
-02. Riding the Storm [00:10:32]
-03. The Shaman's Gift [00:10:10]
-04. River Song [00:10:43]Жанр: New Age, World, MeditativeПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323308   (437870) от 03.09.2019
-
-David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Always
-  2. I Remember You
-  3. Paris Rain
-  4. Night Sky of Orion (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707538   (437591) от 05.10.2013
-
-Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Native american>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437591.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:52) 01. Closer To You
-(6:01) 02. All Good Medicine
-(3:48) 03. Allaluia
-(3:50) 04. Mojava Morning(   Читать дальше...   )Жанр: Instrumental, New age, Native americanПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396399   (437174) от 03.09.2019
-
-Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] <Instrumental | Easy Listening>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернер Беккер (таково настоящее имя Энтони Вентуры) родился в Германии 4 декабря 1943 года. Музыка всегда была его главным увлечением, и тогда, когда он был учеником наборщика в типографии, и позднее, когда он стал работать художником-оформителем. В 1965 году он бросает все занятия и начинает карьеру музыканта. Долгое время Вернер выступал с различными ансамблями (   Читать дальше...   )01. Ne me quitte pas (3:32)
-02. La mer (2:18)
-03. Je l'aime a mourir - Les feuilles mortes (5:05)
-04. J'ai oublie de vivre - La maladie d'amour (5:29)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, Hammond OrganФормат: FLAC (image + cue)Продолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767C8424EBE3154DECCC8FB7F55B004C9BCF949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062942   (436935) от 15.10.2016
-
-Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maybe Pain Can Save Us (03:03)
-02. Cerca Trova (03:18)
-03. I'm Feeling A Tad Vulnerable (02:09)
-04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2964D54A43DAD3E9B01D83AE4560B9EF69BD01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062938   (436793) от 15.10.2016
-
-Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Pain Can Save Us (03:03)
-02. Cerca Trova (03:18)
-03. I'm Feeling A Tad Vulnerable (02:09)
-04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
 ```
 
 https://mybot314.ru/tekegram_catalog/

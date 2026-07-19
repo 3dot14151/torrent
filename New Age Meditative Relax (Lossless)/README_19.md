@@ -1,3 +1,32 @@
+###  Публикация: 938900   (479559) от 19.09.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405939   (479130) от 01.09.2020
 
 David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410426   (436080) от 21.09.2020
-
-VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
-02. SanSouci - Silence (09:58)
-03. Antiphon - The Great Attractor (09:52)
-04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
 ```
 
 https://mybot314.ru/tekegram_catalog/

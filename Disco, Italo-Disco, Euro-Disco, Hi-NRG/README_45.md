@@ -1,32 +1,3 @@
-###  Публикация: 1272545   (142999) от 28.12.2018
-
-Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick De Moore - It's Love (Maxi Version) (6:19)
-02. Dario Silver - Lonely In The Name Of Love (5:06)
-03. Dario Silver - Electric Heartbeat (6:36)
-04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678961   (141806) от 23.11.2023
 
 VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
@@ -744,6 +715,35 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881796472A8B2231845BE1B427BD9E9A47F8F894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730635   (107855) от 16.06.2024
+
+Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie To The Bop (6:34)
+02. Slidin' To The Music (5:30)
+03. Can't You Feel It (5:06)
+04. All Nite, That's Right (6:36)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214C222152DDB506ED59FCB9B3F74D7741A43CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

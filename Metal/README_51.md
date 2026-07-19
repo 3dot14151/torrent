@@ -1,3 +1,90 @@
+###  Публикация: 1230112   (618969) от 10.06.2018
+
+Trillium - Tectonic (2018) [MP3|320 Kbps] <Symphonic Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Shine (4:23)
+02. Stand Up (4:01)
+03. Full Speed Ahead (4:03)
+04. Hit Me (4:34)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Power MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C378E402547B8F938BE6B1194D52BCB8CDBD6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295637   (618808) от 13.04.2019
+
+Lovell's Blade - The Nightmare Begins (2019) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618808.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Make My Mark (4:13)
+ 2 - Gonna Get Rough (4:56)
+ 3 - The Nightmare Begins (4:30)
+ 4 - Slippin' Away (3:38)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B86059015B6D791D8BE9820562D82ACFF8B114C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036799   (618731) от 21.07.2016
+
+Vivaldi Metal Project - The Four Seasons (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618731.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Escape From Hell
+2. The Illusion Of Eternity
+3. Vita
+4. Euphoria(   Читать дальше...   )Жанр: Symphonic Metal, Neo-Classical MetalПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064ECEF69C6B39A07585945AB64DDB8518EF2147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911026   (618611) от 22.06.2015
 
 Valensorow - The Battle Of Oak Mountain (2015) [MP3|320 кб/с]<Folk / Viking Metal, Metalcore>
@@ -655,93 +742,6 @@ Kezia - The Dirty Affair (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D1717E6546C63DE43122E58621C2F313DD11B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545418   (614903) от 19.04.2022
-
-Die Apokalyptischen Reiter - Wilde Kinder (2022) [MP3|320 Kbps] <Melodic Death Metal, Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Von Freiheit will Ich singen (03:36)
-02. Volle Kraft (04:22)
-03. Alles ist gut (03:38)
-04. Wilde Kinder (04:22)(   Читать дальше...   )Жанр: Melodic Death Metal, Neue Deutsche HarteПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1963D05CF3B1044E0E52DAB97920B1D8203527C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146405   (614449) от 29.06.2017
-
-Stone Sour - Hydrograd (2017) [MP3|320 Kbps] <Alt. Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ysif
-02. Taipei Person/Allah Tea
-03. Knievel Has Landed
-04. Hydrograd(   Читать дальше...   )Жанр: Alt. Metal, Nu-MetalПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16134B705262B675050417958CB520AE54E24D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911656   (614153) от 24.06.2015
-
-Two Dead Roses - Overlords Ov the Ufo (2015) [MP3|320 кб/с]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Propaganda
-02. Dead Remains
-03. Overlords of the Ufo
-04. We All Fall Down(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40F886C542B5F2055F92E4227408F2E8E2E4DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

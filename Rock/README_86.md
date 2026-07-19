@@ -1,3 +1,90 @@
+###  Публикация: 1587426   (192709) от 31.10.2022
+
+John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Said It Would Last Forever
+02. Open Your Heart
+03. Stringin' A Line
+04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587515   (192707) от 31.10.2022
+
+Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Get Your Guns
+02. Miracle
+03. Blaze Of Glory
+04. Blood Money(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C1C43703CF5040D0749A7921200341B33FF47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 81   (191955) от 05.09.2023
+
+VA - 100 Greatest Guitar Solos (2004) (Первая раздача Клуба)
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191955.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Led Zeppelin - Stairway to Heaven
+002 Van Halen - Eruption
+003 Lynyrd Skynyrd - Freebird
+004 Pink Floyd - Comfortably Numb(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA13448771B235441F13E6DB4E667F0B9079556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588041   (191835) от 03.11.2022
 
 Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
@@ -288,6 +375,93 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657672   (190602) от 10.09.2023
+
+The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_190602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Times (Janice Long BBC Session) [00:02:52]
+02. Close To The Heart (Janice Long BBC Session) [00:03:29]
+03. South Country (Janice Long BBC Session) [00:03:18]
+04. Avalanche Of Love (Janice Long BBC Session) [00:04:13](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockУчастники: Том Эштон, Мюррей зе 'Кей', Ll Nino, Hugh E., Andy Tolson, Рози ГарландПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E479DB407836601F6F160E92B940ECA9EA4500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657682   (190598) от 10.09.2023
+
+Mud - Let's Have A Party - The Best Of Mud (1990) 2023, Parlophone UK [MP3|320 Kbps] <Glam Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_190598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crazy [00:03:12]
+02 - Hypnosis [00:02:47]
+03 - Dyna-Mite [00:02:56]
+04 - Tiger Feet [00:03:50](   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED726EDD99370AC6EFA2827586B2FEC2E78653ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657684   (190594) от 10.09.2023
+
+Blackwell - Blackwell (1970) [MP3|320 Kbps] <Psychedelic Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_190594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fake [00:03:48]
+02 - Dirty Story [00:03:18]
+03 - Heaven or Worse [00:03:23]
+04 - Something Real [00:02:31](   Читать дальше...   )Жанр: Psychedelic Blues RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436E0D065158696D71C886C61A02B24D52F96138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657615   (190589) от 10.09.2023
 
 Frank Zappa - Live... New York 1984 (2023) [MP3|320 Kbps] <Rock, Pop Rock, Garage Rock>
@@ -569,179 +743,6 @@ Oak - The Quiet Rebellion Of Compromise (2022) [MP3|320 Kbps] <Progressive Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D9C6FA0EFAB6D4C162A5A88A04142329456CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589666   (190033) от 10.11.2022
-
-Amplified! - 2 Albums (2021-2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close the Door of Shame [00:04:36]
-02. War (no More) [00:04:23]
-03. We've Come to an End [00:05:17]
-04. Glass House [00:03:40](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 2 CD, 01:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1113D3E4352C6537BD9DF72317BC4DAB8E184869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589681   (189973) от 10.11.2022
-
-Black Spell - Season of the Damned (2022) [MP3|320 Kbps] <Doom, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satanic Majesty
-02. Black Abyss
-03. We Drink Your Blood
-04. Witches Brew(   Читать дальше...   )Жанр: Doom, Psych, StonerПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45333105895C62FF478E179E30BA4FD55BAF35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590229   (189492) от 12.11.2022
-
-Stratovarius - Maniac Dance (2005) Maxi-Single, Enhanced [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac Dance
-02. United (Edit)
-03. Maniac Dance (Risto Asikainen Quantum Mix)
-04. Maniac Dance (Original Demo From Hastfittan)Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9750EA32BE3773D2BD691B41D3DA287267C85119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590170   (189491) от 12.11.2022
-
-Stratovarius - Eagleheart (2002) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagleheart
-02. Run Away
-03. Eagleheart (Demo Version)Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF06BF634F42325FADE8382F0995EE6D52AD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589891   (189489) от 12.11.2022
-
-Stratovarius - Father Time (1996) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Time
-02. Uncertainty
-03. Future Shock - '96
-04. Kill The KingЖанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF24F99FBDA7C517AA9179CA29AB96E28B4F95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590145   (189487) от 12.11.2022
-
-Stratovarius - Hunting High And Low (2000) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunting High And Low
-02. Millennium
-03. Neon Light Child
-04. Hunting High And Low (Demo Version)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D1111C11C51CD7128CE09903D7377A0DA4476A
 ```
 
 https://mybot314.ru/tekegram_catalog/

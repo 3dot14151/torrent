@@ -1,119 +1,3 @@
-###  Публикация: 1246021   (467964) от 08.09.2018
-
-AMM - AMMMusic: 1966 (1966) Reissue, 1989 [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Later During a Flaming Riviera Sunset (6:51)
- 02. Later During a Flaming Riviera Sunset (LP version) (21:07)
- 03. Ailantus glandulosa (5:32)
- 04. In the Realm of Nothing Whatever (13:22)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9B8D9B14B65238DCB5666EC172A80688CD7DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246013   (467896) от 08.09.2018
-
-Kenny Drew - Four Classic Albums (1953 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467896.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Yesterdays (Introducing the Kenny Drew Trio) [5:24]
-02. Stella by Starlight (Introducing the Kenny Drew Trio) [2:31]
-03. Gloria (Introducing the Kenny Drew Trio) [3:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CCA61FCE92CD2D1971601EAA951DC84F432330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245959   (467659) от 08.09.2018
-
-Giuseppe Milici Quartet - Jazz Tribute to Michael Jackson (2010) [FLAC|Lossless|image + .cue] <Smooth Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467659.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Liberian Girl
-2 You Are Not Alone
-3 Another Part of Me
-4 Billie Jean(   Читать дальше...   )Жанр: Smooth Jazz, Crossover JazzПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C8F1D7DA77395FA369A0B65BF2D34C91AE57F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161411   (467646) от 28.08.2017
-
-VA - Forum West - Modern Jazz From West Germany: Wewerka Archive 1962-1968 (2004) Sonar Kollektiv [APE|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Lauth Sextet / Intrada [02:23]
-02. Hans Koller Ensemble / Mingus Privat [03:52]
-03. Joe Haider Septet / Straight Out [05:35]
-04. Hans Koller Ensemble / Casa Loma [02:51](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Bop, Hard BopПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647E946836530C96AC9138AC58FB3F25C4373393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940598   (467294) от 25.09.2015
 
 Wynton Kelly - Piano (1958) /2004, Riverside/ [FLAC|tracks+.cue]<Hard Bop, Piano Jazz>
@@ -769,6 +653,123 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C61C34A5138CB14C2600A3B80F947EBEA4D300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059022   (463876) от 03.10.2016
+
+Scott Henderson (Tribal Tech, Vital Tech Tones, HBC) - 20 альбомов (1985-2015) 21 CD [WavPack|Lossless|image + .cue] <Jazz-Rock, Fusion, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Скотта Хендерсона стоит отдельно в списке самых влиятельных и талантливых гитаристов мира.
+ Его внушительный вклад в развитие джаза и блюза, работы с Чиком Кориа, Жаном-Люком Понти и Джо Завинулом, создали Хендерсону славу одного из авторитетнейших представителей этих направлений...1994 - Dog Party (Mesa Recordings 79073)
+1997 - Tore Down House (Mesa Recordings 7567-92722-2)
+2002 - Well to the Bone (Blues Bureau International BB-2045 2)
+2005 - Live! 2CD (Tone Center TC 4037 2)(   Читать дальше...   )Жанр: Jazz-Rock, Fusion, Blues-RockПродолжительность: 20:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28B129FC1E4F80A634091100C5E65E0AA65BC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246383   (463703) от 10.09.2018
+
+Carmen Lundy - Code Noir (2016) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Chance [3:44]
+02. Live Out Loud [4:36]
+03. Black and Blues [3:47]
+04. Whatever It Takes [4:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB803EBD15704800100D9CD5AB1B5ED75CC7F274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246393   (463618) от 10.09.2018
+
+Inés Estévez (Ines Estevez) - Nude (En Vivo) (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learning the Blues (En Vivo)
+02. I Only Have Eyes for You (En Vivo)
+03. Feel Like Making Love (En Vivo)
+04. I've Got a World on a String (En Vivo)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30936062FFAE550CD00DBC4A769B5A32A4141921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321089   (463389) от 22.08.2019
+
+Fapy Lafertin & Le Jazz - 94-96 The Recordings (1994 - 1996) 2CD, 2012, Lejazzetal [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463389.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Swing Guitars 1994:
+01. I've Had My Moments, Pt. 1 [3:04]
+02. I Wonder Where My Baby Is Tonight [2:48]
+03. Besame Mucho [5:26](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FA2FCDF18E55BCBADDE548EF1A8C5047CD9349
 ```
 
 https://mybot314.ru/tekegram_catalog/

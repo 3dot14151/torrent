@@ -1,3 +1,32 @@
+###  Публикация: 1128894   (724514) от 27.04.2017
+
+VA - Душевный сборник Русского радио выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanata - Будешь Моим 2:52
+002. Банд'эрос - Эрогенная Зона 3:32
+003. Ирина Билык - Седой Старик 2:53
+004. Лоя - Соль 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4881F2DD370A691A104A405C1FF893DD80C0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128981   (724366) от 27.04.2017
 
 VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - German Top 50 Official Dance Charts 22.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CCAB0CA0332FF15D976AC241214BC87CE8496B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285451   (719055) от 27.02.2019
-
-VA - German Top 50 Party Schlager Charts 25.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1B1BE63885ABCEECE6D175A0C6F5F5BDE4643B
 ```
 
 https://mybot314.ru/tekegram_catalog/

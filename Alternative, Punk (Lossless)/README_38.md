@@ -1,3 +1,119 @@
+###  Публикация: 1163515   (450339) от 05.09.2017
+
+Russkaja - Kosmopoliturbo (2017) [FLAC|lossless|image + .cue] <Pop-Punk, Gypsy-Punk, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Road	 (03:49)
+02. Alive	 (03:47)
+03. Still In Love	 (02:49)
+04. Hello Japan	 (03:26)(   Читать дальше...   )Жанр: Pop-Punk, Gypsy-Punk, Ska-PunkПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBDFEA32E13183B570F3B4A6A586B75D4AFDB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570048   (447298) от 15.08.2022
+
+Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else [00:03:28]
+02. Vein mp3 [00:03:56]
+03. Non-Human Club 2.0 [00:03:14]
+04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FAC131AC6C5708BC1096F12F6505D12339DB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390781   (447051) от 22.09.2011
+
+Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigue Sigue Sputnik - английская группа, музыкальный стиль которой можно охарактеризовать как электронный пост-панк. Образована в 1984-м году Тони Джеймсом (Tony James), Мартином Дигвиллом (Martin Degville), Нилом Экс (Neal X), Рэйем Мэйхью (Ray Mayhew) и Крисом Кавана01. Love Missile F1-11
+02. Atari Baby
+03. Sex-Bomb-Boogie
+04. Rockit Miss U-S-A(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322509   (446581) от 30.08.2019
+
+Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimental, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avant-Gardez Vous (01:19)
+02. Distance Dealer (04:09)
+03. Bleeding Decay (05:36)
+04. Dizzy Delusions (01:50)(   Читать дальше...   )Жанр: Post-rock, Experimental, Indie RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409604   (445240) от 17.09.2020
 
 Silverchair - The Best Of - Volume 1 (2000) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge, 90s>
@@ -628,122 +744,6 @@ Kaozm - Labyrinth (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A856669502AF14C47CB559EEAA744DE89E96AC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945673   (429416) от 12.10.2015
-
-†††(Crosses) - †††(Crosses) (2014) [FLAC|image+.cue]<Alternative Rock, Ambient, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. †his Is A †rick [3:06]
- 02. †elepa†hy [3:34]
- 03. Bi†ches Brew [3:28]
- 04. †hholyghs† [4:26](   Читать дальше...   )Жанр: Alternative Rock, Ambient, ElectronicПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687A4171720E90CAC94E795336625DF5ADDA6287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250061   (429130) от 26.09.2018
-
-The Strokes - Room On Fire (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Ever Happened? (2:54)
- 02. Reptilia (3:42)
- 03. Automatic Stop (3:27)
- 04. 12:51 (2:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD467E77ED8153C63BE1617204A1928390DCF5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249571   (428943) от 26.09.2018
-
-Everlast - Whitey Ford's House Of Pain (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Of Us (3:37)
- 02. The Culling (3:14)
- 03. It Ain't Easy (3:18)
- 04. The Climb (Interlude) (0:45)(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Hip-HopПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A61126D09C5B037D817DBB00641B02FA4BD1DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411032   (427460) от 25.09.2020
-
-Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL|tracks]<Alternative, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis [00:05:17]
-02. Ceremony [00:03:27]
-03. Urantia [00:04:30]
-04. Error [00:04:50](   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806946F183B67A68F8117A3CB74DA73F71D64BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

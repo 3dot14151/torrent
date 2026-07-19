@@ -1,117 +1,3 @@
-###  Публикация: 1581984   (325587) от 07.10.2022
-
-The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena [4:38]
-02. Boogaloo to You [3:54]
-03. The Unsaid [8:19]
-04. Hercules [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860471   (325370) от 07.10.2022
-
-Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 - 1981) 2000, EMI[APE|Lossless]<Jazz, Swing, Chamber Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [02:17]
-02. Soon [03:46]
-03. Summertime [04:22]
-04. Nice Work If You Can Get It [02:29](   Читать дальше...   )Жанр: Jazz, Swing, Chamber MusicПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714602166E241B5BA02C489AA216DB848F99E71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 262508   (325234) от 26.11.2010
-
-Kenny G - Greatest Hits (2CD) (2009) [APE|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Smooth JazzПродолжительность: 01:19:24; 01:19:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958577   (324040) от 21.11.2015
-
-Shelli LaTorre - Full Circle (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Little It Matters (How Little We Know)
-02. Retrato em Branco e Preto
-03. New Coat of Paint
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:07
-Издатель (лейбл): Shelli LaTorre
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BF23699C4DAC1436C96875FB128CBB484BC816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958589   (324036) от 21.11.2015
 
 Claudia Franco - Soul Dance (2015) [FLAC|image+.cue]<Vocal Jazz>
@@ -742,6 +628,122 @@ VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181790   (322033) от 08.11.2017
+
+Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebe [02:09]
+02. Trees [03:24]
+03. Summertime [02:40]
+04. The Piccolino [02:50](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958818   (321974) от 22.11.2015
+
+Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Another Star [07:16]
+ 02.Goodbye [02:59]
+ 03.Mertensia [04:57]
+ 04.You Don't Know What Love Is [04:01](   Читать дальше...   )Жанр: Jazz Funk, Soul JazzПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844166   (321652) от 24.11.2014
+
+Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей Кузнецов) - True Friends (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeysuckle Rose [05:15]
+02. Spain [09:07]
+03. Django [07:18]
+04. 500 Miles High [04:32](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAAFB3CD74FAFF3DF34465817BB0BB904BB4B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181791   (321592) от 08.11.2017
+
+Christian Sands - Reach (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armando's Song [05:12]
+02. Song of the Rainbow People [06:21]
+03. Pointing West [06:08]
+04. Freefall [06:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF2ED61968EBB5A0A53B945530A8BBEB6765C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

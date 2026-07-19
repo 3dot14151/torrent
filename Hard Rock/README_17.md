@@ -1,3 +1,61 @@
+###  Публикация: 1310958   (544525) от 27.06.2019
+
+Devil's County - Whisky Tango Foxtrot (2019) [MP3|320 Kbps] <Southern, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One More 3:37
+02. Hardwood Floors 4:30
+03. More Than Me 3:05
+04. Tomorrow 4:52(   Читать дальше...   )Жанр: Southern, Hard Rock, Blues RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5362F7A175568F5E71B9D5C829FF1B3B609590D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311054   (544521) от 27.06.2019
+
+Tony Mills - Beyond The Law (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Westside [4:12]
+ 2. Beyond The Law [4:05]
+ 3. Running Guns [4:39]
+ 4. F.B.I. [4:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378745354B9255BEDAAE84CEEA7744E679A954A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311073   (544519) от 27.06.2019
 
 Tyler Bryant & The Shakedown - Truth And Lies (2019) [MP3|320 Kbps] <Hard Rock>
@@ -702,64 +760,6 @@ AC/DC - BBC Live 1976-1979 (1998) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE9278BC149F4CACFFE0D27E6861BA54F501AE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241788   (518299) от 19.08.2018
-
-Hartmann - Hands On The Wheel (2018) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Want Back Down (5:21)
- 2. Your Best Excuse (4:17)
- 3. Cold as Stone (5:30)
- 4. Simple Man (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D97A1593289EC0C3A96F17AC637422BC3D3F7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930225   (516270) от 22.08.2015
-
-Lynch Mob - Rebel (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Fix
-02. Between The Truth And A Lie
-03. Testify
-04. Sanctuary(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400988C3FAB1DBAD4B5DDB15F220C681A0DFBE10
 ```
 
 https://mybot314.ru/tekegram_catalog/

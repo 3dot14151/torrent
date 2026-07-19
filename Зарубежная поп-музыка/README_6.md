@@ -1,3 +1,38 @@
+###  Публикация: 603220   (996926) от 15.01.2013
+
+Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Inevitabile (feat. Giorgia)
+2.Respiro Nel Blu
+3.Andare... In Ogni Senso
+4.Oggi Che Giorno E'
+5.Cantico
+6.Cara Prof
+7.Canzoni Lontane
+8.Amarti E' L'Immenso Per Me
+9.Dolce Barbara
+10.Taxi Story(   Читать дальше...   )Жанр: popПродолжительность: 03:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603201   (996864) от 15.01.2013
 
 Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
@@ -779,41 +814,6 @@ Mirko Hirsch - Obsession (2011) [MP3|320 kbps]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB8411123B228ECB43C94446952B2AD00CC706E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613124   (977494) от 08.02.2013
-
-Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty God (04:16)
-02. My Soul Magnify the Lord (05:16)
-03. Seremon of the Mount (03:41)
-04. Into My Chamber (05:44)
-05. Hear My Cry (04:12)
-06. You're Excellent (03:50)
-07. I've Changed (04:29)
-08. Let It Be (04:07)
-09. Look (04:49)
-10. J-O-Y Joy (04:20)(   Читать дальше...   )Жанр: Pop,Disco,SoulПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF87158B6D041B9A491153E1234F04889AEEC352
 ```
 
 https://mybot314.ru/tekegram_catalog/

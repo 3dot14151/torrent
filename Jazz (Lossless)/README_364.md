@@ -1,119 +1,3 @@
-###  Публикация: 1754411   (40771) от 10.10.2024
-
-Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Flower - Sunrise [7:19]
-02. Forest Flower - Sunset [10:38]
-03. Sorcery [5:19]
-04. Song of Her [5:25](   Читать дальше...   )Жанр: Post BopПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E37C0946A61589ED49C771DBE0BD9409165DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754415   (40769) от 10.10.2024
-
-Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [4:52]
-02. Carnival (Manha de Carnaval) [3:32]
-03. Am I Blue? [3:10]
-04. Seven Come Eleven [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4314AA984C6C3089BA0D113DF5AE79D3AE504D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754416   (40768) от 10.10.2024
-
-Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' at the Savoy [5:14]
-02. Just the Way You Are [3:18]
-03. Eric's Smoozie Blues [5:21]
-04. Beautiful Love [4:26](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1A69A8E839231A486D054D3055FCFAF50AD005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755272   (40352) от 14.10.2024
-
-Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sign of the Times [2:15]
-02. The Phoenix Love Theme (Senza Fine) [2:53]
-03. Nowhere Man [2:41]
-04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755546   (40194) от 16.10.2024
 
 VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
@@ -745,6 +629,122 @@ Conrad Herwig - The Latin Side Of Mingus (2022) Savant [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A374C04D12DB568A73BA6FA03D91EB71344D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756476   (39560) от 22.10.2024
+
+Gary Burton & Paul Bley - Right Time Right Place (1991) GNP Crescendo [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ida Lupino [9:13]
+02. Isn't It Romantic? [6:04]
+03. Laura's Dream [7:01]
+04. Carla [5:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D292FA4E0668F62F5CF8F32A73AC63D8470DBCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000302   (39525) от 23.10.2024
+
+Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I've Got the World on a String [05:39]
+ 02.Midnight Sun [04:41]
+ 03.How Long Has This Been Going On? [06:04]
+ 04.You're Blase [05:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEF17FF6E4452E9919036D605E777515AEBC521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290023   (39506) от 23.10.2024
+
+Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Too Soon [2:55]
+02. I'm Scared [2:36]
+03. September Song [3:06]
+04. You Go to My Head [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318666   (39502) от 23.10.2024
+
+Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [1:51]
+02. Take the 'A' Train [2:42]
+03. I Left My Heart in San Francisco [4:08]
+04. S'Posin' [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507EBBCE06E28C732B694E3E977112E5AE6D2E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

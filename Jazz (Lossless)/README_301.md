@@ -1,119 +1,3 @@
-###  Публикация: 1681184   (133181) от 02.12.2023
-
-VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Parker - Solitude (2:54)
-02. Stan Getz - Don't Worry 'Bout Me (2:37)
-03. Fats Navarro - Maternity (Lard Pot) (3:02)
-04. Allen Eager - Donald Jay (2:33)(   Читать дальше...   )Жанр: BopПродолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681120   (133095) от 02.12.2023
-
-Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acapella Lullaby (2:04)
-02. Rock-a-Bye Baby (3:25)
-03. A Mother’s Lullaby (3:17)
-04. Nocturne Op. 9 No. 2 (2:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C594527BD2964AA6C1389751E14EF75EECA647F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681441   (132771) от 03.12.2023
-
-VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan) (1956) 2CD, 2000, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donald Byrd & Hank Mobley - B. for B.B. (previously unissued) [6:31]
-02. Donald Byrd & Hank Mobley - B. for B.B. [6:29]
-03. Hank Mobley & Lee Morgan - Hank's Shout [7:02]
-04. Hank Mobley & Lee Morgan - Bet [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681525   (132702) от 03.12.2023
-
-Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132702.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 Original album + Bonus track & Remix:
-01. Good Morning
-02. Say Goodbye
-03. Little Broken Hearts(   Читать дальше...   )Жанр: Contemporary Jazz, Pop |Продолжительность: 02:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48876A570AA67BC146F1A35EE45CB77D1FC2FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681705   (132416) от 04.12.2023
 
 Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022, Jazz Detective [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -785,6 +669,128 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682929   (129755) от 09.12.2023
+
+Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lulu's Back In Town [5:50]
+02. Playtime [6:10]
+03. Will You Still Be Mine [4:42]
+04. Fascinating Rhythm [4:34](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 12:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525364   (129546) от 20.01.2022
+
+Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129546.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rhythm [3:21]
+02. Lennie's Song [4:09]
+03. Surrender [3:10](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 05:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489304   (129234) от 28.04.2012
+
+Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The 'A' Train (2:55)
+02. Don't Get Around Much Any More (Never No Lament) (3:18)
+03. Cotton Tail (Shuckin' And Stiffin') (3:11)
+04. I Got It Bad And That Ain't Good (3:18)
+05. Conga Brava (2:58)
+06. Concerto For Cootie (Do Nothin' Till You Hear From Me) (3:17)
+07. A Portrait Of Bert Williams (3:09)
+08. Warm Valley (3:24)
+09. Solitude (2:57)
+10. Country Gal (2:57)(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525680   (129189) от 21.01.2022
+
+Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Lost
+02. Don't Give Up
+03. Still Not Over You
+04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

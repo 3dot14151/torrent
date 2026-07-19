@@ -1,119 +1,3 @@
-###  Публикация: 1564483   (499750) от 19.07.2022
-
-Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Moments [9:14]
-02. Elixir Suite [9:47]
-03. Hi Fly [7:51]
-04. Tribute to Duke and Mingus [5:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB335F86B2078C33430661F59CB83D825E507649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564482   (499744) от 19.07.2022
-
-Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Says [12:54]
-02. Sis [6:38]
-03. A Little Booker [13:56]
-04. Easy Winners [4:55]Жанр: Hard Bop, Post-BopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564651   (499668) от 19.07.2022
-
-V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Fade into the Sunset
-02. eJazz Artistry - I Can't Stop Loving You
-03. Chillaxonic - Dream into Reality
-04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564647   (499664) от 19.07.2022
-
-VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLAC|Lossless|image + .cue] <Contemporary Jazz, Fusion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curtis Stigers - Jealous Guy
-02. Joe Jackson - Girl
-03. Pink Turtle - Imagine
-04. Lucky Peterson - Yer Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Fusion JazzПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D01941CA2505F66937ACF8C5ADD9B9091D50E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317698   (499632) от 02.08.2019
 
 Oliver Jones Trio - Live at Biddles (1983) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -740,6 +624,128 @@ Art Tatum & Buddy DeFranco - The Art Tatum-Buddy DeFranco Quartet (1953-1954) /2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:846D65EA6DB2C8B902CFB21D71368405B96E4CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936249   (496492) от 11.09.2015
+
+Art Blakey & The Jazz Messengers - Live In Zurich 1958 (2010) /Solar Records/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496492.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Now's the Time [13:18]
+02. The Theme [06:49]
+03. Moanin' [14:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC38499FE79E7CA1DC3616A46E931741406782D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242992   (496207) от 25.08.2018
+
+D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [3:18]
+02. Stomping At The Savoy [3:52]
+03. Latin Lovers [4:04]
+04. Overload [3:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F7D2BB6E0435476D10B93DD2F4F75A7EE35B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243113   (496201) от 25.08.2018
+
+Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Swings the Blues (take 1) [8:39]
+02. Zoot Swings the Blues (take 2) [2:28]
+03. Trotting [3:48]
+04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542688   (496083) от 05.09.2012
+
+VA - Vocal Refrain (1993)  BoxSet 5CD[FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connee Boswell - Fare Thee, Honey, Fare Thee Well [03:08]
+02. Cab Calloway - The Jumpin' Five [02:51]
+03. Jimmy Rushing - Evenin' [02:43]
+04. The Andrews Sisters - Long Time, No See [03:21]
+05. Ethel Waters - Love Is the Thing [03:15]
+06. Fred Astaire - Let's Face the Music & Dance [02:29]
+07. Jack Teagarden & Johnny Mercer - Christmas Night in Harlem [03:25]
+08. Mary Ann McCall - Between 18th & 19th on Chestnut Street [02:57]
+09. Gene Austin - Sentimental Baby [03:32]
+10. Bunny Berigan - Mama, I Wanna Make Rhythm [02:51](   Читать дальше...   )Жанр: Jazz, VocalФормат: BoxSet 5CDПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

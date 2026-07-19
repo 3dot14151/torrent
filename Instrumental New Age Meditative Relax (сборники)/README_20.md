@@ -1,3 +1,32 @@
+###  Публикация: 1726287   (54685) от 01.06.2024
+
+VA - The Mysterious music of the World vol.1 (2024) [MP3|320 Kbps] <Enigmatic, New Age, Electro>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Renga Weh - Solitude [06:56]
+002. Valdi Sabev - Endless Sky [04:12]
+003. Twins In Mind - Fallacy Of Faith [05:18]
+004. Flaer Smin - Catharsis [07:07](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 12:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AFED80A13CF89D156633431F2F484A0856FA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727783   (54291) от 05.06.2024
 
 VA - The Mysterious music of the World (2024) vol.3 [MP3|320 Kbps] <Enigmatic, New Age, Electro>
@@ -716,35 +745,6 @@ VA - Between the Worlds (2025) [MP3|320 Kbps] <Native American, New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCF49178FD67CC7E34EF8C24DFF4D8097AB9D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782284   (26297) от 27.02.2025
-
-Flaer Smin - Compilation (2025) [MP3|320 Kbps] <New Age, Enigmatic, Electronic, Ambient, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Adagio for Love
-  02.  Catasta
-  03.  Namaste
-  04.  Spacewalk(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, Ambient, InstrumentalПродолжительность: 02:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DD884043F44187286C1E410399C818A31DDF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

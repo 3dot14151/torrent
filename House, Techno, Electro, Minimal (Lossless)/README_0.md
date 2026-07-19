@@ -1,3 +1,177 @@
+###  Публикация: 1870814   (1069461) от 14.05.2026
+
+VA - The Unity Mixers – Dance Computer - The Full 1993 Megamix 1 (1993) [FLAC|Lossless|image + .cue] <Trance, Euro House, Hard Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twenty 4 Seven - Slave to the Music 0:47
+02. 2 Unlimited - Tribal Dance 2:07
+03. Deborah Wilson - Free (Exposure mix) 3:39
+04. Jens Lissat Project - Energy Flow 2:45(   Читать дальше...   )Жанр: Trance, Euro House, Hard TranceПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E012A85C0709105E042B2C70B6F12E5E4C8C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870213   (1069153) от 11.05.2026
+
+VA - World Of Dance: The 90's (1996) [FLAC|Lossless|tracks + .cue] <Dance-pop, House, Hip-House, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Box / Strike It Up (club version) [0:05:18.08]
+02. Snap! / Rhythm Is a Dancer (club version) [0:05:15.22]
+03. Crystal Waters / Gypsy Woman (She's Homeless) (club version) [0:03:50.00]
+04. Cathy Dennis / Touch Me (All Night Long) (club version) [0:04:03.30](   Читать дальше...   )Жанр: Dance-pop, House, Hip-House, Garage HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD1872729446D2FC3E1E7A90447D77254288F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869934   (1068573) от 09.05.2026
+
+VA - Poolside Lounge 2026 (Deep Strips 5/8/26 ) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zvana - Not Your Angel (2:46)
+02. N.E.O.N - More Than This (3:09)
+03. Lino Tenerife - Losing Myself Tonight (4:13)
+04. Anton Ishutin - Be My Lover (Afro House Mix) (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DAAB077933ADF2033CF443FE7F1CC81FFF1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866761   (1066268) от 21.04.2026
+
+VA - Afro Summer Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Deep Inside (5:20)
+02. Elegant Ape - Desert Bloom (3:09)
+03. Elegant Ape - My Moment (3:15)
+04. DJ David Kim - In Your Eyes (4:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FDDCF1847F804980C605F8D570972A46963971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865469   (1065751) от 
+
+VA - Fresh Afro Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Desert Bloom (3:09)
+02. Cristian Ferrer - Osupa Ti (3:52)
+03. N.E.O.N - Yemaya Mama (3:30)
+04. Cristian Ferrer - Tu Mirada (6:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3370C37FEF1F799A867797797CFE648B0418EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865857   (1065489) от 17.04.2026
+
+VA - Ibiza Nights 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KMÖBA - Go Home (4:05)
+02. Cristian Ferrer - Perfect Storm (6:09)
+03. Fleanger - Pure Odyssey (4:32)
+04. Nikita Marasey - Stay Human (4:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A38F6D748E27484248CB308CFB07842FD9BBC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865199   (1065380) от 14.04.2026
 
 VA - Summer Lounge (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -571,180 +745,6 @@ VA - Tech House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F360DE334D67D2615924B7401D099E1B14C2299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856666   (1058985) от 01.03.2026
-
-Martin Schulte - Forest (2014) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.After Summer Storm 07:10
-02.Aqua 06:48
-03.Atmo 06:49
-04.Dreamliner 06:51(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD14E9B395444E2273744E3F5F8478FE3030734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856723   (1058967) от 01.03.2026
-
-VA - Afro House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindloco - Alafia (3:28)
-02. Marlie Chunes - Love & Oxygen (2:38)
-03. the Gang - Be The End (3:33)
-04. Sevenkey - Don't Let Me Go (3:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40D36169B660A14DB7B7AB0A97D739DD544A562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856122   (1058768) от 26.02.2026
-
-VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moonswinger - Preset 1 04:56
-02.Emanuele Pertoldi - Feedback Theory 08:03
-03.Unknown Artist - Untitled 02:16
-04.Foquus - Untitled 06:16(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4632C9991834DDC29F3E65D3556B5960BCF00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855630   (1058499) от 24.02.2026
-
-As If - At Night (2012) [FLAC|Lossless|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hour Of Long Shades 08:57
-02. Sleepless 11:01
-03. Walking The City 07:49
-04. Strange Faces 08:28(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652B1525B1108086EF455B0DDF49EE849E2089C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855795   (1058483) от 24.02.2026
-
-Anton Ishutin Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casablanca (5:55)
-02. Feel So Good (7:10)
-03. Do You Wanna (5:35)
-04. Brash (8:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA57270C3D54DB67B1282CF5ADE3C334ECB2F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855594   (1058241) от 23.02.2026
-
-Andreiclv - Cityscapes EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058241.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ninsei 06:24
-2. Chiba 08:42
-3. L5 O'Neill 05:12
-4. Food Courts 05:12Жанр: Dub TechnoПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB9A7238CC29356F0AE42F4254DEEBC86C92E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

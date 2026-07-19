@@ -1,108 +1,3 @@
-###  Публикация: 485675   (89779) от 21.04.2012
-
-VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Светлана Лобода - Ты Самый Любимый На Свете (Dj Amor Remix) (6:33)
-2. Сергей Жуков & Opium Project - Я Буду С Тобой (4:22)
-3. Issy feat. David Goncalves - You and Me (3:24)
-4. Юрий Шатунов Vs. Eminem - Детство Without Me (Cj Koka Mix) (3:33)
-5. Mixi - Только Я И Ты (Dj Val Remix) (3:46)
-6. Dan Balan - Лишь До Утра (Special Mix) (3:09)
-7. Lenny B, Roxxett - Hysteria (Original Mix) (6:52)
-8. Maria Maria - Ты Обо Мне Не Вспоминай (Icebird Remix) (3:14)
-9. Шахзода Feat. Sean Bay - Flying Tonight (Radio Edit) (4:42)
-10. Алеся Муха - Где Ловить Мечту (Dj Jurij Extended Remix) (5:15)2012Жанр: PopПродолжительность: 06:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C091AFEEC28687FC3FE26C6C889E5981B8D39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485627   (89616) от 20.04.2012
-
-VA - Свежий Хит На Русском Радио (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винтаж - Стерео
-02. Н. Басков И Валерия - Сохранив Любовь
-03. М. Журавлева - Небо Плакало
-04. Samol feat. A-Sen - Малиновые Сны (DJ Kashtan & Kirillich Remix)
-05. Яжевика - Стены (DJ Xm Remix)
-06. Размер Project - Россия Рулит
-07. Мальчишник - Еще Хотя Бы Раз
-08. Бьянка - А Че Че
-09. Марк Твен - Опять Идет Дождь
-10. Г. Ургант - Голосами2012Жанр: PopПродолжительность: 06:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED7CEB29C4112ACC9DDBD921E6F8A64C404C987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485467   (89598) от 20.04.2012
-
-VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Вместе Мы
-02. ВИА Гра - Диско
-03. Митя Фомин - Хорошая Песня
-04. Чай Вдвоем - Улетай
-05. СтаЯ - Сердце (Radio Edit)
-06. Юрий Шатунов - А Лето Цвета
-07. Пропаганда - Нет-Да
-08. Тимур Темиров - Веришь
-09. Глюкоза - Кошка
-10. Батишта & Shaplin feat. Уляна Глушкова - Когда Наступит Ночь(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485283   (89583) от 20.04.2012
 
 VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256 kbps]<Pop>
@@ -901,6 +796,111 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E134CD41B4536C9E2F52CB9BAFA160EFC93DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478977   (87301) от 09.04.2012
+
+VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fable Time - Russia (Maxi Version)
+02. Savage - I Love Again (Special Remix)
+03. Fellini - Passenger (Extended Version)
+04. The Kitch Club - Can't Stop Saying I Love You (Club Version)
+05. Jeannie - Freedom (Die Antwort) (12''Version)
+06. Chip Chip - Never Say Goodbye
+07. Mr.Freaky - Out Of My Mind (12''Version)
+08. Mauro - Buona Sera - Ciao Ciao (Holiday Dance Mix)
+09. Mozzart - Malice And Vice (Maxi Version)
+10. Tony Turn - Cherry Cherry(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 12:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478091   (86636) от 05.04.2012
+
+VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E-Type - Russian Lullaby
+002. Руки Вверх - Студент
+003. Dr. Alban - Mr. Dj
+004. Русский Размер и Профессор Лебединский - Бегут года
+005. Heath Hunter - Revolution In Paradise
+006. Вирус - Позови меня
+007. Pet Shop Boys - Go West
+008. Дискотека Авария - Труба зовет!
+009. East-17 - It's Alright
+010. Валдай - Чай, кофе, потанцуем!(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478359   (86502) от 05.04.2012
+
+VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пропаганда - Нет-Да (Dance Version) (3:51)
+2. МакSим - Это же я (3:15)
+3. 5sta Family - Вместе Мы (3:40)
+4. Анастасия Приходько - Заждалась (3:21)
+5. Николь - Стихи О Любви (3:31)
+6. Лера Массква - Про тебя (3:18)
+7. Пальчики Оближешь - Интрига (3:22)
+8. Чи - Ли - Облака (3:02)
+9. Наталья Подольская Интуиция (3:16)
+10. Карина Крит - Смотри на небо (2:53)2012Жанр: PopПродолжительность: 05:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

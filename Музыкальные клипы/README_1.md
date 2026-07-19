@@ -1,3 +1,196 @@
+###  Публикация: 1437698   (1041893) от 05.01.2021
+
+Сборник клипов - Philizz "Video Yearmix" (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Video Yearmix 2020" - фирменный видеомикс от голландского ви-джея Philizz. Два с половиной часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2020 года ждёт Вас! Приятного просмотра!
+Разбивка по трекам отсутствует.Philizz – The Apocalyptic Intro
+Juice WRLD ft. Marshmello – Come & Go
+Shawn Mendes ft. Justin Bieber – Monster
+Justin Bieber – Yummy(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3139EC9DC6B0B9BBE4BC46793BABF145B7BA7F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615625   (1036126) от 03.03.2023
+
+Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5AC7E9B28F87D16F4060429CA63A9F3C551A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443701   (1035067) от 30.01.2021
+
+Сборник клипов (01.2021) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за январь 202101_MIA BOYKA, T-killah - Лепесток
+02_Alan Walker & ISAK - Sorry
+03_Markus Schulz & Christina Novelli - Not Afraid To Fall
+04_Brando - Close To You(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DF2932F71450C9A9DCBBEB256E8CF3B644B81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444749   (1033915) от 04.02.2021
+
+Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <Acoustic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Габриэлла родилась и выросла в Чинне, Швеция. Начала играть на гитаре достаточно рано, её первым преподавателем был её отец. С двенадцати лет Габриэлла начала играть на гитаре, в основном в технике фингерстайл. Сначала она играла каверы других исполнителей, а также собственные аранжировки на платформе YouTube. В июле 2018 года альбом с названием "Acoustic Cover (   Читать дальше...   )01. (ABBA) Happy New Year - Gabriella Quevedo
+02. (ABBA) Lay All Your Love On Me - Gabriella Quevedo
+03. (ABBA) Money Money Money - Gabriella Quevedo
+04. (ABBA) The Winner Takes It All - Gabriella Quevedo (std)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: ~00:03:00-00:07:00 ролик, (общая 05:50:13)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DBA44CD2F64580B62BC40FD05A33C1974B3C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619920   (1032498) от 18.03.2023
+
+Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480921AF761699C3F435C53512DF1FC4B7DA2EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445972   (1030665) от 18.02.2021
+
+Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered upscale AI] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
+</div>
+
+
+###  Подробнее
+
+:question:  А че писать? Клип он и есть клип, веселый, красочный. Сиськи, много Сисек. Потому и рейтинг НЕ детский, а еще коробки с презервативами полным кадром. Так что - клип точно не детский.
+Клип переделан в Топазе с увеличением размера картинки, предварительно до него была снята гребенка с оригинального DVD-сборника клипов (качество там полная дрянь). Надеюсь (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF4621DD8B644F673EA88D74295EAD400C91D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 64632   (1030591) от 18.02.2021
+
+VA «20 Years Of Nuclear Blast» 2007 2DVD
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойной DVD, выпущенный в честь 20-летнего юбилея легендарной немецкой звукозаписывающей компании Nuclear Blast и содержащий почти шесть часов видео! На дисках вы найдете 70 клипов и историю лейбла в четырех частях, рассказанную фронтменом Destruction Sсhirmer'ом. Также вы обнаружите массу интересного дополнительного материала. И конечно, о своей компании вам расскажет (   Читать дальше...   )Жанр: VARIOUSАктеры: NIGHTWISH, DIMMU BORGIR, IN FLAMES, HYPOCRISY, IMMORTAL, BLIND GUARDIAN, NILE, CHILDREN OF BODOM, HAMMERFALL, AMORPHIS, CLAWFINGER, DIE APOKALYPTISCHEN REITER, KATAKLYSM, SONIC SYNDICATE, DESTRUCTION, SOILWORK, EXODUS, CHIMAIRA, THERION, MESHUGGAH, ANTHRAX, EDGUY, AFTER FOREVER, EPICA, SONATA ARCTICA, WINTERSUN и другие.Перевод: ОригинальныйПродолжительность: 350:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F2C41810C38151AAB68AB0C4100DF14E2C65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451080   (1027454) от 07.03.2021
 
 Сборник клипов (02.2021) WEB-DL [H.264/720p-LQ]
@@ -515,206 +708,6 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD85FF46AE910724B3851FE0087B45EE865A1C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475315   (1011947) от 09.06.2021
-
-The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битлы исполняют песню на концерте.
-Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.
-Предыдущий клип: https://nnmclub.to/forum/viewtopic.php?p=11164480#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB11F3F2AF4B5BC85559D684B183AE99C133E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475847   (1011274) от 13.06.2021
-
-Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Raprave, Electronicmusic, Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Big - Everybody (Little Big Are Back)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8616DE83D26378B4923774FBF5FBE9C99CCEC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485367   (1004926) от 29.07.2021
-
-Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'ame-stram-gram
-02. Je te rends ton amour
-03. Souviens-toi du jour...
-04. Optimistique-moiЖанр: PopПродолжительность: 04:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C309EC08D6F4541AA9D431B946A8B718A8447C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486163   (1004797) от 30.07.2021
-
-Сборник клипов - Music 80s Video Collection от ALEXnROCK часть 5 (2021) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 5 - Intro
-01. Kim Wilde - Never Trust A Stranger
-02. Janet Jackson - Love Will Never Do (Without You)
-03. A-ha - You Are The One(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF369B93D27F288E823FC7B27EB0EEB180F97973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597472   (1000377) от 02.01.2013
-
-DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598303   (999825) от 04.01.2013
-
-Лучшие клипы 2012 / Slim Shady Place Video Yearmix 2012 [720p] BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год Sebastiaan Sopamena (aka DJ SSP) радует нас новой подборкой лучших клипов, перетекающих один в другой, выполненной для Slim Shady Place. Это своего рода сборник лучших музыкальных видеотворений 2012 года. Отличная возможность увидеть самые яркие клипы СО ВСЕГО МИРА за два последних года!
-Приятного просмотра Slim Shady Place Video Yearmix 2012!Жанр: Pop / House / Eurodance / Electronic / R&BПеревод: ОригинальныйПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C9878BEDA069995808C70D28D2B1D56F89023A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598141   (999635) от 05.01.2013
-
-Светлана Разина - Презентация нового альбома (2008) CamRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наступает Ночь
-02. Нравится
-03. Звёзды / Я Не Хочу / Солнечное Лето (попурри)
-04. Музыка Нас Связала
-05. Демон
-06. Реинкарнация
-07. Короче (feat B. Лесовская)
-08. Плакать
-09. Света
-10. Налоговый Инспектор(   Читать дальше...   )Жанр: POPПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1881487   (1076851) от 
+
+The Rolling Stones - Foreign Tongues (2026) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rough and Twisted
+02. In the Stars
+03. Jealous Lover
+04. Mr. Charm(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C716D22B5150183DAA7CE2EE45EA304AAD5114E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880908   (1076832) от 
+
+3 Doors Down - 7 Albums (2000-2016) [FLAC|Lossless|image + .cue, tracks] <Alternative Rock / Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken (2:47)
+02. In The Dark (3:44)
+03. Still Alive (2:42)
+04. Believe It (3:22)(   Читать дальше...   )Жанр: Alternative Rock / Post GrungeПродолжительность: 05:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D37EC7401D62EE7CB710C8630D283C089F73E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880861   (1076507) от 
+
+Fire Faele Fyrer - FFF (1989) Remastered 2022 [FLAC|Lossless|tracks] <Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076507.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mean Man 3:21
+2. Whole Lot Of Nerve 4:26
+3. Bike 3:03
+4. Living Under Pressure 2:45(   Читать дальше...   )Жанр: Post PunkПродолжительность: 00.34.12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6B68757B8354021DF9B665534D96D9872A7551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880760   (1076348) от 08.07.2026
+
+Limp Bizkit - 9 Albums (1997-2022) 10CD [FLAC|Lossless|image + .cue] <Alternative / Rapcore / Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Style [03:23]
+02. Dirty Rotten Bizkit [03:01]
+03. Dad Vibes [02:12]
+04. Turn It Up, Bitch [02:21](   Читать дальше...   )Жанр: Alternative / Rapcore / Nu MetalПродолжительность: 09:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E8FD4EABA4504F3442B76F6F25A3FC99FAD93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880213   (1075864) от 06.07.2026
+
+Deftones - EROS (2009) Leaked Sessions, Jan 2009 [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Grunge, Grungegaze, Shoegaze, Post-Metal, Post-Rock, Post-Hardcore, Dream Pop ...
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny [00:03:57]
+02. Brenda [00:05:10]
+03. Melanie [00:02:59]
+04. Dallas [00:04:45](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Grunge, Grungegaze, Shoegaze, Post-Metal, Post-Rock, Post-Hardcore, Dream PopПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F852A92FC5F03800EFDEB44EBBE3B4833285EE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873780   (1071497) от 30.05.2026
 
 The Cure - Entreat (1991) Live [FLAC|Lossless|image + .cue] <New Wave, Alternative Rock, Shoegaze>
@@ -601,151 +746,6 @@ Linkin Park - One More Light Live (2017) Brazil, 0093624907923, AB0001000 Pressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6A94243FCC6591B1BE86BA880F5A5E8FC33F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844580   (1050435) от 28.12.2025
-
-Linkin Park - One More Light (2017) Argentina, 559687-2 [FLAC|Lossless|image + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Can Save Me (3:46)
-02. Good Goodbye (Feat. Pusha T And Stormzy) (3:31)
-03. Talking To Myself (3:51)
-04. Battle Symphony (3:36)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Pop RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DF792B10CECCA23D7090E116B13329621DF2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844582   (1050434) от 28.12.2025
-
-Linkin Park - Living Things (2012) Brazil, 9362495048, AD0001000 Pressing [FLAC|Lossless|image + .cue] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In The Echo (3:26)
-02. In My Remains (3:21)
-03. Burn It Down (3:50)
-04. Lies Greed Misery (2:27)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative Rock, Alternative MetalПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D61E13DE04DFB9B0DABA2C7205DC2E85EFBA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844584   (1050433) от 28.12.2025
-
-Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake (1:41)
-02. Given Up (3:09)
-03. Leave Out All The Rest (3:29)
-04. Bleed It Out (2:44)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative Metal, Alternative RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08791A884C1206242A1437888F061A74E357B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844588   (1050364) от 29.12.2025
-
-Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Experimental, Electronic, Industrial Hip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (1:08)
-02. Pts.Of.Athrty // Jay Gordon (3:46)
-03. Enth E Nd // Kutmasta Kurt Featuring Motion Man (4:00)
-04.Тип издания: DigipakЖанр: Alternative / Nu-Metal, Experimental, Electronic, Industrial Hip HopПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840650   (1047543) от 07.12.2025
-
-Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone Sour— американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман.Список альбомов:
-2002 - Stone Sour
-2006 - Come What(ever) May
-2010 - Audio Secrecy(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Nu MetalПродолжительность: 06:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

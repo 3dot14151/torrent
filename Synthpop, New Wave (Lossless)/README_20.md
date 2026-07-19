@@ -1,32 +1,3 @@
-###  Публикация: 1337175   (276314) от 09.11.2019
-
-VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stilz - Undercover (2:52)
-02. Beckett - Play (3:57)
-03. Nina - Counting Stars (4:38)
-04. Dana Jean Phoenix feat. Tape Loader - Breathe in Outer Space (6:33)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337179   (274893) от 10.11.2019
 
 VA - Synthetique: A French Synthwave Compilation 1982-2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Wave>
@@ -751,6 +722,35 @@ AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835352   (250953) от 06.11.2025
+
+AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argonouts (3:54)
+02. Runners (4:52)
+03. Hornet (4:14)
+04. Star Horizon (5:26)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14C528FC004587724A766DF0F15FF5881A80E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

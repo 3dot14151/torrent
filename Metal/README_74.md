@@ -1,3 +1,90 @@
+###  Публикация: 1575143   (379354) от 08.09.2022
+
+Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ground Zero (04:09)
+02. Like Napalm (03:44)
+03. Glitch (04:21)
+04. The Greatest Fear (05:28)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC0579447EFA231E3F8DE999C35E9AF4DAFC7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575146   (379345) от 08.09.2022
+
+LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wait Until I'm Gone (04:20)
+02. Dream Catcher (03:58)
+03. Embrace (03:48)
+04. Bleeding Out (04:53)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5392FF33D9F302F1CEA7291B6359FC2A89F5261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415084   (379250) от 11.10.2020
+
+Hexer - Realm of the Feathered Serpent (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Blitz [00:07:30]
+02. Jaguar Knight [00:07:20]
+03. River of Blood [00:07:41]
+04. Miasmic [00:00:46](   Читать дальше...   )Жанр: Doom Metal, Sludge Metal, Black MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D708B789CE54D59746C75D4D4A907F770596688C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415275   (379105) от 11.10.2020
 
 Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Metal>
@@ -665,93 +752,6 @@ Hellyeah - Welcome Home (2019) [MP3|320 Kbps] <Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F22D78019E01DC1BC078A7CB2E9503389F12D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327689   (372427) от 26.09.2019
-
-KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KMFDM
-02. No regret
-03. Oh my goth
-04. Paradise(   Читать дальше...   )Жанр: Industrial Metal, Aggro-IndustrialПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF3FB1016A595A1120E25CBDD27172F6B5919F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774197   (371872) от 26.09.2019
-
-Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|320 кб/с] <Glam Metal, Hard Rock, Hair Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371872.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Feel The Steel (Japanese Edition)
-2011 - Balls Out (Japanese Edition)
-2012 - British Invasion (Live, 2CD, DVD-Audio)
-2014 - All You Can Eat (Japanese Edition)(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Hair MetalПродолжительность: 07:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46E0F8FCCF14CD979918E18B2C18F4DC25C88CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069933   (371409) от 05.11.2016
-
-Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371409.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:46] 01. Shout At The Devil
-[04:01] 02. Too Fast For Love
-[05:35] 03. Ten Seconds To Love
-[03:28] 04. Red Hot(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD31B1B6028B9E91168792CA3F7F60D7FCC5F9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

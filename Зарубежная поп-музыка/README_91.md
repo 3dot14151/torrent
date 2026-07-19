@@ -1,3 +1,32 @@
+###  Публикация: 1785331   (69370) от 15.03.2025
+
+Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <Disco, Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La marche des machos (04:17)
+02. Chante pour nous Mama (03:17)
+03. Les nouveaux romantiques (03:23)
+04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F5DDF065CCA1F4933F4FC4F7DD97939405B563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786668   (68988) от 21.03.2025
 
 Brenda Lee - Best of Brenda Lee (2025) Remastered [MP3|320 Kbps] <Pop>
@@ -716,34 +745,6 @@ VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847B2DC0F12204AA0ED746B0A743F637260AD241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728044   (54250) от 05.06.2024
-
-VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Trance feat. Ricardo Da Force - Stayin' Alive
-02. 2 Unlimited - Do Whats Good For Me (edit version)
-03. Alexia Feat. Double You - Me And YouЖанр: Electronic, Euro House, EurodanceПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
 ```
 
 https://mybot314.ru/tekegram_catalog/

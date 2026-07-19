@@ -1,118 +1,3 @@
-###  Публикация: 1005544   (832838) от 09.04.2016
-
-Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lester Left Town [09:30]
- 02.Lover Man [12:10]
- 03.Times Lie [21:17]Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC387E6AE7E11FCC52F24A9AF875566E7B5750F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005551   (832708) от 09.04.2016
-
-Paolo Fresu, Richard Galliano & Jan Lundgren - Mare Nostrum II (2016) ACT Music[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Apnea [05:04]
- 02.Blue Silence [05:10]
- 03.Aurore [03:58]
- 04.Kristallen Den Fina [03:52](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2300C78785A9480462B40F2345E88A184E871B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005596   (832561) от 09.04.2016
-
-Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Too Soon
-02. Somebody Loves Me
-03. Chelsea Mood
-04. Something's Gotta Give(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D02614027612DFE82DFE4B987B4F0E52733E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005549   (832546) от 09.04.2016
-
-Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Giant Steps [04:31]
- 02.Oleo [03:36]
- 03.I'll Remember April [07:20]
- 04.Yesterday [01:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57B2273358E81DAA10EFF4E3C099C4478D290E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380678   (831459) от 04.05.2020
 
 Paul Hardcastle - 19 Below Zero (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Smooth Jazz>
@@ -743,6 +628,122 @@ Mike Nock Quartet - In Out And Around (1978) Remaster, 2015, Solid Records[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F03FE645544C392B334F079870FCD9052084C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006651   (827249) от 12.04.2016
+
+Joe Zawinul - Zawinul (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Doctor Honoris Causa [13:48]
+ 02.In A Silent Way [04:47]
+ 03.His Last Journey [04:35]
+ 04.Double Image [10:33](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2C2AD004636CDD6B91DEDF5F8C838B4AB1378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006467   (827248) от 12.04.2016
+
+Abbey Lincoln - Abbey Is Blue (1959) Remaster,2005,Riverside Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afro-Blue (03:20)
+02. Lonely House (03:40)
+03. Let Up (05:32)
+04. Thursday's Child (03:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82E8D4BE5EF9C12877BF94F4A9D1CA0B4545550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006605   (827247) от 12.04.2016
+
+Pharoah Sanders - Village Of The Pharoahs & Wisdom Through Music (1973) 2011, Verve Music Group[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Village of The Pharoahs, Part One [07:15]
+ 02.Village of The Pharoahs, Part Two [04:58]
+ 03.Village of The Pharoahs, Part Three [04:52]
+ 04.Myth [01:48](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB57172F4368B01D3256789F62FBA2B2A1CE859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006569   (827245) от 12.04.2016
+
+Doctor Jazz's Universal Remedy! - Release 1.0 (2004) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Milt Shake
+02	Groovy Night
+03	Elizabeat
+04	Seven Reasons Why(   Читать дальше...   )Жанр: Jazz, Future JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B3DE1CE41BF79561A9BF109E3E397BF5AC083
 ```
 
 https://mybot314.ru/tekegram_catalog/

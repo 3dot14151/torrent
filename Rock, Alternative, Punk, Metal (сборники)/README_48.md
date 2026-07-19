@@ -1,3 +1,90 @@
+###  Публикация: 1754219   (40829) от 10.10.2024
+
+VA - Hard & Heavy (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40829.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Zombie - The Man Who Laughs [09:44]
+002. Ratt - As Good as It Gets [04:38]
+003. The Cult - Dirty Little Rockstar [03:41]
+004. Heavy Heavy Low Low - Texas Chainsaw Mascer-Uh [01:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E049749F08E34E79F1869B4083743AA8B989E78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754577   (40675) от 11.10.2024
+
+VA - Riffing To The Top (2024) [MP3|320 Kbps] <Rock, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40675.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Saint Renascence - Reverend Of Hell
+002. Shayne Malone - Rock Tonight
+003. 3 Leaks, No Heat - Take Me In Your World
+004. Praying Mantis - I Surrender(   Читать дальше...   )Жанр: Rock, Hard Rock, HardcoreПродолжительность: 12:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C511DE8A3AF141693C403BB9AB1266EA2DA3F0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754754   (40494) от 13.10.2024
+
+VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Thriller [05:57]
+02. Ray Parker Jr. - Ghostbusters [04:01]
+03. AC/DC - Highway to Hell [03:28]
+04. Harry Belafonte - Banana Boat (Day-O) [03:03](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 11:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655634DB373FA72E29BE91D1A72405EA34B4AC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756057   (39854) от 19.10.2024
 
 VA - Heavy Workout (2024) [MP3|320 Kbps] <Hard Rock>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14ABFE0F59B3F73AC54BC8C61605FE70FBF2613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773016   (31118) от 13.01.2025
-
-VA - Best Slow Rock Love Songs, Ballads (2025) [MP3|320 Kbps] <Rock, Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad English - When I See You Smile [04:17]
-002. Extreme - More Than Words [05:37]
-003. Megadeth - Symphony Of Destruction [04:07]
-004. Mr. Big - To Be With You [03:28](   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 07:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5906DE3A07A5F05D85AACD3CB2852FAA2F4965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773238   (30798) от 16.01.2025
-
-Король и Шут - Compilation (1991-2012) [MP3|320 Kbps] <Punk rock, Horror punk, Folk punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воспоминания о Былой Любви. instrumental (Герои и Злодеи 2000)
-02. Лесник (Будь Как Дома, Путник… 1997)
-03. Король и Шут (Будь Как Дома, Путник… 1997)
-04. Мария (Камнем По Голове 1996)(   Читать дальше...   )Жанр: Punk rock, Horror punk, Folk punkПродолжительность: 06:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8469FF5ABB4CFA64BBF5775A95AD97FD9ABC827D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774129   (30418) от 19.01.2025
-
-Сансара - Compilation (2001-2024) [MP3|320 Kbps] <Indie rock, New wave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Города (& 7he Myriads) (69 2009)
-02. Плюсую (Станция Отдых 2021)
-03. Чёлка (Игла 2012)
-04. Техно (Мы Станем Лучше 2019)(   Читать дальше...   )Жанр: Indie rock, New waveПродолжительность: 03:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEFEA70C07B96CE8368CC461B7C098A7F89EB74
 ```
 
 https://mybot314.ru/tekegram_catalog/

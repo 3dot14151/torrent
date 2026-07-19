@@ -1,3 +1,29 @@
+###  Публикация: 1778978   (28071) от 10.02.2025
+
+StartAllBack 3.9.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28071.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3FD4D38FF53900780C367271ECAFFE98974CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778735   (28068) от 10.02.2025
 
 Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 06.02.2025) [Multi/Ru]
@@ -645,32 +671,6 @@ Skylum Aperty 1.2.0.920 RePack (& Portable) by elchupacabra [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E4A186F3F6493FB5C9C58D470D230F61660A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779246   (27866) от 12.02.2025
-
-Microsoft Visual C++ 2015-2022 Redistributable 14.44.34823.2 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распространяемый компонент Visual C++ устанавливают компоненты среды выполнения, необходимые для выполнения приложений C++, которые разработаны с помощью Visual Studio.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4005148A8948C2582B0D840DFDF5782267924
 ```
 
 https://mybot314.ru/tekegram_catalog/

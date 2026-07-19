@@ -1,3 +1,32 @@
+###  Публикация: 1621783   (1030634) от 26.03.2023
+
+Windows 11 (v22h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_version_22h2_updated_
+march_2023_x64_dvd_d3b36a20.iso.
+Использован установщик от Windows 10 22H2 (SecureBoot и TPM 2.0 не требуется).
+Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1963ACB9F6DB04A4053F080E7D4151394981C515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621749   (1030629) от 26.03.2023
 
 The Beast Inside (2019) [Ru/Multi] (1.03) License GOG
@@ -649,34 +678,6 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398D3C141DA733D0B28B828E5F90A4B4DBA3DF02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448903   (1030420) от 19.02.2021
-
-BELOFF [dp] 2021.02.3
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1030420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
-
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6717307C5D9ACD2285C1CF19678E344281F18C60
 ```
 
 https://mybot314.ru/tekegram_catalog/

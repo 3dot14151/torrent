@@ -1,3 +1,320 @@
+###  Публикация: 1085642   (154124) от 23.12.2016
+
+VA - Just Dance 2017 - The Playlist Compilation (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargirl - Starboy (In Love With A Groove Edit) 03:08
+02. Uptown Funk - 24K Magic (Feat. Grand Funkmeister)Жанр: Euro Dance, Pop DanceПродолжительность: 02:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F34C34C4A69675CE71C398FDD918EF7B42DA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086122   (154109) от 23.12.2016
+
+VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леонид Утёсов - Всюду вас ожидают друзья (02:32)
+02. Людмила Гурченко - Пять минут (03:32)
+03. Майя Кристалинская - Новогодняя песня (02:10)
+04. Нина Бродская - Русская зима (03:05)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347176   (154103) от 22.12.2019
+
+VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bløf Feat. Geike Arnaert - Zoutelande (03:40)
+02. Luis Fonsi & Demi Lovato - Échame La Culpa (02:52)
+03. Shakira - Whenever, Wherever (03:17)
+04. El Profesor - Bella Ciao (Hugel Remix) (02:45)(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 06:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9246283005E10501C87A3E9FB699AC551A24A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194485   (154065) от 26.12.2017
+
+VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  P. Lion  -  Happy Children  5:59
+02.  Radiorama  -  Chance To Desire  4:09
+03.  Joe Yellow  -  Lover To Lover  4:19(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9724A04C5D03BCC6EDB9BE944A440BD2C317BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194749   (153982) от 26.12.2017
+
+Ева Польна - Феникс (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153982.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Феникс. Intro
+2. Официальные лица
+3. Фантастика (New Version)
+4. Вернись ко мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B272AA95A242E4E98E20FA582128E891779FECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194182   (153853) от 26.12.2017
+
+Мурат Насыров - 6 альбомов (1997-2006) [FLAC, APE|Lossless|image + .cue, tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153853.jpg" />
+</div>
+
+
+###  Подробнее
+
+1997 - Кто-то простит
+1998 - Моя история
+2000 - Всё это было не со мной
+2002 - Разбуди меня(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA865BD198CC3C610EC726E3BDB397B4E7C9F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347298   (153836) от 22.12.2019
+
+Наташа Королёва - Ягодка (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ягода
+02. Зять
+03. Кандидат
+04. Подруга(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804627631B60C8D23C67FA41F08BFAF998888675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270944   (153831) от 21.12.2018
+
+VA - Первый танцевальный, Vol. 16 (Новогодний) (2018) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nyusha - Это Новый год
+02. MONATIK - Улыбаясь
+03. Feduk - Хлопья летят наверх
+04. Коля ROTOFF/Ансамбль Уральской Грусти имени П.П. Бажова - Новогодняя(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BE17A7535153E62947AEEBA6830137813D7DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434134   (153584) от 23.12.2020
+
+Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Como Una Ola [4:18]
+02. Ese Hombre [4:32]
+03. Señora [4:26]
+04. Si Amanece [4:43](   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32250836F3A7F1415FF5A32E895ABF1813875F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194756   (153430) от 26.12.2017
+
+Марк Минков - А знаешь, всё ещё будет... (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А знаешь, всё ещё будет (В.Тушнова) - Алла Пугачёва
+02. Наша служба и опасна, и трудна (А.Горохов) - А.Горохов, Э.Клас, Э.Лабковский
+03. Не отрекаются, любя (В.Тушнова) - Алла Пугачёва
+04. Когда-нибудь (А.Макаревич) - ВИА "Синяя птица"(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD378000967A6848F545F5C7C485823CFB1D849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194606   (153419) от 26.12.2017
+
+VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect
+02. Portugal. The Man - Feel It Still
+03. Sam Smith - Too Good At Goodbyes
+04. Naaz - Up To Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433909   (153391) от 23.12.2020
 
 Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
@@ -428,322 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A239F7A47045E487216B3C93202A42B4829CCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085857   (152469) от 24.12.2016
-
-VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Listening, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Baby, It's Cold Outside (1959) - 2:23
-02. Goombay Dance Band - Let's Cross The Bridge (That's Our City) (2009) - 3:58
-03. The Three Degrees - Sleigh Ride (1998) - 3:28
-04. Nat King Cole - The Christmas Song (Merry Christmas To You) (1961) - 3:10(   Читать дальше...   )Жанр: Pop, Soul, Pop Rock, Easy Listening, Holiday, Christmas, OldiesПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7650A6603778C364EC81A659AA207BEC986165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271246   (152437) от 22.12.2018
-
-VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. Andy Williams - It's the Most Wonderful Time of the Year
-04. Jose Feliciano - Feliz Navidad(   Читать дальше...   )Жанр: Dance, Pop, Ambient, New AgeПродолжительность: 03:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3913362707A6E0CC14324BC21284244780473E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271160   (152427) от 22.12.2018
-
-Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby It's You (3:49)
-02. Let's Get Back Together (3:21)
-03. Who's Givin' It To Ya (3:33)
-04. I'm Sleeping Over (3:31)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C802997AB6EBA9E1EB7BE46E34518B5A13235E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601261   (152030) от 30.12.2022
-
-Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Single [FLAC|Lossless|WEB-DL|tracks] <EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is Now
-02. Life Is Now (Extended Mix)Жанр: EuroDanceПродолжительность: 00:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347284   (151988) от 23.12.2019
-
-Слава - Крик души (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твой поцелуй (3:14)
-02. Слёз умытая печаль (3:37)
-03. Сто озёр и пять морей (2:58)
-04. Невеста (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D50286E489370052011F957903CF6FA113DA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194455   (151743) от 27.12.2017
-
-VA - Workout Body Fitness 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Turbotronic – Shake It Shake It (Radio Edit)
-02 Geo Da Silva, Sean Norvis, DJ Combo & Kizami – Summertime (Balkan Brothers Remix Edit)
-03 Teknova – On The Move 2K18 (Melbourne Bounce Edit)
-04 Daniel Rosty – Time 2 Bounce (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD20328D84C6416767195EC6C049F27D92C6690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086314   (151735) от 24.12.2016
-
-John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby It's Cold Outside (3:19)
-02. Rockin' Around The Christmas Tree (feat. Kenny G) (2:13)
-03. I'll Be Home For Christmas (feat. Barbra Streisand) (3:32)
-04. This Christmas (feat. Chick Corea) (4:25)(   Читать дальше...   )Жанр: Pop, Holiday, Christmas, Adult Contemporary, Country Pop, VocalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194461   (151731) от 27.12.2017
-
-VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam Payne – Strip That Down (Nevada Remix)
-02. Jonas Blue ft William Singe – Mama (Syn Cole Remix)
-03. Justin Beiber & Bloodpop – Friends
-04. Avicii Ft. Rita Ora – Lonely Together(   Читать дальше...   )Жанр: DanceПродолжительность: 02:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE20EB3FDE3236E8298E9FBAB6132F7FC9C76FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434356   (151651) от 24.12.2020
-
-Anne Murray - The Ultimate Christmas Collection (2020) [MP3|320 Kbps] <Pop, Folk, World, Country, Light Music>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World (2:08)
-02. Christmas Wishes (2:32)
-03. It's Beginning To Look A Lot Like Christmas (2:47)
-04. Blue Christmas (2:29)(   Читать дальше...   )Жанр: Pop, Folk, World, Country, Light MusicПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE69527A458F4F04083E56DD595E474B8B2D26B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825687   (151607) от 17.10.2025
-
-Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Captain Mustache; Play Paul - The Pathetic [00:05:28]
-02 - Captain Mustache; Third Culture (USA) - Vertigo [00:05:00]
-03 - Captain Mustache; Mel E. Logan - Pen Weapon [00:04:50]
-04 - Captain Mustache; Jean Brock - La Vertu [00:05:00](   Читать дальше...   )Жанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425D3AE50F9FA59C1B1C304BF68F9262201E565D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825452   (151598) от 17.10.2025
-
-Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - The Super Album
-2025 - LUZЖанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EA58A21629130D47A0C0DDEFAFB82184A88BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

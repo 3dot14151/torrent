@@ -1,125 +1,3 @@
-###  Публикация: 1147695   (607724) от 03.07.2017
-
-Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Hat White Tie & Tails [04:14]
-02. Have You Met Miss Jones [04:42]
-03. I Only Have Eyes For You [04:17]
-04. Stormy Weather [04:20](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DD8949DF23A7A81D2A56FEF41F574C44A61768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525355   (607495) от 21.07.2012
-
-Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, Hard Bop, Vibraphone>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Mind Matter
-02. Little B's Poem
-03. Bouquet
-04. Getto Lights
-05. Patterns
-06. 'Til Then
-07. Dave's Chant
-08. Same Shame
-09. Ummh
-10. Houston St Thursday Afternoon(   Читать дальше...   )Жанр: Post-Bop, Hard Bop, VibraphoneПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913407   (607239) от 28.06.2015
-
-Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarante
-02. Blues Zen
-03. Il Canto di Sadone
-04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913410   (607235) от 28.06.2015
-
-Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude in E minor Op 28 No 4
-02. Prelude in D flat major Op 28 No 15
-03. Mazurek in F major Op 68 No 4
-04. Grande Valse Brillante Op 32 No 2(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD08ECCC260F0C2DC3A0B953EF831A10A8FB44C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231288   (607059) от 17.06.2018
 
 Les Double Six Meets Quincy Jones (1960 - 1962) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -751,6 +629,122 @@ Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4ACEAA4EF3964F401B2673E6672E63C9067A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065514   (604250) от 25.04.2022
+
+Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, Afro-Cuban>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flôr di nha esperança
+02. Vaquinha mansa
+03. Amor di mundo
+04. Paraiso di Atlantico(   Читать дальше...   )Жанр: Jazz, Latin, Afro-CubanПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F60D1430458E18ED6ECA397FF4FE0ADE4A7F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231644   (604154) от 19.06.2018
+
+Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somethin' Special [7:10]
+02. Enchament [6:25]
+03. What Will I Tell My Heart? [7:16]
+04. Comin' Home Baby [7:07](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B304D685D618D5AB8D5DC5A557CFC548474FA366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231648   (604153) от 19.06.2018
+
+Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter's Mode [5:58]
+02. Street Scene [6:43]
+03. News For Lulu [6:07]
+04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231642   (604152) от 19.06.2018
+
+The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: They say it's wonderful / How deep is the ocean? / I don't stand a gh... [10:15]
+02. Between The Devil And The Deep Blue Sea [6:56]
+03. La Ronde [2:12]
+04. Night In Tunisia [6:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78958390464660F67B9A25875E3B97B51DFC1813
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1305905   (556130) от 01.06.2019
+
+Amon Amarth - Berserker (2019) Japanese Edition, 2CD [MP3|320 kbps] <Melodic Death Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556130.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Fafner's Gold | 05:01
+02 | Crack The Sky | 03:50
+03 | Mjolner, Hammer Of Thor | 04:43(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 02:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57885EF75AF5E7CF504954869A6E88C22FE57438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306901   (555360) от 07.06.2019
+
+Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naive Voices (04:07)
+02. My Religion (03:42)
+03. Face of a Ghost (03:22)
+04. The Spiral (feat. Jenna Kate Brown) (03:51)(   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A2EAE4369E34F9649B77AD551DDEEDDC38D320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306903   (555359) от 07.06.2019
+
+Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disheartened Song (03:24)
+02. Black Clover (04:22)
+03. Solitude (03:54)
+04. Til The Day We Die (03:58)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841F29B2380CC4D8002EE38F7C9A9DF18F4A95CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307867   (554664) от 11.06.2019
 
 Tanzwut - Seemannsgarn (2019) [MP3|320 Kbps] <Folk Metal, NDH>
@@ -664,93 +751,6 @@ Saralee - Darkness Between (2006) [MP3|320 кб/с]<Gothic Metal, Love Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30495B3123FEE6F570B58787FF80A214767F9D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557149   (542829) от 14.06.2022
-
-Maylene and the Sons of Disaster (Dallas Taylor, vox ex-Underoath) - 7 Releases (2005-2011) [MP3|320 Kbps/282 kbps VBR ] <Southern Rock, Christian Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Dead We Dream [00:03:16]
-02. Save Me [00:04:00]
-03. Faith Healer (Bring Me Down) [00:03:37]
-04. Open Your Eyes [00:03:15](   Читать дальше...   )Жанр: Southern Rock, Christian MetalПродолжительность: 7CD, 02:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04198C8270C3F22192A79DF848A2A552AB740B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557101   (542826) от 14.06.2022
-
-Stygian Oath - Midnight Flames (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raging Skies [00:04:37]
-02 - Finger on The Trigger [00:03:53]
-03 - Beyond the Grave [00:05:49]
-04 - Broken Mirror [00:05:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDC49288A888660590E44A42B0F40546450DCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557214   (542819) от 14.06.2022
-
-Sorrowful Winds - Deny Reality (2022) [MP3|235-244 kbps VBR (V0)] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deny Reality [00:05:16]
-02. Silence In The Morning [00:04:37]
-03. Time Pills [00:06:04]
-04. To Slay The Last One [00:06:30](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C05D41BF24D31A60D007341AEC57D6CC2473A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

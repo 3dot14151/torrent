@@ -1,25 +1,25 @@
-###  Публикация: 1708784   (112907) от 22.03.2024
+###  Публикация: 1724682   (109179) от 21.05.2024
 
-Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Funk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
-02. "Stealing Away" (Samson, Aylmer, Moore)
-03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
-04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
+A1 The Love I Lost
+A2 Let Your Yeah Be Yeah
+A3 I Heard It Through The Grapevine
+A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae, FunkПродолжительность: 00:38:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
+magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709103   (112902) от 23.03.2024
+###  Публикация: 1724633   (109174) от 21.05.2024
 
-Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Ведьма (М. Рябинин) — 3.56
-02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
-03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
+1990 - Beg to Differ - The Peel Sessions (EP)
+1991 - Prove You Wrong
+1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709105   (112882) от 23.03.2024
+###  Публикация: 1724637   (109155) от 21.05.2024
 
-Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
-02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
-03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+A1 - Possessed - Swing Of The Axe
+A2 - Nasty Savage - XXX
+A3 - Steel Assassin - The Executioner
+A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: Heavy Metal, Thrash, Speed MetalПродолжительность: 00:49:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709097   (112873) от 23.03.2024
+###  Публикация: 1725082   (109040) от 23.05.2024
 
-Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Гималаи (А. Лукьянов)
-02. Клава (М. Дунаевский)
-03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
+Exhorder — американская метал-группа образованная в 1985 году в Новом Орлеане. Команда является одним из первопроходцев грув-метала, который позже был популяризован такими коллективами, как Pantera, Sepultura, Machine Head, White Zombie, Lamb of God и многими другими.1990 - Slaughter In The Vatican
+1992 - The Law
+2019 - Mourn The Southern Skies
+2024 - Defectum OmniumЖанр: Thrash/Groove MetalПродолжительность: 03:11:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
+magnet:?xt=urn:btih:668C15937FE087A799B38D6CE08753D4727B6E69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709186   (112863) от 23.03.2024
+###  Публикация: 1725361   (108990) от 24.05.2024
 
-Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hits (1969) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Pop, Sound-alike>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Timpul Întâilor
-A2 În Vieliștea Uitării
-B1 Descânt
-B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+A1 Lily The Pink
+A2 Dream A Little Dream Of Me
+A3 Birthday
+A4 A Minute Of Your Time(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 00:40:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+magnet:?xt=urn:btih:87697D718378201E8898F829A22DB47E0EAD4974
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709183   (112860) от 23.03.2024
+###  Публикация: 1725646   (108917) от 25.05.2024
 
-Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Jind De Tronuri
-A2 Flăcărarii
-B1 E-an-na
-B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+Municipal Waste — кроссовер-трэш-группа из Ричмонда, Вирджиния, основана в 2001 году.2003 - Waste 'Em All
+2005 - Hazardous Mutation
+2007 - The Art of Partying
+2009 - Massive AggressiveЖанр: Thrash Metal/CrossoverПродолжительность: 03:53:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709109   (112855) от 23.03.2024
+###  Публикация: 1725976   (108841) от 26.05.2024
 
-Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mars Within (Intro)
-02. Abduction
-03. Soul Intruders
-04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
+Arrayan Path (ранее Arryan Path) — проект певца и автора песен Николаса Лептоса, который объединился в 1997 году с гитаристом Клементом Фунгом при поддержке на протяжении многих лет брата Николаса - Сократа Лептоса2004 - Road To Macedonia
+2010 - Terra Incognita
+2011 - Ira Imperium
+2013 - IV - StigmataЖанр: Epic Power MetalПродолжительность: 09:19:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
+magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709141   (112852) от 23.03.2024
+###  Публикация: 1726021   (108796) от 27.05.2024
 
-Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
+VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
-2017 - Kingslayer
-2020 - Rush Of Death
-& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
+A1 - Heretic - Impulse
+A2 - Sentinel Beast - Sentinel Beast
+A3 - Flotsam And Jetsam - I Live, You Die
+A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
+magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709396   (112844) от 24.03.2024
+###  Публикация: 1726271   (108789) от 27.05.2024
 
-Новая коллекция - Край наших надежд (1990) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
+VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Ностальгия
-02. Неизвестная история
-03. Над суетой(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:37
+A1 - Sacred Reich - Ignorance
+A2 - Viking - Hellbound
+A3 - Overlorde - Keeper Of The Flame
+A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
+magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709400   (112823) от 24.03.2024
+###  Публикация: 1726066   (108774) от 27.05.2024
 
-Ольга Воронец - Поёт Ольга Воронец (1973) [FLAC 24/192|Lossless|tracks] <Retro>
+Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Зачем вы, девочки, красивых любите (Е.Птичкин – И.Шаферан)
-02. Бабья доля (Г.Пономаренко – М. Агашина)
-03. Как случилось (Е.Птичкин – В.Харитонов)
-04. Семёновна (Е.Барыбин – Ю.Погорельский)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:50
+A1 If I Had A Boat
+A2 Give Me Back My Heart
+A3 I Loved You Yesterday
+A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
+magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709748   (112801) от 25.03.2024
+###  Публикация: 1726511   (108754) от 28.05.2024
 
-Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
+VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 Сторона.
-01-Пролог
-02-Песенка Керри
-03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
+A1 - Banshee - We Want You
+A2 - Oliver Magnum - Old World Nites
+A3 - Toxik - Wasteland
+A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
+magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710234   (112763) от 26.03.2024
+###  Публикация: 1726757   (108664) от 30.05.2024
 
-Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Electro, New Wave>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. О мое солнце (Э. Капуа)
-02. Аве Мария (Ф. Шуберт)
-03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
+A1 Bataillon D'Amour
+A2 Josef & Maria
+A3 Schlohweisser Tag
+A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New WaveПродолжительность: 00:39:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
+magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710244   (112744) от 26.03.2024
+###  Публикация: 1727094   (108590) от 01.06.2024
 
-София Ротару - Монолог о любви (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Песня нашего лета (В. Матецкий — М. Танич)
-02. Ночь (музыка и слова В. Лащука)
-03. Осень (И. Поклад — Г. Тараненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
+P.O.D. (сокращение от Payable on Death) — американская рок-группа из города Сан-Диего, Калифорния. Работает в стилях ню-метал, альтернативный метал, христианский метал, добавляя элементы рэгги.1994 - Snuff The Punk
+1996 - Brown
+1999 - The Fundamental Elements Of Southtown
+2001 - Satellite(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 11:38:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
+magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710056   (112740) от 26.03.2024
+###  Публикация: 1727093   (108573) от 01.06.2024
 
-Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Heavy Metal>
+VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Panic Attack
-A2 The Serpent And The King
-B1 Invincible Shield
-B2 Devil In Disguise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:43
+A1 - Midnight - Masked And Deadly
+A2 - Poison Ruin - Demon Wind
+A3 - Fuming Mouth - Master Of Extremity
+A4 - Many Suffer - The Trees Die Standing(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black MetalПродолжительность: 00:46:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
+magnet:?xt=urn:btih:BD170013916B7E70821EA3EE61234EA8B7377925
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710232   (112733) от 26.03.2024
+###  Публикация: 1727089   (108468) от 02.06.2024
 
-Ренат Ибрагимов - Все вернется (1980) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Doom Metal, Thrash>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Все вернется (Р. Паулс - Я. Петерс, русск. текст И. Резника)
-02. Дождь (Р. Паулс - Я. Петерс, русск. текст А. Дементьева)
-03. Шире круг (Р. Паулс - Я. Петерс, русск. текст И. Резника)
-04. Любовь настала (Р. Паулс - Я. Петерс, русск. текст Р. Рождественского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:37:25
+A1 - Metalian - The Traveller
+A2 - Noctum - Until The Until The End
+A3 - Gatekeeper - Bell Of Tarantia
+A4 - Assassin's Blade - The Demented Force(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Doom Metal, ThrashПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8F80DBD276E9591EF02C08D7F7B1F19F20FA919
+magnet:?xt=urn:btih:54EAA49E2DEC69DC522740842889ACEFE8A3DC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710261   (112719) от 26.03.2024
+###  Публикация: 1727085   (108467) от 02.06.2024
 
-София Ротару - Нежная мелодия (1985) [FLAC 24/192|Lossless|tracks] <Pop>
+VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Death Metal, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Магазин «Цветы» (Д. Тухманов— Л. Григорьева)
-02. Песня о моей жизни (А. Кирияк — Г. Виеру)
-03. А музыка звучит (А. Мажуков — Н. Зиновьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:33
+A1 - Betrayal - Sick Or Sane?
+A2 - Solitude - Typhoid Mary
+A3 - Murdercar - Mirage Of Blood
+A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash, Death Metal, Heavy MetalПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA32957AFFF1E09CE8C91401CB21832DC2A209C9
+magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710528   (112662) от 27.03.2024
+###  Публикация: 1727404   (108461) от 02.06.2024
 
-Эдита Пьеха - Эдита Пьеха (1974) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Край берёзовый (А. Броневицкий – И.Резник)
-02. Гвардии сестрёнка (В. Соловьев-Седой – Я.Голяков)
-03. Наташка (В. Потёмкин – А.Аускерн)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:35:35
+Dark Sarah — финская симфо-метал группа, созданная Хайди Парвиайнен после ее ухода из Amberian Dawn в 2012 году.2015 - Behind The Black Veil
+2016 - The Puzzle
+2018 - The Golden Moth
+2020 - GrimЖанр: Symphonic MetalПродолжительность: 04:28:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
+magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710526   (112656) от 27.03.2024
+###  Публикация: 1727708   (108417) от 03.06.2024
 
-Тухманов - Памяти гитариста. Памяти поэта (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Памяти гитариста (Д. Тухманов — Р. Рождественский)
-Сторона 2
-2. Памяти поэта (Д. Тухманов — А. Вознесенский)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:12:47
+A1 - From Unknown Heights You Shall Fall
+A2 - Doomed To Die
+A3 - Sever The Tongue
+A4 - Faithless(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
+magnet:?xt=urn:btih:3CAF7F4591B0913976D785125AA84992A6405FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710525   (112643) от 27.03.2024
+###  Публикация: 1727928   (108392) от 04.06.2024
 
-Стеллинии Эгг, Ванжи Орико (Бразилия) - Бразильские песни (1956) [FLAC 24/96|Lossless|tracks] <Folk, World, & Country>
+Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Д-3110
-Стеллиния ЭГГ
-01 - Бум-ки-ти-бум (нар. танец);
-02 - Негритянский танец (Э. Таварес - сл. нар.);(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:28
+Channel Zero — бельгийская метал-группа, образованная в Брюсселе в 1990 году. На пике своей карьеры в 1997 году, группа приостановила детельность, однако в 2009 произошло воссоединение коллектива.1992 - Channel Zero
+1993 - Stigmatized For Life
+1994 - Unsafe
+1996 - Black FuelЖанр: Thrash/Groove MetalПродолжительность: 06:32:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF16DE49AA322BC156EEA5DAB873EFACA28C28BE
+magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710935   (112585) от 28.03.2024
+###  Публикация: 1727866   (108380) от 04.06.2024
 
-Александр Градский - Русские песни (cюита на темы народных песен) (1980) [FLAC 24/192|Lossless|tracks] <Rock, Folk, World, & Country>
+Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Ничто в полюшке
-02 - Дарю платок (страдания)
-03 - Таня белая (хоровод-танок)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:36:34
+01 - Blind Faith (04:06)
+02 - Storming With Menace (04:26)
+03 - Terrible Certainty (04:28)
+04 - As The World Burns (03:51)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
+magnet:?xt=urn:btih:DA834B1AE0427B304A8D19C590199FBAEDADFC33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711499   (112497) от 30.03.2024
+###  Публикация: 1728418   (108346) от 07.06.2024
 
-Алексей Глызин и группа "Ура" - Зимний сад (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Carmen (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Opera, Romantic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Зимний сад — 4.35
-02. Африка — 4.35
-03. Все позади — 3.40(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:58
+Act I
+A1 Habanera: L'amour Est Un Oiseau Rebelle
+A2 Parlez-Moi De Ma Mere
+A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 00:50:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
+magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711504   (112485) от 30.03.2024
+###  Публикация: 1728449   (108345) от 07.06.2024
 
-Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] <Electronic, Rock, Synth-pop>
+VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Воины бесплодной земли
-Warriors Of The Wasteland
-2. Упорный гнев(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:36
+A1 1910 Fruitgum Company – Simon Says
+A2 1910 Fruitgum Company – Indian Giver
+A3 1910 Fruitgum Company – Goody Goody Gumdrops
+A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:31:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
+magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579798   (112223) от 02.04.2024
+###  Публикация: 1728777   (108266) от 08.06.2024
 
-Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Post-grunge>
+Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adelitas Way — рок-группа из Лас Вегаса, штат Невада.2009 - Adelitas Way
-2011 - Home School Valedictorian
-2014 - Stuck
-2016 - GetawayЖанр: Hard Rock, Post-grungeПродолжительность: 05:56:58
+Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
+1990 - Violent By Nature
+2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5040298C5C13147CDA78E6223D0ED795EAFCC872
+magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712213   (112151) от 02.04.2024
+###  Публикация: 1728663   (108264) от 08.06.2024
 
-Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLAC|24/192|tracks|Vinyl-Rip] <Melodic Doom, Death Metal>
+Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Misery 24/7
-02. The Past Nightmares
-03. I Am Complete
-04. For The Ghosts Of Our Time(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:41:23
+Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
+2005 - Hell On Earth
+2008 - An Overdose Of Death
+2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:477A03AB06B5008A1DD9F54608805A778F67D4C1
+magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619166   (112128) от 03.04.2024
+###  Публикация: 1728994   (108173) от 09.06.2024
 
-Royal Thunder - Studio Albums (5 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
+Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Royal Thunder — американская рок-группа из Атланты, штат Джорджия, основанная в 2004 году гитаристом Джошем Уивером. На их стиль в первую очередь повлиял классический рок и гранж 1990-х с элементами прогрессивного рока и психоделического рока. Журнал Rolling Stone описал группу как «немного похожую на альтернативную вселенную, где Дженис Джоплин была фронтменом Led (   Читать дальше...   )2010 - Royal Thunder (EP)
-2012 - Cvi
-2015 - Crooked Doors
-2017 - WickЖанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 04:10:05
+A1 Homicidal Retribution
+A2 Fate Of The Condemned
+A3 Raping The System
+A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64DCFE912F31F8D9722A5BC60D2CEBE7B2CE434
+magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607476   (111982) от 05.04.2024
+###  Публикация: 1729028   (108172) от 09.06.2024
 
-Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Созданная в Барселоне в 2008 году, группа CRISIX прошла путь от молодых талантливых трэш-металлистов, победив большинством голосов во всемирном конкурсе Metal Battle на легендарном немецком фестивале Wacken Open Air в 2009 году и став лучшим испанским новичком по версии журнала Rockzone в 2011 году, до одной из самых представительных метал-групп в Испании, а ее музыка (   Читать дальше...   )2011 - The Menace
-2013 - Rise...Then Rest
-2016 - From Blue To Black
-2018 - Against The Odds MMXVIIIЖанр: Thrash MetalПродолжительность: 05:29:08
+A1 Your Treachery Will Die With You
+A2 Shepherd's Commandment
+A3 Hopeless Insurrection
+A4 Conceived Into Enslavement(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:34:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
+magnet:?xt=urn:btih:07D07817B42027FF87FD9F8E8DEF4868DA940490
 ```
 
 https://mybot314.ru/tekegram_catalog/

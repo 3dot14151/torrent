@@ -1,32 +1,3 @@
-###  Публикация: 988049   (922937) от 19.02.2016
-
-Sui Caedere - Threne (2009) [FLAC|Lossless|image + .cue] <Atmospheric Depressive Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:31)
-02. Prelude Triste (8:23)
-03. Serenade Triste (6:29)
-04. Le Spectre (7:55)(   Читать дальше...   )Жанр: Atmospheric Depressive Black MetalПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDC631D9A072502EC11E08C73AD5B9E72FCB596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988292   (922896) от 19.02.2016
 
 Футбол. Лига Европы 2015-2016. 1/16 финала. Обзор первых матчей. (18.02.2016) HDTVRip [H.264/720p-LQ]
@@ -718,6 +689,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ED33F1285040B7C72D42183A17058BF3B8E2CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988148   (922701) от 19.02.2016
+
+BitPerfect 3.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922701.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitPerfect - простой, легкий в использовании, музыкальный плеер аудиофильского класса, который работает с iTunes, чтобы получить максимально возможное качество звука.
+
+Особенности:
+- Ненавязчивый, минимальный пользовательский интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 февраля 2016Разработчик: BitPerfect Sound Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CAAFFC55428F5D35FCF5BF766B3CA9FAC639CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

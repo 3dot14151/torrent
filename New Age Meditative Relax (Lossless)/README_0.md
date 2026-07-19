@@ -1,3 +1,32 @@
+###  Публикация: 1343469   (1033234) от 07.02.2021
+
+Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Хацко (Alexey Khatsko), известный в музыкальной сфере как Amure и DJ.Amure, родился 2 октября 1976 года в городе Обнинск. В числе первых работ Алексея были ремиксы к детским песням (Учат в школе, Дважды два четыре, Крылатые качели и др.), которые неплохо ротировались на радио Kidsmusic (Kids-hits). В 2007 году Алексей записывает свой дебютный альбом "Исповедь", (   Читать дальше...   )01. Фантазия №1 (5:52)
+02. Фантазия №2 (Аллилуя) (5:52)
+03. Фантазия №3 (Rock'n'Roll Mega Drive) (6:39)
+04. Фантазия №4 (6:47)(   Читать дальше...   )Жанр: New Age, Enigmatic |Продолжительность: 18:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446749   (1032507) от 10.02.2021
 
 Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -716,35 +745,6 @@ Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349314   (1004225) от 02.01.2020
-
-Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etheric Worlds III (4:57)
-02. Warriors of Light (5:31)
-03. Mirages (feat. Angelux Ruddy) (5:28)
-04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
 ```
 
 https://mybot314.ru/tekegram_catalog/

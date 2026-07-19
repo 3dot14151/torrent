@@ -1,90 +1,3 @@
-###  Публикация: 1269585   (216089) от 17.12.2018
-
-VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ava Max - Sweet but Psycho
-002. Sido - Tausend Tattoos
-003. Mero - Baller los
-004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586698   (215647) от 27.10.2022
-
-No Angels - Compilation Part 2 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance-Aholic
-02. Cold as Ice (Instrumental)
-03. Go Ahead and Take it (Instrumental)
-04. Too Old(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3520FA273D872422CA94ADF0F0E5CC6CBBB0CEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270179   (215595) от 17.12.2018
-
-VA - Новый Год вдвоём (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Odell - Real Love
-02. Why Don't We - You and Me at Christmas
-03. Ed Sheeran - Perfect Duet (with Beyonce)
-04. The Guess Who - Love Is All Around(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5077AF325F83627F2225F189228CDADDE9467D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588435   (215378) от 13.12.2012
 
 VA - Дискотека- Апокалипсис (2012) [MP3|320 кб/с]<Pop,Dance>
@@ -751,6 +664,93 @@ VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07102C9616F29E1708F030DDF2E36B184DB9184D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622935   (200519) от 30.03.2023
+
+VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Rock Me (1975) (3:07)
+02. Amanda Lear - Rockin' Rollin' (1978) (3:07)
+03. Amy Holland - Anytime You Want Me (1983) (3:24)
+04. Angel 'o - Secrets Of The Night (1980) (5:05)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 06:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623724   (200245) от 05.04.2023
+
+VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pet Shop Boys - Go West (2003 Remaster)
+002. Cher - Believe
+003. Blur - Song 2 (2012 Remaster)
+004. Rod Stewart - Rhythm of My Heart(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FACE9FC51E5AFE3C66C2A6176E0EDEC7D98AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626256   (199880) от 13.04.2023
+
+VA - Hits of Active Rest (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dean Lewis - How Do I Say Goodbye (2:43)
+002. David Kushner - Mr. Forgettable (3:07)
+003. Conan Gray - Heather (3:18)
+004. Burna Boy - For My Hand (feat. Ed Sheeran) (2:39)(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911B81C53ABD96C8C775D0FFD9675C3B4B711C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

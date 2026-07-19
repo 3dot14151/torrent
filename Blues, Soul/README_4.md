@@ -1,3 +1,61 @@
+###  Публикация: 1371350   (891878) от 30.03.2020
+
+Budda Power Blues - Live 2019 (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Down (Live)
+02. Blues Is a Feeling (Live)
+03. Virtual Blues (Live)
+04. Blues Is Air I Breathe (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F69BDA54D6CCF3BE7E85F5573523B39F31E7F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510769   (890757) от 07.03.2016
+
+VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Document Records - лэйбл, специализирующийся на переиздании записей блюза, кантри, госпела и джаза. Был основан в 1986 году австрийским коллекционером Джонни Партом, который решил выпустить полное собрание довоенных блюзовых пластинок.Список альбомов:
+Newly Discovered Titles And Alternate Takes – Volume 1 (1926-1944)
+More Newly Discovered Titles & Alternate Takes, Volume 2 (1897-1935)
+More Newly Discovered Titles And Alternate Takes, Volume 3 (1927-1960)(   Читать дальше...   )Жанр: Blues, Folk, World, & Country, JazzФормат: CD, Compilation, RemasteredПродолжительность: 16:03:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371287   (890008) от 31.03.2020
 
 Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues Rock>
@@ -684,64 +742,6 @@ David Anastasia - Hoodadoo Cheaper By The Dozen (2016) [MP3|320 кб/с] <East C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C174D807B55FE46B25F2AF3602DD2B4639DFDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002983   (845283) от 02.04.2016
-
-The Dana Fuchs Band - Lonely for a Lifetime (2003) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strung Out (04:21)
-02. Lonely For A Lifetime (04:12)
-03. Moment Away (03:56)
-04. Songbird (Fly Me To The Top) (04:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FED7986E1BEB20BC04E1006B3738A1F8964F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378733   (844800) от 26.04.2020
-
-VA - NOW Soul Classics (2020) [MP3|320 Kbps] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Marvin Gaye - Mercy Mercy Me (The Ecology) (Single Version) (3:13)
-2.The Temptations - My Girl (Single Version / Mono) (2:56)
-3.Stevie Wonder - Isn't She Lovely (Album Version) (6:33)
-4.Gloria Jones - Tainted Love (Single Version) (2:36)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75A7EB8B8AA99E26160CA5BB2F02A6B1F9BC843
 ```
 
 https://mybot314.ru/tekegram_catalog/

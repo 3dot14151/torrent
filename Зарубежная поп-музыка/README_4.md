@@ -1,3 +1,32 @@
+###  Публикация: 1453163   (1027186) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Dress
+2. Chemtrails Over The Country Club
+3. Tulsa Jesus Freak
+4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453209   (1027101) от 10.03.2021
 
 VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ Moby - Reprise (2021) [MP3|320 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2145E4B2DD1CC8779099140F9FCE9E20394DDB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473400   (1013712) от 29.05.2021
-
-Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Downtempo, Lounge, Space-Age, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский скрипач, композитор и аранжировщик Клод Денжан, вероятно, наиболее известен оркестровыми аранжировками, которые он написал для Шарля Азнавура, включая "Idiote je t'aime" и меланхоличную "Non, je n'ai rien oublie". Денжан писал партитуры для других артистов, в том числе для Моник Тюберт и Макса Фурнье. Он также работал в качестве композитора (   Читать дальше...   )Список альбомов:
-1970 - Moog!
-1973 - Open Circuit
-1976 - Moods(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Space-Age, DiscoПродолжительность: 01:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

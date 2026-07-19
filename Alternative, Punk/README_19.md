@@ -1,3 +1,61 @@
+###  Публикация: 1557630   (539265) от 16.06.2022
+
+Rings of Saturn - Rings of Saturn (2022) EP [MP3|320 Kbps] <Technical Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539265.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shrine
+2. Kronos
+3. Ascending
+4. Genesis(   Читать дальше...   )Жанр: Technical MetalcoreПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584B658E28AECD14F8751375FBB8D11DA05F6F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557633   (539264) от 16.06.2022
+
+Senna - A Moment Of Quiet (2022) EP [MP3|320 Kbps] <Post-Hardcore, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539264.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rosehip
+2. Lavender
+3. Blue Mallow
+4. Jade(   Читать дальше...   )Жанр: Post-Hardcore, Progressive RockПродолжительность: 00:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4FFE2DAFE9B6EEEE95FE1D9B1544935241AE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557636   (539263) от 16.06.2022
 
 Sudden Waves - Courtside (2022) EP [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore>
@@ -684,64 +742,6 @@ Failure - The Heart Is a Monster (2015) [OGG| 391-551 кб/с]<Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A609741728432B5C9FD59CE546DDC78AD124147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929580   (518488) от 20.08.2015
-
-King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 кб/с]<Alternative, Psychedelic Rock, Garage Soul, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm In Your Mind
-02. I'm Not In Your Mind
-03. Cellophane
-04. I'm In Your Mind Fuzz(   Читать дальше...   )Жанр: Alternative, Psychedelic Rock, Garage Soul, SurfПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929711   (518398) от 20.08.2015
-
-P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am I Awake
- 02. This Goes Out To You
- 03. Rise Of NWO
- 04. Criminal Conversations (Feat. Maria Brink)(   Читать дальше...   )Жанр: Rap Metal, Nu MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

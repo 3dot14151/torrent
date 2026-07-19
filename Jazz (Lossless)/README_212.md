@@ -1,119 +1,3 @@
-###  Публикация: 953403   (347095) от 05.11.2015
-
-Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vichakani [15:36]
- 02.Musitoni [09:17]
- 03.Pamoja [14:31]
- 04.Ev'rytime We Say Goodbye [08:36]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F78712DBA4C33ACEC078477C81EDC6DAF683734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953391   (346977) от 05.11.2015
-
-Enrico Rava Quartet with Gianluca Petrella - Wild Dance (2015) /ECM/[FLAC|tracks+.cue]<Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Diva [07:39]
- 02.Space Girl [07:21]
- 03.Don't [04:46]
- 04.Infant [03:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83342FE8FC08EB2B463992BA1F8B7CE5E5AB1A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418642   (346944) от 25.10.2020
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Devil Moon [3:38]
-02. Jay [3:43]
-03. Time After Time [3:54]
-04. Too Marvelous for Words [4:07](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68644FC117C8B63A838C9FF7DC97EE75E2BD22C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418640   (346942) от 25.10.2020
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capri (alternate take) [3:51]
-02. Capri [3:42]
-03. Lover Man [3:57]
-04. Turnpike [4:22](   Читать дальше...   )Жанр: BopПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72FC120986611BED3BCE99C43F4F1F68477BE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578553   (345933) от 23.09.2022
 
 Don Ellis - A Simplex One (1960) 2002, Past Perfect [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -763,6 +647,128 @@ Gary Burton - Libertango (The Music of Astor Piazzolla) (1999) [APE|Lossless]<Ja
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580530   (343367) от 25.11.2012
+
+Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Nine
+02. Brand New Music
+03. Don't Cry for No Hipster
+04. At Least We Got to the Race
+05. Can We Talk
+06. In the Beginning
+07. It Don't Get No Better
+08. Dying Anyway
+09. Private Guy
+10. Reflections(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073562   (343249) от 17.11.2016
+
+Byron Wallen - Meeting Ground (2007) Twilight Jaquar[FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spirit of Bilal [04:23]
+ 02.Captive Caravan [05:52]
+ 03.Sailor of the Sands [03:57]
+ 04.Initiation [05:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626A844261C11275EA9050AF5C68D94C14F85E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073604   (343243) от 17.11.2016
+
+George Adams / Don Pullen Quartet - Earth Beams (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Earth Beams [07:59]
+ 02.Magnetic Love Field [04:38]
+ 03.Dionysus [07:33]
+ 04.Saturday Nite In The Cosmos [06:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89108FB3AF4C755815D37D7E115F701032A858C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073820   (343212) от 17.11.2016
+
+The Ed Palermo Big Band - One Child Left Behind (2016) Cuneiform Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cleetus Awreetus Awrightus [03:49]
+ 02.Dirty White Bucks (Palermo) [04:40]
+ 03.Spider of Destiny [02:37]
+ 04.Scarface (Moroder) [02:25](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CE95F485840BCA25A8B0179475DF6D7F358339
 ```
 
 https://mybot314.ru/tekegram_catalog/

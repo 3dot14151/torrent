@@ -1,3 +1,90 @@
+###  Публикация: 663567   (753017) от 01.06.2013
+
+Tristania - Darkest White (2013) Limited Edition [MP3|320 кб/с]<Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Number
+02. Darkest White
+03. Himmelfall
+04. Requiem(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA0179E56FB1B0E5E76BA16D9C2BCB7825D7564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216164   (751354) от 30.03.2018
+
+Mournful Congregation - The Incubus Of Karma (2018) [MP3|320 Kbps] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751354.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Indwelling Ascent
+2. Whispering Spiritscapes
+3. The Rubaiyat
+4. The Incubus Of Karma(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB169E99F03C96F8DEAA3A46A1ECBAAA8E0A659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216401   (751228) от 30.03.2018
+
+Airborn - Land Of The Living (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortal Underdogs (Intro) (1:26)
+ 02. Who We Are (3:51)
+ 03. Lizard Secret (4:38)
+ 04. We Realize (4:26)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F798AC850A2BFE5B9ABF84462EFF5BAB54A54DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019515   (750338) от 23.05.2016
 
 Clear Sky Nailstorm - The Inner Abyss (2016) [MP3|320 кб/с] <Thrash Metal, Heavy Metal>
@@ -651,93 +738,6 @@ The Lightbringer of Sweden - Rise of the Beast (2020) [MP3|320 Kbps] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F494DBE90889CD589FAB7DC62DA51EAE94825DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020521   (745467) от 26.05.2016
-
-Suicidal Angels - Division of Blood (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capital of War
-02. Division of Blood
-03. Eternally to Suffer
-04. Image of the Serpent(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9253FDFE0C93DCFBEDB2EB6E9A12E960BFB351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020515   (745466) от 26.05.2016
-
-Death Angel - The Evil Divide (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moth
-02. Cause for Alarm
-03. Lost
-04. Father of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1677218968FEEF6D1D0579633336925C3ABA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396639   (745356) от 16.07.2020
-
-U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemonium (5:27)
-02. We Are One (4:43)
-03. Love and Sin (7:12)
-04. Future Is the Reason Why (5:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EF88DBBE64A5FA3B937FF1700E9F9F06EDB18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1738408   (106310) от 23.07.2024
-
-Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Trance, Fusion, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Twilight [00:06:45]
-02. Chakra Dance [00:05:33]
-03. Spirit Rising [00:05:22]
-04. As the Eagle Flies [00:05:45](   Читать дальше...   )Жанр: Ambient, Trance, Fusion, New AgeПродолжительность: 2 CD, 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6967FA48EF8B7A19482940A48D355E3F6970A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747998   (104644) от 07.09.2024
 
 Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Tribal>

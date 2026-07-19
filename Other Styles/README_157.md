@@ -1,3 +1,177 @@
+###  Публикация: 1586962   (214647) от 28.10.2022
+
+Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy Yoga (03:55)
+02. Music for Spa Asian Relaxation (04:30)
+03. Music for Massage Breathe (02:55)
+04. Relaxing Meditation (02:15)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61968ABA954ADC455F650B6EB68A888B8BE1B16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085243   (214501) от 21.12.2016
+
+Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quickening [00:02:28]
+02. A Passing Storm [00:02:47]
+03. Good News [00:02:11]
+04. Rainfall Early Evening [00:02:45](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCDF8703705808D3DADA103E16F0402E0EB1C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085189   (214324) от 21.12.2016
+
+VA - Guitar Heroes (1997) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadows - (Lordan) - Apache - 2:54
+02. The Ventures - (M.Stevens) - Hawaii Five-O - 1:52
+03. Bert Weedon - (Smith) - Guitar Boogie Shuffle - 2:15
+04. The Tornados - (J.Meek) - Telstar - 3:20(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA420663C157BF2D2D4F3BD6B7294F9108A41C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469949   (214135) от 24.11.2020
+
+Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amethystium - Nightfall (4:24)
+02. Solace (4:40)
+03. Faraway (5:36)
+04. Outro (6:05)Жанр: New Age, AmbientПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4E016ADE73AEEBC1FDE0AA5903A0978241243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193712   (213996) от 23.12.2017
+
+VA - Latin Dance Aerobic Workout 2018 (2017) [MP3|320 Kbps] <Bachata, Merengue, Dancehall>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva – Summertime (Stephan F Remix) 4:19
+02. Danilo Orsini – Con To’ (Extended Mix) (Feat. Shainy El Brillante) 5:22
+03. Latin Workout – Chica Bella (Workout Mix) 3:03
+04. Dj Tao – Ona-Nana (Original Mix) 2:26(   Читать дальше...   )Жанр: Bachata, Merengue, DancehallПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BAAC5C8F2922CFC027B1E3C79EAD8C613AFF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831253   (212459) от 28.10.2025
+
+Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Choir, Ethnic>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212459.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Masters of Chant (25th Anniversary Tour Version Live)
+02. Scarborough Fair (25th Anniversary Tour Version Live)
+03. Hymn (25th Anniversary Tour Version Live)(   Читать дальше...   )Жанр: Choir, Ethnic |Продолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76765DB4638853443BBCDE5F6A2DCD133417198B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638591   (211916) от 09.06.2023
 
 Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] <Mantra>
@@ -569,180 +743,6 @@ VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD26CE5AED08709844A0E1CBE55B46F00894163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653530   (206187) от 16.08.2023
-
-Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort - Positive Transformation (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spa Music Consort - Pure Awareness (3:36)
-02. Yin Yoga Music Collection - Yoga Balance (2:59)
-03. Spa Music Consort - Relax Yourself (3:05)
-04. Interstellar Meditation Music Zone - Perfect Harmony (3:32)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3FC43F6E9A788F48670F85665FDB5C62B48764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653321   (206123) от 16.08.2023
-
-Goran Bregović - The Belly Button Of The World (2023) [FLAC|Lossless|tracks + .cue] <Balkan Ethno, World Music, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206123.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Belly Button Of The World (8:46)
-2. A Moment Of Melancoly (4:52)
-3. A Christian Tale (13:14)
-4. A Jewish Tale (11:49)(   Читать дальше...   )Жанр: Balkan Ethno, World Music, FolkПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F849F0491500A1DE49958CF40A71B701C534BFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653776   (206037) от 17.08.2023
-
-VA - Б. Рубашкин, И. Ребров•Звезды русской эмиграции (1999) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Б. Рубашкин - Казачок
-02. Б. Рубашкин - Два друга
-03. Б. Рубашкин - Моя Одесса
-04. Б. Рубашкин - Татьяна(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654716   (205013) от 22.08.2023
-
-VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Simon - Natalia (8:16)
-02. Mikhail Catan - Lucid Dream (6:30)
-03. Marga Sol - Hidden Tribes (A X L Remix) (5:36)
-04. Efrén Atienza - Apollonia (Stephane Salerno Remix) (6:03)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654724   (205011) от 22.08.2023
-
-VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Termos - La Serenissima (MI.LA Remix) (5:54)
-02. Wadd - Back (6:19)
-03. Marga Sol - Mirage (6:14)
-04. Yassine H - Pyramid Vibes (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611130   (202866) от 10.02.2023
-
-Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC 2.0|44.1/48/16/24|WEB-DL|tracks] <Film, Bandes originales de films>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (Main Theme) [00:02:37]
-02. D'amore si vive [00:03:00]
-03. Love Theme (Version 2) [00:02:48]
-04. Prima e dopo l'amore [00:01:57](   Читать дальше...   )Жанр: Film, Bandes originales de filmsПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645A5E2C1FD8884384B7E4ADCD413AECEFBBF354
 ```
 
 https://mybot314.ru/tekegram_catalog/

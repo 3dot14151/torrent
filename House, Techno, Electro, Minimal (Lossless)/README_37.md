@@ -1,3 +1,172 @@
+###  Публикация: 1232191   (602781) от 22.06.2018
+
+VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Laoss - Grinding Noise (07:40)
+ 02. Dublicator - Dawn (Sleepy Dub) (08:57)
+ 03. img_02 - Grey Pattern (06:03)
+ 04. Federsen - OSC2 (08:39)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31A1E02A1D806ADD6F8A9A0BBFE788A3D0FFA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298002   (602678) от 25.04.2019
+
+Hieronymus - Liquid Sky (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Sky (06:48)
+ 02. Foundation (06:27)
+ 03. Lock (07:03)
+ 04. Skin (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434277AC0F51613EB4CEE57C0C82872D2729BA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298005   (602660) от 25.04.2019
+
+Aura Minimum - Dual Aura (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Structural Lines (07:30)
+ 02. Structural LinesЖанр: Dub Techno, AmbientПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B78B4C0EE83495323BC26986DE85B244DF3C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298038   (602646) от 25.04.2019
+
+Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Jackets (6:27)
+ 02. Got To Be Love (4:42)
+ 03. Hollywood (7:14)
+ 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232284   (602331) от 23.06.2018
+
+Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mesmerize Me (4:30)
+ 02. Flight Flow (4:34)
+ 03. Velotrip (4:30)
+ 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914287   (600280) от 01.07.2015
+
+Robin Schulz - Headlights (The Remixes) (2015) [FLAC|Lossless|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headlights (feat. Ilsey)Жанр: House, Progressive HouseПродолжительность: 00:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E9EBFE8EB8B6349C3A5976D954750DDC4BA96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914272   (600186) от 01.07.2015
 
 VA - Fabric 82 (Mixed by Art Department) (2015) [FLAC|Lossless|WEB-DL]<House,Deep House, Tech House>
@@ -571,180 +740,6 @@ Arcane - Automaton (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Berlin-School, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D6C7D7757A2C86999342A907A399708928E35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300921   (587304) от 09.05.2019
-
-Emmanuel - Stamina EP (2019) ARTS / Darkmatter Inc. [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Only (05:39)
- 02. Confession (06:43)
- 03. Once In A Lifetime (04:59)
- 04. Stamina (05:02)Жанр: TechnoПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC85DD75348924DB96D55917C5820A6CD8894DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301107   (587301) от 09.05.2019
-
-9beats - The Dark Side Of Nature (2019) Annulled [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Vent (06:32)
- 02. Equilibrium (08:35)
- 03. Matter Creation (06:40)
- 04. Phreatic Eruption (08:08)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2498D25A900AEE6761DE3F85AC72DD9718C086D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918238   (586907) от 15.07.2015
-
-DJ Mixx - Check It Out (Euphoria Of Sound Guest Mix) (2012) [FLAC+cue|Lossless] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Moony - Acrobats (Looking For Balance) (T&F Vs. Moltosugo Club Mix) (2002)
-02-Bel Amour - Bel Amour (Milk And Sugar Club Mix) (2001)
-03-Kluster - I Feel Love (Original Club Mix) (2002)
-04-DJ Chus & David Penn Feat. Concha Buika - Will I (Discover Love) (Mediterranean Vocal Mix) (2004)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39A51B7B27EB815BFE8BA0EA3B678AE5A0D4572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040580   (586492) от 05.08.2016
-
-VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
-02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
-03. Third Son - Atonal Impression (original mix) [06:11]
-04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918781   (586008) от 16.07.2015
-
-Cio D'Or - All In All (2015) [FLAC|Lossless|WEB-DL]<Techno, Ambient, Experimental, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After And Before (01:20)
-02. Tomorrow Was Yesterday (07:07)
-03. Now And Then (02:43)
-04. Now Is Ever (05:56)(   Читать дальше...   )Жанр: Techno, Ambient, Experimental, MinimalПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBF6BB2B676A2C7D52889D6649FF03A938A181C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552901   (584751) от 23.05.2022
-
-VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584751.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:56] 01. Tinlicker - You Take My Hand
-[5:25] 02. Luccio - Try
-[3:29] 03. Rodg - Sola
-[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

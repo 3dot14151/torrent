@@ -1,3 +1,90 @@
+###  Публикация: 1861518   (1062435) от 30.03.2026
+
+VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Dream On (4:27)
+002. Fleetwood Mac - Go Your Own Way (2004 Remaster) (3:43)
+003. Tom Petty - Don't Do Me Like That (2:41)
+004. Eagles - Hotel California (2013 Remaster) (6:31)(   Читать дальше...   )Жанр: RockПродолжительность: 18:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F62341D78ABB239CFD82DA5EFCA53D6AED0BD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860861   (1062329) от 23.03.2026
+
+7Б - best (2001-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062329.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:17] . 01-Кино
+[4:23] . 02-Молодые ветра
+[3:28] . 03-Осень
+[4:43] . 04-Знаю! Будет!(   Читать дальше...   )Жанр: rockПродолжительность: 06:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFB3F7F9B710CE07C6F0EBB8315F72FE79BDB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860632   (1062027) от 
+
+Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062027.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:20] . 001-Алло, попс!
+[2:32] . 002-Девушки эмансипэ
+[3:54] . 003-Кассетный мальчик
+[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BCFE6E71AB08ABEC135791DB31F7A29CB29431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859613   (1061264) от 16.03.2026
 
 VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
@@ -658,93 +745,6 @@ VA - Music For You vol. 28 (2023) [MP3|320 Kbps] <Rock, Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34FEDC02318465F65C9CE4A145694E641E373FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607975   (1043553) от 31.01.2023
-
-Laura Cox - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Fire
-02. So Long
-03. The Australian Way
-04. One Big Mess(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1736954F147A5112310443E849B26B147EFCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608190   (1043529) от 31.01.2023
-
-Vanilla-Ninja - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Tattoo Unplugged
-02. Gotta Get it Right
-03. Kingdom Burning Down
-04. Tough Enough(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 02:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E960C25E9EF0759E0CEDA7D03A4D9E25C50632F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607787   (1043521) от 31.01.2023
-
-VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043521.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. George Michael – I Can’t Make You Love Me 5:21
-02. Ed Sheeran – Thinking Out Loud 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 05:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
 ```
 
 https://mybot314.ru/tekegram_catalog/

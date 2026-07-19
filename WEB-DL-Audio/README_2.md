@@ -1,263 +1,3 @@
-###  Публикация: 1665660   (181497) от 01.10.2023
-
-Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kombustio [00:03:48]
-02. Muistipalatsi [00:04:57]
-03. Vereen piirretty viiva [00:03:52]
-04. Utopia [00:04:29](   Читать дальше...   )Жанр: Progressive, Thrash, Heavy MetalПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665539   (181468) от 01.10.2023
-
-KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons Of The Sentinel [00:04:11]
-02. Strike Of The Viper [00:02:24]
-03. Reap The Whirlwind [00:03:34]
-04. One More Shot At Glory [00:04:27](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E288E367D0D2E502FC477F161088CF63C2B97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665581   (181450) от 01.10.2023
-
-Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Videotheque [00:03:50]
-02. Causeway [00:03:56]
-03. LA Dreamers [00:04:09]
-04. Fade Me Out [00:03:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665675   (181438) от 01.10.2023
-
-Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666041   (180753) от 02.10.2023
-
-Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Apocalyptic Waltz
-02 - Silver Bullets
-03 - Spawn of Hell
-04 - Flying Dutchman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26082B17B761D64110F33158E827A63FBA1B5931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666276   (180373) от 03.10.2023
-
-Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starring Role [00:03:57]
-02. Outside The Spiral [00:03:58]
-03. Privilege [00:04:21]
-04. As it Seems [00:04:36](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B1143EBF96FD5A1E405C988AC27F33010CF203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666207   (180360) от 03.10.2023
-
-Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Social Network
-02. Leeches
-03. Blanket Stealer
-04. One Up(   Читать дальше...   )Жанр: Death Metal, HardcoreПродолжительность: 00:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666054   (180285) от 03.10.2023
-
-YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire [00:03:04]
-02. Gravitation [00:03:33]
-03. Signal [00:03:35]
-04. Magnetism [00:03:31](   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD93CD5633F0EEDD62B57ECE5F536BB089227816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666004   (180178) от 03.10.2023
-
-Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, electropop, synthpop, disco, house, EDM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: Dance-pop, electropop, synthpop, disco, house, EDMПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666384   (179032) от 05.10.2023
 
 Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic, Doom Metal, Female Vocals>
@@ -519,35 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666892   (178341) от 06.10.2023
-
-Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed (6:01)
-02. The Skeleton Key (5:16)
-03. Rivers (4:59)
-04. Code of Life (6:15)(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C42A5E999C27C1080218F5FE7F6D264BD7DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666730   (178297) от 06.10.2023
 
 The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023, Rhino [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Hard rock, glam metal>
@@ -664,35 +375,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667709   (176145) от 09.10.2023
-
-Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleash (3:16)
-02. Flood (2:39)
-03. Drought (3:24)
-04. Descendants (3:29)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667700   (176141) от 09.10.2023
 
 Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
@@ -744,6 +426,325 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F29B637561F3A37A30BE3E68989557934AD24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667827   (176068) от 09.10.2023
+
+Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, Art Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Melty
+02 – Afternoon X
+03 – Brain Weather
+04 – Lotus Eater(   Читать дальше...   )Жанр: Indie Rock, Art PopПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926E72602D3692B7D225344840EEEE72F9843ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667932   (175455) от 10.10.2023
+
+Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Fire (3:40)
+02. Trendkiller (2:12)
+03. Misanthropic (2:59)
+04. Let the Napalm Rain (3:27)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43C1811093839ABBC69D686A85EE086A91DB282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668014   (175449) от 10.10.2023
+
+Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extremateam [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash / Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Join Hands (30th Anniversary Edition) [00:03:46]
+02. Child O' Boogaow (30th Anniversary Edition) [00:03:58]
+03. Displaced (30th Anniversary Edition) [00:04:21]
+04. Truth Hits Everybody (30th Anniversary Edition) [00:02:17](   Читать дальше...   )Жанр: Thrash / Groove MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9160494F048B6CFDC085E757413253A458F97D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667943   (175367) от 10.10.2023
+
+Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave This Storm (4:30)
+02. Vengeance Falls (4:14)
+03. Strife (4:29)
+04. No Way to Heal (4:06)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2337DCE919CDF85B0F206F7599BA1F7B4A505481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668017   (175328) от 10.10.2023
+
+Заточка - Острые края (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Острые края (4:50)
+02. Старый я (3:59)
+03. Дамы и господа (3:58)
+04. Братское сердце (3:09)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253F5417C05EF4DDC2915228512D39FD14AE552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667997   (175321) от 10.10.2023
+
+Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Cabaret Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ringmaster Has to Die [00:04:32]
+02. Clockwork God [00:04:26]
+03. Rats [00:03:13]
+04. Cholera [00:04:06](   Читать дальше...   )Жанр: Dark Cabaret MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1340F88A08569D9138EB509C75138F9238CC1D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667866   (175276) от 10.10.2023
+
+Arabs In Aspic - Arabs In Aspic - 4 Albums (2020-2022) [FLAC 24/44.1/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Madness and Magic
+2022 - Far out in Aradabia
+2022 - Progeria(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 4 CD, 02:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79EFF9A063CFAEFA91279D538DDB63EBF0B1304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668444   (174113) от 12.10.2023
+
+Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanc-Divided [00:03:51]
+02. Come Out Of Her [00:04:56]
+03. Eye Of The Hurricane [00:08:56]
+04. Sons Come To Birth [00:05:26](   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6BE4763BF603F1841D0AD24D92C9BD36FC4A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668283   (174097) от 12.10.2023
+
+Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive [00:03:32]
+02. Beautiful [00:03:31]
+03. Give Up [00:04:14]
+04. Exorcism [00:03:53](   Читать дальше...   )Жанр: Alternative Metal, Female VocalsПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903528549CE04CA1320BE4C22C5DD6A5BAD4F5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668447   (173960) от 12.10.2023
+
+John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Take 10 / Raw Studio Mix) [00:03:12]
+02. Crippled Inside (Take 6 / Raw Studio Mix) [00:03:50]
+03. Jealous Guy (Take 29 / Raw Studio Mix) [00:04:21]
+04. It's So Hard (Take 11 / Raw Studio Mix) [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668448   (173945) от 12.10.2023
+
+John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Elements Mix) [00:02:14]
+02. Crippled Inside (Elements Mix) [00:03:39]
+03. Jealous Guy (Elements Mix) [00:04:14]
+04. It's So Hard (Elements Mix) [00:00:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B5383F6E86C8D4C7AB8884962048B1C04B4D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

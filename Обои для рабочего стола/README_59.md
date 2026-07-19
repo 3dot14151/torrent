@@ -1,29 +1,3 @@
-###  Публикация: 1251114   (420035) от 30.09.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (120) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DD2EE78D1E7732EA94972B2A5A453DAE8E0FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947357   (419902) от 16.10.2015
 
 Обои - Ultra HD (4K) Mix 2 [JPG]
@@ -634,32 +608,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559677   (406624) от 15.10.2012
-
-[Wallpapers] Обои для рабочего стола (Авто)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразные авто от ретро до современных спорткаров.Так же бизнес класс,джипы и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F640ADF7D07D577ECF8DCFE9E131CC2213F936E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 217739   (406612) от 06.10.2020
 
 Обои для рабочего стола - Space Photos [JPG]
@@ -679,6 +627,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D86DA3B0727302335D7464F4F0A2104D7561916A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561577   (406163) от 17.10.2012
+
+[Wallpapers] HDR Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406163.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HDR Wallpapers
+Название: HDR Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0C393F4FB5DF423340E9A861DE9229937D14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561437   (406158) от 17.10.2012
+
+Wallpaper & Pictures: 3D Art Wallpapers: Collection#1 [Графика]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpaper & Pictures: 3D Art Wallpapers: Collection#1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF28F3C5F38202C67CAC21EFE1A184480760A55E
 ```
 
 https://mybot314.ru/tekegram_catalog/

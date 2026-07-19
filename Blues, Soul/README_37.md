@@ -1,3 +1,61 @@
+###  Публикация: 1599094   (160143) от 22.12.2022
+
+Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Winter Blues [09:12]
+02. Catfish Blues [05:15]
+03. Grinning (Live) [05:03]
+04. Smokestack Lightning (Live) [04:11](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350E8F4C087CF7CC4D0B2DE10992090994C5F0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967329   (158716) от 20.12.2015
+
+Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Glimpse of Joy (02:56)
+02. Why Did I Do It (03:47)
+03. Angel of Dreams (03:16)
+04. Going Down That Road (04:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BCEE6D37D7D83F2EF390C1408A89277C7BA049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967440   (158482) от 21.12.2015
 
 Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
@@ -706,66 +764,6 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593498   (134862) от 24.12.2012
-
-Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-2008 - Treat Me Right
-
-2010 - Back In The FireЖанр: BluesПродолжительность: 01:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593441   (134778) от 24.12.2012
-
-Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1997 - The Search Is Over
-
-2005 -  Let It Go!Жанр: BluesПродолжительность: 01:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C638445EF08A0A7FDA009E34EA872B95260198
 ```
 
 https://mybot314.ru/tekegram_catalog/

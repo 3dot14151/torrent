@@ -1,3 +1,90 @@
+###  Публикация: 1375508   (865732) от 14.04.2020
+
+Kraniall - Infected Faith (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Pray
+03. Obedience
+04. Infected Faith(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8782EB227CA5DA5DB4082155B718D2303384729D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375560   (865626) от 14.04.2020
+
+Serious Black - Suite 226 (2020) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Let Me Go
+02	When The Stars Are Right
+03	Solitude Étude
+04	Fate Of All Humanity(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C03B90D5404E26930302239EFF6D609E4274C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108015   (864644) от 24.02.2017
+
+Trollfest - Helluva (2017) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864644.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Is Just The Intro
+2. Professor Otto
+3. Spelunking Sisters
+4. Gigantic Cave(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BAECEBFE29F28116D39E4A6707784B5CAD769F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999433   (864508) от 22.03.2016
 
 Amon Amarth - Jomsviking (2016) [MP3|320 кб/с] <Melodic Death Metal>
@@ -658,92 +745,6 @@ Nox Vorago - Al Chem (2017) [MP3|320 Kbps] <Progressive Metal, Sympho Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A74A1EC5BCD1C9E8E80933F1DFBB45EA716DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001088   (855817) от 27.03.2016
-
-Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Veterans Of The Apocalypse
-2. The Path
-3. Fire And Ice
-4. Through The Pain(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660A89F36D961E72C211CDC2B1B542AF5AF8C2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376848   (855198) от 20.04.2020
-
-In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855198.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - In Dying Arms (Remake 2017)
-2012 - Boundaries
-2016 - Original SinЖанр: Deathcore, MetalcoreПродолжительность: 02:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110433   (853773) от 02.03.2017
-
-Blaze Bayley - Endure and Survive (Infinite Entanglement Part II) (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endure and Survive
-02. Escape Velocity
-03. Blood
-04. Eating Lies(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3465DA3D3EC2664F9BB281F3A29000DC5BF2F53F
 ```
 
 https://mybot314.ru/tekegram_catalog/

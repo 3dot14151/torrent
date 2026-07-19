@@ -1,3 +1,32 @@
+###  Публикация: 1791200   (21550) от 13.04.2025
+
+VA - Mega Hits 2025 - Top Charts & Radio Songs 11.04.2025 (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Jazeek - AKON - (02:18)
+ 002 - Oimara - Wackelkontakt - (02:49)
+ 003 - FiNCH - WENN DU DUMM BiST - (02:43)
+ 004 - Lady Gaga - Abracadabra - (03:43)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 05:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AE8A79E9986AAA564D4ADE6963249D13F64C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791360   (21525) от 13.04.2025
 
 VA - 90s Greatest Hits (2007) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop, Europop>

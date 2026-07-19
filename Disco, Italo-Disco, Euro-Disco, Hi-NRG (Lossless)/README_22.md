@@ -1,3 +1,90 @@
+###  Публикация: 1193861   (213915) от 23.12.2017
+
+VA - Euro Disco - The Lost Legends Vol. 6 (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, 80's>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Freaky – May Day Love (03:57)
+02. Go To – Girl Of The 80's (07:03)
+03. Martinique – Fantastic Life (05:25)
+04. L'Affair – Don't Fly Away (03:49)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, 80'sПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EF6ABB3B5BEA4A840C1A8B163B24F17F327D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639215   (211615) от 12.06.2023
+
+New Baccara - Fun (1990) 2023 Reissue, Remastered [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun
+02. Fantasy Boy (Radio Mix)
+03. Say A Little Prayer
+04. Touch Me (Radio Mix)(   Читать дальше...   )Жанр: Dance, Euro-DiscoПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB562C1B38F464BA3A6EFFCE66962ACB8A61FD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639926   (211356) от 15.06.2023
+
+V.A. - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD [FLAC|Lossless|tracks] <Italo-Disco, Spacesynth, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211356.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Italo Emotion - My Dreams (Synthesis Remix)
+02. Paralyze - Wonders Of Space
+03. DJ CON-T - First Contact(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Synthwave |Продолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2C02D3AC591648CB4806B98FAE66A20ED4463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612634   (207212) от 16.02.2023
 
 Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
@@ -655,93 +742,6 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|image + .cue] <Disco, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97ABE0BD26FBBB68C5FEC381A134E453948AE8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345429   (167024) от 14.12.2019
-
-Modern Talking - Maxi & Singles Collection (2019) 3CD, Dieter Bohlen Edition [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. You're My Heart, You're My Soul (12' Version)
-02. Lucky Guy (Ryan Simmons, Special-DJ-Mix)
-03. You Can Win If You Want (Special Dance Version)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco |Продолжительность: 04:02:32 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F57C330EA155400FA3452ED54CFB3D2B692819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673506   (165091) от 01.11.2023
-
-MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SEX
-2. Шишки (Колбасный Цех 3)
-3. Колбасный Цех 2
-4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598217   (163934) от 17.12.2022
-
-Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder'ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами, (   Читать дальше...   )1. If You Feel It (4:40)
-2. Floating (6:34)
-3. Love & Passion (6:02)
-4. feat. Jeanie Tracy - Low Down Dirty Rhythm (7:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

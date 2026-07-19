@@ -1,64 +1,3 @@
-###  Публикация: 640261   (889498) от 06.04.2013
-
-Baptiste Giabiconi & Marie Mai - La-Bas (2013) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E52865C839080350516150E168CC6DDEE155676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296721   (889479) от 17.02.2011
-
-VA - Car Audio Vol.7 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - Disco Inferno (Dj Hoang Anh Remix) (4:41)
-02. Aaron Smith Vs. Tom Novy - Dancin' Now Or Never (Malibu Breeze Mashup) (5:51)
-03. Alexis Jordan - Good Girl (Freemasons Club Mix) (8:47)
-04. Andrew Spencer feat. Pit Bailay - Can't Stop Love (Extended Mix) (5:16)
-05. Armin van Buuren feat. Sharon den Adel - In & Out Of Love 2011 ( Kenny Hayes Blue Sphere Remix) (7:58)
-06. Big Ali & Stromae - Alors on Danse 2011 (Jay Acid Remix) (4:57)
-07. Black Eyed Peas - Boom Boom Pow (Energy Makerz Remix) (4:41)
-08. Black Eyed Peas vs. ZAM - The Time (Rollin Stars Private Bootleg) (5:31)
-09. Bon Jovi - It's My Life 2k11 (Phobia & Shaker Bootleg Mix) (6:09)
-10. Boney M - Daddy Cool (Chris Moody & DJ Riz Remix) (5:48)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE6D07147AD672E52FBB34655285520297F85FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296990   (889475) от 17.02.2011
 
 ASiE - Скованные льдом (2010) [MP3|256-320 kbps]<Club, Blues, Acoustic, Pop, Other, Electro House, Progressive House>
@@ -719,6 +658,61 @@ Mirror for Samsung TV 1.3.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2859AF174B9D3BEDACEFE8CBA894092D8B6CF9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102706   (889322) от 10.02.2017
+
+Metrik - Life/Thrills (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi! [03:41]
+02. Chasing Sunrise (feat. Elisabeth Troy) [04:12]
+03. Life/Thrills (feat. NAMGAWD) [03:56]
+04. Worldwide [04:15](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED81F63F26F54D9DE4C327F7CD1568FB8A011E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184776   (889298) от 20.03.2010
+
+Пираты ХХ века (1979) DVD9
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский сухогрузный корабль перевозил большой груз опиума для фармакологической промышленности. Современные пираты, охотившиеся за ценным грузом, коварством завладели кораблем и экипажем. Чтобы не осталось свидетелей этого разбойного нападения, пираты попытались уничтожить всю команду корабля. В океанских просторах разыгралась напряженная борьба между горсткой (   Читать дальше...   )Производство: СССР / Киностудия имени М. ГорькогоЖанр: Боевик, триллер, криминал, приключенияРежиссер: Борис ДуровАктеры: Николай Ерёменко мл., Пётр Вельяминов, Талгат Нигматулин, Рейн Арен, Дилором Камбарова, Наталья Хорохорина, Майя Эглите, Тадеуш Касьянов, Павел Ремезов, Виктор Жиганов, Виктор ГордеевСубтитры: 13 шт. (см. скриншоты меню)Продолжительность: 01:19:53
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

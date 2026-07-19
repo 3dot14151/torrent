@@ -1,84 +1,3 @@
-###  Публикация: 361988   (575124) от 11.07.2011
-
-VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43C233F6C266048710315343ACF40CE422A8D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361992   (575089) от 11.07.2011
-
-VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПопПродолжительность: 12:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043009   (574790) от 15.08.2016
-
-VA - Super Dance Party Vol.3 (2016) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lana Del Rey - Summertime Sadness (DJ Favorite & DJ Kharitonov Radio Edit)
-02. Calvin Harris & Rihanna - This Is What You Came For (Denis First Radio Edit)
-03. Jahkarta - Never Seen The Sun (Denis First Radio Edit)
-04. Galantis - No Money (Denis First Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF678D0638C62F94ED68BE5E8517C8A05A113778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527515   (574735) от 27.07.2012
 
 VA - 100 Лучших хитов от Русского радио Спецвыпуск летний (2012) [MP3|256 кб/с]<Pop>
@@ -748,6 +667,93 @@ VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9992B071FFC534106E660D9C0291E058357B39EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151913   (570357) от 20.07.2017
+
+DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ.Amure - Пусть всегда будет солнце
+02. DJ.Amure - Песенка кота Леопольда
+03. DJ.Amure - Дважде два четыре
+04. DJ.Amure - Ералаш(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 05:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4522C624EED06DCA3FDA7E982BB7A42F9C8D6C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151726   (570229) от 20.07.2017
+
+VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rag'n'bone Man - Human 03:21
+02. Kda Feat. Tinashe - Just Say 03:22
+03. Mahmut Orhan Feat. Sena Sener - Feel 02:54
+04. The Chainsmokers Feat. Halsey - Closer 04:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE72038F045188A150714EC9E6067AA347B4FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303698   (570080) от 22.05.2019
+
+Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voulez-Vous Danser
+02. Never Gonna Say I'm Sorry
+03. Lucky Love
+04. The Sign(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6D9AFB4368001E1CBC5AC3C5D526A60A82FD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

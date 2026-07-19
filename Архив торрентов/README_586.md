@@ -1,31 +1,3 @@
-###  Публикация: 1366217   (925893) от 10.03.2020
-
-OmniFocus Pro 3.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
-
-Интерфейс OmniFocus создан «с чистого листа» и ориентирован на (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21FEC664D616FEB20D083DF680675CF8D95BD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366081   (925892) от 10.03.2020
 
 Usher 2.0 beta  [En]
@@ -684,6 +656,35 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666405450B82362D310A26D24A78F18938D03163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366248   (925740) от 10.03.2020
+
+$uicideBoy$ - Stop Staring at the Shadows (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 01 All Dogs Go to Heaven (2:34)
+02. I Wanna Be Romanticized (2:14)
+03. One Last Look at the Damage (1:38)
+04. {whispers indistinctly} (2:45)(   Читать дальше...   )Производство: G59 RecordsЖанр: Hip-Hop, TrapПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA74031D8250D733A8996D91D3B8B4725A312C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

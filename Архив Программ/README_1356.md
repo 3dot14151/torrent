@@ -1,3 +1,29 @@
+###  Публикация: 1576960   (361462) от 16.09.2022
+
+LibreOffice 7.4.1.2 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361462.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E7BD7B70435352378FF00445BC9F9990EA47CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576930   (361461) от 16.09.2022
 
 Celemony - Melodyne Studio 5.3.0.011 STANDALONE, VST 3, AAX (x64) Repack by R2R [En]
@@ -649,32 +675,6 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2A95F3BCA28BE70BBE527E41A3D21F63FB1FB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576075   (360810) от 18.11.2012
-
-Microsoft Desktop Optimization Pack for Software Assurance 2012 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Microsoft Desktop Optimization Pack (MDOP) — это набор технологий, доступных клиентам программы Software Assurance по подписке. Пакет MDOP помогает улучшить совместимость и процесс управления (App-V/MED-V/UE-V), сократить затраты на поддержку (DaRT) и обеспечить более полный контроль над политиками (MBAM/AGPM).Название программы: Microsoft Desktop Optimization Pack for Software AssuranceЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

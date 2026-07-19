@@ -1,119 +1,3 @@
-###  Публикация: 1197491   (815918) от 07.01.2018
-
-Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Graz [06:13]
-02. BC [05:14]
-03. Biru Kirusai [05:27]
-04. Dark Blue [08:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC456B9BEC8B9BE354687A3F16B1901E03BB166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197410   (815916) от 07.01.2018
-
-Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Membran [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' [02:22]
-02. Tears of a Clown [05:32]
-03. That Girl [06:06]
-04. Grand River Crossings I [00:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A52C12BCFC22B0ACB4B1A5D851620A62CC2DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197406   (815912) от 07.01.2018
-
-Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stablemates [06:01]
-02. Portrait Of Jennie [07:40]
-03. There Will Never Be Another You [07:06]
-04. Getting Sentimental Over Blue [07:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA1D3BC57BE427ECA2D301D9E29079B7A071222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197485   (815817) от 07.01.2018
-
-Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love For Me [07:44]
-02. The Bee Hive [09:11]
-03. Eddie Harris [06:20]
-04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008590   (815794) от 18.04.2016
 
 Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -743,6 +627,122 @@ Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7CAA1CA19F7A78EEBD9E7EC4A718DD50C9C454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197655   (812029) от 09.01.2018
+
+The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Blue Gown [03:50]
+02. Sweetness [04:51]
+03. Bourbon Street Parade [05:26]
+04. Cornbread Peas & Black Molasses [03:49](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EDA350CEBDECF573633C08A8D8E7363E5C1FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118865   (811823) от 26.03.2017
+
+Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There It Is (4:17)
+02. All Too New (7:01)
+03. Lush Life (6:16)
+04. Like Someone In Love (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB2F1301C8D2394C1410EE3CD3AFFF3DC628B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118677   (811820) от 26.03.2017
+
+Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811820.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Cheek To Cheek [03:17]
+02.Let's Face The Music And Dance [02:29]
+03.Let's Calle The Whole Thing Off [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance Band, Easy ListeningПродолжительность: 03:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E43DC6831CFF5F0979C7C1BD2C7E94B4529E263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118712   (811814) от 26.03.2017
+
+Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC|Lossless|tracks + .cue] <Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Miss You (8:39)
+02. Ebony Woman (3:41)
+03. Yesterday I Had The Blues (7:34)
+04. If You Don't Know Me By Now (3:28)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF492ECFF10AF2203A507DB11233573330DFA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

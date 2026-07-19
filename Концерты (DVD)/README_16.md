@@ -1,182 +1,3 @@
-###  Публикация: 256639   (48832) от 26.07.2024
-
-Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48832.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом благотворительном концерте в пользу  слепых в центре Джеймса Л. Найта в Майами, штат Флорида, Рэй Чарльз исполняет все свои классические произведения и радует публику соло на саксофоне и дуэтом со специальной гостьей, обладательницей премии «Грэмми» джазовой вокалисткой Дайаной Шур.
-Концерт состоялся 27 января 1981 в Канаде01. I Got A Woman
-02. A Song For You
-03. It Hurts To Be In Love
-04. Georgia On My Mind(   Читать дальше...   )Жанр: Jazz, Blues, SoulРежиссер: John BlanchardАктеры: Ray CharlesПеревод: ОригинальныйЯзык: АнглийскийПродолжительность: 01:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F62803628E9B3BE0040AAB31B9C9B635E4F4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727485   (48819) от 26.07.2024
-
-Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48819.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот двойной DVD вошла полная запись (два с половиной часа) концерта в Дюссельдорфе, посвящённого 25-летию сценической деятельности Доро. Певица вышла на сцену вместе с такими "гостями", как Klaus Meine & Rudolf Schenker (The Scorpions), Tarja Turunen (ex-Nightwish), Bobby Blitz (Overkill), Warrel Dane (Nevermore), Axel Rudi Pell, Chris Boltendahl (   Читать дальше...   )The Documentary
-01. Intro
-02. From Concept To Creation
-03. Soundcheck(   Читать дальше...   )Жанр: Heavy MetalСубтитры: Немецкие, английскиеФормат: DVD videoКачество: DVD9Продолжительность: 02:36:45 + 02:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713EB98420AC447E4CF0C4FC4E8DE1A5A9C98656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433   (48740) от 27.07.2024
-
-АлисА - LIVE! Мы вместе 20 лет (2003) DVD9
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный альбом легендарной группы "Алиса", 15 ноября 2004 года записанный на юбилейном выступлении "Алиса: XX лет" в Санкт-Петербурге. Лучшие песни за двадцатилетнюю историю группы! Настоящий рок-н-ролльный драйв, мощная энергетика живого концерта.live
-01. Intro
-02. Родина
-03. Земля(   Читать дальше...   )Жанр: концертКачество: DVD9Продолжительность: 2 час. 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D78589FE13FBB7D375FF005FB9D0A6BE3EC544A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40239   (48727) от 27.07.2024
-
-Алиса - Звезда по имени рок(2007) DVD Video
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48727.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 ноября 2005 года на МСА «Лужники» состоялось грандиозное событие – презентация альбома «Изгой».
-Конечно, описать словами то, что происходило в тот день в «Лужниках», сложно. А теперь, пожалуй, и не нужно – все желающие сами смогут увидеть концертную презентацию «Изгоя»!01. Intro
-02. Шабаш
-03. Черный
-04. Антихрист(   Читать дальше...   )Жанр: RockКачество: DVD9Продолжительность: 01:55:59 + 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B255BFD054697B02E8D4C9599AD05116BAF96C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257565   (48713) от 27.07.2024
-
-Фил Коллинз - Прощальный тур / Phil Collins: Finally... The First Farewell Tour (2005) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный как по песенному материалу
-(сплошные хиты: In the Air Tonight, Another Day in Paradise, You Can't Hurry Love,...),
-так и по энергетике концерт.01. Drums, Drums & More Drums
-02. Something Happened On the Way to Heaven
-03. Against All Odds
-04. Don't Lose My Number(   Читать дальше...   )Язык субтитров: English, Spanish, German, French, Italian, Dutch, PortugueseПродолжительность: 323 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88341   (47513) от 08.08.2024
-
-Whitesnake - Live In The Still Of The Night (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whitesnake — британо-американская рок-группа, играющая хард-рок с блюзовыми элементами, созданная в 1977 году Дэвидом Ковердэйлом, вокалистом распавшихся в 1976 году Deep Purple.
-Состав на настоящее время: David Coverdale, Doug Aldrige, Reb Beach, Timothy Drury, Uriah Duffy, Chris Fraizer1. Burn
-2. Bad Boys
-3. Love Ain"t No Stranger
-4. Ready An" Willing(   Читать дальше...   )Жанр: РокПродолжительность: 01:43:01 + 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D719AEC08B0124EBEE276E1AEADF6B9B53AC2F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 378017   (47500) от 08.08.2024
 
 VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
@@ -749,6 +570,178 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEB96D758998E9C62EE01F0835C1642089042C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274721   (46880) от 14.08.2024
+
+Deep Purple: Live In California 1974 (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple - Live In California 74 это пожалуй самый грандиозный концерт культовой группы Deep Purple ??!!!
+Видеокассета VHS "California Jam, April 6th 1974" увидела свет в Великобритании в 1981 г. , потом выпушена там же в 1984 и 1991 годах. В США она была издана в 1983 году под другим названием "Live At The California Jam". В Японии, были выпушены (   Читать дальше...   )1. Burn
+2. Might Just Take Your Life
+3. Lay Down Stay Down
+4. Mistreated(   Читать дальше...   )Жанр: Hard rockФормат: DVD VideoПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583269   (46786) от 15.08.2024
+
+Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 124408   (46685) от 16.08.2024
+
+Eurythmics Ultimate Collection  (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
+</div>
+
+
+###  Подробнее
+
+. . . Eurythmics" получили признание, благодаря качеству своих песен и сумели остаться фаворитами в средствах информации. Леннокс - одна из наиболее визуально поразительных женских исполнителей, с голосом редкого качества.
+
+. . . Энни Леннокс можно с полным основанием назвать одной из ведущих певиц Великобритании восьмидесятых годов. Концерты Eurythmics - это, (   Читать дальше...   )Жанр: РокПеревод: ОригинальныйПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206735   (46684) от 16.08.2024
+
+Dire Straits - Rockpalast (1979) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
+</div>
+
+
+###  Подробнее
+
+This FULL DIGITAL RECORDING & NOT RE-ENCODED torrent comes from a RE-BROADCAST (APRIL 27/28, 2007)
+FULL DIGITAL RECORDING & NOT RE-ENCODED01. Down To The Waterline
+02. Six Blade Knife
+03. Once Upon A Time In The West
+04. Lady Writer(   Читать дальше...   )Жанр: RockРежиссер: 1Festival (Germany)В ролях: Mark Knopfler: Guitar, Vocals
+David Knopfler: Guitar, Vocals
+John Illsley: Bass, Vocals
+Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжительность: 01:24:43 + 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589698   (46678) от 16.08.2024
+
+Metallica - Quebec Magnetic (2012) DVD9+DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 октября и 1 ноября 2009 года у группы Metallica состоялись два концерта в рамках тура “World Magnetic” в городе Квебек. Всего на оба вечера было продано свыше 33 тысяч билетов. Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Так же стоит отметить, что за данный выпуск проголосовало более 35 (   Читать дальше...   )Производство: Universal MusicЖанр: Thrash MetalРежиссер: Wayne IshamСубтитры: ОтсутствуютПродолжительность: 02:14:52+00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 14176   (46669) от 16.08.2024
+
+METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот концерт, отыграный в Форте Ворс, Техас, в мае 1997 года, пришёлся на "золотой период" группы. Тогда музыкантами впервые была опробована новая концепция живого выступления - концерт на арене. В плейлисте были отыграны классические теперь композиции как со свежих на тот момент альбомов Load/Reload, Black Album, так и с ранних трэш-скрижалей - Ride The (   Читать дальше...   )01 - So What
+02 - Creeping Death
+03 - Sad But True
+04 - Ain't My Bitch(   Читать дальше...   )Жанр: Thrash MetalУчастники: Lars Ulrich - ударники, James Hetfield - гитара, вокал, Kirk Hammett - гитара, Jason Newsted - бас-гитара, бэк-вокалФормат: DVD videoКачество: DVD9Продолжительность: 01:57:53 + 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C8252A9AAF282EDCACFC64AED6E44111121AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

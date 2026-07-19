@@ -1,3 +1,119 @@
+###  Публикация: 1403723   (688561) от 21.08.2020
+
+The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday's Gone
+02. Beekeeper's Daughter
+03. Fast And Slow
+04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403642   (688449) от 21.08.2020
+
+The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Soul’s Warning (04:34)
+02. Blowback (03:59)
+03. Dying Breed (04:06)
+04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289284   (686756) от 16.03.2019
+
+Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Painter
+02. Counterfeit
+03. Hard To Be Alone
+04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289324   (686749) от 16.03.2019
+
+Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year of the Tiger (3:41)
+02. The Great Beyond (4:50)
+03. Blind Faith (4:29)
+04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD9211D31FED457534B77350323C50844D045EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289463   (686743) от 16.03.2019
 
 Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Psychedelic Rock>
@@ -620,137 +736,6 @@ Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D77999CF56738BC662A4F18F75C59DFB57832EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473438   (676223) от 11.06.2012
-
-Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative Rock, Industrial, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Hyperpower!  	1:42
-02. 		The Beginning Of The End 	2:47
-03. 		Survivalism  4:23
-04. 		The Good Soldier 	3:23
-05. 		Vessel 	4:52
-06. 		Me, I'm Not  	4:51
-07. 		Capital G  	3:50
-08. 		My Violent Heart 	4:13
-09. 		The Warning 	3:38
-10. 		God Given 	3:50(   Читать дальше...   )DVD-Rom contains the entire album Year Zero in the following multi-track formats:
--Garageband
--Ableton Live
--Generic wave files at 16 bit 44k
-
-Данный диск, больше подойдёт любителям соченять музыку......
-DVD-ROM включает в себя исходный материал всех композиций альбома «Year Zero» для ремикширования при помощи музыкального программного обеспечения  GarageBand  и Ableton Live . Также на диске представлены демоверсия Ableton Live и отдельные семплы в формате WAV (44100 Гц) для использования в других программах как Cakewalk Sonar  или  Pro Tools.
-
-Для любителей, это уникальный материал....
-(   Читать дальше...   )Жанр: Alternative Rock, Industrial, ExperimentalПродолжительность: 01:11:17 / DVD-Data 7,49гб
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136307   (674492) от 22.05.2017
-
-Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Break The Fall (3:11)
- 02/10. Crooked Teeth (3:04)
- 03/10. My Medication (3:15)
- 04/10. Born For Greatness (3:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289749   (674453) от 22.03.2019
-
-Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psychedelic, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hallboy
-02 - Bottom Step
-03 - I Sink I Sink
-04 - Water(   Читать дальше...   )Жанр: Indie-Pop, Psychedelic, ShoegazeПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2669C64454BE35BBA5986BFD78FABC66BED35A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136703   (670766) от 24.05.2017
-
-Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live At Fillmore Detroit) (1:12)
-02. Face Everything And Rise (Live At Fillmore Detroit) (3:18)
-03. Getting Away With Murder (Live At Fillmore Detroit) (4:00)
-04. Between Angels And Insects (Live At Fillmore Detroit) (4:18)(   Читать дальше...   )Жанр: Alternative Rock |Продолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
 ```
 
 https://mybot314.ru/tekegram_catalog/

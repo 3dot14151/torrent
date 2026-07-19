@@ -1,3 +1,32 @@
+###  Публикация: 1215205   (759833) от 25.03.2018
+
+VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
+02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
+03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
+04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018015   (759271) от 18.05.2016
 
 Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
@@ -719,35 +748,6 @@ VA - Q-Music Top 500 van de 90's Box (2013) 6CD [MP3|320 Kbps] <Pop, Rock, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1116473E1EA9AF9C8C0BC46A2B6FE9C6903B2FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524463   (743763) от 16.01.2022
-
-Amy Holland - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Soft Rock, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эми Холланд (Amy Celeste Boersma, US) была удостоена номинации на премию "ГРЭММИ" за лучшую новую исполнительницу после своего дебютного одноименного альбома. Сингл ''How Do I Survive'' взлетел в топ-20 чартов Billboard и вывел Эми на первое место.01. How Do I Survive (4:03)
-02. Strengthen My Love (4:01)
-03. Here In The Light (4:01)
-04. Stars (4:28)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, DiscoПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D6A235B9792F02E47AF7C06ADAF1641619C25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

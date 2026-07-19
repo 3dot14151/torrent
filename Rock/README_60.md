@@ -1,32 +1,3 @@
-###  Публикация: 1067310   (408380) от 28.10.2016
-
-Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| It Never Rains In Southern California   (04:03) 
-  02| I'm A Train   (03:47) 
-  03| When I Need You   (04:40) 
-  04| Give A Little Love   (04:15) (   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559282   (408232) от 13.10.2012
 
 Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
@@ -773,6 +744,35 @@ Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A694B171FB6D954BE6D2A2313B0F04C17555200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173739   (389627) от 12.10.2017
+
+Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The May Queen
+02. New World...
+03. Season's Song
+04. Dance With You Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D686E2F7A4AF8BB1238D30CEA43B1CCDD4893A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1666366   (179240) от 04.10.2023
+
+Microsoft Visual C++ 2015-2022 Redistributable 14.38.33126.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распространяемый компонент Visual C++ устанавливают компоненты среды выполнения, необходимые для выполнения приложений C++, которые разработаны с помощью Visual Studio.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EB042FE2AB9B1ECB3E66E2E07843441FA54604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666385   (179235) от 04.10.2023
 
 Microsoft  Visual C++ Runtimes AIO v0.76.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
@@ -648,32 +674,6 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C797A336CC345FE72C260A6D856E349131DD2756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428697   (179027) от 03.12.2020
-
-4K Stogram 3.2.2.3440 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179027.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram - это программа для просмотра и скачивания файлов из Instagram для PC. Скачивайте фотографии, видео, stories из публичных и приватных аккаунтов ваших друзей, выполняйте резервное сохранение своих постов и импортируйте список Instagram-подписок.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE1ED755FADD738A82AEC99A8A70E9F8F16BD57
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1151913   (570357) от 20.07.2017
-
-DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ.Amure - Пусть всегда будет солнце
-02. DJ.Amure - Песенка кота Леопольда
-03. DJ.Amure - Дважде два четыре
-04. DJ.Amure - Ералаш(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 05:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4522C624EED06DCA3FDA7E982BB7A42F9C8D6C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151726   (570229) от 20.07.2017
-
-VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rag'n'bone Man - Human 03:21
-02. Kda Feat. Tinashe - Just Say 03:22
-03. Mahmut Orhan Feat. Sena Sener - Feel 02:54
-04. The Chainsmokers Feat. Halsey - Closer 04:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72038F045188A150714EC9E6067AA347B4FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303698   (570080) от 22.05.2019
-
-Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voulez-Vous Danser
-02. Never Gonna Say I'm Sorry
-03. Lucky Love
-04. The Sign(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6D9AFB4368001E1CBC5AC3C5D526A60A82FD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922323   (569817) от 28.07.2015
 
 VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Pop>
@@ -763,6 +676,93 @@ VA - Disco Cruiser Invasion (2016) [MP3|308~320 Kbps] <Pop, Disco, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578052AF8F0C91EFF5BAB03C5EE8A517826EF373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044536   (563584) от 21.08.2016
+
+VA - Summer Hit Party (2016) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Wonder - Without You
+02. Uppermost Feat. Jessica Gabrielle - Whisper
+03. Martin Garrix - Bouncybob
+04. Rasmus Skott - Acted Show(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D33A63AAF4D0A11E55D8EC318211EF32280849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152792   (563285) от 24.07.2017
+
+VA - German Top 100 Single Charts 24.07.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563285.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Imagine Dragons – Thunder
+003. Robin Schulz – OK (feat. James Blunt)
+004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F2B8B6F2B01FC5ED84D84F2D39C317A670420C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152762   (563010) от 24.07.2017
+
+VA - Unknown 80's (part VIII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geisha - Calling Your Name - 1987
+02. Safe Sex - Bad Manners (Disco Action Mix) - 1987
+03. Costas Charitodiplomenos - Pictureless - 1984
+04. Mariana - Talk About Love - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058E70651E2F53BA572C478658EFD421415D0D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

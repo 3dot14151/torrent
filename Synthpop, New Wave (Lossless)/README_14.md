@@ -1,32 +1,3 @@
-###  Публикация: 818892   (531310) от 08.09.2014
-
-And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержимое релиза:
-16 альбомов
-17 синглов
-6 EPЖанр: EBM, SynthpopПродолжительность: 27:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C6954D510E08295D19C0C04A12C143B7A012A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559756   (523488) от 26.06.2022
 
 VA - Summer In Space Vol. 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
@@ -774,6 +745,35 @@ Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547D85F53D1AA19A4045439BCDCC3657B3813DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407626   (462431) от 09.09.2020
+
+VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Rein - Angel 07 (4:16)
+02. Octolab - Samurai (Did You Ever Dream) (4:14)
+03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
+04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

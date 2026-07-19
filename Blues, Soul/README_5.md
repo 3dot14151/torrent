@@ -1,3 +1,61 @@
+###  Публикация: 1002983   (845283) от 02.04.2016
+
+The Dana Fuchs Band - Lonely for a Lifetime (2003) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strung Out (04:21)
+02. Lonely For A Lifetime (04:12)
+03. Moment Away (03:56)
+04. Songbird (Fly Me To The Top) (04:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FED7986E1BEB20BC04E1006B3738A1F8964F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378733   (844800) от 26.04.2020
+
+VA - NOW Soul Classics (2020) [MP3|320 Kbps] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Marvin Gaye - Mercy Mercy Me (The Ecology) (Single Version) (3:13)
+2.The Temptations - My Girl (Single Version / Mono) (2:56)
+3.Stevie Wonder - Isn't She Lovely (Album Version) (6:33)
+4.Gloria Jones - Tainted Love (Single Version) (2:36)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75A7EB8B8AA99E26160CA5BB2F02A6B1F9BC843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378794   (844791) от 26.04.2020
 
 VA - NOW Blues Classics (2020) [MP3|320 Kbps] <Blues>
@@ -687,64 +745,6 @@ Clube de Patifes - Casa de Marimbondo (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F023BEF4F0A6185D4369E380596076D89B398A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530844   (820812) от 18.10.2021
-
-Нино Катамадзе & Insight - Дискография (2003-2011) 7 Альбомов [MP3|320 кб/с]<World Music, Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нино Катамадзе - одна из значимых фигур в жанре, определяемом как world-music. Как известно, к этому направлению принято относить исполнителей, чье творчество не укладывается в рамки стилевой сетки, но несет в себе национальные элементы страны, родом из которой музыканты. Нино оттуда, где песни не просто поют, ими живут.01. I Came :: 04:44
-02. I Will Come as a Snow :: 05:19
-03. Uto :: 04:27
-04. Lip :: 04:35(   Читать дальше...   )Жанр: World Music, Jazz, LoungeПродолжительность: 05:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9468120CB344F5B8C1B509FA9CC00377FCC4C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007724   (819813) от 16.04.2016
-
-Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Can't Forget You (04:24)
-02. Big Jake (04:19)
-03. The Message (03:45)
-04. Mercury Blues (06:06)(   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A121631F155569B578F35443FEDA5F7B90913D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

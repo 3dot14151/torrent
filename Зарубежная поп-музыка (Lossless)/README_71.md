@@ -1,3 +1,148 @@
+###  Публикация: 1264343   (281083) от 23.11.2018
+
+Rita Ora - Phoenix (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rita Ora – Anywhere (03:35)
+02. Rita Ora – Let You Love Me (03:11)
+03. Rita Ora – New Look (02:34)
+04. Avicii – Lonely Together (feat. Rita Ora) (03:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3371C10BB100C00B27B296D5B4B29EBD28E8158F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336480   (279057) от 07.11.2019
+
+Simply Red - Blue Eyed Soul (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking Of You (03:12)
+02. Sweet Child (03:18)
+03. Complete Love (03:28)
+04. Take A Good Look (03:19)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D99AFCDBE5D6D59F958DFC51F77FA87B40C37E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082392   (278886) от 12.12.2016
+
+Supermax - Terminal 2002 (2001) [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuckoo-Nation (5:00)
+ 02. Voodoo Asses (4:47)
+ 03. Vision (5:30)
+ 04. Push Me Up (6:01)(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187579   (278596) от 29.11.2017
+
+Albano & Romina Power - Золотая коллекция Радио 7 DISCO 80 (2005) [APE|Lossless|image + .cue] <Pop, Italo Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicita (03:16)
+02. Ci Sara (03:28)
+03. Magic Oh Magic (03:37)
+04. Anche Tu (03:28)(   Читать дальше...   )Жанр: Pop, Italo DiscoПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED1905C8D9D2EDD0EBD3628CFFDE5E78BFA4E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264864   (277707) от 25.11.2018
+
+Eros Ramazzotti - Vita Ce N'e (2018) Universal Music Group [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/15. Per Il Resto Tutto Bene (3:26)
+ 02/15. Vita Ce N’é (3:12)
+ 03/15. Vale Per Sempre | Feat. Alessia Cara (3:25)
+ 04/15. Siamo (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4938E7CAC76E3C6F215D1E5DFDBD51C4715AA877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083042   (275691) от 14.12.2016
 
 Sade - The Remix Deluxe (1992) Special Edition [FLAC|Lossless|image + .cue] <Pop, Soul>
@@ -599,151 +744,6 @@ Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267048   (268373) от 04.12.2018
-
-VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo & Imagine Dragons - Born to Be Yours
-02. Shawn Mendes - In My Blood
-03. Tiesto, Dzeko, Preme & Post Malone - Jackie Chan
-04. Cecilia Krull & Gavin Moss - My Life Is Going on(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339018   (268216) от 17.11.2019
-
-The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man Don't Cry
-02. I Found Out
-03. Greenbank Drive
-04. All Talk(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339057   (268066) от 17.11.2019
-
-VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268066.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 8 ноября 2019 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )01. Tones and I - Dance Monkey  (3:29)
-02. Kygo, Whitney Houston - Higher Love  (3:48)
-03. Regard - Ride It  (2:38)
-04. Ed Sheeran - Take Me Back to London (feat. Stormzy)  (3:10)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338676   (268052) от 17.11.2019
-
-Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vision Of Love [3:31]
- 02 - Love Takes Time [3:51]
- 03 - Someday [4:08]
- 04 - I Don't Wanna Cry [4:51](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339269   (267055) от 18.11.2019
-
-VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossless|tracks + .cue] <Latin Pop, Electro, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267055.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi - Despacito
-02. Shakira feat. El Cata - Rabiosa
-03. Alvaro Soler - La Cintura(   Читать дальше...   )Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
 ```
 
 https://mybot314.ru/tekegram_catalog/

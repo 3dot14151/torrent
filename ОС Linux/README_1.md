@@ -1,33 +1,3 @@
-###  Публикация: 746730   (963603) от 18.01.2014
-
-BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем.
-
-Дистрибутив базируется на Ubuntu - ядро Linix kernel 3.11, и включает в себя ядро Linux 3.13 (u)EFI mode
-
-Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено стартовое меню, улучшены драйвера Wi-Fi. Улучшены: Update меню, Forensic меню. Добавлены новые и обновлены старые хакерские инструменты ... и многое другое .
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD669D46BD20AFC5FA3082B19EB1C197E9721FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621450   (962599) от 20.02.2013
 
 ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
@@ -712,6 +682,34 @@ CentOS 6.4 [x86-64] (2xDVD+2xCD)
 Вышел CentOS 6.4 (англ. Community ENTerprise Operating System) - дистрибутив Linux, основанный на коммерческом Red Hat Enterprise Linux компании Red Hat и совместимый с ним.  Изменено содержимое 31 пакета, среди которых: anaconda, firefox, gnome-desktop, httpd, initscripts, kde-settings, kernel, ntp, openssl098e, plymouth, thunderbird, xulrunner и yum; Удалено 25 пакетов, среди которых: libehca, libservicelog, lsvpd, libvpd, openssl-ibmca, powerpc-utils, ppc64-diag, ppc64-utils, python-rhsm, redhat-*, rhn-*, servicelog, s390utils, yaboot, yum-rhn-plugin.
 
 Red Hat Enterprise Linux состоит из свободного ПО с открытым кодом, но доступен в виде дисков с бинарными пакетами только для платных подписчиков. Как требуется в лицензии GPL и других, Red Hat предоставляет все исходные коды. Разработчики CentOS используют данный исходный код для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629309   (932767) от 12.03.2013
+
+openSUSE 12.3 (KDE, Gnome, NET, Rescue) [i586, i686, x86-64] (4xDVD + 4хCD)
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект openSUSE - это попытка сделать использование Linux повсеместным. openSUSE создает лучший в мире дистрибутив Linux, работая вместе открыто, прозрачно и дружелюбно как часть мирового сообщества свободного и открытого программного обеспечения.
+
+Новая версия получила полноценную поддержку среды E17 (Englightnment), в которой были включены и оконные менеджеры Sawfish и Awesome. Также в openSUSE 12.3 включена поддержка PostgreSQL c Native JavaScript Object Notation (JSON). MySQL из оригинальной версии 12.3 исключена и заменена на MariaDB. Заявлена в openSUSE 12.3 и поддержка облачной платформы OpenStack Folsom. Из новшеств релиза:  ядро 3.7.10, Gnome 3.6.3, Firefox 19, Thunderbird 17.0.3, Wine 1.5.23 и PulseAudio 3.0, а также многое другое
 
 ## Скачать торент
 ```bash

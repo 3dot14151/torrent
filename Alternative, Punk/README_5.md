@@ -1,3 +1,61 @@
+###  Публикация: 1102237   (891188) от 09.02.2017
+
+Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight the Fight
+2. The Edge
+3. The Other Side
+4. Perfect Combination(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371792   (888707) от 01.04.2020
+
+Ty Segall - Segall Smeagol (2020) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coconut
+02. Gotta Get Up
+03. Drivin Along
+04. Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ABCF0E724DCF838128F51F9ED0BD4E9830CD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372139   (887280) от 02.04.2020
 
 Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
@@ -682,64 +740,6 @@ Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FD8755C142A3B71372032E0B3C7AC526F8234D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003482   (843318) от 03.04.2016
-
-Alice on the Roof - Higher (2016) [MP3|320 кб/с] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let Me Down
-2. Feel Tonight
-3. Easy Come Easy Go
-4. Like a Dying Rose(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD56F86FF908C0765DDE23CB68514050F28B0B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003465   (843218) от 03.04.2016
-
-Weezer - Weezer (White Album) (2016) Japanese Edition [MP3|320 кб/с] <Alternative Rock, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Kids
-02. Wind in Our Sail
-03. Thank God for Girls
-04. (Girl We Got A) Good Thing(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1579B16335656B3665A7299EBB886ADF391B73BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

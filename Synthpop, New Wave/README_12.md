@@ -1,32 +1,3 @@
-###  Публикация: 1592223   (183732) от 22.11.2022
-
-Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, Retrowave, Retro Electro, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Place I Belong [00:04:12]
-02. Dream Shore [00:05:26]
-03. Lone Rider (Late Night Edit) [00:04:23]
-04. Horizons [00:04:43](   Читать дальше...   )Жанр: Synthwave, Retrowave, Retro Electro, DreamwaveПродолжительность: 2 CD, 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898C6DBC083A3C9D2CB2C8B2E7F854A53CF1C086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665569   (182152) от 30.09.2023
 
 Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
@@ -745,6 +716,35 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5EF2E79345C69EDF983A3DE684F4661AE780BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691465   (123268) от 12.01.2024
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SpaceSynth.Ru - Intro (1:20)
+02. Metatron & TDHDriver - Call of Destiny (5:44)
+03. Laserlight - On The Waves Of Memory (6:24)
+04. Cosmic Roulette - Drone Invasion (5:15)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0629E01E61F7AF1C0A9D71CF9288E77ADD3C08AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

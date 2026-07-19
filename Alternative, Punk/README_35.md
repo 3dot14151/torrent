@@ -1,3 +1,206 @@
+###  Публикация: 1597776   (163953) от 17.12.2022
+
+Severals - Algorithm (2022) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crutch [00:04:12]
+02 - Melody (Algorithm Version) [00:03:47]
+03 - Incinerate [00:03:49]
+04 - Resonance [00:01:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53ED3047ED4C328517D31F4CE58E3B3D22F9A4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432607   (163178) от 18.12.2020
+
+TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascend [00:01:19]
+02. Half Alive [00:03:38]
+03. Living With a Ghost [00:03:51]
+04. Lift the Curse [00:03:07](   Читать дальше...   )Жанр: Alternative Metal, Modern Hard RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DE3A9AFE2A6815CF8581418A6DE3AB256FEFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432505   (162852) от 18.12.2020
+
+Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|320 Kbps] <Post-Hardcore, Alt.Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aggressive (Remixed_Remastered) [00:04:09]
+02. Hated (Remixed_Remastered) [00:03:34]
+03. Loser (Remixed_Remastered) [00:04:01]
+04. Fair Weather Friend (Remixed_Remastered) [00:03:25](   Читать дальше...   )Жанр: Post-Hardcore, Alt.Rock, MetalcoreПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B57822C8D72DC2109FC92B6DB425F1AC9202C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432992   (162275) от 19.12.2020
+
+The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Therapy [00:03:18]
+02 Music Box [00:04:26]
+03 Dark Side [00:03:31]
+04 Beat It [00:04:35](   Читать дальше...   )Жанр: Alternative, ColdwaveПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0010188DB9E4B0396F98FA4089B8FC9FC0CAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432533   (162171) от 19.12.2020
+
+Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathcore, Downtempo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River [00:03:54]
+02. Snake [00:03:46]
+03. Dead Eyes (feat. Adam Mercer) [00:04:59]
+04. Drip [00:03:43](   Читать дальше...   )Жанр: Deathcore, DowntempoПродолжительность: 2 CD, 01:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E41B02E978EAC0166961B7CDDE992122AF51EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433012   (162081) от 19.12.2020
+
+Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Radiant [00:05:18]
+02 Enter Life [00:03:41]
+03 Billion Years [00:05:03]
+04 Halcyon [00:05:18](   Читать дальше...   )Жанр: Alternative, EBM, Coldwave, Post-PunkПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE09AE0C2EF3C7376677C19E4E4F11693D3E37FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432918   (162073) от 19.12.2020
+
+Улица Восток - В последний раз (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Война [00:03:24]
+02 Наши дни [00:02:54]
+03 СМРТ [00:03:12]
+04 Лошади [00:03:53](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D971FB0AC372199F3705DA838703A6BDEAD0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433183   (161401) от 20.12.2020
 
 Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
@@ -554,241 +757,6 @@ The Dream Syndicate - Medicine Show: I Know What You Like (1984) Reissue, Remast
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB39EB6EDF2F7A1DB079220A7A2A6967DE7A5EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592372   (135951) от 21.12.2012
-
-Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allure
-02. Loverst
-03. The River
-04. Iterum
-05. Metamorphosis
-06. She Spider
-07. The Conflict
-08. Day Of Revolt
-09. The Persistence
-10. Silica(   Читать дальше...   )Жанр: Indie, Electronic, DanceПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592885   (135454) от 23.12.2012
-
-Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infinite Forest, 04:16
- 2. Cars Go In Two Directions, 04:50
- 3. Some Chords From Riku's NES, 01:50
- 4. Pandas With Tambourines 1, 03:26
- 5. Pandas With Tambourines 2, 04:36
- 6. Mosquitoes Are Swarming This Summer, 05:32
- 7. The Operator Of A Huge Cash Magnet Which Inmost Purpose Is To Destroy The World, 02:48
- 8. The Symbols And Their Meanings, 04:49
- 9. Flu, 03:49
- 10. Your Song, 06:39Жанр: Shoegaze Indie Post RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592830   (135406) от 23.12.2012
-
-Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mis-Shapes
-02 - Pencil Skirt
-03 - Common People
-04 - I Spy
-05 - Disco 2000
-06 - Live Bed Show
-07 - Something Changed
-08 - Sorted for E's & Wizz
-09 - F.E.E.L.I.N.G.C.A.L.L.E.D.L.O.V.E
-10 - Underwear(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592948   (134802) от 24.12.2012
-
-Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We'll Be Kings
-2. Furious Again
-3. I Don't Know
-4. The One Who Laughs Last
-5. Seven Year Itch
-6. Charlie Wants To WatchЖанр: Alt. Rock / Hard RockПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592565   (134756) от 24.12.2012
-
-Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134756.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Artificial Nocturne (05:42)
-02. Youth Without Youth (04:17)
-03. Speed The Collapse (03:42)
-04. Breathing Underwater (03:56)
-05. Dreams So Real (02:40)
-06. Lost Kitten (03:16)
-07. The Void (03:17)
-08. Synthetica (03:54)
-09. Clone (05:13)(   Читать дальше...   )Жанр: Indie / Pop-RockПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F258802FCABD1876E70CB04572ACDB92F53C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680186   (134522) от 28.11.2023
-
-The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blast On
-2. Feeling Great
-3. Voodoo
-4. Terrorist(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592753   (134397) от 24.12.2012
-
-Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 (Interlude 1)
-03 Tessellate
-04 Breezeblocks
-05 (Interlude 2)
-06 Something Good
-07 Dissolve Me
-08 Matilda
-09 MS
-10 Fitzpleasure(   Читать дальше...   )Жанр: Indie-Pop, Indie-RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
 ```
 
 https://mybot314.ru/tekegram_catalog/

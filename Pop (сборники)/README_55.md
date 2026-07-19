@@ -1,102 +1,3 @@
-###  Публикация: 515007   (656951) от 25.06.2012
-
-VA - Летний спецвыпуск Золотого Граммофона (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656951.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-001 ВИА Гра - Алло, Мам
-002 Герр Антон (Herr Anton) - Алка Now!
-003 Размер Project - My Moscow Love
-004 IKA - Москва Слезам Не Верит
-005 Ю. Волкова - All Because Of You
-006 Steel Deluxe feat. Olya Milaxa - За Стенами
-007 Слава - Sex Не Любовь
-008 Тимур Темиров - Лето Жаркое
-009 Ани Лорак - Обними Меня Крепче(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 12:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515238   (656620) от 25.06.2012
-
-VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656620.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fly Project - Back In My Life (Radio Edit)
-002. DJ Snach & Supermax - Любовь Как Диско (Dance Version)
-003. Akcent - Chimie Intre Noi (Radio Edit)
-004. Герр Антон (Herr Anton) - Алка Now!
-005. Maroon 5 - One More Night
-006. Sara Oks & Иван Кит - Бой Без Правил
-007. DJ Nano & Kate Ryan feat. Dmol - The Next Road
-008. NikitA - Калинка-Малинка
-009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-010. Градусы - Нефть(   Читать дальше...   )Жанр: PopПродолжительность: 06: 12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903781   (656291) от 01.06.2015
-
-VA - Только русский свежак. Топ новинок поп музыки (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andreas - Сейчас Или Никогда
-002. Герр Антон (Herr Anton) - Надо Любить
-003. Brutto - Труд
-004. 30.02 - Асфальтными Нитками(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F9520E46B7842C722168FE8C03644CA4DB41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539483   (656145) от 27.03.2022
 
 Jan Jensen - Коллекция (2022) [MP3|320 Kbps] <Italo-Disco, Pop, Synthpop>
@@ -797,6 +698,90 @@ VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031506   (652149) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U. K - Roadrunner ( 1987 )
+02. T. Ark - Under Cover Lover ( Extended Version 1988 )
+03. Mauro - Lady Africa ( 1987 )
+04. Trans X - 3-D Dance ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031514   (652148) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - Come Back And Stay ( 1987 )
+02. C. C. Catch - Summer Kisses ( 1988 )
+03. Falco - Coming Home ( Jeanny Part II, One Year Later 1986 )
+04. ABBA - I Saw It In The Mirror ( 1973 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516502   (652125) от 29.06.2012
+
+VA - Сливки Европы плюс 7 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40872700EBEE78DF28A1CEE062DEAB4C54B665B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

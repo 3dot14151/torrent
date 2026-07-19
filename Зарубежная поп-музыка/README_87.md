@@ -1,3 +1,29 @@
+###  Публикация: 1739251   (106039) от 28.07.2024
+
+VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 Kbps] <Electronic, Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 04:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743909   (105326) от 18.08.2024
 
 La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa>
@@ -716,35 +742,6 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62630C88046E8D593AB7587207A3C642A463FA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751044   (104137) от 22.09.2024
-
-VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Band - Sweet Dreams
-02. Fanny Cadeo - Pecame
-03. The Dancers - Never Alone
-04. Martine - Tough Girl(   Читать дальше...   )Жанр: Electronic, Eurodance, ItalodanceПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

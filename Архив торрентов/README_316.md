@@ -1,3 +1,32 @@
+###  Публикация: 608725   (993708) от 25.01.2013
+
+Wallpapers - Large collection of wallpapers vol.2 (25.01.13) [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpapers - Large collection of wallpapers vol.2 (25.01.13) [JPG]Название: Large collection of wallpapers vol.2 (25.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D44709A326CBB5D1483BDC5BDDB709BA335D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608634   (993707) от 25.01.2013
 
 Журнал | Tattoo Energy №81 (UK) [февраль-март 2013] [PDF] [En]
@@ -677,41 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5517EC2C2A4D142F7969972EC332A830F7CDB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608271   (993553) от 25.01.2013
-
-Александр Башлачев - 2 альбома (1986/1990-1992) [FLAC 2.0 24/96|tracks|image + .cue (Vinyl-Rip)]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993553.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Время Колокольчиков 6:16
-A2. Петербургская Свадьба 5:29
-A3. Случай В Сибири 3:47
-A4. Лихо 3:02
-B1. Мельница 5:32
-B2. Некому Берёзу Заломати 2:33
-B3. Все От Винта 3:24
-B4. Спроси, Звезда 2:16
-B5. Зимняя Сказка 3:20
-B6. Хозяйка 2:55(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F7BC45592C955C7E16F77DDF660E4F3471FAE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

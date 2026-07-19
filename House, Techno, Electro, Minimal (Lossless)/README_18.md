@@ -1,3 +1,177 @@
+###  Публикация: 1007327   (823020) от 14.04.2016
+
+Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall (Club Mix) (06:53)
+02. Dark Space Night (07:40)
+03. Sweetness (07:47)
+04. Bell Birds Dub (08:08)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA53FED156D79A94E675E45666A8B742C33DE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381932   (822770) от 09.05.2020
+
+VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House, Nu-Disco, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Jacker - Party Time Again (Original Mix) (5:39)
+02. Disko Junkie - This Disko Feelin' (Original Mix) (5:20)
+03. Discotron - Only Foolin' Yourself (Original Mix) (5:26)
+04. Boogie Freaks - Everybody Jumpin' (Original Mix) (6:25)(   Читать дальше...   )Жанр: Jackin' House, House, Nu-Disco, DiscoПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BC13B0005811D28D1C31A8617001D8F313F6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382076   (822663) от 09.05.2020
+
+VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House, Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exei - Ornament (Original Mix) (6:27)
+02. Alessa Khin - Solo Moon (Extended Mix) (5:49)
+03. Sunchain - Santiago (Kay Aka Khalil Touihri, Karben Remix) (7:00)
+04. Lunaar - Sinda (Original Mix) (7:04)(   Читать дальше...   )Жанр: Deep House, Afro House, Progressive House, TechnoПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C541F81D804AFCDF22E1813CD039D49E7FD2A714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196478   (822552) от 03.01.2018
+
+VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Van Orton - Artras (Original Mix) [08:35]
+02. Nicholas Van Orton - Flamas (Original Mix) [08:25]
+03. Nicholas Van Orton - Radient (Original Mix) [07:07]
+04. Nicholas Van Orton - Hay Grises (Original Mix) [08:15](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15E1E00920132F4A2C5BD5AF40D875C7ADE715F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196600   (822423) от 03.01.2018
+
+VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mashk & Soul Button - Penses [07:35]
+02. Soul Button - Placid [07:39]
+03. Clawz SG - Perennial [07:38]
+04. Fractal Architect & Dan Baber - Antikythera Mechanism [06:45](   Читать дальше...   )Жанр: Progressive House, Tech House, Chill HouseПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A62E62D319B20FAB972E33BCA51D0EAE5020B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196485   (822419) от 03.01.2018
+
+VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PS-Band - Erotica (4:27)
+02. Domina - Auf die Knie (3:20)
+03. James Brown - Sex Machine (5:02)
+04. Construction - Sex Is Like Fire (3:31)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE2B8E0871C0D0F37EA5E714FBF3740F0EA1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007438   (821693) от 15.04.2016
 
 The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <Electronic>
@@ -563,179 +737,6 @@ Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198582   (806378) от 12.01.2018
-
-Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambele (07:40)
- 02. Discutia (08:52)
- 03. Montat (08:55)Жанр: Techno, Tech House, MinimalПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BCAFC5ACDC2CE072243D66648E4B34D6207AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198106   (806374) от 12.01.2018
-
-Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New World (07:07)
- 02. Moment By Moment (06:26)
- 03. Polar Day (10:30)
- 04. No Beginning No End (07:23)Тип издания: WEBЖанр: Techno/AmbientПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120345   (802013) от 31.03.2017
-
-VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fran Denia - Top Secret [05:33]
-02 R3ckzet - Error 404 [06:30]
-03 Lorentz Moore - Patrol [06:18]
-04 Giuseppe Francaviglia - Bumma A Manu [06:38](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8E2E89E60394E66037CBCD1F9C23424E260D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198945   (801843) от 15.01.2018
-
-Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
-02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
-03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
-04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198907   (801834) от 15.01.2018
-
-Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 South Street Player - (Who) Keeps changing your mind (Daniel Bovie & Roy Rox Remix)
-02 Choklate - The Tea (The Layabouts Main Vocal Mix)
-03 Christian Hoff & Lily McKenzie - Take You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAE50D7BAD9C7BA860D849AFC8DD6FCE8035162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126315   (800856) от 22.05.2020
-
-Nikosf. - Discography 8 Releases (2008-2014) MOSHItaka, Dewtone, Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Park From Above (06:55)
- 02. A Woman's Nature (06:15)
- 03. Our Road Home (07:40)
- 04. A Matter Of Shape (06:40)(   Читать дальше...   )Жанр: Dub Techno/Ambient/Deep HouseПродолжительность: 04:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C86F5948DE48E9B90E4116785047CA9CF03DF63
 ```
 
 https://mybot314.ru/tekegram_catalog/

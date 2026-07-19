@@ -1,3 +1,29 @@
+###  Публикация: 566077   (398973) от 27.10.2012
+
+Тали – Ихантала 1944 / Tali-Ihantala 1944 (2007) HDRip [AVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм повествует о тяжёлых и упорных боях в районе Тали — Ихантала, о героических финских солдатах, защищавших одно из главных направлений от ударов доблестной Красной Армии, в период с 24 по 30 июня 1944 года.Производство: Финляндия / Åke Lindman Film-ProductionsЖанр: Драма, Военный, ИсторияРежиссер: Аке Линдман, Сакари КирьявяйненАктеры: Рауно Ахонен, Mikkomarkus Ahtiainen, Фрэнк Бирманн, Jussi Brech, Mikko Bredenberg, Riko Eklundh, Марк Гассо, Маркус Грот, Йохан Халлстрем, Kari HevossaariПеревод: Авторский (Юрий Живов)Субтитры: отсутствуютПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3545A19195CB16EF41BCAE4EE5D8B991F1000D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566274   (398926) от 27.10.2012
 
 Искажение / Skew (2011) HDRip
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D9A3D75AEF5CCCBC2A3693F3ECFA54DEB0F2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 148865   (398022) от 29.10.2009
-
-[EN] Кража в музее / The Maiden Heist (2009) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_398022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Their plan wasn't exactly a work of art. It was a stroke of genius. But now the perfect crime is turning into a perfect disaster in this madcap comedy featuring Academy Award winners Morgan Freeman, Christopher Walken, Marcia Gay Harden and Academy Award nominee William H. Macy. Charles, Roger and George are the very picture of honest security guards. But when they learn their favorite artworks are being sent to another museum, they concoct a plan to switch the real masterpieces with fakes. All goes well until a mistake forces these first-time thieves into a last-minute escapade in the comedy caper that proves you're never too old to have some new fun.Жанр: Комедия, КриминалРежиссер: Питер ХьюитАктеры: Морган Фриман, Кристофер Уокен, Кристи Скотт Кэшман, Ники Коннорс, Роберт Масьелло, Марша Гэй Харден, Уильям Х. Мэйси, Винн Эверетт, София Гудельман, Бейтс Уайлдер,
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1114566   (831751) от 15.03.2017
+
+DevID Agent 4.38 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831751.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevID Agent - удобная бесплатная утилита для установки и обновления драйверов для корректной работы любого оборудования вашего компьютера. Девайсы всех популярных изготовителей, таких как Nvidia, ScanLogic, Scanner, Wacom, Sentelic и др. без проблем опознаются инструментом DevID Agent, что значительно ускоряет поиск нужных драйверов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5198E5846A32F20CAD74BE2C2F4C44DD31C9D20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502084   (831742) от 12.10.2021
 
 PC Cleaner Pro 8.1.0.15 RePack (& Portable) by 9649 [Multi/Ru]
@@ -645,32 +671,6 @@ CCleaner - утилита для чистки мусора в операцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA991DC70D6387A3A3D718D9D17E85C2E0438229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114812   (831480) от 15.03.2017
-
-Novicorp WinToFlash Professional 1.5.0000 Final RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831480.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToFlash – это приложение, позволяющее полностью перенести программу установки Windows XP, Windows 2003, Windows Vista, Windows 2008, Windows 7, Windows 8, Windows 10 на USB накопитель за несколько кликов мышки. Это означает, что вы можете установить Windows с флэш-карты, HDD или другого накопителя на ваш компьютер или нэтбук. WinToFlash может перенести ваш Live (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91131BB2F2BE526DBC0E44971BB6BADB1B86BF03
 ```
 
 https://mybot314.ru/tekegram_catalog/

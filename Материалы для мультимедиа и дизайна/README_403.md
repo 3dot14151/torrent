@@ -1,22 +1,76 @@
-###  Публикация: 1790670   (21848) от 10.04.2025
+###  Публикация: 1789266   (22604) от 03.04.2025
 
-Пресеты - RED LEAF STUDIOS - LIGHT & LEGACY [XMP]
+Шрифты - Shimanov Types - Creative Market - Stengazeta retro grotesque font - 4586226 [TTF, OTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.
+Разработчик: Shimanov TypesФормат: TTF, OTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C7275CFC120954BFE5F7B7A91C468585CAC2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789283   (22600) от 03.04.2025
+
+Шрифты - Alexander Shimanov - ST-DONBASS [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9F943A70CAE007DFF0EAA8EA82AE2587D765A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789240   (22594) от 03.04.2025
+
+Пресеты - CityTurtles - Kodak Portra Film Lightroom Presets [XMP, LRTEMPLATE, DNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот набор был разработан для любителей аналоговой пленки и гибридной пленки/цифровой фотографии,  Light & Legacy - это чистая коллекция предустановок эмуляции пленки, вдохновленная пленочными материалами и характеристиками сканирования , которые фотографы предпочитают на протяжении десятилетий. Химия пленки, сделанная цифровой, оживляет цвета с яркими пастельными (   Читать дальше...   )Формат: XMP
+Пакет пресетов Kodak Portra Film отличается мягкими цветами, естественными тонами кожи и едва заметной зернистостью пленки. Эти пресеты очень универсальны и прекрасно подходят для портретов, свадеб, семей, изображений образа жизни, путешествий и еды, создавая уникальный винтажный образ. Эта коллекция пресетов включает варианты приглушенного черного или насыщенного (   Читать дальше...   )Формат: XMP, LRTEMPLATE, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CADD47023E5E047FFA5DBEF59EB7084B26D8B053
+magnet:?xt=urn:btih:149AE7BF64B1B843560150B4A9580A9966EE61A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790699   (21845) от 10.04.2025
+###  Публикация: 1789338   (22588) от 03.04.2025
 
-Пресеты - RED LEAF STUDIOS - QUEST 41 - Raven [XMP]
+Пресеты - Mastin Labs - Night & Day Lightroom Desktop Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пресеты Raven созданы для создания глубокой, угрюмой атмосферы с акцентом на драматические тени, насыщенный черный цвет и глубокие тона. Вдохновленные таинственной красотой сумерек, эти пресеты преобразуют ваши изображения в захватывающие кинематографические произведения. Raven выявляет завораживающий контраст между светом и тьмой, одновременно усиливая тонкие детали (   Читать дальше...   )Формат: XMP
+Комплект «Night & Day» идеально подходит для городской фотосъемки при любом освещении, фэшн-фотографии и  портретов в условиях слабого освещения.Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1618E0FDB373E9B44622E28E086ABADFE62B47F
+magnet:?xt=urn:btih:C2F84BF83AFAE5CF5857A8631E63DB8D0DDC65C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790661   (21839) от 10.04.2025
+###  Публикация: 1789241   (22587) от 03.04.2025
 
-Пресеты - Kai-boettcher - Arte Nostalgia [XMP, LRTEMPLATE, DNG]
+Пресеты - Mastin Labs - Fuji Pushed Lightroom Desktop Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот пакет пресетов содержит 10 фильтров Lightroom (+1 бонусный фильтр и различные инструменты). Пакет Arte Nostalgia Pack, тщательно подобранная коллекция пресетов, разработанная для того, чтобы перенести вас назад во времени с ярким оттенком. Каждый пресет улучшает ваши фотографии насыщенными оттенками и богатыми, глубокими цветовыми контрастами, выявляя смелые (   Читать дальше...   )Формат: XMP, LRTEMPLATE, DNG
+Пресеты Mastin Labs Fuji Pushed для Lightroom создают легкий и воздушный вид с дополнительным контрастным ударом, цветом и глубиной. Пакет Fuji Pushed идеально подходит для свадеб, помолвок и лайфстайл-фотографии.Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8390F42B5F92D333AFFC91849C7A95B8CFF76FA9
+magnet:?xt=urn:btih:F0A7C58E6A65F929F6002DAA14D85AB21102A061
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +130,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790657   (21828) от 10.04.2025
+###  Публикация: 1789256   (22581) от 03.04.2025
 
-Пресеты - G-Presets - The Twilight Pack  [XMP]
+Шрифты - Maxim Raikov - Behance - Connections and Order Free font - 110131717 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+Материал раздаётся с официальной документацией и дополнениями.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118D01266CFBE306194708BBDCB52F32A3180108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789243   (22580) от 03.04.2025
+
+Шрифты - Maxim Raikov - Behance - IZAX - FREE SERIF FONT - 117963693 [TTF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+В файлах в папке "IZAX By He Rez AD" от "He Rez AD" добавлена расширенная кириллица (Украинская, Белорусская, Молдавская), у некоторых символов объединены контуры по причине их фрагментации, им же добавлены файлы форматов WOFF, WOFF2.Формат: TTF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69590F67A8A780CCBA3AFF1FEF69B9851E69BEDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789245   (22576) от 03.04.2025
+
+Шрифты - Maxim Raikov - Behance - NEVERSMILE Free Font - 113827623 [TTF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+В файлах в папке "NeverSmile By He Rez AD" от "He Rez AD" добавлена расширенная кириллица (Украинская, Белорусская, Молдавская), у некоторых символов объединены контуры по причине их фрагментации, им же добавлены файлы форматов WOFF, WOFF2.Формат: TTF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8879D9518C329EB2926D2AC2C13DAD8813BB707F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789253   (22575) от 03.04.2025
+
+Шрифты - Maxim Raikov - Behance - FONTICK - Free Font - 110019893 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim RaikovФормат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165463E400F91E53BA1E6F7F959B4A7F88FC8E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789248   (22574) от 03.04.2025
+
+Шрифты - Maxim Raikov - Behance - DacikPush FREE Font - 113316657 [TTF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+Материал раздаётся с официальной документацией и дополнениями.
+В файлах в папке "DacikPush By He Rez AD" от "He Rez AD" добавлена расширенная кириллица (Украинская, Белорусская, Молдавская), им же добавлены файлы форматов WOFF, WOFF2.Формат: TTF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF22902E531948FB7E735CC5426E77A38F9DAA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789313   (22567) от 03.04.2025
+
+Шрифты - Alexander Shimanov - ST-BUBBLEGUM [TTF, OTF, WOFF, WOFF2, EOT, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: TTF, OTF, WOFF, WOFF2, EOT, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF46297E85218D4CD4C5CD557A9B6B4CB404116E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789340   (22566) от 03.04.2025
+
+Пресеты - moodydarkroom - Moody Film Preset Pack [XMP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет Twilight — кинематографический, уютный, вневременной и вдохновленный любовью Дон к «Сумеркам». Эти пресеты были созданы для фотографа, рассказывающего истории, живущие в каждом из нас. Для фотографов использование пакета пресетов может сделать процесс редактирования творческим путешествием, а не рутиной. Представьте, что вы начинаете с пресета Twilight, который (   Читать дальше...   )Формат: XMP
+Коллекция из 12 пресетов для плёнки, созданных Moodydarkroom. Используйте эти пресеты, чтобы придать вашим фотографиям ностальгический вид плёнки!Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63393796C71F633423AE4072C953F4BB68E3844A
+magnet:?xt=urn:btih:82662BD04B5BC9AB308B7FDEE5D5BCCFA00CA726
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790940   (21768) от 11.04.2025
+###  Публикация: 1789312   (22565) от 03.04.2025
 
-3D print - Hybris Studios - Alsace: Azur Lane 2025 [STL]
+Шрифты - Alexander Shimanov - ST-SPARTAK [OTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мартовская модель Alsace: Azur Lane от известной и проверенной студии Hybris Studios для Вашего творчества в 3D печати.Формат: STL
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander Shimanov
+Материал раздаётся с официальной документацией.
+В добавленных файлах "ST-SPARTAK By He Rez AD" от "He Rez AD" расширенная кириллица (к имеющейся добавлена Молдавская), глифы теперь в обоих регистрах, добавлены некоторые знаки пунктуации; им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCFB2F251CAA83FE47829366D687804D0E7D0A77
+magnet:?xt=urn:btih:7ECE9367BD46159C3620868F061309DA9469FE6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790878   (21764) от 11.04.2025
+###  Публикация: 1789310   (22564) от 03.04.2025
 
-Фоны - DIGITAL ART - Creative Fabrica - Galaxy Abstract Brush Strokes Digital Paper [JPG]
+Шрифты - Alexander Shimanov - ST-SIMPLESQUARE [TTF, OTF, WOFF, WOFF2, EOT, SVG, PFM]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные мазки кистью в виде галактики.Формат: JPGРазрешение файлов: 4096 x 4096
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander Shimanov
+Материал раздаётся с официальной документацией.
+В файлах в папке "ST-SIMPLESQUARE By He Rez AD" от "He Rez AD" добавлена немного расширенная кириллица (Русская, Украинская, Белорусская, Молдавская).Формат: TTF, OTF, WOFF, WOFF2, EOT, SVG, PFM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24C87E393C763101CA0E6FB546BC15A3BC6B8D05
+magnet:?xt=urn:btih:74790A1958497378435473F672A2C50D52792C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790933   (21758) от 11.04.2025
+###  Публикация: 1789421   (22506) от 04.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Purple and Gold Luxury Floral Texture Digital paper [PNG]
+Пресеты - Jan Erik Waider - Master Collection - 3 Capture One Stylepacks for Landscape & Travel Photography [COSTYLEPACK]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с фиолетовой и золотой цветочной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+3 набора стилей Capture One для пейзажной и трэвел-фотографии. Бонусом к релизу идет пакет RAW изображений от автора.Формат: COSTYLEPACK
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10A8A481B5321B2038861C1773319CB795A822F5
+magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +407,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790961   (21754) от 11.04.2025
+###  Публикация: 1789525   (22495) от 04.04.2025
 
-Фоны - Resource Boy - 1000 Gradient Backgrounds Vol. 02 [JPG]
+Пресеты - Meridian Presets - Master Motion Blur in Lightroom with Drift by India Earl [XMP, LUA]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные фоны. Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3840 x 2160
+В стремительном водовороте съемок каждый момент мимолетен, и каждый снимок — это шанс запечатлеть воспоминания на всю жизнь. Но в стремлении принять тенденцию размытия движения — этого магического эффекта, который вдыхает жизнь и движение в фотографии — многие фотографы оказываются запутанными в технических настройках, рискуя потерять возможность запечатлеть моменты (   Читать дальше...   )Формат: XMP, LUA
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
+magnet:?xt=urn:btih:7C4568349B972DE8F09ACC929DE4E8D8CD728BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +433,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790861   (21744) от 11.04.2025
+###  Публикация: 1789365   (22494) от 04.04.2025
 
-Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Iridescent Texture [JPG]
+Шрифты - Alexander Shimanov - ST-WARMOVIE [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с блестящей радужной текстурой.Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
+magnet:?xt=urn:btih:14966750B124CEBCA6136C698F91BE3693C6B76F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +460,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790868   (21743) от 11.04.2025
+###  Публикация: 1789367   (22491) от 04.04.2025
 
-Фоны - Pattern Universe - Creative Fabrica - Cross Stitch Embroidery Digital Papers [JPG]
+Шрифты - Alexander Shimanov - ST-STAL [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных узоров в виде вышивки крестиком (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC7D1DC4343D1AEC478B69501F7DB5E9536C5FF2
+magnet:?xt=urn:btih:7706772BE273CB15C208EB5BA6348B7D44088718
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790875   (21742) от 11.04.2025
+###  Публикация: 1789511   (22480) от 04.04.2025
 
-Фоны - Pattern Universe - Creative Fabrica - Pastel Ombre Glitter Backgrounds [JPG]
+Пресеты - Lemon and Lace Studios - AI Lemon Twist [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров в пастельном стиле омбре с блестками (сгенерированы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Представляем коллекцию пресетов AI Lemon Twist — яркий, реалистичный, универсальный набор из более чем 100 тщательно созданных пресетов, призванных поднять ваши фотографии на новый уровень. Благодаря уникальному балансу адаптивных настроек AI и классических пресетов без маскирования эта коллекция позволяет вам без усилий улучшать свои фотографии, независимо от того, (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:702E7474F1D5F275CCA6E78CF443844EF024F9C5
+magnet:?xt=urn:btih:7BED54654281951785F62B9D73179DF67175601C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790862   (21741) от 11.04.2025
+###  Публикация: 1789523   (22479) от 04.04.2025
 
-Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Unicorn Texture [JPG]
+Пресеты - J SERIES PRESETS [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Текстура с блестками на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+От автора: "Единственный набор предустановок, который вам когда-либо понадобится! Яркий белый цвет, четкие цвета и непреходящее чувство ностальгии. Возьмите этот набор предустановок с собой до конца времен!".Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:489B08A943466AEF44E2C57003216102F2809649
+magnet:?xt=urn:btih:62DE7E091636DDE543FB5286F0B07FAB9EB26AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790874   (21740) от 11.04.2025
+###  Публикация: 1789423   (22474) от 04.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Winter Pressed Flowers Digital Papers [JPG]
+Шрифты - Liese Mars - Behance - Glina Script Free handwritten typeface - 221558065 [OTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных цветочных узоров.Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Liese Mars
+Материал раздаётся с официальной документацией.
+В добавленных файлах в папке "Glina Script By He Rez AD" от "He Rez AD" расширенная кириллица (к имеющейся добавлена Украинская, Белорусская, Молдавская), у некоторых глифов объединены контуры по причине их фрагментации; им же добавлены файлы (   Читать дальше...   )Формат: OTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A287383DDBD4271934569F98FD95F3B8FC66C95
+magnet:?xt=urn:btih:E40F6CB37EDE1578D1C5E4D9DABBF6495D881AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +568,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790871   (21734) от 11.04.2025
+###  Публикация: 1789499   (22471) от 04.04.2025
 
-Фоны - Pattern Universe - Creative Fabrica - Blue Winter Snowflakes Digital Papers [JPG]
+Шрифты - Kalin Daskalov - Behance - Drumnik Free Font - 146672293 [TTF, OTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров со снежинками в виде цифровой бумаги.Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Kalin Daskalov
+Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:431CA1BADB6695494185660ED69B8D2934489E13
+magnet:?xt=urn:btih:474DEE30916DEA06597A1198E5EE12B19796DD11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +596,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790970   (21731) от 11.04.2025
+###  Публикация: 1789364   (22465) от 04.04.2025
 
-Растровый клипарт - Resource Boy - 250 Light Leak Overlays [JPG]
+Шрифты - Alexander Shimanov - ST-KOMSOMOL [TTF, OTF, WOFF, WOFF2, EOT, SVG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эксклюзивные наложения "Light Leak 250" - это идеальная коллекция для фотографов, дизайнеров и креативщиков, которые хотят добавить нотку кинематографической магии в свои визуальные эффекты. Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 7680 x 4218 - 7680 x 4328
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander Shimanov
+Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2, EOT, SVG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9261029F18D50BA51CC1761807DDE70CF41E42D1
+magnet:?xt=urn:btih:EC283D17AC494D6F7761B701913566DFE8063A45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +624,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790872   (21730) от 11.04.2025
+###  Публикация: 1789422   (22464) от 04.04.2025
 
-Текстуры - Pattern Universe - Creative Fabrica - Abstract Metal Texture Digital Papers [JPG]
+Пресеты - The Editorial Edit - Master Collection [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с металлической текстурой (созданная искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Поднимите свой монтаж на новый уровень с помощью The Editorial Edit's Master Collection Pack, тщательно подобранного набора, который объединяет три наших лучших пакета пресетов. Эта коллекция предназначена для тех, кто ценит искусство совершенствования своих изображений с помощью редакционной эстетики.Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71ACB3FAE578C37B54437FDA3E2B33D237478AAA
+magnet:?xt=urn:btih:299BE72D1B67DDE10FCFFDEFA796FD030DD13F90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +650,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790964   (21729) от 11.04.2025
+###  Публикация: 1789560   (22461) от 04.04.2025
 
-Фоны - Resource Boy - 1000 Gradient Backgrounds Vol. 03 [JPG]
+Пресеты - PixelExpand - Arch, Portrait and Noir Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные фоны. Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3840 x 2160
+Раскрытие души монохрома: превращение плоских изображений в эмоциональные шедевры Откройте для себя суть черно-белой фотографии с помощью наших пресетов. Попрощайтесь с плоскими, бесчувственными изображениями. Всего за несколько щелчков мыши придайте глубину, текстуру и драматизм своим снимкам, превратив их в шедевры, неподвластные времени. Погрузитесь в магию монохрома (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C40921D9AF7F3F4FD2A0E4BF03C48B7B5AF51FD
+magnet:?xt=urn:btih:59546FCFB167AC1348EA4FD1006E93CD4D6EA68D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,233 +676,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790867   (21726) от 11.04.2025
+###  Публикация: 1789371   (22457) от 04.04.2025
 
-Фоны - Pattern Universe - Creative Fabrica - Eco Dyed Linen Fabric Digital Papers [JPG]
+Шрифты - Alexander Shimanov - ST-Surzhik [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 фонов из льняной ткани, окрашенной в эко-стиле (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9A889195E392DA1A024198D787DA170FD98DD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791334   (21569) от 13.04.2025
-
-Футажи - Motion Array - Pack Of Falling Rain Overlay - 2001196 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет графики движения включает 9 циклических анимаций элементов дождя на черном фоне. Пакет включает элементы дождя и тумана в бесшовном цикле.Формат: MOVРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C1FC12815C8B1CA161AC3D52D489B7392FD0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791493   (21442) от 14.04.2025
-
-Звуковые библиотеки - Blindusk - Sound Design Collection [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция звукового дизайна содержит более 1000 высококачественных, профессионально созданных звуковых эффектов, которые поднимут ваш монтаж на новую высоту. От кинематографических ударов и подъемов до окружающих текстур и свистов - этот пакет предоставляет основные аудио-элементы, чтобы придать глубину и эмоции вашим визуальным эффектам. Идеально подходит для режиссеров, (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CE9F80ECF3E2C864766850A19FE7170350AC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791521   (21434) от 14.04.2025
-
-Звуковые библиотеки - OverlayFX - Cinematic Elements - A Sound Effects Journey - SFX Bundle [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21434.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Добро пожаловать в Cinematic Elements! Погрузитесь в мир звука с Cinematic Elements, вашим основным источником высококачественных звуковых эффектов, тщательно созданных для режиссеров, разработчиков игр и аудио-энтузиастов. Наша обширная коллекция создана для того, чтобы улучшить ваши проекты с помощью захватывающих звуковых впечатлений, которые (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D128D82743015DE11F11BE92DD7388AD030A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791662   (21431) от 14.04.2025
-
-Растровый клипарт - Creative Fabrica - STCrafts - Christmas Baubles Pattern [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные орнаменты с  рождественскими игрушками .Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E962DBDFCC2FC8E24CEC9DABA2A18D3749B387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791656   (21429) от 14.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Baroque Flowers Pattern Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с цветочным узором в стиле барокко.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B5DBA1632046480C3CCE0EE28E1AF1317AD5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791660   (21422) от 14.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Celestial Stained Glass Texture Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с текстурой витража.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4E9ACE82C225C45195BF388B5FBFFBBAF662A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791690   (21324) от 15.04.2025
-
-Фоны - STCrafts - Creative Fabrica - Gold Sparkles Glitter Stars Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровые бумажные фоны с золотыми блёстками и звёздочками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6FEC105C1D585354F04EC7F097C7F4B1D8E1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791687   (21323) от 15.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Dark Fantasy Watercolor Texture Digital paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с тёмной акварельной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE97E8B5922E260A98E8A578D288F6F2311C7B3
+magnet:?xt=urn:btih:C69DC1797FD8FCC436C0AB4FF3E94D43C40ED82D
 ```
 
 https://mybot314.ru/tekegram_catalog/

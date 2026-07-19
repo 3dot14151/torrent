@@ -1,3 +1,61 @@
+###  Публикация: 909212   (708563) от 05.05.2017
+
+Slaughter To Prevail - 1 альбом + 1 EP (2016-2017) [MP3|320 кб/с]<Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery Sermon
+02. Russian Hate
+03. Chronic Slaughter
+04. King(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A126F1DB09F56025ED91770DBD8B9EA81AEF003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131511   (708428) от 05.05.2017
+
+Kasabian - For Crying Out Loud (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Ray (The King) (03:40)
+ 02. You're In Love With a Psycho (03:36)
+ 03. Twentyfourseven (03:02)
+ 04. Good Fight (03:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:09:07 (00:51:04 + 01:18:03)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14309C418C776BE5B15E4C126C2D42753298043D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791902   (708390) от 03.06.2014
 
 The Exies - 6 Альбомов (2000-2007) [MP3|158 - 320 кб/c]<Alt.Rock, Post-Grunge>
@@ -687,64 +745,6 @@ Linkin Park - The Hunting Party (2014) [MP3|320 кб/с]<Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FF5AD27C14EADD767192276E7C90EE02C7CDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222260   (684938) от 29.04.2018
-
-VA - Ultimate Punk & New Wave (5CD) (2018) [MP3|320 Kbps] <New Wave, Art Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Punk & New Wave - CD01
-01. The Jam - The Modern World
-02. The Damned - Neat Neat Neat
-03. Skids - Into The Valley(   Читать дальше...   )Жанр: New Wave, Art Rock, GlamПродолжительность: 05:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4908EA4D78476EF21E4BC03021258EEC747E76B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135095   (684704) от 17.05.2017
-
-Blink-182 - California (2016) 2CD, 2017, Deluxe Edition [MP3|320 Kbps] <Pop Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684704.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cynical
-02. Bored To Death
-03. She's Out Her Mind(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 01:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4D4391E9385DC7A45A8776AE3702B4BF7BAD95
 ```
 
 https://mybot314.ru/tekegram_catalog/

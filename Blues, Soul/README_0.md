@@ -1,3 +1,61 @@
+###  Публикация: 1441113   (1038022) от 20.01.2021
+
+The Steepwater Band - Turn of the Wheel (2020) [MP3|320 Kbps] <Вlues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn of the Wheel (03:38)
+ 02. Trance (04:29)
+ 03. Running from the Storm (03:14)
+ 04. In the Dust Behind (03:37)(   Читать дальше...   )Жанр: Вlues Rock, RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582ABFF8DD228AAB83732465B4A4BF1835FD4629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441803   (1037095) от 23.01.2021
+
+VA - Ladies Sing & Play The Blues Vol.2 (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037095.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:53] 01. Shaun Murphy - Welcome To Bluesville
+[2:59] 02. Jennifer Lyn & The Groove Revival - Burned it Down
+[4:47] 03. Zoe Schwarz Blue Commotion - Htroes
+[4:10] 04. Sheba The Missisippi Queen - Pourin' Rain(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B5C64457DB5C99FEF3EAD29EA4109839C3D2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443065   (1035920) от 27.01.2021
 
 Natural Blues - Elementary Power (2021) [MP3|320 Kbps] <Modern Electric Blues>
@@ -687,64 +745,6 @@ The Blind Pilots - All Kinds Of Crazy (2021) [MP3|320 Kbps] <Blues Rock, Heavy R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E84B2029C6F94AD69C9320D820333E82C00BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475566   (1012225) от 07.06.2021
-
-Eric Johanson - Covered Tracks: Vol. 1, Vol.2 (2021) 2xCD [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covered Tracks - Vol. 1:
- 01. 25 Or 6 To 4 (03:56)
- 02. Head Like A Hole (04:36)
- 03. Oh I Wept (05:08)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A086F2502636FD83B4D24BCA6E68631F098AB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480117   (1009116) от 27.06.2021
-
-Roberta Flack - Quiet Fire (1970) 50th Anniversary Edition, 2021 Remaster [MP3|320 Kbps] <R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Go Up Moses (2021 Remaster) [00:05:23]
-02 - Bridge Over Troubled Water (2021 Remaster) [00:07:17]
-03 - Sunday and Sister Jones (2021 Remaster) [00:05:01]
-04 - See You Then (2021 Remaster) [00:03:44](   Читать дальше...   )Жанр: R&BПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F9B828595F03650DD4A60FCBB7BC8232493EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

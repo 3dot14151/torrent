@@ -1,29 +1,3 @@
-###  Публикация: 1493560   (895350) от 03.09.2021
-
-Macrorit Partition Extender 1.6.1 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Extender - утилита, доступная также в портативной версии, позволяет быстро расширять и объединять разделы жестких дисков HDD и SSD. Macrorit Partition Extender  позволяет быстро расширить раздел со свободным пространством из соседнего раздела, и автоматически объединить нераспределенное пространство в один раздел, если оно доступно на диске. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB39ACD5B639C7549DB85A23C1691B9585CD9C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493550   (895347) от 03.09.2021
 
 PDFCreator 4.4.0 [Multi/Ru]
@@ -694,6 +668,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370670   (895062) от 28.03.2020
+
+LibreOffice 6.4.2.2 Stable Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895062.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20088EFC7D5F775BB4B1A40A5168BDF12CD34876
 ```
 
 https://mybot314.ru/tekegram_catalog/

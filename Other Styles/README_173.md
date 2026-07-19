@@ -1,3 +1,181 @@
+###  Публикация: 1765892   (101295) от 15.12.2024
+
+VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Indiano - Meditation (10:28)
+03. Kalico Jak - Sunlight Through the Treetops (9:04)
+04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766551   (101240) от 19.12.2024
+
+Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qarwa Yaku [06:02]
+02. Nina Tusuy [06:03]
+03. Zisary Lucero [04:16]
+04. The Last of the Mohicans [04:58](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354276   (100784) от 06.10.2025
+
+VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За кадром (2000) 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брат-1: Режиссёр Алексей Балабанов вспоминал, что история «Брата» родилась из его старого замысла соединить в одном фильме бандитов и музыкантов, поскольку он общался и с теми, и с другими. Музыка должна была сыграть одну из ведущих ролей в будущей картине. Подыскивая подходящий саундтрек, Балабанов остановил свой выбор на группе «Наутилус Помпилиус», поскольку был (   Читать дальше...   )2000 - Брат-1. Музыка к фильму
+2000 - Брат-2. Музыка к фильму
+2000 - Брат-2. За кадромЖанр: RockПродолжительность: 03:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822332   (100767) от 06.10.2025
+
+VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Pyramid of Light (Original Mix) (8:02)
+02. Tibetania, Kaisser Bouzriba - Sawt El Hob (Original Mix) (6:32)
+03. The Friend, Tibetania - Desert Wind (Original Mix) (7:18)
+04. Tibetania, Noyan Music, Moohan Music - Moyo (Original Mix) (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768969   (100580) от 30.12.2024
+
+VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
+02. Freya Ridings — I Can't Hear It Now (02:41)
+03. Marcus King — Sucker (03:44)
+04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487060   (100321) от 23.04.2012
+
+AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kentaya (03:45)
+02. Grott (04:32)
+03. Noiman (04:11)
+04. Ya-Fu (04:41)
+05. Lost Highway (04:34)
+06. Istoria (05:00)
+07. In the Fiesta of Lie (03:06)
+08. Snow in the Dream (04:18)
+09. Ti Qua? (04:24)Жанр: Chillout/LoungeПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EC147031054990E34BE8EA09FD5F5451D8FFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474130   (97805) от 27.03.2012
 
 Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age, Meditative>
@@ -652,198 +830,6 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476287   (85997) от 02.04.2012
-
-Калевала - Осень в стиле фолк (2012) [MP3|320 кб/с]<folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: folkПродолжительность: 1:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569BFEEB783FADB31799700EE348DD42FA098FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475277   (85122) от 29.03.2012
-
-VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dario G - Voices
-02. The Beloved - You’ve Got Me Thinking
-03. Jehro - All I Want
-04. Beautiful World - Love Song
-05. Monica Ramos - Angelina
-06. Simply Red - So Beautiful
-07. Laleh - Live Tomorrow
-08. A-Ha - Velvet
-09. Everything But The Girl - Rollercoaster
-10. Angelo Badalamenti - Twin Peaks Theme(   Читать дальше...   )2011  |Жанр: Relax, Easy Listening, PopПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471044   (83360) от 20.03.2012
-
-VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: folk/dance/instrumentalПродолжительность: 06:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470587   (83357) от 20.03.2012
-
-Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, Instrumental, Chor.>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God of Thunder
- 02 - Incredible Machines
- 03 - Rebirth of a Legend
- 04 - Rebirth Remix
- 05 - Rise of a Hero
- 06 - Warhammer
- 07 - Guardian Angel
- 08 - Limitless
- 09 - Grand Design
- 10 - Dark Force Rising(   Читать дальше...   )Жанр: Orchestral - Electronic - DramaПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468910   (83309) от 20.03.2012
-
-John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.20th Century Fox Fanfare (0:19)
-2.Star Wars Main Title / The Imperial Probe (3:43)
-3.Saying Goodbye (1:31)
-4.Escaping the Wampa's Lair (1:41)
-5.Vision Of Obi-Wan / Luke's Rescue (2:14)
-6.Snowspeeder Rescue (1:03)
-7.The Bacta Tank (0:16)
-8.The Executor (1:47)
-9.Battle Preparations (4:02)
-10.Battle Of Hoth (3:18)(   Читать дальше...   )Жанр: ScoreПродолжительность: 2:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469248   (82728) от 17.03.2012
-
-Звуки Природы - Песни Птиц (1999) [MP3|320 кб/с]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Восход (03:20)
-02. Птицы на реке (03:51)
-03. Пересмешник (01:09)
-04. Древесный дрозд, Рыжик, Лисий воробей (02:57)
-05. Воробей с белым горлом, Краснохвостый сокол (01:55)
-06. Красноголовый дятел, Красногрудый дятел (02:37)
-07. Пурпурный зяблик, Балтиморская иволга, Болотная иволга (02:47)
-08. Каролинский крапивник, Каньонный крапивник, Мухолов (03:06)
-09. Ворона обыкновенная, Большой баклан, Зеленая цапля (02:57)
-10. Обыкновенный воробей, Обыкновенный дятел, Овсянка (03:35)(   Читать дальше...   )1999Жанр: RelaxПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
 ```
 
 https://mybot314.ru/tekegram_catalog/

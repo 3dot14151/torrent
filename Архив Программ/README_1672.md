@@ -1,3 +1,29 @@
+###  Публикация: 1585967   (219027) от 24.10.2022
+
+YT Downloader 7.17.12 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219027.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE30E3AB47C1ED70F0EBF6E25D321C5249930FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514228   (219013) от 02.12.2021
 
 Opera 82.0.4227.23 [Multi/Ru]
@@ -642,35 +668,6 @@ CCleaner - утилита для чистки мусора в операцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE15DFF0FCDEB70F4E1DA67572F8AA9E1459CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585875   (218594) от 24.10.2022
-
-Windows 11 22H2 x64 Rus by OneSmiLe [22621.870]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_11_business_editions_version_22h2_updated_oct_2022_x64_dvd_d03eb378
-Удалены все модерн приложения.
-3 образа системы -(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4363D5203E5BEFC66BEFB6DACD998A1837DF300F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1165530   (432944) от 13.09.2017
-
-Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble, Why Pick On Me? [02:51]
-02. Shakin' The African [02:53]
-03. Chant Of The Weed [03:17]
-04. Shakin' The African [02:43](   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF8F3F584B28A8E06E3C4C154A9D002B8E68EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063722   (432854) от 17.10.2016
-
-Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Such Sweet Thunder [03:26]
- 02.Sonnet For Caesar [03:03]
- 03.Sonnet To Hank Cinq [01:24]
- 04.Lady Mac [03:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3616FB68BF527A91DD76C6844A52EEA7AFC6F6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063704   (432703) от 17.10.2016
-
-Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oh! [02:48]
- 02.Concentratin' On You [03:07]
- 03.When the World is at Rest [03:29]
- 04.That's Love! [03:01](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985B06E2449573068313237E3312FDB06F1BA8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063758   (432699) от 17.10.2016
-
-The Grassella Oliphant Quartette - The Grass Roots (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.One For the Masses [04:39]
- 02.The Descendant [03:03]
- 03.Star Dust [04:07]
- 04.Uptown Hours [04:12](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0D6AC86001EF0C85FE786C6B95BC99A9E16582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063622   (432260) от 17.10.2016
 
 VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban Jazz, Mambo, Salsa>
@@ -753,6 +637,137 @@ Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
 7. Middle March (05:46)
 8. Living Streams (05:02)
 9. Whither Must I Wander? (05:59)Жанр: JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323729   (431693) от 06.09.2019
+
+Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431693.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Portrait In Jazz:
+01. Come Rain or Come Shine [3:21]
+02. Autumn Leaves [5:59]
+03. Autumn Leaves (mono) [5:24](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Piano JazzПродолжительность: 02:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581E25A9591259AE5F0AB67F1AEBF2738AC4B782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553033   (431587) от 03.10.2012
+
+Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless]<Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluma/Smoke on the Water  (5:39)
+02. The Medley Purple Haze/The Third Stone from the Sun/Teen Town (17:36)
+03. Star Spangled Banner  (5:01)
+04. Reza (5:36)
+05. Honestly (6:28)
+06. Invitation (7:43)
+07. Broadway Blues (12:31)Жанр: Jazz-Rock, FusionПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553324   (431579) от 03.10.2012
+
+Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Felicidade (Happiness) [05:15]
+02. Correnteza [02:28]
+03. So Tinha De Ser Com Voce [03:45]
+04. Medo De Amar (Surrender The Soul) [03:43]
+05. O Morro Nao Tem Vez (Favela) [06:20]
+06. Estrada Branca (This Happy Madness) [04:49]
+07. Outono (Stay) [05:02]
+08. Double Rainbow [05:33]
+09. Imagina [02:55]
+10. Desafinado (Slightly Out Of Tune) [05:13](   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555291   (431513) от 03.10.2012
+
+Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, Rock, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (To Your Heart) [05:21]
+02. Goin' Down to Monte Carlo [08:12]
+03. Born to Sing [04:39]
+04. End of the Rainbow [04:36]
+05. Close Enough for Jazz [03:46]
+06. Mystic of the East [04:56]
+07. Retreat and View [06:51]
+08. If in Money We Trust [08:02]
+09. Pagan Heart [07:52]
+10. Educating Archie [05:44]Жанр: Jazz, Blues, Pop, RockПродолжительность: 00:59:54
 
 ## Скачать торент
 ```bash

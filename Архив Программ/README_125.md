@@ -1,3 +1,29 @@
+###  Публикация: 1472454   (1014363) от 25.05.2021
+
+Aiseesoft Video Converter Ultimate 10.2.16 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD601E50A67F1BE6A71CE356BC41A13F9122EC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472548   (1014338) от 25.05.2021
 
 RAM Saver Professional 21.3 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -648,32 +674,6 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:840B8019039BC32F1762B3389BE8DD65CF2548B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473000   (1013946) от 27.05.2021
-
-AOMEI Partition Assistant Technician Edition 9.2.1 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E466A3545C6EC34B5ACAF5CB423FDEC5A3ED14E
 ```
 
 https://mybot314.ru/tekegram_catalog/

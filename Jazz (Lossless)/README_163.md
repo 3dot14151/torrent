@@ -1,119 +1,3 @@
-###  Публикация: 929609   (518524) от 20.08.2015
-
-Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [05:39]
-02. Love Come Back To Me [06:11]
-03. St. Louis Blues [11:25]
-04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929613   (518523) от 20.08.2015
-
-Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vino, Oh Vino! [05:51]
-02. Serenade To A Planet [07:52]
-03. Expectation [06:46]
-04. H&T Blues [06:06](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C0A3A2997A96BA1904BC9BB55282E679F6EDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929676   (518519) от 20.08.2015
-
-Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recuerdo [05:35]
-02. Big Foot [04:26]
-03. I Had The Craziest Dream [06:24]
-04. Solar [04:20](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B581992A7ED29353C9B4931FA5D056D697C33EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929474   (518512) от 20.08.2015
-
-Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unexpected
-02. Black And White Thinking
-03. Remember The Love
-04. Blue Light(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241771   (518470) от 19.08.2018
 
 Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
@@ -761,6 +645,122 @@ Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDB9DD9C58946EA2F4A0CD6546DC1E014ABBED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561493   (514515) от 05.07.2022
+
+Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retrospective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514515.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- 1923-1931:
+01. Am I Blue? [3:25]
+02. Ethel Sings 'Em [3:19]
+03. Sweet Georgia Brown [3:13](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F47EF9DADD6B47AE945A8098253048F79912015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930873   (514125) от 24.08.2015
+
+Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heads Up! Feet Down! [06:03]
+02. Togetherness [06:51]
+03. The Folks Who Live On The Hill [05:35]
+04. Good Humor Man [05:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CCCBD003E5B9850B2CAC719914E43EABAB11A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930891   (514124) от 24.08.2015
+
+Masabumi Kikuchi - Wishes / Kochi (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auroral Flare [13:37]
+02. Caribbean Blue [08:45]
+03. La Moca Esta Dormindo [05:36]
+04. Pacific Hushes [11:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6889D656B31C458735E879BE08AF8EB3DF811B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930864   (514122) от 24.08.2015
+
+Chico Hamilton - And The Players (1976) /2013, EMI Music/[FLAC|tracks+.cue]<Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sweets [06:01]
+02. First Light [03:44]
+03. Abdullah's Delight [03:58]
+04. Ole To Miles [07:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3787A772B39337B08C33DE036D0C833E7E9F1C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

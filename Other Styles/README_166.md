@@ -1,3 +1,177 @@
+###  Публикация: 1271542   (147113) от 25.12.2018
+
+VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Jazz, Easy Listening>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 L'amore perduto (From La finestra di fronte) - Andrea Guerra 03:25
+02 Once and Again (From La volpe dalla coda di velluto) (Vocal) - Piero Piccioni, Shawn Robinson 04:35
+03 Last Tango in Paris (From Last tango in Paris - Ultimo tango a Parigi) (Titles) - Gato Barbieri 03:24
+04 Why Did She Choose You (From Last Tango in Paris - Ultimo tango a Parigi) - Gato Barbieri (   Читать дальше...   )Жанр: Soundtrack, Jazz, Easy ListeningПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519716   (147092) от 25.12.2021
+
+Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear Music [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coventry Carol
+02. Deck The Halls
+03. God Rest Ye Merry Gentlemen
+04. Oh Christmas Tree(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271690   (147074) от 25.12.2018
+
+Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folsom Prison Blues
+02. Big River
+03. Get Rhythm
+04. Katy Too(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D277BC42D1B0CB2DEE0CE7E0B7AA98AB595668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271804   (146870) от 25.12.2018
+
+VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|320 Kbps] <Folk, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В.Іжицький - Дай, кума
+02. Б.Сичевський - Чоботи
+03. І.Книжник - Чорна редька
+04. Б.Сичевський - Ой, Марічко, чичері(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 05:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B534796407FF1A98ABEDEC80BC8C3C76E532105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271553   (146830) от 25.12.2018
+
+Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition, Cardsleeve [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bloodlines (1:55)
+02.The Bustle (2:06)
+03.Steel Cathedrals (2:02)
+04.The Morning Smoke (1:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA749F2490AC4EFBF859212A573C905D66BA3767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087184   (146256) от 27.12.2016
+
+Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from the Award-Winning Series) (2016) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Reflection (07:15)
+02. Dopamine 1 (00:51)
+03. The Sorrows Of Young Lace (01:51)
+04. Dopamine 2 (02:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588974   (146090) от 16.12.2012
 
 Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|320 кб/с] <Game-Rip OST>
@@ -575,180 +749,6 @@ Bader Nana - Acoustics A Tribute To Michael Jackson (2009) [MP3|192 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF6165C46B29934BE679BDD89C4C8132FC6C046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194996   (142476) от 29.12.2017
-
-Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Murphy's Law (5:13)
-02 - Wheelchair Man (6:01)
-03 - Did You Feel That? (3:29)
-04 - Save the Rain (3:00)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA72E5C4ADBE5C14BA8CA226E163C266C1D728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195370   (142320) от 29.12.2017
-
-Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness (Reprise) (02:53)
-02. Honour Thy Father and Thy Mother (04:25)
-03. Time Will Pass (04:00)
-04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969940   (141439) от 30.12.2015
-
-Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valley Of The Harps - 4:03
-02. Feeling Blue - 4:36
-03. Visions of Illusion - 3:49
-04. Lifetime - 4:37(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1644967C0DF5F8A0067D7236861458FAD412A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272242   (141160) от 29.12.2018
-
-Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 	I 	8:48
-02 	II 	8:19
-03 	III 	6:29
-04 	IV 	11:43(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272451   (140918) от 29.12.2018
-
-Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Concerto No. 1 "Spring"
-2. Canon in D-Dur
-3. The Swan
-4. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430B169BA8CCDDC7CD9AEF57A790A4E432E77DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195657   (140629) от 30.12.2017
-
-Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas (Piano Version)
-02. Driving Home for Christmas (Piano Version)
-03. All I Want for Christmas Is You (Piano Version)
-04. Let It Snow (Piano Version)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645E8C63AF497CEE7999F5245F14A5488F015AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 934447   (502237) от 05.09.2015
-
-Обои - Beautiful Landscapes HD Wallpapers (Set 91). 1920x1200 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему природыФормат: JPGРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B5750CF9DDD5FE73795DC0173C2F000718B845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934435   (502236) от 05.09.2015
 
 Обои - Коралловый риф. Часть 2. 2880x1620 - 100 шт [JPG]
@@ -670,6 +644,32 @@ Desktop wallpapers (07.09.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAC74AD4728995B762E712B86D35AF9BB0CCDE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544081   (494007) от 06.09.2012
+
+Computer Desktop Wallpapers Collection (07.09.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35CD9F2382F4C93D04BF8D9E9B6D9B406FD112B
 ```
 
 https://mybot314.ru/tekegram_catalog/

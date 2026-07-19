@@ -1,3 +1,32 @@
+###  Публикация: 1404432   (493208) от 25.08.2020
+
+VA - 90's Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shania Twain - You're Still The One (3:32)
+02. Spice Girls - 2 Become 1 (4:01)
+03. Ronan Keating - When You Say Nothing At All (4:18)
+04. Bryan Adams - (Everything I Do) I Do It For You (6:33)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849F3EF6EB03B096806F9350A41B85107B7D68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936987   (492473) от 13.09.2015
 
 Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
@@ -716,35 +745,6 @@ Chips - Having A Party (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BD72DF1DC4DED1BABF4B3A82059DF148E469F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567231   (476313) от 01.08.2022
-
-VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JP Cooper - The Only Reason (3:39)
-02. Stephen Sanchez - Until I Found You (2:57)
-03. Billie Eilish - Your Power (4:05)
-04. a-ha - Take On Me (2017 Acoustic) (3:04)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C105D9B5B2B23CD7C9088691DEBCE30C86AE4D39
 ```
 
 https://mybot314.ru/tekegram_catalog/

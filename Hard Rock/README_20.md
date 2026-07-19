@@ -1,3 +1,67 @@
+###  Публикация: 547157   (476469) от 14.09.2012
+
+Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Midnight Oil (3:51)
+02.  Full Pull (2:27)
+03.  Running Away (2:29)
+04.  All Fired Up (3:38)
+05.  Rolling Home (6:11)
+06.  In The Heat (2:38)
+07.  High On The Hog (2:57)
+08.  Rush Hour (3:43)
+09.  Freeriding (2:54)
+10.  Gutterview (3:10)(   Читать дальше...   )Жанр: Hard N' HeavyПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BAED4636AF2FBA1385918FD995E40E01B419D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939383   (475600) от 21.09.2015
+
+Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unity
+02. Never Let You Down
+03. World Has Gone Mad
+04. Spirit Of Light(   Читать дальше...   )Жанр: Melodic Hard Rock / Melodic RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 385458   (474297) от 10.09.2011
 
 Mother's Army - 3 Albums (1993-1998) [MP3|320 kbps]<Hard Rock>
@@ -709,64 +773,6 @@ ZED - Desperation Blues (2013) [MP3|320 Kbps] <Hard & Heavy, Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25C14FB815F206352958CF84F9258182752A40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061486   (448863) от 10.10.2016
-
-ZED - The Invitation (2010) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave Me Alone   (04:38)
-02. Lunatics And Liars   (04:23)
-03. Halo   (03:57)
-04. A Drug   (03:49)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5D5BC05300415CE4901EA0D7B6008FD8FB8B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570194   (445104) от 16.08.2022
-
-Sweet - The Answer (1995) Remastered, 2022 [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do As I Say (Remastered 2022) [00:04:57]
-02. X-Ray Spec's (Remastered 2022) [00:04:05]
-03. Am I Ever Gonna See Your Face Again (Remastered 2022) [00:04:01]
-04. Stand Up (Remastered 2022) [00:04:58](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A0EFE0274F5729960DD54836AD679806643705
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1001088   (855817) от 27.03.2016
+
+Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855817.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Veterans Of The Apocalypse
+2. The Path
+3. Fire And Ice
+4. Through The Pain(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660A89F36D961E72C211CDC2B1B542AF5AF8C2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376848   (855198) от 20.04.2020
+
+In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855198.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - In Dying Arms (Remake 2017)
+2012 - Boundaries
+2016 - Original SinЖанр: Deathcore, MetalcoreПродолжительность: 02:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110433   (853773) от 02.03.2017
+
+Blaze Bayley - Endure and Survive (Infinite Entanglement Part II) (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endure and Survive
+02. Escape Velocity
+03. Blood
+04. Eating Lies(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3465DA3D3EC2664F9BB281F3A29000DC5BF2F53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110388   (853736) от 02.03.2017
 
 Bloodbound - War Of Dragons (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
@@ -653,93 +739,6 @@ Battlesword - Banners Of Destruction (2016) [MP3|320 кб/с] <Death Metal,Thras
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492795A430FC514E95EB309F9C6147824D718A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002383   (848995) от 31.03.2016
-
-Dead Territory - Mind Of Damnation (2016) [MP3|320 кб/с] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil Is Digging Your Grave
-02. Winter In Hell
-03. Apocalyptic War
-04. Brutal Happiness(   Читать дальше...   )Жанр: MDMПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF0D61DC302D54BA98EE6D2F2871102FBFF852B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002426   (848986) от 31.03.2016
-
-Path Of Destiny - Dreams in Splendid Black (2016) [MP3|320 кб/с] <Symphonic Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Awakening
-2. Invocation
-3. Embers
-4. Reign of the Ravenous(   Читать дальше...   )Жанр: Symphonic Death Metal, Black MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248A0A1B22B972A7A1554987102B831A27713BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002341   (848785) от 31.03.2016
-
-The Algorithm - Brute Force (2016) [MP3|320 кб/с] <Progressive Metal, Electronic, Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. boot (03:28)
-02. floating point (05:08)
-03. pointers (04:40)
-04. brute force (05:22)(   Читать дальше...   )Жанр: Progressive Metal, Electronic, MathcoreПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31175027A0BD2C6E8FB5AF3FE5B8C09FDFF5BE33
 ```
 
 https://mybot314.ru/tekegram_catalog/

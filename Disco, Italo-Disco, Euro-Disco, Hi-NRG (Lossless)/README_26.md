@@ -1,3 +1,102 @@
+###  Публикация: 1821996   (94684) от 04.10.2025
+
+VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Italian Boys (Italo-Disco Extended) (4:10)
+02. Italo4ever feat. Kate Lesing - See Me Now (Extended) (6:01)
+03. David Dima - Time Machine (I Venti Remix) (7:04)
+04. Mextazuma - Lo Qui Siempre Sone (Extended Version) (6:02)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486158   (89814) от 21.04.2012
+
+Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Voice In The Dark
+02 - Die For You
+03 - Fools Cry
+04 - Pretty Woman
+05 - Sail Away
+06 - Keep On Going
+07 - Why Oh Why
+08 - Love Has Called Me Home
+09 - Locomotion
+10 - Saltimbanco(   Читать дальше...   )2001Жанр: EuroDiscoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470395   (83313) от 20.03.2012
+
+Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're OK (3:29)
+02. D.I.S.C.O. (3:21)
+03. Hands Up (Give Me Your Heart) (3:33)
+04. Crazy Music (3:36)
+05. Shalala-Song (3:45)
+06. Comme Aux U.S.A. (4:57)
+07. A.I.E. Is My Song (3:34)
+08. Shubidube Love (2:54)
+09. Doudou Rumba (3:39)
+10. Hello Rio (4:31)(   Читать дальше...   )2007Жанр: DiscoПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465919   (81478) от 11.03.2012
 
 Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Italo-pop - Disco>
@@ -677,93 +776,6 @@ Modern Heroes - Magic-The 1st Album (2024) [FLAC|Lossless|tracks] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25125B59E3F144509D266DDF4EB48493318F17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718098   (58759) от 23.04.2024
-
-Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever [00:05:35]
-02. Yourself [00:06:22]
-03. Sunrise [00:04:06]
-04. Musica [00:05:49](   Читать дальше...   )Жанр: cosmic discoПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AED6D5F69D874A62B10BFA18437E0735AB44C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719534   (58163) от 29.04.2024
-
-Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Ross - The Last Wall (Zyx Edit Remastered 2023) (3:09)
-02. Roy - Shooting Star (Zyx Edit Remastered 2023) (2:59)
-03. Quinn Martin - One More Mission (Zyx Edit Remastered 2023) (3:05)
-04. Helen - I Love You (Zyx Edit Remastered 2023) (3:10)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E0D26AEBCEC940A20409F03C47F732C90FD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719810   (58025) от 30.04.2024
-
-VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Mauro & Fred Ventura - You And I (Vocal Version) 05:11
-02. Fabian Nesti - Dreamer (115 H.Q. Version) 05:00
-03. Italowarriors feat. Raffale Fiume & Fabian Nesti - The Warrior (Italo Version) 05:28
-04. Joey Mauro & Clock On 5 - Love Kills (The Mayerling Part 2) 05:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
 ```
 
 https://mybot314.ru/tekegram_catalog/

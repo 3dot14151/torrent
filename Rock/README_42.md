@@ -1,32 +1,3 @@
-###  Публикация: 379390   (594651) от 04.07.2015
-
-The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Tomorrow Is A Grey Day (03:16)
-02. Make The Change...Are Your Last Days (08:58)
-03. The Time Will Never Come Back (09:04)
-04. Soul Of City (09:16)(   Читать дальше...   )Жанр: Shoegaze, Post Black Metal, Post RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA1F935E9E2B2FCB4830A2B9572DF8FD6FBA46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039896   (594565) от 02.08.2016
 
 Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Garage Rock>
@@ -737,6 +708,35 @@ Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D5EA28FEF014E9A32E656C585EE45C6A167B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041431   (583378) от 08.08.2016
+
+Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583378.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire 'n Ice (5:38)
+ 2. Attitude Adjustment (7:04)
+ 3. Inferno (5:04)
+ 4. Wood's Bolero (4:16)(   Читать дальше...   )Жанр: Symphonic Rock, Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

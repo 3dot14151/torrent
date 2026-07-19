@@ -1,3 +1,115 @@
+###  Публикация: 1346824   (155074) от 21.12.2019
+
+George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песня британского поп-дуэта Wham!, выпущенная рекорд-компанией Epic Records в 1984 году, в формате double A-side с «Everything She Wants». Она была написана Джорджем Майклом, участником дуэта. Песня перепевалась многими артистами на протяжении последующих лет.
+
+Джордж Майкл - британский певец, поэт и композитор греческого происхождения. За время музыкальной карьеры (   Читать дальше...   )Жанр: ПопСубтитры: Английские (full)Продолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9D81CA5ABFAD45B132959531D7C9782BC94563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194834   (153164) от 26.12.2017
+
+Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153164.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+103 Rod Stewart - Rhythm Of My Heart
+104 Richard Marx - Right Here Waiting
+105 Александр Иванов - Ну и пусть(   Читать дальше...   )Жанр: Pop, RockФормат: MKVПродолжительность: 03:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F21EDBA2632A9A87ABD47320CB1743FD0D4103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588823   (152776) от 14.12.2012
+
+Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968489   (152540) от 24.12.2015
+
+VA - Зимний марафон № 214: Дискотека Уходящего Года (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (23.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+02. Azary and Kleo ft С.Ибрагимов, Д.Шарапова, З.Омарова, Kental, Alldavai - С Новым Годом, Казахстан! (Премьера!) (00:03:15)
+03. Carly Rae Jepsen ft. Josh Ramsay - Sour Candy (Official Video) (00:03:06)
+04. Dj Kan and Миша Марвин ft. Тимати - Ну Что За Дела (Премьера!) (00:03:20)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589156   (152049) от 14.12.2012
 
 Top Of The Pops 70s (vol.3) (2009) DVDRip
@@ -617,110 +729,6 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592232   (135403) от 23.12.2012
-
-Xenia - Understand (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592231   (135370) от 23.12.2012
-
-Plies - Hunna (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592233   (135193) от 23.12.2012
-
-The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alt RockПродолжительность: 00:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCB3FE79AB4DEFACBAC276B2632C5C3E8818941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593490   (134361) от 24.12.2012
-
-Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

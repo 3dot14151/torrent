@@ -1,3 +1,90 @@
+###  Публикация: 541703   (501234) от 31.08.2012
+
+Grave Digger - Clash Of The Gods (2012) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charon (2:19)
+02. God Of Terror (4:19)
+03. Hell Dog (4:28)
+04. Medusa (5:39)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3613538320C12E33B0D10DF2BF4EEB87F9B8BE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564433   (500597) от 18.07.2022
+
+Bloodstained Ground - Horrors of a Withered Dimension (2022) [MP3|320 Kbps] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue [00:01:30]
+02 - The City of Pillars [00:05:13]
+03 - Pastorial Grief [00:06:01]
+04 - The Mind's Abyss [00:05:27](   Читать дальше...   )Жанр: MDMПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1A5BB5131A709E1840488E5F061B5187349E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564428   (500596) от 18.07.2022
+
+VA - Napalm Records Prog Sampler 2022 (2022) [MP3|320 Kbps] <Prog-Rock, Prog-Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jinjer - Wallflower 04:17
+2. Evergrey - Call Out the Dark 04:23
+3. God Is An Astronaut - Burial 06:04
+4. Me And That Man - Angel Of Light (ft. Myrkur) 04:17(   Читать дальше...   )Жанр: Prog-Rock, Prog-Metal, MetalПродолжительность: 01:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8003B877C041C19A0BFCFC14391A0EC46C4FD8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934883   (500556) от 07.09.2015
 
 Dalriada - Aldas (2015) [MP3|320 кб/с]<Folk Metal, Epic Folk Metal>
@@ -669,99 +756,6 @@ The Rods - 7 Albums + 1 Live (1980-2011) [MP3|320 kbps]<Heavy Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937159   (489904) от 14.09.2015
-
-My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489904.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. And My Father Left Forever
-2. To Shiver In Empty Halls
-3. A Cold New Curse
-4. Feel the Misery(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7988D8DF0B85FE40A051F2E15DB98FC2D5A1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404906   (489377) от 27.08.2020
-
-John Petrucci - Terminal Velocity (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminal Velocity (06:08)
- 02. The Oddfather (06:25)
- 03. Happy Song (06:01)
- 04. Gemini (06:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4272C237BAE6416B2547474F4EA152AF3142190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538980   (489137) от 08.09.2012
-
-Katatonia - Dead End Kings (2012) Limited Edition [MP3|320 кб/с]<Doom, Depressive, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Parting (4:52)
-02. The One You Are Looking For Is Not Here (3:52)
-03. Hypnone (4:06)
-04. The Racing Heart (4:05)
-05. Buildings (3:28)
-06. Leech (4:23)
-07. Ambitions (5:06)
-08. Undo You (4:55)
-09. Lethean (4:39)
-10. First Prayer (4:27)(   Читать дальше...   )Жанр: Doom, Depressive, Progressive MetalПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886DA4369E401B8899E6443E8E7DE3D3154EAE1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

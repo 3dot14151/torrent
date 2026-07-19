@@ -1,3 +1,32 @@
+###  Публикация: 1298432   (166966) от 14.12.2019
+
+Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..) - Discography 100 Releases (1992-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experiment ...
+
+>>След.
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoga - Part 1 (09:55)
+ 02. Yoga - Part 2 (09:05)
+ 03. Spiritcatcher (06:31)
+ 04. Yoga - Long Version (27:33)Тип издания: CD, WebЖанр: Dark Ambient/ExperimentalПродолжительность: 131:21:48 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990D32C4B3E2EB738E4E3A59D2FA8616D1E0B99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432204   (165221) от 16.12.2020
 
 Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Electro, Synth-Goth>
@@ -715,35 +744,6 @@ Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E63D3ACBC4E3D1E76E8AC5324C6056EAE0D6403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707241   (113426) от 15.03.2024
-
-Persher - Sleep Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crumpled Man [00:03:12]
-02. Elemental Stoppage [00:02:58]
-03. Medieval Soup From The Milkbar [00:03:17]
-04. Sycamore [00:04:24](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7716807BFC768D800F0FD1E4CDA980BA078BAE6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1210470   (778695) от 03.03.2018
+
+VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Byrds – Turn! Turn! Turn!
+002 The Hollies - The Air That I Breathe
+003 The Alan Parsons Project - Don't Answer Me
+004 Nazareth - Love Hurts(   Читать дальше...   )Жанр: Classic Rock, Rock & Roll, Blues RockПродолжительность: 03:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C161042EFD835FB818E7CA4EDBEC809447BFE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209826   (778688) от 03.03.2018
+
+VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778688.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. V Sparks - (IRP) Intro
+2. The Magnetic North - A Death In The Woods
+3. Roald van Oosten - A Dream Within A Dream
+4. Cold Weather Company - Another Involved(   Читать дальше...   )Жанр: Indie/RockПродолжительность: 05:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ECB016E23063D89CF16F061F3F3976365D6D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210834   (778545) от 04.03.2018
+
+VA - The Last Note Of Life (2018) [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Queensryche  -  Empire  5:24
+002.  Kamelot  -  Silent Goddess  4:14
+003.  Liquid Tension Experiment  -  Acid Rain  6:36
+004.  Threshold  -  Avalon  4:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 08:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFEDD8E4270282F7336B379389D59410B0770B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210760   (778469) от 04.03.2018
 
 VA - Союз. Rock 4 (2018) [MP3|256-320 Kbps] <Rock>
@@ -660,93 +747,6 @@ Metal Ballads - Collection 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6F85FF0F422AF5F95E79C2590F4FB6A1E8E4CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393377   (767701) от 30.06.2020
-
-VA - Birds In The Windows (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shitkid - Poobrain
-002. Lewis Capaldi - Lost On You
-003. Alev Lenz - Laura
-004. Baxter Dury - Saliva Hog(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3646FEBB6CC66E8B1A20C12E156D07B79B7A257E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278764   (767667) от 27.01.2019
-
-VA - Wonderful Life: Real Rock (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anathema - Anathema
-002. Oakman - Clear Enough
-003. Redwood - In Your Arms
-004. Tantric - Down And Out(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C60891DDF3A9CB3799E4A619A4CE256127CA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393378   (767633) от 30.06.2020
-
-VA - Music for You vol.9 (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caligula's Horse  - Valkyrie (05:06)
- 02. Deceptic - Ocean (04:36)
- 03. Lost in Thought - Seek to Find (05:15)
- 04. Pyramaze - Disciples of the Sun (04:12)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84140C18B9B2A66474DEDA7DB57ECF733840FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 925791   (539100) от 07.08.2015
+
+VA - From Russia With Italo Disco (2012) [FLAC|mage+.cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Touch Your Body Now (Extended Version) (Magic System D.J.) [06:44]
+02. Flute Cries (Maxi Version) (Siberian Heat) [08:11]
+03. Harsh Wind (Duro Mix) (Dyva) [07:01]
+04. When I Close My Eyes (Squash Gang) [06:16](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6639E56136E67D098D396D1010296809D2CEC45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926008   (537106) от 08.08.2015
+
+Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Serenata (Overture)
+02. Lucifer
+03. Testamente D'Amelia
+04. Is She Really Going Out With Him? (Live In Leningrad 05. Autumn 1990)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050706   (536191) от 09.09.2016
+
+Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. All We Need Is Love
+02. Game Of Love
+03. You're My Heart You're My Soul ft. Big Daddi(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925946   (533415) от 10.08.2015
 
 Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [FLAC|tracks +.cue]<Disco, Soul>
@@ -687,110 +774,6 @@ VA - Disco Discharge - Cruising The Beats (2011) 2CD [FLAC|Lossless]<Disco, Funk
 08. Fantastique  -  	Mama Told Me (Original 12" Mix) 	[05:37]
 09. Area Code (212)  -  	Manhattan Shuffle (Original 12" Mix) 	[06:12]
 10. Technique  -  	Can We Try Again (Original 12" Mix) 	[05:10](   Читать дальше...   )Жанр: Disco, Funk / Soul, PopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542020   (499169) от 02.09.2012
-
-Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Rain (5:55)
-02. Primitive Man (5:25)
-03. A Smile At Dawn (4:38)
-04. Two Cups Of Coffee (3:56)
-05. Voyage Of No Return (5:51)
-06. Coconut Rain (4:30)
-07. Fortune Teller (5:30)
-08. Contigo (4:29)
-09. Spring Rain (Radio Edit) (3:01)Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542305   (499115) от 02.09.2012
-
-VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glitter Band - Makes You Blind (Re-edit) [06:00]
-02. The Players Association - Turn The Music Up! [06:54]
-03. Bombers - (Everybody) Get Dancin' [09:29]
-04. Grey & Hanks - Dancin' [07:07]
-05. Change - It Burns Me Up [05:07]
-06. Glen Adams Affair - Just A Groove [06:20]
-07. Cerrone - Look For Love [10:17]
-08. Companion - Livin' Up To Love [09:11]
-09. Don Ray - Got To Have Loving [08:20]
-10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542313   (499108) от 02.09.2012
-
-VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaz Nevada - I.C. Love Affair [06:30]
-02. Advance - Take Me To The Top [06:18]
-03. Change - Change Of Heart [07:06]
-04. Kano - I'm Ready [07:15]
-05. Laura Branigan - Self Control [05:01]
-06. Eighth Wonder - I'm Not Scared (Disco Mix) [08:00]
-07. Propaganda - P Machinery (Polish) [09:24]
-08. Mike Maureen - Dancing In The Dark [05:36]
-09. Fun Fun - Happy Station ( Scratch Mix) [05:57]
-10. Time Bandits - Live It Up (Album Version) [07:26](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:16:26
 
 ## Скачать торент
 ```bash

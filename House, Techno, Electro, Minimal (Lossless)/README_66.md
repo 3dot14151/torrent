@@ -1,3 +1,173 @@
+###  Публикация: 1732195   (107560) от 23.06.2024
+
+Eli & Fur - My Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Reflection
+02. Golden Eyes and Tears
+03. InsomniaЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1FB4774C2075EB85B8A033FB534768203B9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732119   (107549) от 23.06.2024
+
+Christian Loffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Everything Was New (4:27)
+02. Roused (feat. Malou) (4:11)
+03. A Life (4:56)
+04. Portals (feat. Mogli) (3:51)(   Читать дальше...   )Жанр: Organic House, Melodic House & TechnoПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B798B0CD45BAA8C6C6375133182859BC31068B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732335   (107490) от 24.06.2024
+
+No Mana - I Contain Flashing Images (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Contain Flashing Images [00:00:29]
+02. Solarpunk [00:03:59]
+03. Falling in Love [00:03:37]
+04. Digital Friends [00:03:41](   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07144AC269188891C6112B62629D8BEF69A6CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733604   (107215) от 30.06.2024
+
+Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Long [00:06:24]
+02. Topaz [00:06:30]
+03. Ghetto Lover [00:06:57]
+04. Ruby [00:06:46](   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8DC6F95979B86D2B201717A29D7B3CF3617C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734567   (107103) от 04.07.2024
+
+Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlotte de Witte - Overdrive (6:48)
+02. Charlotte de Witte - High Street (6:11)Жанр: TechnoПродолжительность: 00:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF52CFBA75B47B2631DC12D463C2F8D3ED8DF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734566   (107100) от 04.07.2024
+
+Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlotte De Witte - Power Of Thought (6:11)
+02. Charlotte De Witte - Pria (7:00)
+03. Charlotte De Witte - Abada (2:30)Жанр: TechnoПродолжительность: 00:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AF6AC38147F5D7D2B9CE6427821A5523EE8901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734568   (107096) от 04.07.2024
 
 Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
@@ -565,179 +735,6 @@ Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F03622CF4CA1327CBE681DBDEB49BBA78BC55546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756081   (103565) от 19.10.2024
-
-VA - John Digweed - Live in (Stereo) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed – Live in Stereo Continuous Mix CD1 (01:17:20)
-02. John Digweed – Live in Stereo Continuous Mix CD2 (01:14:11)
-03. John Digweed – Live in Stereo Continuous Mix CD3 (01:15:39)
-04. John Digweed – Live in Stereo Continuous Mix CD4 (01:17:36)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 12:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A294F28D70324A8FF06BD3908F10C02BC58B66A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756294   (103498) от 20.10.2024
-
-Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaime Narvaez - Joyous Cosmology (Original Mix) (8:08)
-02. Jaime Narvaez - Joyous Cosmology (Wonderful Life Vocal Mix) (8:08)
-03. Jaime Narvaez - Neptunian (Original Mix) (7:20)Жанр: Deep House, Progressive HouseПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DAC9F20A734C560BC870734F6390BC355A9C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758478   (103354) от 03.11.2024
-
-Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only I [00:03:48]
-02. Alone [00:03:47]
-03. Freefall [00:03:39]
-04. Visions Of You [00:03:57](   Читать дальше...   )Жанр: DanceПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D978F47AA67CA76CFCBD802C1BEFBB5F027BC731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759540   (103274) от 09.11.2024
-
-VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Breath of Desert (Original Mix) (6:48)
-02. Tibetania - Healing Winds (Original Mix) (7:08)
-03. Tamer ElDerini - Heaven (Original Mix) (5:29)
-04. Leon Music - Sultana (Original Mix) (8:55)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8342F8C68280A9C240C413C63ABB262E449DBB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760806   (103158) от 16.11.2024
-
-Marshmello - The Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Riddim Dubstep, Electronic, Dubstep, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Just Can't Stop [2:34]
-02 - Forever [2:35]
-03 - wantsomemusic? [2:27]
-04 - Fired Up [3:09](   Читать дальше...   )Жанр: Riddim Dubstep, Electronic, Dubstep, HouseПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3076B3D44092ADF7FB05337F802A94C0068C4716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762306   (102902) от 26.11.2024
-
-Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Punk, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From A to H and Back Again (6:50)
-02. Cathode Ray (4:34)
-03. Motorbike (New) (3:05)
-04. Drug Music (More or Less) (5:15)(   Читать дальше...   )Жанр: Electronic, Rock, Punk, TechnoПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB39BA7EEF85F8577F9CA1A57EDC2309DF393F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

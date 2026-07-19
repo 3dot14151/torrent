@@ -1,3 +1,87 @@
+###  Публикация: 1353773   (990547) от 19.01.2020
+
+VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nirvana - Smells Like Teen Spirit
+002. Rage Against the Machine - Killing In The Name
+003. Green Day - Basket Case
+004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: RockПродолжительность: 07:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163675   (987371) от 06.01.2010
+
+VA - XXXL Русский Рок (2009) [MP3|192 kbps]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:25:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354737   (986940) от 23.01.2020
+
+Barclay James Harvest - Greatest of All Time (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock, Art Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love On The Line
+02. Alone In The Night
+03. Alright Down Get Boogie
+04. Paper Wings(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Art RockПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8501F4390EE322F03091C139573EFBAC5965F591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354699   (986880) от 23.01.2020
 
 AC/DC - Brian Johnson Hits (2016) Bootleg [MP3|320 Kbps] <Hard Rock>
@@ -658,93 +742,6 @@ VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985331   (935499) от 11.02.2016
-
-VA - Alterportal HITS 16 Vol. 89 - January (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cypecore - The Void
-2. Dark Avenue - Forget You
-3. Forever Still - Break the Glass
-4. One Day Remains - Enemy in Me(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7B901C1A01BA6D32F71B0FBF63764D42CCC7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364582   (934473) от 04.03.2020
-
-VA - Rock Archive (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evanescence - Bring Me To Life
-002. Bon Jovi - Its My Life
-003. Alice Cooper - Poison
-004. Black Sabbath - Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: RockПродолжительность: 07:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750D064D0FD012F9302A7A359AD8BDC42D611514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984852   (934085) от 12.02.2016
-
-Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве Remaster (2015) [MP3|320 кб/с] <Brit-pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ******
-02 Воздушный шар
-03 Импровизация в синтетическом парке
-04 Говорящий вакуум(   Читать дальше...   )Жанр: Brit-popПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

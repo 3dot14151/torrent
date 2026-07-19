@@ -1,3 +1,29 @@
+###  Публикация: 1275365   (790366) от 11.01.2019
+
+NNM-Club Sound Cleaner Collection from werter21
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника werter21, стоявшего у истоков и активного члена группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5940B439BBF9CB01F089D41D7D854F250FCB0201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275372   (790324) от 11.01.2019
 
 NNM-Club Sound Cleaner Collection from STouR
@@ -652,34 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F1E81356D07DDF551D29DF68D20BC9A968F4BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396208   (748397) от 14.07.2020
-
-Звуковые библиотеки - Freaky Loops - Cinetools: Dramatic Pianos v2 [WAV, MID]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinetools с гордостью представляет очередной релиз «Dramatic Pianos Vol 2» с 21 кинематографическим крещендо и душераздирающими фортепианными фразами в формате WAV и MIDI - они дадут вам свободу создавать мгновенные кинематографические настроения, атмосферы и драматические текстуры за считанные секунды!
-
-«Cinetools: Dramatic Pianos Vol 2» солидные коллекции гладких, (   Читать дальше...   )Формат: WAV, MID
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111C5A26089D745F8683C77D352ACA96FF3B9AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

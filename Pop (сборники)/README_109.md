@@ -1,90 +1,3 @@
-###  Публикация: 1082573   (275920) от 14.12.2016
-
-VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Katrin Mokko - В Моем Кино 3:47
-002.Red Hot Chili Peppers - The Getaway 4:11
-003.Holy Molly & Holygunner & Anton Liss - For Ma Ma Bitch 4:16
-004.The Hardkiss - Helpless 3:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082596   (275780) от 14.12.2016
-
-VA - Хит-парады Топы Чарты FM-станций  Ноябрь (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275780.jpg" />
-</div>
-
-
-###  Подробнее
-
-DFM
-01.Alan Walker - Sing Me to Sleep
-02.Calvin Harris - My Way (Audiorockers & Matt Raiden Remix)
-03.Cedric Gervais And Willy Monfret - Make Me Feel (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 15:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD81C6407EF5C7052501066778B3EB4FADCF9506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083248   (274978) от 15.12.2016
-
-VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274978.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Fickle Friends - Brooklyn 3:11
-002.Пропеллер Брокен - Фанданго 4:22
-003.Turbotronic - Booty Shake 4:37
-004.Dj Jedy Feat. Олеся Май - Natural Blues 4:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F452A288B8E4B00A2EA917F0420F35DBD1BF2BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083360   (274976) от 15.12.2016
 
 VA - Осенний динамит. 50Х50 (2016) [MP3|256 Kbps] <Pop>
@@ -739,6 +652,93 @@ VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2ACB3A71255CEAD86DADD7F4A6EF87F67BE6399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266445   (269756) от 02.12.2018
+
+VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C-BooL feat. Cadence XYZ - Fire In My Head
+002. Xxxtentacion & Lil Pump feat. Maluma & Swae Lee - Arms Around You
+003. 2 Маши - Мама, Я Танцую
+004. Backstreet Boys - Chances(   Читать дальше...   )Жанр: PopПродолжительность: 07:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189850   (269486) от 07.12.2017
+
+VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana (feat. Young Thug)
+003. Ed Sheeran - Perfect
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189730   (269355) от 07.12.2017
+
+VA - Дискотека Руки Вверх 66 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! - Плачешь в темноте
+02. Serebro - В космосе
+03. Инфинити - Танцуй
+04. Hello - Чёрти чё(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7947C3DC5AAC798939631CEA8AD9F2946B9622B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

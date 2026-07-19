@@ -1,3 +1,148 @@
+###  Публикация: 1580168   (233146) от 30.09.2022
+
+Huracan - We Are Very Happy (2022) [MP3|320 Kbps] <Sludge, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 We Are Very Happy (feat. Nele De Gussem) [00:05:07]
+02 Dobermann Multiverse [00:06:06]
+03 Before I Was Born [00:05:06]
+04 Sky Burial [00:03:57](   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813447EED5A6F3772017F987FCF022BBB294CC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642555   (233138) от 29.06.2023
+
+Vomitory - All Heads Are Gonna Roll (2023) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Heads Are Gonna Roll
+02. Decrowned
+03. Ode to the Meat Saw
+04. The Deepest Tomb(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBC1A603E552760EC10B13AC84E743D5039D4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580090   (233095) от 30.09.2022
+
+Legal Hate - Moral Destruction (2022) [MP3|320 Kbps] <Thrash, Death Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro  01:13
+02. Distortion  03:31
+03. Override  02:55
+04. Vicious Circle  02:59(   Читать дальше...   )Жанр: Thrash, Death Metal, Female VocalПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91651CA423062B9C95DF94143CBA589206E5DA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580261   (233089) от 30.09.2022
+
+Leather Lung - 4 Albums (2014-2022) [MP3|320 Kbps] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:45]
+02. Pissing Gasoline [00:03:04]
+03. Gas Station Metal (Interlude) [00:01:20]
+04. Road Soda [00:03:41](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 4 CD, 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2A7173384F4B430D3B832BBAE737AE747EA96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580089   (233054) от 30.09.2022
+
+Hammerstar - Hammerstar (2022) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Stone  05:15
+02. Power of Metal  04:14
+03. Midnight Ride  04:31
+04. Burned Alive  03:34(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9565D89D8816943AB114C33040EA88520FD228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635549   (232978) от 27.05.2023
 
 Trespass - Wolf At The Door (2023) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
@@ -600,151 +745,6 @@ The Animal State - 3 Albums (2020-2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FC6F3B9773090BE85273512EAEDC81EF5F9AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639661   (232533) от 14.06.2023
-
-Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. The Scourge
-03. Under The Shadows
-04. Sanction of the Damned(   Читать дальше...   )Жанр: Symphonic Dark MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B585EE62B024897A33AB71A0833834B957FF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645728   (232511) от 11.07.2023
-
-Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Day (04:02)
-02. Black Horses (03:58)
-03. Alive For A Night (03:41)
-04. Silver Moon (06:26)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165D6FDDDF0D77CFA7FEF5DA94B902DA46852568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639981   (232509) от 15.06.2023
-
-Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agony Of The Eternal Night
-02. War In The Name Of...
-03. Interdimensional Horrors
-04. Anthropophagus(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C19FDA24B6598A8FF28CB76A577663A10F4041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645883   (232453) от 12.07.2023
-
-Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lake Ounas (The Beginning) (feat. Veli-Matti Kananen) (02:41)
-02. Through the Mammoth Valley (04:14)
-03. The Ancient (06:50)
-04. Legacy (08:07)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC154B74916BEC45ED36ECB62DFF939A03FEB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639792   (232444) от 15.06.2023
-
-Kill Command - Hostile Takeover (2023) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exclusion Zone (05:10)
-02. Follow The Shepherd (05:57)
-03. Napalm (03:53)
-04. New Order (05:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4F73731F4C1AC4F36809160A33E43A65FE8A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

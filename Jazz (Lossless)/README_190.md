@@ -1,121 +1,3 @@
-###  Публикация: 1166359   (426920) от 16.09.2017
-
-Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You [04:14]
-02. Anything Goes [03:14]
-03. Easy To Love [03:17]
-04. It's Alright With Me [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEEC4863AB38A3D40E959345679058BD0482E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245943   (426521) от 17.10.2010
-
-Basia - The Best Remixes / Clear Horizon (The Best Of Basia) (1990, 1998) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_426521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruising For Bruising (Extended Mix)
-02. From Now On (Band Version)
-03. Run For Cover (Extended Remix)
-04. Promises (Extended French Mix)
-05. New Day For You (Extended Version)
-06. Baby You're Mine (Street Version)Жанр: Jazz, Smooth JazzПродолжительность: 00:31:35 + 01:13:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064535   (426397) от 20.10.2016
-
-Sun Ra and The Arkestra - Sound of Joy (1957) 2003, Delmark[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Experimental Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Is a Sound of Joy [04:05]
- 02.Overtones of China [03:25]
- 03.Two Tones [03:42]
- 04.Paradise [04:31](   Читать дальше...   )Жанр: Avant-Garde Jazz, Experimental Big BandПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942A4928ED8618B0568C3240B8B6D7AF59C79DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064561   (426395) от 20.10.2016
-
-Joey Alexander - Countdown (2016) Motema Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.City Lights [05:47]
- 02.Sunday Waltz [05:24]
- 03.Countdown [08:49]
- 04.Smile [04:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4799E3D33A0834C2781E85D71F6D6DCD4E5CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064437   (426257) от 20.10.2016
 
 Duke Ellington - Duke Ellington's Greatest Hits (1968) 1997 [WavPack|Lossless|image + .cue] <Big Band, Swing>
@@ -747,6 +629,123 @@ Leny Andrade - Maiden Voyage (1994) Chesky Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A889960A25A002884C132F3EB61595551A8E8D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412098   (423165) от 27.09.2020
+
+The Random Midi Quartet - Pordenone (2018) [FLAC|Lossless|Web-DL|tracks] <Jazz, Ambient, Dark Jazz, Doom Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viale Marconi (4:22)
+02. Il Corso (4:28)
+03. Il Bronx (4:27)
+04. Villanova (4:27)(   Читать дальше...   )Жанр: Jazz, Ambient, Dark Jazz, Doom JazzПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F66C7C6D94E67FCAFBE238AF01DDCFB8F470F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324463   (423109) от 10.09.2019
+
+Pearl Bailey - 16 Most Requested Songs (1945 - 1950) 1991, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legalize My Name [3:21]
+02. Tired [3:21]
+03. St. Louis Blues [2:13]
+04. A Woman's Prerogative [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AC9D43DED372641A727AEDD59022629276367E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324615   (423091) от 10.09.2019
+
+Miles Davis - Rubberband (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа над записью велась с октября 1985 г. по январь 1986 г. вскоре после подписания артистом контракта с Warner Bros.
+До настоящего времени альбом полностью нигде не издавался и считался потерянным.01. Rubberband Of Life (Feat. Ledisi)
+02. This Is It
+03. Paradise (Feat. Medina Johnson)
+04. So Emotional (Feat. Lalah Hathaway)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEA9C41DEE95BEB0CE64906C9AB69232CE97655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947045   (422804) от 15.10.2015
+
+David Newman - The Weapon (1972) /2013, Warner/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Missy [05:30]
+ 02.Seems Like I Gotta Do Wrong [04:23]
+ 03.You Can't Always Get What You Want [07:01]
+ 04.Yes We Can Can [03:51](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221D6E75B1138A81B232C9746042C3923095021E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1638893   (211747) от 11.06.2023
-
-VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Shine (4:13)
-02. eJazz Artistry -- Real Love (4:16)
-03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
-04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638880   (211734) от 11.06.2023
-
-VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima -- Pennies From Heaven (2:22)
-02. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
-03. Norah Jones -- Don't Know Why (3:06)
-04. Vince Guaraldi Trio -- What Child Is This (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20AAB1A247B6BE6C2B16D96484431026CB3F530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638894   (211726) от 11.06.2023
-
-VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion -- It Dews (5:02)
-02. Chillaxonic -- Oasis (4:58)
-03. Kool&Klean -- Guessing Game (4:17)
-04. Chillaxing Jazz Kollektion -- Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CBABD0C244752B65A75BBCC4DF8FB05C9727E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638887   (211720) от 11.06.2023
-
-VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Ellington -- In A Sentimental Mood (4:16)
-02. John Lee Hooker -- The Motor City Is Burning (2:53)
-03. Phil Woods -- Guess What? (2:50)
-04. Stan Getz -- The Girl From Ipanema (5:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819229C53FDB59A62B969ACD48AD5A70FA948F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640102   (211341) от 16.06.2023
 
 Stanley Turrentine - The Look Of Love (1968) 1982, Applause Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -745,6 +629,122 @@ VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653450   (205452) от 16.08.2023
+
+Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky [9:01]
+02. Pint Size [12:24]
+03. Stella By Starlight [8:58]
+04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653543   (205436) от 16.08.2023
+
+Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Professor Longhair Boogie (Live At Casino Montreux 1986) (3:36)
+02. You Ain't Such A Much (Live At Casino Montreux 1986) (4:53)
+03. Sick And Tired (Live At Casino Montreux 1986) (3:31)
+04. Stack-a-Lee (Live At Casino Montreux 1986) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, BluesПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653664   (205384) от 17.08.2023
+
+Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Ray [3:49]
+02. Ill Wind (You're Blowin' Me No Good) [6:08]
+03. Watch What Happens [5:11]
+04. No Moon At All [4:15](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10803585708C876615938A8783DA97595BD7D80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654111   (205279) от 19.08.2023
+
+Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creme De Funk [5:14]
+02. Lazy Like [5:58]
+03. Nothing But Soul [6:50]
+04. A Night At St. Nicks [6:52](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE82B4F17A9696C802F695EFF59E73DD0A65B077
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1288897   (689688) от 14.03.2019
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11328.20158 (2019.03) RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0D1C12001A2C481FE8F343AEF02567FA3BD829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897023   (689614) от 11.05.2015
 
 The Bat! Professional Edition 6.8.2 Portable by PortableAppZ [Multi/Ru]
@@ -647,32 +673,6 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93F6D3A874B679D6E6E3B1B7335457BF29B47A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222022   (688934) от 27.04.2018
-
-Red Giant Trapcode Suite 14.1.0 RePack By PooShock [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trapcode Suite 14 - стандартный пакет для графики движения в After Effects. Red Giant Trapcode Suite - это набор из 11 инструментов для 3D-графики движения и визуальных эффектов. В пакет включены плагины 3D Stroke, Echospace, Form, Horizon, Lux, Mir, Particular, Shine, Sound Keys, Starglow и Teo. Используйте Trapcode Suite, чтобы создавать высококачественные текстовые (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79402FD643877AE1C8D22A04B7137CE0BFA2C242
 ```
 
 https://mybot314.ru/tekegram_catalog/

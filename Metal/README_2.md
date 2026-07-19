@@ -1,3 +1,90 @@
+###  Публикация: 1438117   (1041451) от 07.01.2021
+
+Midnight Spell - Sky Destroyer (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood for Blood (04:11)
+ 02. Between the Eyes (03:44)
+ 03. Lady of the Moonlight (04:29)
+ 04. Midnight Ride (02:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A54939FCAB34D904BEC7C963FE138346FEFB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438141   (1041444) от 07.01.2021
+
+Alta Reign - Mother's Day (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine (04:44)
+ 02. Witness (04:11)
+ 03. Thin Red Line (05:42)
+ 04. Never Say Never (04:59)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846D055EFCF146FDC04F6E1AA7220FBE8B0C6F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438413   (1041152) от 08.01.2021
+
+Concerto Moon - Rain Fire (2020) 2xCD, Jараnese Еditiоn [MP3|320 Kbps] <Power Metal, Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041152.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Long Way to Go (05:12)
+ 02. Rain Fire (03:53)
+ 03. Run for the Light (04:51)(   Читать дальше...   )Жанр: Power Metal, Neoclassical MetalПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DEC2139ADFBC8D60C2E78A70FC822002FF87FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438376   (1041147) от 08.01.2021
 
 Lyris Project - Instant Flash (2021) [MP3|320 Kbps] <Melodic Metal>
@@ -657,93 +744,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449533FA64BC75370039424B9C1089C0938CA851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613968   (1039133) от 20.02.2023
-
-Goat Explosion - Rumors of Man (2018) [MP3|320 Kbps] <Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Wandering Specter (00:05:05)
-02 - Vulgar Saints (00:05:33)
-03 - If Crimson Was My Tower (00:07:52)
-04 - Rumors Of Man (00:05:15)(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDAEF07627F0678443DA463E95C366F6D1D25C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440065   (1039034) от 16.01.2021
-
-OzNor - Sea of Stars (2021) [MP3|320 Kbps] <Heavy Metal, Shred, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flaming Hearts (intro) (01:14)
- 02. Rouse (04:16)
- 03. Dragons of the Endless Seas (04:50)
- 04. The Last Sunset (04:17)(   Читать дальше...   )Жанр: Heavy Metal, Shred, InstrumentalПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645588FC67375C9F84670DE01541BAE63C3D6370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614508   (1038601) от 22.02.2023
-
-Anareta - Fear Not (2023) [MP3|320 Kbps] <Symphonic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Frozen Wasteland 07:28
-2.Omnicide 06:53
-3.Unforgiving Sun 06:43
-4.The Descent 05:12(   Читать дальше...   )Жанр: Symphonic Doom MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3728B04B9025E2BC96E48D4F34BF50EB794FB38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

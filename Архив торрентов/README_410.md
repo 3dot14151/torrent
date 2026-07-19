@@ -1,3 +1,29 @@
+###  Публикация: 1357501   (973007) от 04.02.2020
+
+Wonderfox HD Video Converter Factory Pro 18.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973007.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E8063FE193DEC6C2E22424F6B5216C5C49135A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357520   (972995) от 04.02.2020
 
 Nox App Player 6.6.0.1002 [Multi/Ru]
@@ -653,39 +679,6 @@ Jeff Golub - Grand Central (2007) [APE|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617089   (972613) от 12.02.2013
-
-Lucifugum - Дискография (1996-2010) [MP3|192-320 кб/с]<Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - утренняявечерясбогом
-02 - пятнопредназначения
-03 - эсхулабогия
-04 - эквилиэкволо
-05 - отсекающаякоронация
-06 - христострофа
-07 - канонитьюКобры
-08 - утренняявечерясбогомЖанр: Black MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE98DF3E6856E2B5EC39B713DF5DD4961E882CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

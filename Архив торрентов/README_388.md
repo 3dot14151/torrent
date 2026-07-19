@@ -1,3 +1,29 @@
+###  Публикация: 615053   (978307) от 07.02.2013
+
+Ключи для антивирусов Касперского от 6 февраля 2013 года
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключи для различных продуктов Kaspersky LabНазвание программы: Ключи для антивирусов Касперского
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615408   (978295) от 07.02.2013
 
 Just Cause 2 [PS3] [Ru] [Repack] 2010 | R.G. Inferno
@@ -685,35 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE73AE8F1816B43828FD28482639715678450860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973919   (978121) от 10.01.2016
-
-Kretz - Gemeinschafts Informationen (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Machine-Techno Pop, Synthpop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemeinschafts Informationen
-02. We Are Living In A Speculative Society
-03. Elite Gesellschaft
-04. They Monitor Us(   Читать дальше...   )Жанр: Electro, Machine-Techno Pop, SynthpopПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6E7A89447DECE4E607B94AA8E47E4E87ED979D
 ```
 
 https://mybot314.ru/tekegram_catalog/

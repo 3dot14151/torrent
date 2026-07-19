@@ -1,3 +1,29 @@
+###  Публикация: 581849   (314735) от 01.12.2012
+
+Скин для Kaspersky Internet Security 2013 (CLEAN 13)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скин для Kaspersky Internet Security 2013 (CLEAN 13) добавляет кнопку "Активация ключом" и дополнительную вкладку в настройках обновления.Название программы: Скин для Kaspersky Internet Security 2013 (CLEAN 13)Язык интерфейса: Rus, Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582870   (314730) от 01.12.2012
 
 Kaspersky CRYSTAL 13.0.2.462 Technical Preview [Русский]
@@ -650,34 +676,6 @@ Driver Booster сканирует и определяет устаревшие �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA2FAE123BFAFC6C3479403A286E8EBF209D491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959624   (314093) от 25.11.2015
-
-JetBrains ReSharper Ultimate 10.0.1 [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314093.jpg" />
-</div>
-
-
-###  Подробнее
-
-ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
-Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
-Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0600B362C5617D24A07507ADE8EE1279D7604B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

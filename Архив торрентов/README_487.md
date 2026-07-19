@@ -1,3 +1,29 @@
+###  Публикация: 1089486   (951811) от 03.01.2017
+
+Display Driver Uninstaller 17.0.4.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A8448441AA5816261ECBA82862453A8EBAA32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981526   (951804) от 01.02.2016
 
 Футбол. Чемпионат Испании 2015-2016. 22 тур. Лас Пальмас - Сельта. (31.01.2016) HDTVRip [H.264/720p-LQ]
@@ -698,35 +724,6 @@ Wallpapers - Mix QHD 1 [JPEG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA94F3A520BBF975C6EBE7EDB2AAA3999BCE5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981777   (951642) от 01.02.2016
-
-Biosphere - Substrata2 (Substrata²) (2001) (Remastered 2 CD) [FLAC|Lossless|tracks+.cue] <Ambient, Abstract, Soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (00:20)
- 02. The Silent Orchestra (07:53)
- 03. City Wakes Up (05:59)
- 04. Freeze-Frames (06:46)(   Читать дальше...   )Тип издания: CD, Remastered |Жанр: Ambient, Abstract, Soundtrack |Продолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0CF6E07EFAE57671D228208C6E38E85D782E21
 ```
 
 https://mybot314.ru/tekegram_catalog/

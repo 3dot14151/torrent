@@ -1,3 +1,32 @@
+###  Публикация: 1410426   (436080) от 21.09.2020
+
+VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
+02. SanSouci - Silence (09:58)
+03. Antiphon - The Great Attractor (09:52)
+04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164902   (434663) от 12.09.2017
 
 Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
@@ -722,35 +751,6 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C51AAE5DD8807BA3673B2348CCF3CD69063BAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253206   (385551) от 08.10.2018
-
-VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forestdene - Sweet Lullaby (03:57)
-02. Ron Asprey - I Will Always Love You (04:00)
-03. Louis Clark - Pachelbelt`s Canon (03:31)
-04. Alessandra Ruffini - The Flower Duet from Lakme (01:36)(   Читать дальше...   )Жанр: New Age,Instrumental,JazzПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,26 +1,84 @@
 https://t.me/izofen
-###  Публикация: 1876468   (1073274) от 
+###  Публикация: 1880970   (1076856) от 
 
-Pussy Riot - CYKA (2026) [MP3|320 Kbps] <Rock, Hardcore Punk, EDM>
+The Rolling Stones - Foreign Tongues (2026) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. GODS LEFT
-2. PAIN / БОЛЬ
-3. NOTHING TO LOSE
-4. CYKA(   Читать дальше...   )Жанр: Rock, Hardcore Punk, EDMПродолжительность: 00:41:29
+01. Rough and Twisted
+02. In the Stars
+03. Jealous Lover
+04. Mr. Charm(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2638C0801688462E5693D81A7DA83924DED76767
+magnet:?xt=urn:btih:FA894389F019FACD1F1077028DC7579977241DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880171   (1076302) от 08.07.2026
+
+Deftones - EROS (2009) Leaked Sessions, Jan 2009 [MP3|299-307 Kbps (V0)] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Destiny [00:03:57]
+02 Brenda [00:05:10]
+03 Melanie [00:02:59]
+04 Smile [00:04:45](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Grunge, Grungegaze, Shoegaze, Post-Metal, Post-Rock, Post-Hardcore, Dream PopПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C3FABB1726D8D88B078355CF67C2F2062DD781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878327   (1075076) от 
+
+Muse - The Wow! Signal (2026) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Forest
+02. Nightshift Superstar
+03. Shimmering Scars
+04. Cryogen(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EE798A9F1AE910FB6FD447D7E5F1B149BE0B39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,64 +746,6 @@ Celldweller - Demo Vault: Wasteland (2021) [MP3|320 Kbps] <Industrial, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B33A1C783624C270DB64DBAECFF51D0BBE5626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453581   (1026875) от 11.03.2021
-
-Evanescence - The Bitter Truth (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Artifact_The Turn [00:02:26]
-02-Broken Pieces Shine [00:03:50]
-03-The Game Is Over [00:04:22]
-04-Yeah Right [00:03:29](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698A0CCCFAA94A86F4C9248864CDBEC3BAEBFACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455253   (1025775) от 18.03.2021
-
-Papa Roach - Greatest Hits, Vol. 2: The Better Noise Years 2010-2020 (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born For Greatness (Remastered 2020)
-02. Help (Remastered 2020)
-03. Elevate (Remastered 2020)
-04. Come Around (Remastered 2020)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848F09B060A1BB6E150EBEAE2C965CAB92DF2973
 ```
 
 https://mybot314.ru/tekegram_catalog/

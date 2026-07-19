@@ -1,3 +1,177 @@
+###  Публикация: 1386423   (794554) от 29.05.2020
+
+Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TV (06:53)
+02. DB (Webo Mix) (06:41)
+03. Exotica (05:46)
+04. BC Style (Vinyl Mix) (06:28)(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1545BD10AD44D837A22062B68FD6DA9E92535055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012257   (794351) от 30.04.2016
+
+VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 1)
+02-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 2)
+03-Gershon Jackson - Take It Easy (Sonny FoderaMat Joe remix)
+04-Sonny Fodera & Mystic Bill - Invisible (Sonny Fodera ITH edit)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 07:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387A4A0019AC3C22907C7D0510C69F8CC71B60E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274244   (794165) от 06.01.2019
+
+NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental, Field Recording>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DISPERSION (06:16)
+ 02. INTERACTION (07:31)
+ 03. MOTIVATION (05:19)
+ 04. DILUTION (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Ambient/Musique Concrete/ExperimentalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274316   (794163) от 06.01.2019
+
+Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & Me (05:52)
+02. Blue Pools (05:32)
+03. Play With Dolphin (06:08)
+04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274309   (794161) от 06.01.2019
+
+VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Caillou – The Better Days (09:23)
+02. White Leaf – Limerence | Hosini Remix (06:32)
+03. Elias Dore – Ayasa (08:08)
+04. Darper – Kubu (08:32)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FACFA8D9C6A2FCE37B562DC5596EC7735E4AB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274219   (794160) от 06.01.2019
+
+Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Movement (08:31)
+02. Clean Air (07:54)
+03. Fanfatas (07:44)
+04. Dalen (5:23(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9ECBB7A2C4D334A4564689287B2D7A570ADE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123060   (793373) от 06.04.2017
 
 VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House>
@@ -571,179 +745,6 @@ Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201645   (791050) от 27.01.2018
-
-VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.T-Empo - Saturday Night, Sunday Morning (T-Empo Mix) (8:10)
-02.Degrees Of Motion featuring Biti - Shine On (Original 12') (7:09)
-03.Jomanda - Got A Love For You (Hurley's House Mix) (7:35)
-04.Jamiroquai - Space Cowboy (Morales Classic Club Mix) (7:51)(   Читать дальше...   )Жанр: House, Garage House, Deep House, DiscoПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201795   (791049) от 27.01.2018
-
-Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Daya (6:18)
- 02/10. No Captain (5:16)
- 03/10. Atlas (5:50)
- 04/10. Clarify (4:00)(   Читать дальше...   )Жанр: Vintage Progressive HouseПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACCA3C4BF01CA9D648EBE6D1E81B7BFE066E2E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201932   (791010) от 27.01.2018
-
-Hidden Orchestra - Dawn Chorus Remixes (2018) Tru Thoughts [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyth (Nuage Remix) (05:03)
- 02. Wingbeats (Max Cooper Remix) (10:06)
- 03. Still (Floex Remix) (06:27)
- 04. Western Isles (Throwing Snow Remix) (08:22)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Techno, ElectroПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C3144A671580DFC6F3CDD7AD3EFED4DB593E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202200   (790559) от 28.01.2018
-
-Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Route (07:51)
- 02. The Place (07:26)
- 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202327   (790558) от 28.01.2018
-
-Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lossless|tracks] <House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Feel Alright (3:27)
-02.Mad About You (4:26)
-03.Get Up! Push Up! (3:49)
-04.In The Sunshine (5:23)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB4ACED75C85ACFA558D9CFEBD8DE1552C12437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202202   (790557) от 28.01.2018
-
-101 - Phatty Acids (2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (03:52)
- 02. Darkness Upon Beautiful Souls (04:15)
- 03. Amino Acid (04:48)
- 04. Fatty Acid (03:32)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

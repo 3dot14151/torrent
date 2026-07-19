@@ -1,3 +1,134 @@
+###  Публикация: 473438   (676223) от 11.06.2012
+
+Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative Rock, Industrial, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Hyperpower!  	1:42
+02. 		The Beginning Of The End 	2:47
+03. 		Survivalism  4:23
+04. 		The Good Soldier 	3:23
+05. 		Vessel 	4:52
+06. 		Me, I'm Not  	4:51
+07. 		Capital G  	3:50
+08. 		My Violent Heart 	4:13
+09. 		The Warning 	3:38
+10. 		God Given 	3:50(   Читать дальше...   )DVD-Rom contains the entire album Year Zero in the following multi-track formats:
+-Garageband
+-Ableton Live
+-Generic wave files at 16 bit 44k
+
+Данный диск, больше подойдёт любителям соченять музыку......
+DVD-ROM включает в себя исходный материал всех композиций альбома «Year Zero» для ремикширования при помощи музыкального программного обеспечения  GarageBand  и Ableton Live . Также на диске представлены демоверсия Ableton Live и отдельные семплы в формате WAV (44100 Гц) для использования в других программах как Cakewalk Sonar  или  Pro Tools.
+
+Для любителей, это уникальный материал....
+(   Читать дальше...   )Жанр: Alternative Rock, Industrial, ExperimentalПродолжительность: 01:11:17 / DVD-Data 7,49гб
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136307   (674492) от 22.05.2017
+
+Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Break The Fall (3:11)
+ 02/10. Crooked Teeth (3:04)
+ 03/10. My Medication (3:15)
+ 04/10. Born For Greatness (3:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289749   (674453) от 22.03.2019
+
+Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psychedelic, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallboy
+02 - Bottom Step
+03 - I Sink I Sink
+04 - Water(   Читать дальше...   )Жанр: Indie-Pop, Psychedelic, ShoegazeПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2669C64454BE35BBA5986BFD78FABC66BED35A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136703   (670766) от 24.05.2017
+
+Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live At Fillmore Detroit) (1:12)
+02. Face Everything And Rise (Live At Fillmore Detroit) (3:18)
+03. Getting Away With Murder (Live At Fillmore Detroit) (4:00)
+04. Between Angels And Insects (Live At Fillmore Detroit) (4:18)(   Читать дальше...   )Жанр: Alternative Rock |Продолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030771   (670467) от 02.07.2016
 
 One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|tracks] <Alternative, Hard Rock, Progressive>
@@ -627,122 +758,6 @@ The Fallen State - Between Hope & Disillusion (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BBB9D0DE2426C482E92E5148F62C513A189AE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291595   (652669) от 26.03.2019
-
-Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letting Go (03:42)
-02. Oscillation (03:51)
-03. Partners in Motion (04:21)
-04. Wheel of Misfortune (04:16)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905376   (651197) от 05.06.2015
-
-Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stronger
-02. My Cocaine (feat. Elize Ryd from AMARANTHE)
-03. Disaster Highway
-04. Checkmate(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905415   (651014) от 05.06.2015
-
-Florence + The Machine - How Big, How Blue, How Beautiful (2015) Deluxe Edition, Target Edition [FLAC|Lossless] <Indie Rock, Indie Pop, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ship To Wreck (03:55)
-  02. What Kind Of Man (03:36)
-  03. How Big, How Blue, How Beautiful (05:35)
-  04. Queen Of Peace (05:07)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Alternative RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEC3CD84FB1F750A3E2F0A6FEC0C1E0509B96D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905432   (650996) от 05.06.2015
-
-Muse - Drones (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650996.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "Dead Inside" 4:24
-2. "Drill Sergeant" 0:21
-3. "Psycho" 5:28
-4. "Mercy" 3:52(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D8067E106B91D5A1F682BD75426D9B36B60C1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

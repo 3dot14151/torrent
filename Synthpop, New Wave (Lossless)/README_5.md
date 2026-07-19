@@ -1,32 +1,3 @@
-###  Публикация: 1365769   (929019) от 08.03.2020
-
-Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saga (5:46)
-02. Barbarella Reloaded (4:13)
-03. Love In Rimini (4:24)
-04. Fancy Lady (4:06)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365768   (929011) от 08.03.2020
 
 Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
@@ -753,6 +724,35 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374607   (872832) от 10.04.2020
+
+Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To The Battle Line (5:38)
+02. Artix Space (4:41)
+03. Power Invasion (5:55)
+04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

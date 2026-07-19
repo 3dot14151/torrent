@@ -1,148 +1,3 @@
-###  Публикация: 1535426   (686712) от 06.03.2022
-
-GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atmosphere (5:00)
-02. Mysterious (5:38)
-03. Levitation (4:42)
-04. Signal (5:20)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535433   (686709) от 06.03.2022
-
-GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (4:48)
-02. Final Frontier (4:28)
-03. Summer Calm (4:34)
-04. Different Reality (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403875   (686326) от 22.08.2020
-
-VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beloved - The Sun Rising (Gentle Night) (2:46)
-02. Kinobe - Slip into Something More Comfortable (Stephen Hague 2016 Mix) (4:47)
-03. Ballistic Brothers - Portobello Café (5:48)
-04. 4hero - Morning Child (4:35)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 02:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029024   (684427) от 25.06.2016
-
-Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etoile (4:50)
-02. Belafia (5:42)
-03. Essarai (5:50)
-04. Belafia - Etoile (5:07)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028764   (682134) от 26.06.2016
-
-VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bliss - Sleep Will Come 05:39
-02.Afterlife- Speck Of Gold 05:31
-03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
-04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290452   (678249) от 20.03.2019
 
 Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
@@ -739,6 +594,148 @@ Unkle - Rōnin I (2021) Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542939   (631840) от 10.04.2022
+
+Unkle - Rōnin I (2021) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-Hop, Leftfield, Electroniс>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.初登場 (0:25)
+02.Ar.Mour (Rōnin Dub) (6:39)
+03.The Other Side (Rōnin Def Mix) (3:46)
+04.On My Knees (Rōnin Def Mix) (5:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543134   (631680) от 10.04.2022
+
+VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Special (5:26)
+02. M-Sol Project Marga Sol - Silent Traveler (3:57)
+03. Beamy - Sierra De La Plata (4:51)
+04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349458   (625271) от 15.06.2011
+
+DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229501   (624443) от 07.06.2018
+
+VA - Paris Lounge Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonjour - Lemongrass
+02. Wandance Paris - Trio Eletrico
+03. En prive - Second Breath
+04. Autum in Paris - Josy, Catharina(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC9D0E1F247CBD9A3A8AED38540387B05A2FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544936   (618391) от 17.04.2022
+
+VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Move (03:34)
+02. Martin Hiska - Shangla (03:40)
+03. Michael E - Lost In Thought (05:18)
+04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
 ```
 
 https://mybot314.ru/tekegram_catalog/

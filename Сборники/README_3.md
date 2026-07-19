@@ -1,107 +1,3 @@
-###  Публикация: 840191   (336709) от 11.11.2014
-
-Сборник - Абстрактные фоны и рамки / Abstract Backrounds & Frames [AI,EPS,JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны и рамкиФормат: AI,EPS,JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FD4B7EBB9DC5D9A4D3AF0F30B251FC09138DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330483   (336374) от 12.10.2019
-
-Waving Flags Bundle [PNG, AI, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник векторного и растрового клипарта флагов.Формат: PNG, AI, SVGРазрешение файлов: 785x959-1359x738
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACC2EFDBD58952658F226A52BE8A28E8311BD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840335   (334511) от 12.11.2014
-
-Сборник - Элементы дизайна купюр / Money Design Elements [PSD,EPS]
-
->>След.
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элементы дизайна купюрФормат: PSD,ASL,ATN,EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86F095973C39A6F29449D4E5E4F6D00F11D3FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332910   (309116) от 22.10.2019
-
-Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bundle [PNG, JPG, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот комплект включает 1200 графических тем на Рождество.Формат: PNG, JPG, EPSРазрешение файлов: 1800x1800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD54683F9702FF20AB63A3EEF90F1007825D460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846392   (301601) от 02.12.2014
 
 Сборник - Новый Год 2015-3 / New Year 2015-3 [JPEG,PNG,PSD,AI,EPS]
@@ -672,6 +568,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C17FF52CFF8C6C2BA4C8A5F7B2112C391186D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432938   (161554) от 19.12.2020
+
+Сборник - BundleStorm v2 [JPG, PNG, PSD, AI, EPS, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем BundleStorm v2. Это один из самых больших наборов для творческих профессионалов, в котором есть иконки, текстуры, фрактальные изображения, узоры, персонажи, стоковые фотографии и многое другое.Формат: JPG, PNG, PSD, AI, EPS, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E48FDBA0721D3A036133020CBC323B4CBB22C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435441   (143657) от 28.12.2020
+
+Сборник - Creative Fabrica - Christmas Lights Decorations Set [PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143657.jpg" />
+</div>
+
+
+###  Подробнее
+
+О продукте Набор из 11 векторных кистей праздничных нитей рождественских гирлянд позволит быстро и легко настроить ваши праздничные проекты!.Формат: PSD, EPSРазрешение файлов: 2083x2083-5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1813D1A8F11A47D5194B1A4068C1B343C4D54D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348603   (142905) от 28.12.2019
+
+Сборник - Creative Market - Wall & Desk Calendar 2020 - 4384979 [PSD, INDD, IDML, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь Wall & Desk 2020 сделан специально для американцев. Это также добавило некоторые базирующиеся в США государственные праздники и события. Он имеет красивое расположение логотипа любой компании, адреса электронной почты и т. Д. Все макеты созданы в современном стиле.Формат: PSD, INDD, IDML, EPSРазрешение файлов: 6629x4801-8763x13335
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AECE84C8255D519595878577DE3F69CFFA6364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520897   (138515) от 30.12.2021
+
+Сборник - Envato Elements – Christmas Graphics Templates 2021 [AI, PSD, JPG, EPS, ASL, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник шаблонов от Envato Elements на тему новый год.Формат: AI, PSD, JPG, EPS, ASL, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C836B5A51587B93F247968519C0D9F146739D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

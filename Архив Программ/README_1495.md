@@ -1,3 +1,29 @@
+###  Публикация: 962958   (290870) от 06.12.2015
+
+ReviverSoft Driver Reviver 5.3.2.44 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Reviver – это приложение, которое просканирует вашу систему на предмет устаревших драйверов и предложит их обновить. Сканирование производится по одной из самых больших баз драйверов, что гарантирует поддержку очень многих устройств. С использованием Driver Reviver все ваши устройства ПК будут работать максимально быстро и эффективно. Устаревшие драйвера могут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFE9B19EEB80A878EB81D7226E21BAB255B2D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963044   (290859) от 06.12.2015
 
 O&O SafeErase Professional 8.10 Build 218 RePack by D!akov [Ru/En]
@@ -645,32 +671,6 @@ uTorrent 3.5.5 Build 45395 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0123E8AEC8433741E6A85458C97D14906A3C632E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334904   (290533) от 31.10.2019
-
-Phase One Capture One Pro 12.1.4.21 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phase One Capture One PRO - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E09E2FCF7CD4810B0E73EDBA4DDD60E024682B
 ```
 
 https://mybot314.ru/tekegram_catalog/

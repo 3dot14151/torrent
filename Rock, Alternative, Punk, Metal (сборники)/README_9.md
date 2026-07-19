@@ -1,3 +1,90 @@
+###  Публикация: 1101842   (892756) от 08.02.2017
+
+VA - Nu Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alter Bridge - The Writing On The Wall 4:28
+002. Annisokay - Blind Lane 3:57
+003. Any Given Day - Hold Back The Time 4:44
+004. Alter Bridge - Crows On A Wire 4:27(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AE88988292743B74D48CF1F330ABEB174D88F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101829   (892664) от 08.02.2017
+
+VA - Alternative Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892664.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Doors Down - Believe It 3:22
+002. 3 Doors Down - Pieces Of Me 3:38
+003. 3 Pill Morning - Never Look Back 3:22
+004. 12 Stones - Bulletproof 3:06(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 09:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8556F0770298E76553AC793545FA20C594BC047C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101859   (892630) от 08.02.2017
+
+VA - Hard Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892630.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blackfoot - Need My Ride 3:36
+002. Bon Jovi - Come On Up To Our House 4:36
+003. Boneyard Dog - Mother Lode 4:23
+004. Broken Secret - With You 4:26(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 07:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BB9E0DB90A09CFCB30C050DC2EB7659F882BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761545   (892195) от 02.03.2014
 
 VA - Alterportal HITS 14 Vol. 65 - January (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
@@ -661,93 +748,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373711   (878443) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878443.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Burning Witches - Lords Of War (2018) (3:38)
-02. Phantom - Baptised (2017) (4:15)
-03. Queensryche - 46 North (2019) (3:33)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996997   (877084) от 15.03.2016
-
-VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - I'll Be There For You
-02. Skid Row - I Remember You
-03. Warrant - Heaven
-04. Slaughter - Fly To The Angels(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996454   (875601) от 16.03.2016
-
-VA - Nashville Indie Spotlight (2015) [MP3|192 кб/с] <Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ruelle - Monsters
-2.	Whissell - Get Free
-3.	Eza - We Keep the Lights Out
-4.	Wave & Rome - Across the Map(   Читать дальше...   )Жанр: IndieПродолжительность: 01:32:28.162
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58976F44DD6ED2DF76A0DA13311847822DC2237A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1566659   (480543) от 30.07.2022
-
-Art Blakey & The Jazz Messengers - feat. Wynton Marsalis (1980) 1988, Fortune [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [10:23]
-02. My Funny valentine [9:19]
-03. Soulful Mister Timmons [10:25]
-04. My Ideal [6:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B24E9DB4BD6D622A79E6BBC939FF5E9A2D0727D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244585   (480232) от 02.09.2018
-
-Ariel Pocock - Touchstone (2015) Justin Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You [3:57]
-02. Devil May Care [6:41]
-03. Real Emotional Girl [4:19]
-04. Barrel Roll [7:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BDDD5F08D539A9D0C48415718A1BD0943BC635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938511   (480106) от 19.09.2015
-
-Jaki Byard - Freedom Together! (1966) /1997, OJC/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Freedom Together [11:30]
-02.Getting to Know You [04:55]
-03.Ode to Prez [03:22]
-04.Nocturne for Contrabass [06:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA33AE43A963E05984090872EF09661EF94D2CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938774   (480092) от 19.09.2015
-
-Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Do For You [03:56]
-02.The World Is A Ghetto [04:59]
-03.Swing It [05:00]
-04.One Man And His Music [05:29](   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B2BAC8474A67C96812E6176E0644404A13EAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159890   (480085) от 22.08.2017
 
 Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E11A5F782EFB80106630871D30DAF7C3652E1C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938903   (478148) от 20.09.2015
+
+Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/ [FLAC|tracks+.cue]<Afro-Cuban Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Belongs To Daddy [06:03]
+02. My Man [04:20]
+03. Moonglow [06:25]
+04. ST. Louis Blues [05:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, BopПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3728B0675B8B8DB1245F001B41D16CEFC2098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938812   (478146) от 20.09.2015
+
+John Coltrane - Stellar Regions (1967) /2015, Universal/ [FLAC|tracks+.cue]<Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Seraphic Light [08:58]
+02.Sun Star [06:09]
+03.Stellar Regions [03:36]
+04.Iris [03:55](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7425409F57016ADDDCF41A880C049CEDB0490A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938834   (478144) от 20.09.2015
+
+Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, What a Beautiful Mornin’ (4:12)
+02. Many A New Day (3:01)
+03. Happy Talk (3:54)
+04. I Cain't Say No (4:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FFF6AB3AC42D26DEC02BA0E6EEEC03AEEBAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938801   (478025) от 20.09.2015
+
+Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The High Life (2:37)
+02. Edge of Love (3:54)
+03. I'm Confessin' (3:45)
+04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
 ```
 
 https://mybot314.ru/tekegram_catalog/

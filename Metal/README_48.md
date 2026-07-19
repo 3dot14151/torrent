@@ -1,3 +1,96 @@
+###  Публикация: 907382   (639918) от 11.06.2015
+
+Nergard - A Bit Closer To Heaven (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light And Shadows (feat. Ralf Scheepers, Nils K. Rue, Andi Kravljaca, Ole Martin Moe Thornaes)
+02. Fall From Grace (feat. Thomas Loseth)
+03. On Through The Storm (feat. Elize Ryd, Andi Kravljaca)
+04. Let It Come (feat. Michael Eriksen. Guitar solo by Oyvind Voldmo Larsen)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481C6AD5D395D3973C245CE51205CE51B77A5509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907358   (639916) от 11.06.2015
+
+Stormhammer - Echoes Of A Lost Paradise (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rememberance
+02. Glory Halls of Valhalla
+03. Fast Life
+04. Echoes of a Lost Paradise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0EDDACCDE30F541B1761856800962A628E760E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518669   (639675) от 05.07.2012
+
+Poison Sun - Virtual Sin (2010) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo
+ 02. Red Necks
+ 03. Hitman
+ 04. Rider In The Storm
+ 05. Killer
+ 06. Virtual Sin
+ 07. Princess
+ 08. Phoebia
+ 09. Excited
+ 10. ForeverЖанр: Heavy MetalПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D8914AF0C6598C9BEC7046A2BB1128E5113034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519015   (639597) от 05.07.2012
 
 Suita De Ora - Inspiration (2012) [MP3|217-278 кб/с]<Gothic Metal>
@@ -677,93 +770,6 @@ Black Book Lodge - Entering Another Measure (2015) [MP3|320 кб/с]<Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8235C08B387B7DA0EB8F6BD97A81DABEDC0D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908643   (632494) от 15.06.2015
-
-Ultimatium - 4 альбома (2004-2015) [MP3|192-320 кб/с]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632494.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - New Dawn
-2008 - Hwainoo
-2011 - Hold your ground (Demo)
-2015 - Vis Vires InfinitusЖанр: Melodic Power MetalПродолжительность: 02:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B3AC4B9A7A2EE80C1AA6BDC949CEC5E455CCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908654   (632492) от 15.06.2015
-
-Embersland - Dark Ages (2015) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (Part II) (09:17)
-02. Closer (04:26)
-03. Hope (05:10)
-04. WTF…Fuck Off! (04:04)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB774B6B0BDFEF0624F6FC5624583D9FFB035551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908762   (632491) от 15.06.2015
-
-Immension - In Vain (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Vain
-2. The Fantasy
-3. All That Remains
-4. Lost & Forgotten(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617792990E9A72DD38239CB152BC9803F34C6C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 1772976   (31041) от 13.01.2025
+
+Echolyn - Time Silent Radio vii II (2025) 2 x CD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31041.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Time Silent Radio vii:
+1. Radio Waves (7:19)
+2. Silent Years (4:21)
+3. Cul-de-Sacs and Tunnels (7:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7E2DC4E610D25972294F12D601CFE7AD99CEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773166   (30964) от 14.01.2025
+
+Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Master [MP3|320 Kbps] <Progresive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak to Me (Live at Wembley 1974 - 2023 Master) [02:45]
+02. Breathe (In the Air) (Live at Wembley 1974 - 2023 Master) [02:51]
+03. On the Run (Live at Wembley 1974 - 2023 Master) [05:09]
+04. Time (Live at Wembley 1974 - 2023 Master) [06:32](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDF217336A1D41F156B4EFDDCF35C1B3248D162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774863   (29907) от 24.01.2025
+
+Jack Lancaster & Robin Lumley - Peter And The Wolf (1975) [MP3|320 Kbps] <Progresive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [01:05]
+02. Peter's Theme [02:10]
+03. Bird And Peter [00:39]
+04. Duck Theme [01:00](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD785FD205DCDA83642227D7F94C53646D16EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775460   (29701) от 26.01.2025
+
+Led Zeppelin - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Whole Lotta Love / Medley
+02 – How Many More Times
+03 – Communication Breakdown
+04 – Celebration Day(   Читать дальше...   )Жанр: RockПродолжительность: 02:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB592CF8219740467F9E44807C4D93246C24D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776256   (28814) от 03.02.2025
+
+ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hells Bells [05:09]
+02. Shot Down In Flames [03:16]
+03. Sin City [05:00]
+04. Back In Black [03:46](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D008E2E70FEA38DDF50C56141156DE04E396246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780983   (26931) от 21.02.2025
+
+VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boston - More Than A Feeling
+02. Europe - The Final Countdown
+03. Blue Oyster Cult - (Don't Fear) The Reaper
+04. Toto - Africa(   Читать дальше...   )Жанр: Classic Rock, Pop Rock, VocalПродолжительность: 06:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDCC3F192F3D389EB41D8B3F6739305DC176DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786695   (23842) от 22.03.2025
+
+Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Little Victory (Remixed) [00:05:08]
+02 - Cygnus X-1 (Live At Maracana Stadium, Rio de Janeiro, Brazil - 11_23_2002) [00:03:12]
+03 - The Seeker [00:03:24]
+04 - Between The Wheels (Live At Festhalle Frankfurt, Frankfurt, Germany - 9_24_2004) [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 4 CD,  04:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8014F9A89365630C718D48DCF0C564C23188921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792734   (20275) от 25.04.2025
+
+T. Rex - Bolan B-Sides (2025) [MP3|320 Kbps] <Rock, Classic Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cadilac [03:53]
+02. Baby Strange [03:06]
+03. Lady [02:15]
+04. Thunderwing [03:46](   Читать дальше...   )Жанр: Rock, Classic Rock, GlamПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1F7CAF9B373176730E0F4015AE4B2D8964FE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793583   (20263) от 25.04.2025
+
+Billy Idol - Dream Into It (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Into It [05:05]
+02. 77 (feat. Avril Lavigne) [02:54]
+03. Too Much Fun [03:20]
+04. John Wayne (feat. Alison Mosshart) [04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795407   (19368) от 04.05.2025
 
 Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy Recordings [MP3|320 Kbps] <Progresive Rock>
@@ -484,93 +745,6 @@ Carter The Unstoppable Sex Machine - Worry Bomb (1995) Remaster, 2025, Chrysalis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:784F26E98FA98FDFC6992E9ADFD1B0BE7E23FE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817775   (2912) от 13.09.2025
-
-The Judas Kiss - The Mirror Crack'd (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Judas Kiss - The Eternal Flame (Burning Bright) [00:03:40]
-02. The Judas Kiss - Burning in the Shadows [00:05:34]
-03. The Judas Kiss - Time’s a Spell [00:04:05]
-04. The Judas Kiss - A Killer in the Rain [00:04:04](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBDEA8CC2AC75D5F87E0338D6EDD01FEB112DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818184   (2617) от 15.09.2025
-
-David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remastered, Box Set, EP, Live, 2025, Rhino [MP3|320 Kbps] <Pop Rock, Glam Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sunday (2025 Remaster) [4:46]
-02 - Cactus (2025 Remaster) [2:55]
-03 - Slip Away (2025 Remaster) [6:05]
-04 - Slow Burn (2025 Remaster) [4:42](   Читать дальше...   )Жанр: Pop Rock, Glam Rock, Art RockПродолжительность: 12:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCBC33A06C45AE140462F3B2A35DBF5F234822B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820037   (797) от 26.09.2025
-
-Robert Plant - Saving Grace (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chevrolet [02:38]
-02. As I Roved Out [06:11]
-03. It's A Beautiful Day Today [03:41]
-04. Soul Of A Man [04:43](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D82FC7B149F38B86EBE7C4F8FC7CEE0D0823E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

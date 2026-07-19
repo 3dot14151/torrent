@@ -1,58 +1,3 @@
-###  Публикация: 1343758   (893064) от 29.03.2020
-
-Kabukichou Sherlock | Case File n 221: Kabukicho | Шерлок из Кабуки-тё [2019, TV, 24] WEBRip 720p HS
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в современном Кабуки-тё — злачном квартале токийского района Синдзюку. Аниме рассказывает о приключениях разношёрстной группы детективов, которые живут вместе в многоквартирном доме над баром миссис Хадсон в квартале красных фонарей и пытаются раскрыть необычную серию убийств, известную как «Убийства Джека Потрошителя».Производство: Production I.GЖанр: приключения, комедия, детективРежиссер: Ёсимура АйПеревод: MedusaSubЯзык озвучки: ЯпонскийСубтитры: Русские (неотключаемые)Продолжительность: 24 серии по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6936A5BCCD4D982340AEF3866AD7892280A4EF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074587   (893036) от 08.02.2017
-
-Cookie 5.2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
-
-•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
-•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 февраля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FBFDAA1F88CB95DCCA2ED3C7E5D181B22B85F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102111   (893034) от 08.02.2017
 
 BurnAware Professional 10.0 RePack (& Portable) by D!akov [Multi/Ru]
@@ -694,6 +639,67 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414A33F4818DA9ED9DA84CC03342893BBB7216E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102198   (892779) от 08.02.2017
+
+Avast Clear 17.1.3394.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23975CFE8BB43939D02D54408254B6107319C54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184112   (892774) от 18.03.2010
+
+VA - House Vip (16.03.10) [MP3|192-320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell - Watch The Sunrise (Moke Essa & Julian Airia Remix) (6:07)
+02. Boyko Sound Shocking - I Miss Your Love (Grey Sound Remix) (6:18)
+03. DJ Red, DJ Scotty Boy - 4am In Vegas (Original Mix) (7:16)
+04. DJ Rooster, Sammy Peralta, Alejandro Montero - Tokyo (Original Mix Instrumental) (7:09)
+05. Guaranna Project - Pink Lights (Original Mix) (6:09)
+06. Jorgensen, Patric La Funk - Hear Here! (J Nitti Remix) (8:10)
+07. Lenzi vs. Soriani Feat. Sily - Poker Face (Alex Berti Version) (6:52)
+08. Linkin Park - Numb Encore 2010 (Hard2house Club Master Mix) (6:52)
+09. Mondotek - New Sound 2010 (Club Edition)(Rip) (4:30)
+10. Ne!tan vs. Addictiv - Little Game (Pump Extended Mix)(Rip) (5:22)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

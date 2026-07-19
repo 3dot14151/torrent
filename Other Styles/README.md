@@ -1,5 +1,179 @@
 https://t.me/izofen
-###  Публикация: 1877950   (1074649) от 
+###  Публикация: 1881915   (1077213) от 
+
+Yakuro & Emil Sagitov - Two Soul's (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emil Sagitov - Two Soul's (8:32)
+02. Emil Sagitov - Leafing Through an Old Exercise Book (5:40)
+03. Yakuro - Sunset of Two Souls (5:29)
+04. Yakuro - Ad Lucem Veniens (6:51)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CAE4B0C40A2594106F9507DC5D64E83F7E5962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881211   (1076660) от 
+
+VA - The Orient Collective: Echoes in the Sand (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gavr, Tibetania - Generis Raspberry (6:07)
+02. Noam Garcia, Diego Galloso, Tibetania - La Existencia (8:32)
+03. Mortisha, Palankai, Tibetania - Tell Me (7:42)
+04. Kalico Jak, Tibetania - From the Wilds (7:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212E3CCC49A0A8A61D2FFDE52F630D442DFF1913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879876   (1076300) от 08.07.2026
+
+VA - Born On The Fourth Of July (Music From The Motion Picture Soundtrack) (1989) [FLAC|Lossless|image + .cue] <Modern Classical, Soundtrack, Classic Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edie Brickell & The New Bohemians - A Hard Rain's A Gonna Fall (5:00)
+02. Broken Homes - Born On The Bayou (4:56)
+03. Van Morrison - Brown Eyed Girl (3:08)
+04. Don McLean - American Pie (8:35)(   Читать дальше...   )Жанр: Modern Classical, Soundtrack, Classic RockПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50AB8182DE74A9844EE0F22390B0ED19A4073A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880200   (1076010) от 05.07.2026
+
+VA - The Orient Collective: Wisdom & Art (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Mateus - Seashore (4:25)
+02. Kaisser Bouzriba - Tounsi (5:05)
+03. Lerush - Beyond the Forest (7:18)
+04. Divenitto - Nakãya (5:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8AC028A595F53AE954201E42327E9FB9669B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877463   (1074947) от 
+
+VA - (500) Days Of Summer (Music From The Motion Picture) (2009) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mychael Danna & Rob Simonsen - A Story Of Boy Meets Girl (1:36)
+02. Regina Spektor - Us (4:50)
+03. The Smiths - There Is A Light That Never Goes Out (4:04)
+04. Black Lips - Bad Kids (2:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B3B8910DAA4671CCA25460E56F96804629891C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878689   (1074837) от 27.06.2026
+
+VA - The Orient Collective: Drums of the Forgotten (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Crossing (7:01)
+02. Tranceq - Freedom Now (3:52)
+03. RL Music - Precious Memories (Jack Essek Remix) (6:46)
+04. Claudio Gasparini - Ultimate Reality (6:40)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDA41F41FB33F65B945A15AF9F500EBA3CD7545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877950   (1074649) от 26.06.2026
 
 Kitaro - India (1983) Unofficial [FLAC|Lossless|image + .cue] <New Age>
 
@@ -572,179 +746,6 @@ ERA - ERA VIII (2026) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A011A1F1FA557471B099E45AC6875CEED71D5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874064   (1071681) от 31.05.2026
-
-VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Searching (5:08)
-02. Erhan Yılmaz - The Night Long Way Down (4:58)
-03. Divenitto - Goa (6:43)
-04. Erhan Yılmaz - Fifteen Seconds (6:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C422AA181F860EEE7220FE2AFDF1EF1154013C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873950   (1071469) от 30.05.2026
-
-Paul Mauriat - Transparence (1985) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alla Figaro
-02. Careless Whisper
-03. Like A Virgin
-04. No More Lonely Nights(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CEAB44C02AAF73643B6331D22E032929542330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873976   (1071453) от 30.05.2026
-
-Paul Mauriat - Nagekidori (1987) [FLAC 24/96, 192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nagekidori (L'oiseau blessé) (feat. Gheorghe Zamfir)
-02. Didn't We Almost Have It All
-03. Camp Fire -Жанр: InstrumentalПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C190A8ABDD25A6F0BC4337632D6D4932686230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873852   (1071356) от 30.05.2026
-
-Magic Melody Makers - Greek Tavern Nights (Dreamland Music House) (2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greek Tavern Dance (1:55)
-02. Ouzo & Olives (2:16)
-03. Santorini Sunset & Wine (3:11)
-04. Sirtaki & Souvlaki (2:03)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F507D7EAD49AFA66A8DE4425E6855ED4F4C9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873596   (1071290) от 29.05.2026
-
-ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fallen King (4:02)
-02. Everything's Gonna Be Alright (3:35)
-03. Will You Call My Name (3:26)
-04. Not You Again (5:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D73B08F8B5C843EB4716E0C53D5BF625CAB9019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873608   (1071282) от 29.05.2026
-
-Magic Melody Makers - Turkish Nights 2026 (Dreamland Music House) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istanbul Sunset Lounge (2:33)
-02. Bosphorus Breeze (2:06)
-03. Turkish Delight Evenings (1:59)
-04. Meze by Candlelight (3:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDAEE6349B2C56FDE3E306DBDB0D9E0A305DD8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

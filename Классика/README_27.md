@@ -1,116 +1,3 @@
-###  Публикация: 918999   (584663) от 17.07.2015
-
-Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Piano, Instrumental>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mattina
-02. Fly
-03. Nuvole Bianche
-04. I Giorni(   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041000   (583261) от 08.08.2016
-
-Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Allegro    02:23
-02. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Largo    01:38
-03. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Presto    02:18
-04. Tartini Concerto in A Major - Allegro    07:27(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AA4CA545D2CF4DB1D09EE4222C61569E2602D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358029   (582590) от 05.07.2011
-
-Рахманинов - Полное собрание оркестровых сочинений [5CD] (2007) [FLAC|Lossless]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 05:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301B09C1211776E84F5031A6F77BC7B28C932BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041589   (581289) от 10.08.2016
-
-Franz Joseph Haydn - Complete String Quartets (The Aeolian String Quartet) (1997) 22CD Box Set [MP3|320 Kbps] <Classical, Quartet>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581289.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-  1. String Quartet In E-Flat Major, Op. 0: I. Presto
-  2. String Quartet In E-Flat Major, Op. 0: II. Menuetto
-  3. String Quartet In E-Flat Major, Op. 0: III. Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920299   (580122) от 22.07.2015
 
 Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical, Romantic Period, Orchestral, Symphonic, Suite, Character Piece, Waltz, March, Impromptu, Elegy>
@@ -677,41 +564,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 363941   (564803) от 16.07.2011
-
-VA - Музыкотерапия. Великий Моцарт (Подагра. Артрит. Полиартрит) (2011) [MP3|~318 kbps]<Классический, Релакс>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_564803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рондо в турецком стиле из фортепианной сонаты №11, K. 331
-02. Romance. Andante из Маленькой ночной серенады, KV 525
-03. Rondo. Allegro из Маленькой ночной серенады, KV 525
-04. Престо из `Музыкальной шутки`, K. 522
-05. Lodron Night Music, K. 247- 9. Allegro Assai
-06. Рондо D-dur
-07. Менуэт из Дивертисмента, K. 131
-08  Фортепианный концерт E-dur. Allegro
-09. Анданте фа мажор, KV 616
-10. Рондо (Tempo di Menuetto) из концерта для флейты №1 G, K. 313(   Читать дальше...   )Жанр: Классический, РелаксПродолжительность: 05:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4BAE96504488E933F18172EB5E6998BC8B106F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044300   (564763) от 20.08.2016
 
 Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Electronic>
@@ -763,6 +615,151 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBFADFD8F32DCD7500103EEEBDD75FF20E00446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959996   (561794) от 10.07.2018
+
+Шопен - Гении классической музыки (2012) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вальс ми бемоль мажор, соч.18 (Большой блестящий вальс)
+02. Этюд до диез минор, соч.10 н.4
+03. Вальс ля бемоль мажор, соч.42 (Большой вальс)
+04. Соната для фортепиано н.2 си бемоль минор, соч.35, Похоронный марш. Lento(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C007CB39F851794E3F37BD7B091CE08430C580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556120   (561512) от 08.06.2022
+
+Leif Ove Andsnes, Mahler Chamber Orchestra - Mozart Momentum 1786: Piano Concertos Nos.23 & 24, Piano Quartet No.2, Piano Trio No.3 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561512.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+[1]-[3] Piano Concerto No. 23 in A major, K. 488
+[4] Recitative and Aria (Rondo): Ch'io mi scordi di te? ... Non temer, amato bene, K. 505
+[5]-[7] Piano Quartet No.2 in E flat major, K. 493Жанр: ClassicalПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED756C23C9199A885C339CA0EB8DEFD7476023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556079   (561511) от 08.06.2022
+
+Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker - The Four Seasons (1984) Remasterd, 1998, Holland [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antonio Vivaldi - Violin Concerto in E major “The Four Seasons”, op. 8 no. 1-4:
+
+"La primavera"
+01. I. Allegro (3:18)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16D1103FE17AD1C1F8AD41650CC891E850D11F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044787   (560998) от 22.08.2016
+
+Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop, Electronic, Dubstep, Violin>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Girls
+02. Brave Enough (feat. Christina Perri)
+03. The Arena
+04. The Phoenix(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BB44661C6FEFB296BFEAFBFE94895E65CE8600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924080   (560656) от 02.08.2015
+
+Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva Vivaldi (After Vivaldi Concertos Rv 242 Allegro - Rv356 Allegro - Rv454 Allegro)
+02. White
+03. Telemann and Vivaldi Concerto Medley Viola Concerto, TWV 51G9 La Stravaganza, Op. 4
+04. Masquerade(   Читать дальше...   )Жанр: Classical crossover, New AgeПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECA22FC002449F6837BAF7CEF95E8BCF893A390
 ```
 
 https://mybot314.ru/tekegram_catalog/

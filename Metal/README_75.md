@@ -1,3 +1,90 @@
+###  Публикация: 1327689   (372427) от 26.09.2019
+
+KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KMFDM
+02. No regret
+03. Oh my goth
+04. Paradise(   Читать дальше...   )Жанр: Industrial Metal, Aggro-IndustrialПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF3FB1016A595A1120E25CBDD27172F6B5919F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774197   (371872) от 26.09.2019
+
+Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|320 кб/с] <Glam Metal, Hard Rock, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371872.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Feel The Steel (Japanese Edition)
+2011 - Balls Out (Japanese Edition)
+2012 - British Invasion (Live, 2CD, DVD-Audio)
+2014 - All You Can Eat (Japanese Edition)(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Hair MetalПродолжительность: 07:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46E0F8FCCF14CD979918E18B2C18F4DC25C88CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069933   (371409) от 05.11.2016
+
+Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371409.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:46] 01. Shout At The Devil
+[04:01] 02. Too Fast For Love
+[05:35] 03. Ten Seconds To Love
+[03:28] 04. Red Hot(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD31B1B6028B9E91168792CA3F7F60D7FCC5F9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069643   (371308) от 05.11.2016
 
 In Flames - Sounds From The Heart Of Gothenburg (2016) Live [MP3|320 Kbps] <Death Metal>
@@ -658,93 +745,6 @@ Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3D998B57243CD91DD28309CEF19029974BFC3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951594   (363314) от 29.10.2015
-
-Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Lies the Crown
-02. The Wretched Tide
-03. Pale Tortured Blue
-04. Stellar Tombs(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071365   (362032) от 09.11.2016
-
-Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reflection
-02 - Remain Intact
-03 - Mind Control
-04 - On The Dead Snow(   Читать дальше...   )Жанр: Progressive, Avant-Garde, Melodic Death MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88206D4BF73A26288A7F3A70DB77D2FAF0E5299C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071132   (362027) от 09.11.2016
-
-Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	The Prophecy
-2.	They Will Not Believe What I Will Say
-3.	Light Lies
-4.	Light Truths(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

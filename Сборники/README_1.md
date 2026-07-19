@@ -1,81 +1,3 @@
-###  Публикация: 765197   (875765) от 11.03.2014
-
-Сборник - Свадьба 4 / Wedding 4 [JPEG,PSD,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебная тематикаФормат: JPEG,PSD,EPS,AIРазрешение файлов: 2500х3700-8500х5600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790D67FDDBE4C2584A1518E5E7CD9883E6DA4C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374188   (874136) от 09.04.2020
-
-Сборники - Dealjumbo.com - Deeezy - 8 Abstract Geometric Flowers - 14410 [PNG, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные 3D формы в векторе и растре. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNG, AI, EPSРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38643CDC86B52B5290A3B3A960A5293E204D77FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765905   (872420) от 13.03.2014
-
-Сборник - Дизайн футболок 20 / T-Shirt Factory 2 [PSD,EPS,CDR]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн футболокФормат: PSD,EPS,CDR превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7320A9A116D913857095B15AB20E1FB093DABD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766282   (870606) от 14.03.2014
 
 Сборник - Брендинг 8 / Branding 8 [JPEG,PSD,PNG,EPS]
@@ -121,32 +43,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2579FDFDFF755CD94531476535EA4F14A3012FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770302   (850765) от 25.03.2014
-
-Сборник - Пасха 2014-2 / Easter 2014-2 [JPEG,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850765.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПасхаФормат: JPEG,EPS,AIРазрешение файлов: 5000x3700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F931F56495FBF8A4E27F618979CC97887CBA3C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,6 +567,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0706B968B18F05235CB09091B7B64377CC23CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397089   (742554) от 18.07.2020
+
+Сборник - Design Bundles - Pets Bundle. Cliparts and seamless patterns - 274314 [EPS, PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пакет Pets входят 16 графических пакетов с симпатичными клипартами и бесшовными узорами.Формат: EPS, PNG, JPGРазрешение файлов: 886x1249-10522x3305
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6C2902C66B1C64E481E20DD692B788BCECC8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242633   (724317) от 24.02.2019
+
+Сборники - ABC's Lowercase Clip art - alphabet collection [AI, PNG, EPS, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочный алфавит латиницей в векторе и не только. Бесплатно для личного пользования.Формат: AI, PNG, EPS, PDFРазрешение файлов: 5000 x 7717
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39721C7C482C4ED63807A79A9E9F5D3C40AD72D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219815   (709767) от 16.04.2018
+
+Клипарт - GraphicRiver - Chocolate Candy - Game GUI - 21025507 [CDR, AI, EPS, SVG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный набор графического интерфейса пользователя (GUI) для создания 2D-видеоигр. в шоколадном стиле, с конфетами и фэнтезийной тематикой. Подходит для случайных, головоломок или других игр с подобной темой.Формат: CDR, AI, EPS, SVG, PNGРазрешение файлов: 500x500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D3B346C9D69D9D684714806757D0B4578ACDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402113   (703006) от 13.08.2020
+
+Сборник - Creative Market - Huge Typographic Pack + 60 Logos ! - 2798169 [EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время получить все мои 44 шрифта, включая 221 шрифт + 60 БОНУСНЫХ шаблонов логотипов.Формат: EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSDРазрешение файлов: 132x1500-1500x1490
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0330377D830B69A65D558E17C0A1F6BAD5715BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

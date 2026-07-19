@@ -1,32 +1,3 @@
-###  Публикация: 1594165   (177943) от 01.12.2022
-
-Bad Boys Blue - The Fifth (1989) [OGG Vorbis|700 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177943.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lady In Black;
-2. Someone To Love;
-3. A Train To Nowhere;
-4. I'm Not A Fool;(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D36BCD3877C0754C9037A716E59F3C3100C34FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594741   (176696) от 03.12.2022
 
 C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
@@ -740,6 +711,35 @@ Soirée - Soiree (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFD5C60CBE723B57C6F4D3E3BC9F0D7DF3D9C250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431753   (166934) от 14.12.2020
+
+Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supercontinent (4:18)
+02. Afromerica (5:53)
+03. Hunky Funky Lion (4:15)
+04. Revelation (3:31)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12DAA98AF3999FA0B7A19F11695C4DA2F1E9D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

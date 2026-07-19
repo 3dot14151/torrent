@@ -1,3 +1,119 @@
+###  Публикация: 924477   (558871) от 03.08.2015
+
+VA - Летний марафон № 178 / Видеоклипы (Зажигательный Латинский Хит ) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (03.08.2015) поп. новинки латинской эстрады. Не пропустите, держите новые треки.1. Ale Blake ft. Hevito- Latin Heart (Official Video) (00:03:30)
+2. Alexis y Fido - Santa de mi devoción (Official Video) (00:04:27)
+3. All The Way ft. Bebe Rexha - Reykon (Official Video) (00:04:04)
+4. BB Bronx ft. Farruko - Bronx Whine (Official Video) (00:03:22)(   Читать дальше...   )Жанр: Latino, ReggaetonПродолжительность: 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F18B824C7C3EDE7176762D09BFB5DB2F49AF980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924050   (558870) от 03.08.2015
+
+Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индейская музыка - музыка, которая используется, создается или выполняется коренными американцами в Соединенных Штатах и людьми индейцев Канады, определенно традиционной племенной музыки. В дополнение к традиционной музыке индейских групп, там теперь существуют межплеменные жанры, а также отличные индейские поджанры популярной музыки включая: скала, блюз, хип-хоп, (   Читать дальше...   )01. Blue Chip Orchestra - Ate Heye Lo [03:53]
+02. The Wings  [23:51]
+03. Big City Indians Earth Is Crying - Dry Her Tears - Earth Hour Song [05:00]
+04. Nature - Song for Mornings Stars [02:36](   Читать дальше...   )Жанр: Native American, Folk, New Age, EthnoПродолжительность: 03:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC37DB0C07469DA000B3E0464030BB70A54B608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924681   (557234) от 04.08.2015
+
+VA - Летний марафон № 179 / Видеоклипы (Зарубежные Клипы) (2015) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Meriem - Dilemma (00:03:30)
+2. Alexandra Stan - Cherry Pop (00:03:19)
+3. Alexandra Stan - Dance (00:03:41)
+4. Andreea Balan - Baila (Spanish Version) (00:04:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, RapПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693067   (550320) от 25.08.2013
+
+VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level 42 - Hot Water 1984
+02. Level 42 - Lessons In Love
+03. Lionel Richie - Hello 1984
+04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694564   (546670) от 29.08.2013
 
 VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
@@ -605,119 +721,6 @@ Dr.Alban-41 клип (1990-2008) HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:681C3582179D242A8D4561AAAF9A2A260F6962D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927654   (523972) от 14.08.2015
-
-VA - Летний марафон № 182 / (Задорный Country Хит) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (13.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Amy Wilcox - Summer in Slow Motion (Official Video) (00:03:29)
-2. BlackByrd - Better In The Morning (Official Video) (00:03:23)
-3. Enrico Nigiotti - Libera Nel Mondo (Official Video) (00:04:37)
-4. Heather Ballentine - Kiss Me (Official Video) (00:03:19)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ED72BF7C8115614AA1B0755D09FD008A0DD855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241278   (520958) от 16.08.2018
-
-Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
-01 Ozzy Osbourne - Crazy Train
-02 Motley Crue - Smokin' In The Boys Room
-03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534408   (520341) от 13.08.2012
-
-Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DDBA8BEC8C9E36634F4B7FC1F38417AC0E0356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928502   (519492) от 19.08.2015
-
-VA - Летний марафон № 183 / (Зарубежная Дискотека) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (15.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alli Simpson ft. Jack & Jack - Roll Em Up (Official Video) (00:02:56)
-2. Ardit Cuni - Let's Go (Official Video) (00:03:52)
-3. Christopher - Tulips (Official Video) (00:03:35)
-4. EDX - Breathin (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, ReggaetonПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847FC997A84CDABD74E3667D5FA089BC0FF48BC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

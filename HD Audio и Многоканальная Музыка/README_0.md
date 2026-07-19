@@ -1,25 +1,25 @@
-###  Публикация: 1873906   (1071456) от 30.05.2026
+###  Публикация: 1879383   (1075342) от 
 
-The Fixx - Reach The Beach (1983) Vinyl-Rip [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electronic, Rock, Pop, New Wave>
+The Seekers - A World Of Their Own (1973) 5хLP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, World, & Country>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. One Thing Leads To Another (3:18)
-2. The Sign Of Fire (3:51)
-3. Running (4:26)
-4. Saved By Zero (3:41)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, New WaveПродолжительность: 00:40:50
+Folk Songs with The Seekers
+A1 Waltzing Matilda
+A2 Whiskey In The Jar
+A3 Five Hundred Miles(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 02:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C40086E2AFECB622F04086DDFD9837CF4108CF52
+magnet:?xt=urn:btih:D24A9046D1958CE94EC7E76E3696072A6F6DA2D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873676   (1071436) от 29.05.2026
+###  Публикация: 1879402   (1075341) от 
 
-Astralborne - Studio Albums (2 releases) (2020-2023) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Carrion Vael - Studio Albums (5 releases) (2017-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Astralborne - американская дэт-метал группа, основана в 2018 году в г. Толедо, штат Огайо.2020 - Eternity's End
-2023 - Across the AeonsЖанр: Melodic Death MetalПродолжительность: 01:56:12
+Carrion Vael - метал-группа из Ричмонда, штат Индиана, США. Образована в 2008 году.2017 - Resurrection Of The Doomed
+2020 - God Killer
+2022 - Abhorrent Obsessions
+2024 - Cannibals AnonymousЖанр: Melodic Death MetalПродолжительность: 03:12:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF0222821BD53CC5CB1AA867F2A2602515C0FD67
+magnet:?xt=urn:btih:DFDC70B2E3285E0A6C19F4287C577165D730468B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +56,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873456   (1070996) от 28.05.2026
+###  Публикация: 1879468   (1075306) от 
 
-Corrosion Of Conformity - Studio Albums (11 releases) (1984-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Sludge/Southern Metal>
+W.A.S.P - Animal (Fuck Like A Beast) (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Corrosion of Conformity (или C.O.C.) — американская метал-группа из Роли, Северная Каролина, образованная в 1982 году.1984/1985 - Eye For An Eye Plus Six Songs With Mike Singing
-1985 - Animosity
-1991 - Blind
-1994 - DeliveranceЖанр: Crossover/Sludge/Southern MetalПродолжительность: 10:32:23
+A Animal (F**k Like A Beast)
+B Show No MercyЖанр: Heavy Metal, Hard RockПродолжительность: 00:06:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D993523E017ABF69F667CC124B6530AF48AE24D7
+magnet:?xt=urn:btih:A82B3833CD19C56484A904E47DF923A41BC3721B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872954   (1070703) от 25.05.2026
+###  Публикация: 1879098   (1074951) от 
 
-Shade Empire - Studio Albums (6 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Industrial Death/Black Metal>
+Black Therapy - Studio Albums (4 releases) (2013-2022) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shade Empire - метал-группа из города Куопио, Финляндия, образованная в 1999 году.2004 - Sinthetic
-2006 - Intoxicate O.S
-2008 - Zero Nexus
-2013 - Omega ArcaneЖанр: Symphonic Industrial Death/Black MetalПродолжительность: 04:59:45
+Black Therapy - дэт-метал группа из Рима, Италия, основана в 2009 году.2013 - Symptoms Of A Common Sickness
+2016 - In the Embrace of Sorrow, I Smile
+2019 - Echoes of Dying Memories
+2022 - OnwardЖанр: Melodic Death MetalПродолжительность: 03:12:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94761310308E783CF619B955075BA197139D3BC0
+magnet:?xt=urn:btih:12F412B6409A1E09169BB4BE3A8E65A5A5882CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873091   (1070597) от 26.05.2026
+###  Публикация: 1878510   (1074659) от 26.06.2026
 
-Becoming the Archetype - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Death Metal/Metalcore>
+VA - 150 Top Ten Country Hits (1981) 8 x LP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Becoming the Archetype — американская метал-группа, основана в Атланте, штат Джорджия, в 1999 году.2005 - Terminate Damnation
-2007 - The Physics Of Fire
-2008 - Dichotomy
-2011 - Celestial CompletionЖанр: Progressive/Melodic Death Metal/MetalcoreПродолжительность: 05:10:53
+Record 1
+A1 Hank Williams - Lovesick Blues
+A2 George Morgan - Candy Kisses
+A3 The Louvin Brothers - I Don't Believe You've Met My Baby(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 07:08:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B5CC025123BA8B7303069589A2A1CD76F286C51
+magnet:?xt=urn:btih:0A05FDA3D1C9A02A6A658D267EF3F87D94DB71A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +141,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872378   (1070467) от 22.05.2026
+###  Публикация: 1878298   (1074533) от 25.06.2026
 
-Shadows Fall - Studio Albums (8 releases) (1997-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
+Tigersclaw - Studio Albums (3 releases) (2017-2022) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shadows Fall — американская метал-группа из Спрингфилда, образованная в 1995 году.1997 - Somber Eyes To The Sky
-2000 - Of One Blood
-2002  - The Art of Balance
-2004 - The War WithinЖанр: Melodic Death Metal, MetalcoreПродолжительность: 06:50:15
+Tigersclaw - немецко-русский проект, созданный в 2016 году немецким мультиинструменталистом Александром Байером. Россию в проекте представляет вокалистка Елена Минина.2017 - Princess of the Dark
+2019 - Force Of Destiny
+2022 - Titan's DawnЖанр: Symphonic Power MetalПродолжительность: 03:14:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C61FB7CA675DFC3F668FFE7EBC7F8F809FDB069C
+magnet:?xt=urn:btih:7FEB97573F1BC386768493C6F8358BA7B414CF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872592   (1070284) от 23.05.2026
+###  Публикация: 1877905   (1074249) от 23.06.2026
 
-VA - Country Harmony. 16 Star Couplings (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+Tracedawn - Studio Albums (4 releases) (2008-2012) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Tanya Tucker And Glen Campbell - Dream Lover
-A2 The Wilburn Brothers - Distant Drums
-A3 George Jones And Tammy Wynette - When I Stop Dreaming
-A4 Moe Bandy And Joe Stampley - Honky Tonk Man(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:59
+Tracedawn - финская метал-группа, созданная в 2005 году.2008 - Tracedawn
+2009 - Ego Anthem
+2012 - Lizard Dusk
+2012 - Arabian Nights (EP)Жанр: Melodic Death MetalПродолжительность: 02:16:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD18D4D2A7DE0A56A0B8C7DAC7E635B9CCE4549
+magnet:?xt=urn:btih:4AC830E77832ACD637AD0BB61227B50FCA7ECE29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +198,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872073   (1070225) от 20.05.2026
+###  Публикация: 1877749   (1074143) от 22.06.2026
 
-After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metalcore/Deathcore/Djent>
+Abarax - Studio Albums (2 releases) (2005-2021) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-After the Burial — американская метал-группа из города Миннеаполис, штат Миннесота, сформированная в 2004 году.2006 - Forging A Future Self
-2008 - Rareform
-2010 - In Dreams
-2013 - Wolves Within(   Читать дальше...   )Жанр: Progressive Metalcore/Deathcore/DjentПродолжительность: 04:39:43
+Abarax - сайд-проект участников группы Taste Of Timeless. Идея проекта заключалась в том, чтобы играть музыку в стиле Pink Floyd.2005 - Crying Of The Whales
+2010 - Blue RoomЖанр: Symphonic Progressive RockПродолжительность: 02:49:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF2DED4DCDA1AE27362F0F0F8D2AAC5DEC91D99
+magnet:?xt=urn:btih:AE92B4D2A8315368745AFAC9584DB5903526F41B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +225,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872230   (1070117) от 21.05.2026
+###  Публикация: 1877180   (1073780) от 
 
-James Last - East Meets West (1977) UK Tour '78, Limited Edition 2LP Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
+7th Abyss - Studio Albums (2 releases) (2016-2020) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Country And Western Dance Party
-A1 Orange Blossom Special
-A2a Irish Washerwoman
-A2b Gary Owen(   Читать дальше...   )Жанр: Jazz, Folk, Easy ListeningПродолжительность: 01:26:06
+7th Abyss - немецкая метал-группа из Вюрцбурга, Бавария, основана в 2013 году.2016 - Unvoiced
+2020 - Chains of BetrayalЖанр: Melodic Death Metal, MetalcoreПродолжительность: 01:29:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E52DC8F6CE99C7545BED80E4A2A0B51D6572013
+magnet:?xt=urn:btih:E312DD853777EAEE014183682D5BA246A569854B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,29 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871695   (1070000) от 18.05.2026
+###  Публикация: 1876887   (1073702) от 18.06.2026
 
-Thyrfing - Studio Albums (8 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Viking/Black Metal>
+Ancient Bards - Studio Albums (5 releases) (2010-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thyrfing - шведская блэк/фолк/викинг-метал группа, образованная в 1995 году в Стокгольме.
-Название группы происходит от королевского меча Тирфинг из скандинавской мифологии.1998 - Thyrfing
-1999 - Valdr Galga
-2000 - Urkraft
-2002 - VansinnesvisorЖанр: Viking/Black MetalПродолжительность: 06:27:20
+Ancient Bards — итальянская метал-группа, созданная в январе 2006 года2010 - The Alliance Of The Kings
+2011 - Soulles Child
+2014 - A New Dawn Ending
+2019 - Origine(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 05:34:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
+magnet:?xt=urn:btih:ABE1A7502A4828A98C1ACA0CE795E38E5BA9CA75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +281,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871922   (1069825) от 19.05.2026
+###  Публикация: 1876909   (1073701) от 18.06.2026
 
-Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Cyril Stapleton & His Orchestra - In A Romantic Mood (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Vinyl-Rip и Handmade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Thank You For The Music
-A2 What I Did For Love
-A3 Are You Lonesome Tonight
-A4 I Wonder(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:07
+A1 Rosy's Theme from ''Ryan's Daughter''
+A2 Eye Level
+A3 Love Theme from 'The Godfather
+A4 The Poor People Of Paris(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 01:06:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDEA9689B180D5720506128F657577942AC03E4
+magnet:?xt=urn:btih:F87DA44D380D09A9EEF1CA0CEA6A9C3E8555A777
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871269   (1069768) от 16.05.2026
+###  Публикация: 1876690   (1073566) от 17.06.2026
 
-Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Baroque, Organ>
+VA - Golden Guitar Magic (1969) 5 x LP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Classical, Easy Listening, Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Fantasia And Fugue In G Minor - "The Great" (BWV 542)
-A2 Choral Prelude "Wachet Auf" (BWV 645)
-B1 Choral Prelude "Kommst Du Nun, Jesu, Von Himmel Verunter" (BWV 650)
-B2 Choral Prelude "Von Himmel Hoch, Da Komm Ich Her" (BWV 606)(   Читать дальше...   )Жанр: Classical, Baroque, OrganПродолжительность: 00:41:02
+Magic Guitar
+A1 Wayne Moss - How High The Moon
+A2 Wayne Moss - Bye Bye Blues
+A3 Chet Atkins - South(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy Listening, Folk, CountryПродолжительность: 03:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53D4952CF4D87E618BF69F1B5C2DE58345985814
+magnet:?xt=urn:btih:4FFFE6E2F48867D0EB03E8E210D9D992CE13C217
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871078   (1069334) от 15.05.2026
+###  Публикация: 1876540   (1073476) от 
 
-Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Funeral - Studio Albums (9 releases) (1995-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 White Cliffs Of Dover
-A2 Red Sails In The Sunset
-A3 It's A Sin To Tell A Lie
-Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:00
+Funeral — норвежская метал-группа, образованная в 1991 году1995 - Tragedies
+2002 - In Fields of Pestilent Grief
+2006 - From These Wounds
+2008 - As the Light Does the ShadowЖанр: Doom MetalПродолжительность: 09:46:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8996DA4B48CAAD502164BDA7B940F9E888F643C3
+magnet:?xt=urn:btih:3B0211E454F546B5934D313AAA7F0C08C983668F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +368,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871135   (1069289) от 15.05.2026
+###  Публикация: 1875929   (1072946) от 
 
-Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Orchestra [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+The Contradiction - Studio Albums (3 releases) (2013-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal, Djent, Math Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Put Your Hand In The Hand
-A2 Unforgettable
-A3 Morning Of My Life
-Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
+The Contradiction — группа, базирующаяся в Чехии, хотя некоторые её участники также родом из Казахстана и Украины.2013 - A Piece Of The East (EP)
+2016 - Legion - The Rise (EP)
+2025 - Legion - The FallЖанр: Progressive Death Metal, Djent, Math MetalПродолжительность: 01:41:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD97BE2684764506F63A972253A481A53188E62D
+magnet:?xt=urn:btih:61B535E72AA6E60B5F9F25369F17116BBFB08209
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +396,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870539   (1069055) от 12.05.2026
+###  Публикация: 1875959   (1072918) от 
 
-Disbelief - Studio Albums (12 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash/Sludge Metal>
+Oceans of Slumber - Studio Albums (7 releases) (2013-2024) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disbelief — немецкая метал-группа, сформированная в городе Дармштадт земли Гессен, в 1990 году.1997 - Disbelief
-1998 - Infected
-2001 - Worst Enemy
-2002 - ShineЖанр: Death/Thrash/Sludge MetalПродолжительность: 10:17:03
+Oceans of Slumber - прогрессив-метал группа из Хьюстона, штат Техас, США.2013 - Aetherial
+2015 - Blue (EP)
+2016 - Winter
+2018 - The Banished Heart(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:47:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55F88913C67429689AEBEDAB936DFA841B94C7E9
+magnet:?xt=urn:btih:976953C0796A1FC6D087F072D4D3DF3FFFD320C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +425,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870534   (1069054) от 12.05.2026
+###  Публикация: 1875580   (1072673) от 
 
-VA - The Vintage Years Of Musical Comedy (year unknown) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Musical, Comedy>
+Sarcasm (Sweden) - Studio Albums (6 releases) (2016-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Blackened Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Just A Little Ring
-A2 Final Act II
-A3 Waltz
-A4 My Hero(   Читать дальше...   )Жанр: Musical, ComedyПродолжительность: 01:28:07
+Sarcasm - Дэт-метал группа, образованная в 1990 году в Упсале, Швеция. Распалась в 1994 году, но воссоединилась в 2015 году.2016 - Burial Dimensions
+2017 - Within The Sphere Of Ethereal Minds
+2019 - Esoteric Tales Of The Unserene
+2022 - Stellar Stream Obscured(   Читать дальше...   )Жанр: Melodic/Blackened Death MetalПродолжительность: 04:06:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D09701D458CA3032E1D85D6D14DAA02FCCE713C
+magnet:?xt=urn:btih:90B79FD6C7C7852E5F017C23606359BF2726860B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +454,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870662   (1068955) от 13.05.2026
+###  Публикация: 1875554   (1072672) от 
 
-Guy Mitchell - 20 Golden Greats (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll>
+VA - That Old-Time Religion (1975) Box Set, 8 x LP, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Singing The Blues
-A2 Chicka Boom
-A3 Heartaches By The Number
-A4 She Wears Red Feathers(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:41
+Give Me That Old-Time Religion
+A1 George Beverly Shea - That Old-Time Religion
+A2 Anita Bryant - In The Sweet By-And-By
+A3 Norma Zimmer And Jim Roberts - Precious Memories(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:25:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C8A514231E2261B29223ECF9DD587A09A599159
+magnet:?xt=urn:btih:8AF3C5A175508B7A5CF913ED56A7D04354CDC14D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +483,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870870   (1068824) от 14.05.2026
+###  Публикация: 1874705   (1072089) от 
 
-Extol - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death/Thrash Metal>
+Avulsed - Studio Albums (10 releases) (1996-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Extol — метал-группа из Норвегии, образованная в 1993 году.1998 - Burial
-1999 - Mesmerized (EP)
-2000 - Undeceived
-2001 - Paralysis (EP)Жанр: Progressive Death/Thrash MetalПродолжительность: 05:25:27
+Avulsed - метал-группа из Мадрида, Испания. Основана в 1991 году.1996 - Eminence In Putrescence
+1998 - Cybergore
+1999 - Stabwound Orgasm
+2003 - Yearning For The GrotesqueЖанр: Death MetalПродолжительность: 10:07:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B19656FC166D29B91245994100801481B47AC76
+magnet:?xt=urn:btih:282C591C7C9567D855A82E69F5573201E94E3FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +512,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870916   (1068809) от 14.05.2026
+###  Публикация: 1874459   (1071951) от 03.06.2026
 
-Cruel Force - Studio Albums (4 releases) (2010-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Speed/Thrash Metal>
+Алла Пугачева – Алла Пугачева В Стокгольме = Alla Pugacheva In Stockholm (1985) [FLAC 24/96|Lossless|image + .cue|Vinyl-Rip] <Electronic, Rock, Pop, Pop Rock, Synth-pop, Schlager>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cruel Force - метал-группа из Рейнланд-Пфальца, Германия, существовала с 2008 по 2012 год. Воссоединилась в 2022 году2010 - The Rise Of Satanic Might
-2011 - Under The Sign Of The Moon
-2023 - Dawn of the Axe
-2026 - HanedaЖанр: Black/Speed/Thrash MetalПродолжительность: 02:37:06
+1. Every Night And Every Day (Днём И Ночью) (3:57)
+2. Through The Eyes Of A Child (Глазами Ребёнка) (4:27)
+3. Love Can Hurt (Любовь Причиняет Страдания) (4:26)
+4. Cool Operator (Бесчуственная Телефонистка) (3:35)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Pop Rock, Synth-pop, SchlagerПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FACAD3CD664028CA79D0768868EDAA353800DF52
+magnet:?xt=urn:btih:24F2FA89E35B99BCB13F9341935E65606773A3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +541,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869453   (1068238) от 06.05.2026
+###  Публикация: 1874504   (1071950) от 03.06.2026
 
-Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+VA - Easy Listening Country (1982) Box Set, 8 x LP [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Drifting And Dreaming
-A2 If You Love Me
-A3 Dream
-A4 When I Grow Too Old To Dream(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:08
+Easy Listening Gold
+A1 Glen Campbell - Southern Nights
+A2 Dolly Parton - Here You Come Again
+A3 Charlie Rich - Behind Closed Doors(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 06:12:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3D46A68F1CEC0FA021051B3AD18F8B03EE33CA
+magnet:?xt=urn:btih:EF5C2286797E607FD7067B01C0CDC5646A03D011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +570,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869435   (1068237) от 06.05.2026
+###  Публикация: 1874416   (1071876) от 02.06.2026
 
-Vera Lynn - The Vera Lynn Collection (1961) 2 Records Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Empire Of Disease - Studio Albums (4 releases) (2019-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore/Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Yours
-A2 You'll Never Know
-A3 Fools Rush In
-A4 (I Love You) For Sentimental Reasons(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:08
+Empire Of Disease - метал-группа из Бильбао, Страна Басков, основана в 2018 году.2019 - Silence Is Violence (EP)
+2021 - With All My Hate
+2023 - Shadows in The Abyss
+2026 - While Everything CollapsesЖанр: Metalcore/Melodic Death MetalПродолжительность: 02:23:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4405EF5B78A090311FCF763E340ABC434F1A609E
+magnet:?xt=urn:btih:71096407EFBF8A2BEB7BF5B5DD0B88E11D91D6D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +599,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869469   (1068232) от 06.05.2026
+###  Публикация: 1874419   (1071875) от 02.06.2026
 
-Vera Lynn - Haar 26 mooiste songs / Wereldsuccessen (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Canopy - Studio Albums (4 releases) (2004-2010) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 We'll Meet Again
-A2 Close Your Eyes
-A3 Morgen (One More Sunrise)
-A4 I'll Always Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:59
+Canopy - метал-группа из Швеции, основана в 2002 году2004 - During Day One (EP)
+2006 - Serene Catharsis
+2009 - Will and Perception
+2010 - MenhirЖанр: Melodic Death MetalПродолжительность: 02:56:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48551AB59536865BD300664F8B5BE3EB0F5B4D93
+magnet:?xt=urn:btih:3E5FC209F949F9D0E533335A5EB74F554ED0B2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +628,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869144   (1067802) от 04.05.2026
+###  Публикация: 1874432   (1071874) от 02.06.2026
 
-Gordon And Sheila Macrae - Our Love Story (1960) [FLAC|Lossless|image + .cue] <Pop, Musical>
+Elegant Weapons - Studio Albums (2 releases) (2023-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Gordon MacRae & Sheila Macrae - Our Love Story
-A2 Gordon MacRae - I Met A Girl
-A3 Sheila Macrae - A Wonderful Guy
-A4 Gordon MacRae & Sheila Macrae - Love Is A Simple Thing(   Читать дальше...   )Жанр: Pop, MusicalПродолжительность: 00:34:23
+Elegant Weapons - супергруппа, в состав которой входят гитарист Ричи Фолкнер из Judas Priest, вокалист Ронни Ромеро из Rainbow и Michael Schenker Group, барабанщик Кристофер Уильямс из Accept и басист Дэйв Риммер из Uriah Heep.2023 - Horns for a Halo
+2026 - EvolutionЖанр: Heavy MetalПродолжительность: 01:47:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D46AA3809C8B418BDAFC6287AC06F9F71A273F72
+magnet:?xt=urn:btih:6160609DA53577E84C3BDF3093B0DD01333B30A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +655,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869157   (1067801) от 04.05.2026
+###  Публикация: 1874347   (1071716) от 01.06.2026
 
-All That Remains - Studio Albums (10 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+Клавдия Шульженко - Юбилейный Концерт Клавдии Шульженко (1978 Vinyl-Rip) [FLAC 24/96|Lossless|image + .cue] <Pop, Vocal, Ballad, Schlager>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-All That Remains - американская металкор-группа из Спрингфилда, штат Массачусетс, образованная в 1998 году.2002 - Behind Silence And Solitude
-2004 - This Darkened Heart
-2006 - The Fall of Ideals
-2008 - Overcome(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 07:12:34
+1. Подъезд
+2. Где Же Вы Теперь, Друзья-Однополчане?
+3. Возьми Гитару
+4. Давай Закурим(   Читать дальше...   )Жанр: Pop, Vocal, Ballad, SchlagerПродолжительность: 01:10:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DA11BD9E2041FA85C3E1AE2D117D1A1C4CE9546
+magnet:?xt=urn:btih:382E707F5002F17DE167291EE4934805C820B1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +684,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868214   (1067291) от 29.04.2026
+###  Публикация: 1874140   (1071553) от 31.05.2026
 
-Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+The Fixx - Phantoms (1984) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electronic, Pop, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У́до Диркшна́йдер (нем. Udo Dirkschneider; род. 6 апреля 1952, Вупперталь, Германия) — немецкий рок-музыкант, вокалист и один из основателей хэви-метал-группы Accept. После ухода из Accept в 1987 году сформировал собственную группу U.D.O., а в 2020 году создал новый проект Dirkschneider & The Old Gang.1987 - Animal House
-1989 - Mean Machine
-1990 - Faceless World
-1991 - TimebombЖанр: Heavy MetalПродолжительность: 23:39:16
+1. Lose Face (3:26)
+2. Less Cities, More Moving People (3:50)
+3. Sunshine In The Shade (2:26)
+4. Woman On A Train (3:52)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6AD9A6F01AB7213EA89572CF354DC919947B1B6
+magnet:?xt=urn:btih:0ADC7BB0EE5DE3176AA9CD2B0980D56A228DFB11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +713,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867120   (1066583) от 
+###  Публикация: 1874066   (1071552) от 31.05.2026
 
-Parkway Drive - Studio Albums (8 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+Alphaville - The Breathtaking Blue (1989) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Jazz, Pop, Classical, Europop, Easy Listening, Pop Punk, Modern>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Parkway Drive - металкор-группа из Байрон-Бей, Австралия. Образована в 2003 году.2004 - Don't Close Your Eyes
-2005 - Killing With A Smile
-2007 - Horizons
-2010 - Deep BlueЖанр: MetalcoreПродолжительность: 06:08:13
+1. Summer Rain (4:10)
+2. Romeos (5:29)
+3. She Fades Away (4:57)
+4. The Mysteries Of Love (4:55)(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Europop, Easy Listening, Pop Punk, ModernПродолжительность: 00:43:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C600B9113D24A043CB9F6A6DCBD43681DDDF6A7A
+magnet:?xt=urn:btih:D3EBB2C7C00DA314E7A399E37202CBA3E11F0D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

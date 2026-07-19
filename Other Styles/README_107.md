@@ -1,3 +1,204 @@
+###  Публикация: 540755   (498149) от 03.09.2012
+
+Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Ropes, Ribbons And A Ball
+02. Far Behind The Skies
+03. Fly Away
+04. Shiva's Dance
+05. White Flower, Blue Flower
+06. We'll Be With The Stars Tonight
+07. Brahmane's Prayer
+08. Miracle Of Love
+09. Take Me Higher
+10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542568   (498148) от 03.09.2012
+
+VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498148.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:37) 01. Chinmaya Dunster - Moonsong
+(8:00) 02. Terry Oldfield & Soraya - Om Shanti
+(5:23) 03. Cybertribe - Across The Magic Mountains
+(8:18) 04. Terry Oldfield - Earth And Sky
+(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
+(7:12) 06. Terry Oldfield - Aum
+(7:32) 07. Rasa - He Krishna
+(8:16) 08. Rasa - Jaya Radha
+(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
+(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541284   (498090) от 03.09.2012
+
+Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498090.jpg" />
+</div>
+
+
+###  Подробнее
+
+(9:48) 1. Root - Embodiment
+(9:21) 2. Sacral - Home of the Self
+(9:48) 3. Solar Plexus - Inner Sun
+(6:42) 4. Heart - Compassion
+(6:07) 5. Throath - Stillness
+(9:16) 6. Brow - Perception
+(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380943   (498067) от 29.08.2011
+
+Форсаж 5 Ремикс / Fast and Furious 5 Remix from AGR (2011) [MP3|320 kbps]<Dance>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Assembling the Team (Short)
+02. Chiddy Bang - Under the Sheets (Chiddy Bang) Ellie Goulding
+03. Don Omar Feat. Lucenzo - Danza Kuduro (Blood Dance Project Electro Remix)
+04. Don Omar Feat. Lucenzo - Danza Kuduro (CJ LeRoY Remix)
+05. Don Omar Feat. Lucenzo - Danza Kuduro (club)
+06. Don Omar Feat. Lucenzo - Danza Kuduro (Dance remix)
+07. Don Omar Feat. Lucenzo - Danza Kuduro (Dave Dee! vs. DJ Harddanzor Bootleg Mix)
+08. Don Omar Feat. Lucenzo - Danza Kuduro (Dfm edit)
+09. Don Omar Feat. Lucenzo - Danza Kuduro (Dj Amor Remix)
+10. Don Omar Feat. Lucenzo - Danza Kuduro (Dj DupiC Mix)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:50:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542373   (498048) от 03.09.2012
+
+Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. музыка к к-ф ''Ночные забавы'' (4:16)
+ 2. музыка к к-ф ''Летние люди'' (1:48)
+ 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
+ 4. музыка к к-ф ''Воровка'' (1:13)
+ 5. музыка к к-ф ''Летние люди'' (5:20)
+ 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
+ 7. музыка к к-ф ''Ночные забавы'' (2:56)
+ 8. музыка к к-ф ''Воровка'' (2:06)
+ 9. музыка к к-ф ''Русский регтайм'' (1:23)
+ 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317935   (497678) от 04.08.2019
+
+Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful
+02. I Told You So
+03. Girl You Confuse My Mind
+04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935945   (497520) от 10.09.2015
 
 VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
@@ -633,186 +834,6 @@ VA - Music From Yemen (Aghany Min El Yemen, 1973) [MP3|320 kbps]<arabian Yemen e
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE27C36706AF89679AD3B358CE34377A46FBDB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382616   (491463) от 02.09.2011
-
-Pilgrimage (Simon Cloquet & Eric Calvi) - 9 Songs of Ecstasy (1997) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск содержит интерпретации песен средневековых паломников, странствовавших по северо-западу Испании 13-го века. Проект французских композиторов - продюсеров (Simon Cloquet, Eric Calvi), в рамках которого был выпущен только данный единственный альбом. С одной стороны, работа весьма концептуальная и представляет собой звуковое отображение исторических баллад о странниках-пилигримах (   Читать дальше...   )01. Campus Stella/Field of Stars (5:14)
-02. Through the Seas of Life (4:56)
-03. Pilgrimage (4:25)
-04. Land of Ecstasy (5:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA62FB7CABE60A1C66F84DCFD76F1B4C29C40388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318954   (490886) от 08.08.2019
-
-Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yi (00:31)
-02. iMi (03:16)
-03. We (02:22)
-04. Holyfields, (03:07)(   Читать дальше...   )Жанр: Folk-Rock, Indie FolkПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318702   (490757) от 08.08.2019
-
-Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises to Keep [02:17]
-02. Reunited [02:36]
-03. Remember Not to Forget [03:13]
-04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB038A47B762FDF952AF05001CE049EB6C49020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544424   (490629) от 07.09.2012
-
-VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audiophile Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longtenghuyue - Roaring of the Tiger and Dragon [03:36]
-02. Oyster Sisters and Gary Karr Gairuikaer - A Melody of Hong Chun [03:22]
-03. New Age - Flower Woman [04:46]
-04. Johanne Blouin - Les enfants oublies [03:33]
-05. Jotka Hosprova - Csardas [05:08]
-06. Rossini 'Mr. Chino Bruce' - I1 Signor Bruschino [04:33]
-07. Puccini - La Boheme: Introduction [00:32]
-08. Puccini - La Boheme: Non Sono in Vena [04:10]
-09. Mikis Theodorakis Duolaijisi - Delicate Dawn [02:58]
-10. Mighty Echoes Quartet - Under the Boardwalk [03:26](   Читать дальше...   )Жанр: High-End Audiophile Test ( Pop, Rock, Classical, Jazz Compilations )Продолжительность: 01:08:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055033   (490338) от 21.09.2016
-
-Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey to Camelot [00:04:06]
-02. Doreen's Tune [00:04:10]
-03. Lost Time [00:04:03]
-04. Hummingbird [00:04:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937411   (490180) от 14.09.2015
-
-Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antigua
-02. Darkness Falls
-03. Dreamscape
-04. Renaissance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
 ```
 
 https://mybot314.ru/tekegram_catalog/

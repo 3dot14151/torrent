@@ -1,3 +1,90 @@
+###  Публикация: 1749300   (43678) от 13.09.2024
+
+VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man Sound – Summer Night (extended mix) (03:25)
+02. One Man Sound – The Stars On 45 (extended mix) (02:55)
+03. One Man Sound – It's My Life (extended mix) (03:58)
+04. The Man With The Oranges Eyes – Here Comes The Sun (extended mix) (03:12)(   Читать дальше...   )Жанр: Euro Dance/Pop DanceПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755690ED875AD18BDA62D1A05B96D961F57D254F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750193   (43180) от 18.09.2024
+
+Giorgio Moroder - Radio Edits, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E=Mc2 (Mairos Radio Edit) [00:03:30]
+02. Last Night (Andrew Becks Radio Remix) [00:03:25]
+03. What a Feeling (Beach Messiah Radio Remix) [00:03:38]
+04. E=Mc2 (Kniagna Radio Edit) [00:03:52](   Читать дальше...   )Жанр: Electronic, Disco, HouseПродолжительность: 01:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954819BC6B0420F887B1CCD02475A4383A8E26B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750709   (42812) от 21.09.2024
+
+Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want (New version) (feat. Chelcee Grimes & Mike City)
+02. Summer Lovin' (edit) (feat. Purple Disco Machine)
+03. A Part Of You (edit)
+04. Love In C Minor (Franc Moody remix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0A0A1E7D61E0510E9BFAADD2B472709F5C1CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754586   (40661) от 11.10.2024
 
 Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Schlager, Pop>
@@ -659,93 +746,6 @@ VA - The Finest 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4088288D96CB85D5CAE20DDFF8E90A3EF7C8663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795405   (19348) от 04.05.2025
-
-Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shanghai (Extended Version) (feat. Daria)
-02. Ride
-03. Let's Dance Tonight
-04. Burning Heart (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Euro-DiscoПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CBA012AC1C85043C77D9E7B7F68211E6B57A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810676   (17058) от 05.08.2025
-
-Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make a Memory (4:40)
-02. You and Me (3:23)
-03. Lonely Rebel (3:58)
-04. All That I Need (4:09)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800084   (16085) от 31.05.2025
-
-Mflex Sounds - Robot Eléctrico (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robot Electrico (5:06)
-02. Omega (Remix) (6:37)
-03. Hurts My Life (Remix) (5:44)
-04. Broken Man (5:18)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F759119009FE4BEF79EB0309841481FD6076418
 ```
 
 https://mybot314.ru/tekegram_catalog/

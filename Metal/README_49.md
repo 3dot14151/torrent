@@ -1,3 +1,90 @@
+###  Публикация: 908643   (632494) от 15.06.2015
+
+Ultimatium - 4 альбома (2004-2015) [MP3|192-320 кб/с]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632494.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - New Dawn
+2008 - Hwainoo
+2011 - Hold your ground (Demo)
+2015 - Vis Vires InfinitusЖанр: Melodic Power MetalПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B3AC4B9A7A2EE80C1AA6BDC949CEC5E455CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908654   (632492) от 15.06.2015
+
+Embersland - Dark Ages (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (Part II) (09:17)
+02. Closer (04:26)
+03. Hope (05:10)
+04. WTF…Fuck Off! (04:04)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB774B6B0BDFEF0624F6FC5624583D9FFB035551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908762   (632491) от 15.06.2015
+
+Immension - In Vain (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Vain
+2. The Fantasy
+3. All That Remains
+4. Lost & Forgotten(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617792990E9A72DD38239CB152BC9803F34C6C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908693   (632410) от 15.06.2015
 
 Iwrestledabearonce - Hail Mary (2015) [MP3|320 кб/с]<Deathcore, Mathcore, Experimental>
@@ -659,93 +746,6 @@ Anfel - Icy World (2015) [MP3|320 кб/с]<Gothic Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2598C3D96778FEF0AD64C0C6C6ACBA90B1A62403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909868   (626121) от 18.06.2015
-
-Silence Lies Fear - Future-The Return (2015) [MP3|128 кб/с]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626121.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyond Reality
-2. The Return
-3. Facing The Creator
-4. Prophet(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0DBA903D5B90BDF3F32EB4E77A885D907FF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294871   (626113) от 09.04.2019
-
-Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:18)
-02. Prepare for Payback (03:07)
-03. Seeds of Hate (03:48)
-04. Coming Undone (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915A7C6A4FCB06AEFF7CF6CA15547635A39459DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909848   (626001) от 18.06.2015
-
-Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (Limited Edition) (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Genesis (Ad Splendorem Angeli Triumphantis)
-02. Il Cigno Nero
-03. Rosenkreuz (The Rose And The Cross)
-04. Anahata(   Читать дальше...   )Жанр: Power MetalПродолжительность: 1:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9812C87E827EE6F30EA0F076BAE97F53DE332183
 ```
 
 https://mybot314.ru/tekegram_catalog/

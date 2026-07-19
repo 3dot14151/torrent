@@ -1,3 +1,32 @@
+###  Публикация: 1494093   (890774) от 06.09.2021
+
+VA - Best Songs of 2021 So Far [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Rodrigo - deja vu (3:35)
+002. Little Simz - Introvert (6:02)
+003. Dua Lipa - We're Good (2:45)
+004. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397BE043E978DB1B049BBD18986278146913DC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994576   (889782) от 08.03.2016
 
 Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth Pop>
@@ -719,35 +748,6 @@ VA - 100 Greatest Wedding Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EBAF532E52160D0F911A8991DCAAA386D68840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996860   (877306) от 15.03.2016
-
-Icehouse - White Heat: 30 Hits (2011) 2CD [MP3|320 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877306.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Can't Help Myself
-02. We Can Get Together
-03. Walls(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

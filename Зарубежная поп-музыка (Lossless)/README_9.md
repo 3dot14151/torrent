@@ -1,3 +1,206 @@
+###  Публикация: 1462933   (1020807) от 16.04.2021
+
+Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What It Feels Like for a Girl (Radio Edit)
+02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
+03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
+04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464010   (1019980) от 21.04.2021
+
+Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11 Past The Hour (3:59)
+02. Breathe (3:39)
+03. feat. Ronnie Wood, Gina Martin & Dr. SholaMos-Shogbamimu - Made To Love (3:25)
+04. Different Kinds Of Love (3:01)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463469   (1019967) от 21.04.2021
+
+Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019967.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I'm Just a Woman (5:08)
+2. We Danced on the Ceiling (4:56)
+3. Wild Love (4:36)
+4. The Closer You Get (3:49)(   Читать дальше...   )Жанр: Pop, Pop-Rock, Ballad, AORПродолжительность: 0:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464271   (1019946) от 21.04.2021
+
+VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cashburys - Yesterday Once More (3:52)
+02. The Cashburys - I Won't Last a Day Without You (3:54)
+03. The Magic Time Travelers - Love Letters in the Sand (2:18)
+04. Groovy-G - Rock Wit'cha (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B2BFF3622CBB64217AF54073013579BDA7ADCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465099   (1019344) от 25.04.2021
+
+Lory Bonnie Bianco - My Star 2.0 (2019) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You So (4:54)
+02. The Heart Is A Lonely Hunter (3:38)
+03. Holding Back (3:37)
+04. My First Love (4:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F1EC8BE6E0402EECF6DE740428B6ACAF1DA0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465202   (1019245) от 25.04.2021
+
+Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won’t Crumble With You If You Fall
+02. The Windmills Of Your Mind
+03. Pop Star
+04. No Hole In My Head(   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A9D121180D3F9B027934E4BDF3A17A47517606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466244   (1018604) от 29.04.2021
+
+Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreign Affair (4:06)
+02. To France (4:48)
+03. Family Man (3:46)
+04. Everytime We Touch (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466482   (1018435) от 30.04.2021
 
 Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -543,209 +746,6 @@ Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474128   (1013222) от 01.06.2021
-
-VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect (4:23)
-02. Lianne La Havas - Paper Thin (4:58)
-03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
-04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474718   (1012890) от 03.06.2021
-
-Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stasera Che Sera (3:23)
-02. Per Un'Ora D'Amore (3:59)
-03. Cavallo Bianco (4:57)
-04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474639   (1012881) от 03.06.2021
-
-Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day In Your Life (4:17)
-02. Rockin Robin (2:33)
-03. People Make The World Go Round (3:14)
-04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474932   (1012727) от 04.06.2021
-
-VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Sweat$ - At My Worst (2:50)
-02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
-03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
-04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475251   (1012439) от 06.06.2021
-
-Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muñequita Linda
-02. Solamente Una Vez (con Israel Fernández)
-03. Esta tarde vi llover (feat. Rusowsky)
-04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475703   (1012111) от 08.06.2021
-
-Michael Bolton - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012111.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. How Am I Supposed To Live Without You (4:16)
-02. How Can We Be Lovers (3:56)
-03. When I'm Back On My Feet Again (3:49)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EA1FDE087520C8E0EAD7E44272DD5140AB198D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476098   (1011844) от 10.06.2021
-
-Pastel Coast - Hovercraft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eau (2:09)
-02. Always (3:44)
-03. Aquarius (3:55)
-04. La Nuit (4:46)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF96B97A6B422F65605C8CDB3EA64F433F1D7F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

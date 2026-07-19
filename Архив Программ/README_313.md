@@ -1,3 +1,29 @@
+###  Публикация: 1369822   (900046) от 25.03.2020
+
+Microsoft Visual Studio 2019 Professional 16.4.6 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6A542A6514AF2AE359FD0E586CCC3287B376BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369828   (900043) от 25.03.2020
 
 Microsoft Visual Studio 2019 Community 16.4.6 (Offline Cache, Unofficial) [Ru/En]
@@ -650,32 +676,6 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63DB0EBF0A4288C894F298873A6160415A4BB8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100310   (899525) от 04.02.2017
-
-Avant Browser Ultimate 2017 build 02 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не знаете какой браузер лучше - Internet Explorer, Chrome или Firefox? Испытайте Avant Browser - современный браузер, использующий 3 движка (Trident, Webkit и Gecko), между которыми можно быстро и легко переключаться. Avant Browser имеет удобный интерфейс, умеет блокировать всплывающие окна, флеш-ролики и рекламу, включает в себя массу нужного для работы в интернете.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991C0F9DA4D3BC9C33BC3CCDCD2D79006E24C01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 946625   (424425) от 14.10.2015
+
+Adobe Acrobat Reader DC 2015.009.20069 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Reader DC — совершенно новое приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A9A359765F4AE66CD55B6B510F35D007BD2203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945364   (424424) от 14.10.2015
 
 DxO Optics Pro 10.5.1 Build 848 Elite (x64) [Multi]
@@ -657,32 +683,6 @@ Apeaksoft Video Converter Ultimate - мощная программа для ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AE5DEB525834FA58F01311C8240A7B2DF319990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065035   (423476) от 21.10.2016
-
-Microsoft Windows and Office ISO Download Tool 4.04 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AF81817D37C6E0E23ADAD526726C2E914C7C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

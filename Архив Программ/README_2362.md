@@ -1,3 +1,29 @@
+###  Публикация: 1806847   (11402) от 15.07.2025
+
+Fast Video Cutter Joiner 6.8.5.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA350EDECBFCC24C8D4041A9958B453BDF35F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806862   (11401) от 15.07.2025
 
 Ashampoo Music Studio 12.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -654,32 +680,6 @@ MediaHuman YouTube Downloader 3.9.14 (1607) RePack (& Portable) by elchupacabra 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4594DAAC2DC2F4574D1A347E78E11C6B094F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807685   (10906) от 20.07.2025
-
-Media Player Classic Home Cinema (MPC-HC) 2.5.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778D28121828527D8F211A78A8BDD66AC1931C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

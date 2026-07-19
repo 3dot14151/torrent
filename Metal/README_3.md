@@ -1,3 +1,90 @@
+###  Публикация: 1613968   (1039133) от 20.02.2023
+
+Goat Explosion - Rumors of Man (2018) [MP3|320 Kbps] <Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Wandering Specter (00:05:05)
+02 - Vulgar Saints (00:05:33)
+03 - If Crimson Was My Tower (00:07:52)
+04 - Rumors Of Man (00:05:15)(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDAEF07627F0678443DA463E95C366F6D1D25C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440065   (1039034) от 16.01.2021
+
+OzNor - Sea of Stars (2021) [MP3|320 Kbps] <Heavy Metal, Shred, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flaming Hearts (intro) (01:14)
+ 02. Rouse (04:16)
+ 03. Dragons of the Endless Seas (04:50)
+ 04. The Last Sunset (04:17)(   Читать дальше...   )Жанр: Heavy Metal, Shred, InstrumentalПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645588FC67375C9F84670DE01541BAE63C3D6370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614508   (1038601) от 22.02.2023
+
+Anareta - Fear Not (2023) [MP3|320 Kbps] <Symphonic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038601.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Frozen Wasteland 07:28
+2.Omnicide 06:53
+3.Unforgiving Sun 06:43
+4.The Descent 05:12(   Читать дальше...   )Жанр: Symphonic Doom MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3728B04B9025E2BC96E48D4F34BF50EB794FB38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601352   (1038380) от 23.02.2023
 
 Incidense - Collide (2022) [MP3|320 Kbps] <Progressive Metal>
@@ -657,93 +744,6 @@ Kardinal Sin - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066E4E5141D3BF0A436A6FE360875710BAB7CF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445081   (1033998) от 04.02.2021
-
-Everdawn - Cleopatra (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Shadow Requiem (05:42)
- 02. Stranded in Bangalore (03:26)
- 03. Cleopatra (05:37)
- 04. Your Majesty Sadness (04:55)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8DDFB3ED6C165EF317A468ADF985548EFA2DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445052   (1033981) от 04.02.2021
-
-Korpiklaani - Jylha (2021) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verikoira (06:20)
- 02. Niemi (03:43)
- 03. Levaluhta (03:50)
- 04. Mylly (04:43)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095C100BB1215D1453D178019FE874BDF37EE879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952171   (1033937) от 04.02.2021
-
-Cult Of Luna - 8 Albums, 2 EP, 1 Live (2001-2021) [MP3|320 кб/с] <Post-Metal, Sludge Metal, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033937.jpg" />
-</div>
-
-
-###  Подробнее
-
-2001 - Cult Of Luna (Reissue 2003)
-2003 - The Beyond
-2004 - Salvation
-2006 - Somewhere Along The Highway(   Читать дальше...   )Жанр: Post-Metal, Sludge Metal, ProgressiveПродолжительность: 11:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4B0EF2C9D548257EEC20771860A884F2C44E15
 ```
 
 https://mybot314.ru/tekegram_catalog/

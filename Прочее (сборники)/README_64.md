@@ -1,3 +1,262 @@
+###  Публикация: 1398853   (734557) от 28.07.2020
+
+VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nirvana - Smells Like Teen Spirit [5:02]
+002. U2 - One [4:35]
+003. Backstreet Boys - I Want It That Way [3:33]
+004. Whitney Houston - I Will Always Love You [4:32](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E69A9A814C1B1D3C91D673A45F6CD24EC3C789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528575   (734449) от 02.02.2022
+
+VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pietra Montecorvino - Qualcosa arrivera (02:50)
+02. Sounds of Isha - Bhairavi Shatakam (04:16)
+03. Ludovico Einaudi - Taranta (04:23)
+04. Очелье Сороки - Песнь (05:28)(   Читать дальше...   )Жанр: World MusicПродолжительность: 07:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68DB0484606F3181463C78F286BF7861B2FAD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528538   (734414) от 02.02.2022
+
+VA - Tik Tok Треки выстрелили зимой 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Train Wreck (3:28)
+002. Ritt Momney - Put Your Records On (3:30)
+003. The Kid LAROI - WITHOUT YOU (2:41)
+004. Justin Wellington, Small Jam - Iko Iko (My Bestie) (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE420A5A97D0A97D6002980E966A26385C25D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399128   (734270) от 29.07.2020
+
+VA - Music News vol.30 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CHEPIKK - Разрезай Меня (03:19)
+ 002. Григорий Лепс - Запомню Тот Вечер (02:35)
+ 003. Дима Билан - Вторая Жизнь (06:45)
+ 004. Active Lab - Test Subject (Original Mix) (07:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F3F288045806785504F1C4A9C3641BBD47A805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399146   (734229) от 29.07.2020
+
+VA - Love me as I love you (playlist for sex)(2020) 2CD [MP3|320 Kbps] <Easy Listening, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sia - Breathe Me
+02. The Other Face - Galp (Porn Teacher Mix)Жанр: Easy Listening, Rock, PopПродолжительность: 11:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59B1EBC00579F895307BED0AC33C03F0140DCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529004   (733531) от 04.02.2022
+
+VA - Country And Rock Blues Folk Songs (2022) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733531.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента появления кантри музыки прошло немало времени, но жанр не исчез и не забылся. Романтичные баллады в стиле кантри и сегодня возглавляют хит-парады и имеют своих поклонников по всему свету.001. Dallas Moore - Slippin And Slidin
+002. Brandi Colt - Coming Down
+003. Asleep At The Wheel - My Little Baby
+004. Mandy Barnett - I Love A Rainy Night(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 08:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC17DA9FE0D5A80499BF6970C0C225AE0D637EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399415   (733425) от 31.07.2020
+
+VA - не Громкие новинки недели 76 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миа Бойка feat. Егор Шип - Пикачу (1:52)
+02. Тайпан - Запал (2:01)
+03. WYTE - Скандалы (2:11)
+04. Mitchel - Алладин (2:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C276EFE12EB59F89A4920F7F6B7D1B97CFDD5B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529079   (733092) от 05.02.2022
+
+VA - Music News vol.164 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GUMA - Близко, Но Далеко (02:52)
+ 002. 3the - Сонная (02:37)
+ 003. 070 Shake - Perfect Weapon (OST Бегущий По Лезвию. Чёрный Лотос) (02:57)
+ 004. 140 Ударов В Минуту - Но Не Вернуть Тебя (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C39353DFF9F30D88B1F5D9F27E5A414D1E4FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399561   (732913) от 01.08.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 31.07.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NRD1 - All Good Things (Come To An End) 3:27
+02. Pascal Letoublon - Friendships 4:02
+03. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) 2:45
+04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EEE2D344F7075F14FC86D31D16D28F8659C725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021334   (732293) от 29.05.2016
 
 VA - Стёбный Кавер! (Забавные Кавер-Версии и Пародии Популярных Песен) Часть 1 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Covers, Parody>
@@ -484,267 +743,6 @@ VA - 50 оттенков музыки 18+ (05.2016) [MP3|128-320 кб/с] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C3E8E8141EDA4C751FA44A7BCF37F9D6ABD5D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284317   (728887) от 21.02.2019
-
-VA - Electro House: Exclusive Megamix (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728887.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jаmеs Wаrrеn - Visсеrаl
-002. Miсhаеl A - Endlеss Timе
-003. Brian Theodore - Original Gangsta Mke
-004. Flаviо Mаrtini - Lоs Angеlеs (Originаl Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12 :14 :17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3927084B3EF51495F34671DB7D818849355B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284414   (728866) от 21.02.2019
-
-VA - Young Fresh & Disco: Funky Disco House (2019) [MP3|320 Kbps] <Funky, Disco House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cash & Fanizza - Dont Fake The Feeling
-002. Lissat & Voltaxx - Groovejet
-003. Peter Brown - Say It Again (Original Mix)
-004. Lmntrx & Camarda - I Wanna See (Extended Mix)(   Читать дальше...   )Жанр: Funky, Disco House, DanceПродолжительность: 09:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C8263729CA7FA53094B4B27FB96DD8E937A263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530425   (728803) от 11.02.2022
-
-VA - Громкие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джаро & Ханза - Всё казалось мило (2:03)
-02. Kavinsky, Prudence, Morgan Phalen - Zenith (4:41)
-03. Lx24 - Помоги мне мой рассвет (3:31)
-04. YG, J. Cole, MoneyBagg Yo - Scared Money (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9049EA75DC34E3ECF43BB792A15A567285CC0EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128332   (728422) от 24.04.2017
-
-VA - Super Disco Hits (2017) [MP3|256-320 Kbps] <Disco, Pop, Italo-Disco, Synthpop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Albert One - For Your Love  5:51
-002.  Silent Circle - 2 Night (Instrumental)  3:41
-003.  Depeche Mode - Strangelove  4:55
-004.  Fancy - Play Me The Bolero (Dub Version)  3:43(   Читать дальше...   )Жанр: Disco, Pop, Italo-Disco, Synthpop, DanceПродолжительность: 11:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB020FAAD5D927DE4FCFB0F993F32CB470351E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022674   (727851) от 03.06.2016
-
-VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Disco, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Beat - Na Na Na
-002. Gariy & Hacker - Piano Groove
-003. Robin Schulz Ft. Akon - Heatwave
-004. Jonas Vogel - Find My Way Home (Lucas & Steve Remix)(   Читать дальше...   )Жанр: Electro, Disco, Club HouseПродолжительность: 08:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DA10A7EB557CBF2D61D5B57064E57F266CA0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284720   (727740) от 22.02.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 22.02.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplo Max - Shadow
-02. Lil Peep, XXXTentacion - Falling Down
-03. Denis First, Reznikov, Bright Sparks - Shameless
-04. Vanotek - Love Is Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC3836D0892F209878CB23BD00E8A796A6615E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284533   (727652) от 22.02.2019
-
-VA - Громкие новинки месяца Vol.25 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Years & Years, MNEK - Valentino
-02. Open Kids - Под утро
-03. Chaka Khan - Like A Lady
-04. Robbie Williams - Good People(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF612F1921A27A1B9FA022EB29DC1EF4E38F6829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128517   (727066) от 25.04.2017
-
-VA - Русские Хиты. The Best Russian Ballads 250 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727066.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Баста - Выпускной (Медлячок)  5:35
-002.  Наргиз feat. Максим Фадеев - Вдвоём  3:33
-003.  Григорий Лепс - Я Поднимаю Руки  3:52
-004.  Ани Лорак - Просто Скажи  3:52(   Читать дальше...   )Жанр: PopПродолжительность: 15:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF46DDF25913CBA41D03B75E0CD86C04999A7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284842   (726549) от 23.02.2019
-
-VA - The Official UK Top 40 Singles Chart 22.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - 7 rings
-02. Ariana Grande - break up with your girlfriend, i'm bored
-03. Lewis Capaldi - Someone You Loved
-04. Calvin Harris, Rag'n'Bone Man - Giant(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444DD1505A1DA99C698E444CCC69D5E3692D94A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

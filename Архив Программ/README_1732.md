@@ -1,3 +1,31 @@
+###  Публикация: 1653532   (206205) от 16.08.2023
+
+Media Player Classic - Black Edition (MPC-BE) 1.6.9 Stable + Portable + Standalone Filters [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic - BE – универсальный проигрыватель аудио и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema», со своими нововведениями и оптимизацией.
+
+Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F207DCCDB4A7B7B8B810F8D55AE196403B41834B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653539   (206202) от 16.08.2023
 
 XtraTools Professional 23.8.1 [Multi/Ru]
@@ -645,32 +673,6 @@ MemTest86 - бесплатная программа, позволяющая пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574006A7BE6AA14B5E1AD463ABDED54E4BBC1D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653545   (206092) от 16.08.2023
-
-CpuFrequenz 4.21 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206092.jpg" />
-</div>
-
-
-###  Подробнее
-
-CpuFrequenz - небольшой инструмент для точного определения частоты процессора. Время от времени компьютер начинает работать медленно. Возможно, это связано с процессором.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BED27BC5C9628131FD63DA69AAD9ABB48A1A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

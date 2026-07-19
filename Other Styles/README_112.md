@@ -1,3 +1,174 @@
+###  Публикация: 1245978   (467787) от 08.09.2018
+
+VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Gravity Of Love
+02. Highland - Bella Stella (Non Rap Radio Mix)
+03. Clannad - Ri Na Cruinne
+04. Michael Flatley's Lord Of The Dance - The Lord Of The Dance(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1A44E6C89AA911665408F5EF23B53F58B63BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245937   (467670) от 08.09.2018
+
+VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morana - Mystera
+02. Era - Ameno
+03. Enigma - Sadness Pt. 1
+04. Gregorian - So Sad...(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A888C41B88618A382A2DD3197629A1EB0957CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245999   (467669) от 08.09.2018
+
+VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Divano
+02. Vangelis - Light And Shadow
+03. Highland - Quo Vadis
+04. Oliver Shanti & Friends - Journey To Shambala(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FEDF1A66922FB5B154A9CDF0EC0020242E9555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246006   (467658) от 08.09.2018
+
+VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Ameno
+02. Enigma - Sadness Part 1
+03. Highland - Veni, Vedi, Vici
+04. Vangelis - Conquest Of Paradise(   Читать дальше...   )Жанр: NewAgeПродолжительность: 02:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6AB81156D9A1986A2DCD27BDBF84FD67381E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161253   (467372) от 28.08.2017
+
+VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <Instrumental, Vocal, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467372.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Francis Goya & His Golden Guitar - Magic Is the Moonlight (2:50)
+2. The Islanders - Hawaiian Wedding Song (2:52)
+3. Louie King & His South Sea Islanders - My Isle of Golden Dreams (2:51)
+4. Kalua Beach Boys; Lotus Blossoms, Vocal - Down Among the Sheltering Palms (2:49)(   Читать дальше...   )Жанр: Instrumental, Vocal, Easy ListeningПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DEA1F3135F9463A66AD40AC6285574FED2ECD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548433   (466764) от 18.09.2012
+
+ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940731   (466746) от 25.09.2015
 
 The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
@@ -569,180 +740,6 @@ VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68D2F3D4631B2F889D03FDD63BC0A59121922EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941550   (462714) от 27.09.2015
-
-Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love
-02. Innocence
-03. Deeply
-04. Intimacy(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EA8D163E62C6ACE98DA303424BCA361CAEC8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941221   (462056) от 27.09.2015
-
-Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of Our Yesterdays
-02. Allan Yn N Fan
-03. Darker Shade Of Black
-04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, Rock, CelticПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B503EE9DBD4FC02CA0B94883410B6285B91EEF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059478   (461967) от 04.10.2016
-
-Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rivers Of Belief
-02. Pray
-03. Sweet Dreams
-04. S.O.S. For Love(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D5502C23D95C6A2242D951901BFF27B130B8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059376   (461823) от 04.10.2016
-
-Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis of Dreams [00:06:06]
-02. Desert Winds [00:02:46]
-03. Epic World [00:06:23]
-04. Sand Temple [00:04:54](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C87C985ECF857C1B410305BD6AA372A2C9934E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246682   (461479) от 11.09.2018
-
-Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss the Quiet
-02. Heart so Filled with Joy
-03. Full Moon Dance
-04. Almost Touching Heaven(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451CB3B100A5947FA4A5665E4A46336A377B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941759   (460057) от 28.09.2015
-
-Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call
-02. Setting Off From Kathmandu
-03. First Trek: Base Camp
-04. Arriving At The Temple (feat. The Monks Of Tharig Monastery)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
 ```
 
 https://mybot314.ru/tekegram_catalog/

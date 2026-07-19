@@ -1,3 +1,148 @@
+###  Публикация: 1434853   (147707) от 26.12.2020
+
+Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars On 45 4:46
+02. Stars On 45 - 12-Inch Version 9:46
+03. More Stars - Abba Medley 3:53
+04. More Stars - U.S.A. ( 12-Inch Version ) 6:55(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E94A93CAECB98DC260B1A451DEB812098A53F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678183   (147681) от 20.11.2023
+
+Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight [00:03:31]
+02. Arrivals [00:03:05]
+03. 24 Hours [00:03:27]
+04. Higher [00:02:53](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD999F3F514EACEF71B0E6B1940F9DC7B305268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968635   (147414) от 27.12.2015
+
+a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [FLAC|Lossless|image + .cue] <Pop, New Wave, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (03:49)
+02. Train Of Thought (04:15)
+03. Hunting High And Low (03:45)
+04. The Blue Sky (02:37)(   Читать дальше...   )Жанр: Pop, New Wave, Synth-popПродолжительность: 02:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226275   (147383) от 26.12.2016
+
+George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk, Pop rock, Soul music, Dance music>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгиос Кириякос Панайотоу (греч. Γιώργος-Κυριάκος Παναγιώτου; 25 июня 1963, Лондон), более известен под псевдонимом Джордж Майкл (англ. George Michael) — популярный британский поп-певец и автор песен англо-греческого происхождения. За его (   Читать дальше...   )Альбомы:
+1987 - Faith
+1990 - Listen Without Prejudice (Vol.1)
+1995 - Jesus To A Child (CD Single)(   Читать дальше...   )Жанр: R&B, Pop, Funk, Pop rock, Soul music, Dance musicПродолжительность: 06:57:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272025   (147245) от 25.12.2018
+
+VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You 4:32
+02. Mariah Carey - Hero 4:19
+03. Celine Dion - It's All Coming Back To Me Now (Radio Edit 1) 5:31
+04. Alison Moyet - Love Letters (Remastered) 2:52(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E31E4EA3F0EAF5DB7B6434238B380EFF06E7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519706   (147162) от 25.12.2021
 
 Віктор Павлік (Виктор Павлик) - Найкраще (Лучшее) (2003) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -598,151 +743,6 @@ VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8A141A7C9C2D1F87573CF5739105134864E952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272826   (141098) от 29.12.2018
-
-Pentatonix - Christmas Is Here! (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Christmas Means To Me
-02. Rockin' Around the Christmas Tree
-03. It's Beginning To Look A Lot Like Christmas
-04. Grown-Up Christmas List(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637DC0AEEC6A26C06576070EFD41766968C1A1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520659   (140247) от 29.12.2021
-
-V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha – Hunting High And Low (7 Remix)
-02. Duran Duran – Save A Prayer
-03. The Smiths – Last Night I Dreamt That Somebody Loved Me
-04. Spandau Ballet – I’ll Fly For You (Glide Mix)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0162FABDAB7C3E7CCF8E7D40D0ED68D178C9C810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273078   (139104) от 30.12.2018
-
-Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stone
-02. Sentimentale
-03. Désobéissance
-04. N'oublie Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45F1ACF1965EE3383FBE9910717B30F62780A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970633   (139033) от 31.12.2015
-
-VA - Now Xmas (2015) [FLAC|track+.cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139033.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Нового 2016 года как всегда звукозаписывающие фирмы стремятся отметится рождественскими сборниками. Думаю, этот станет хорошим сопровождением Ваших новогодних праздников и Рождества!01. Justin Bieber - Mistletoe  (3:05)
-02. Lady Gaga feat. Space Cowboy - Christmas Tree  (2:25)
-03. Britney Spears - My Only Wish (This Year)  (4:18)
-04. Christina Aguilera - Have Yourself a Merry Little Christmas  (4:06)(   Читать дальше...   )Тип издания: Издатель (лейбл): Universal MusicЖанр: PopПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA74D660F2C393DF10DE6EC5435C3D76BF8D1659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970627   (139004) от 31.12.2015
-
-VA - Now That's What I Call Movies (2015) [FLAC|track+.cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony Music в 2013 году выпустила трехдисковый бокссет с лучшими мелодиями из кинофильмов. Успех был очень большой и вот в этом году на фирме решили сделать "выжимку" из издания 2013 года. Здесь представлены самые-самые лучшие мелодии зарубежного экрана по версии Sony Music.01. Queen - Bohemian Rhapsody (Wayne's World)  (5:56)
-02. Bruno Mars - It Will Rain (The Twilight Saga: Breaking Dawn, Pt 1)  (4:19)
-03. Whitney Houston - I Will Always Love You (The Bodyguard)  (4:33)
-04. Celine Dion - My Heart Will Go On (Titanic)  (4:42)(   Читать дальше...   )Тип издания: CompilationЖанр: PopПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22364E18A359EF34631E8B84C07EC9D21E4D703A
 ```
 
 https://mybot314.ru/tekegram_catalog/

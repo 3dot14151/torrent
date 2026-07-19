@@ -1,3 +1,32 @@
+###  Публикация: 1776021   (29399) от 29.01.2025
+
+VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie Abrams - That’s So True (2:46)
+02. Billie Eilish - BIRDS OF A FEATHER (3:30)
+03. Jazeek - Ma Baby (2:18)
+04. The Weeknd - Timeless (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775902   (29376) от 29.01.2025
 
 VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic, Pop, Funk, Disco>
@@ -716,35 +745,6 @@ VA - Now Yearbook '80 (2022) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Regga
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B33333E2A251B00D5D4DA90E6701A248ACD247A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791200   (21550) от 13.04.2025
-
-VA - Mega Hits 2025 - Top Charts & Radio Songs 11.04.2025 (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21550.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Jazeek - AKON - (02:18)
- 002 - Oimara - Wackelkontakt - (02:49)
- 003 - FiNCH - WENN DU DUMM BiST - (02:43)
- 004 - Lady Gaga - Abracadabra - (03:43)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 05:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AE8A79E9986AAA564D4ADE6963249D13F64C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1283612   (739846) от 17.02.2019
-
-Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739846.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Opus 1 [4:15]
-02. Teapot [4:34]
-03. Like Someone In Love [4:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 02:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9331210DEC4A974B85F1210F120D80B31BB8504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283500   (739844) от 17.02.2019
-
-Acker Bilk - The Love Album (1989) Pickwick Music [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love [5:02]
-02. A Groovy Kind of Love [3:25]
-03. Velvet Nights [4:05]
-04. Could've Been [3:34](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D564ADBB972F22B653C9FEF73DDADAAD1D4234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283499   (739842) от 17.02.2019
-
-Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger on the Shore [2:50]
-02. I Want to Know What Love Is [4:04]
-03. I Just Called to Say I Love You [4:22]
-04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283502   (739837) от 17.02.2019
-
-Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739837.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Stranger On The Shore [3:20]
-02. Sailing [3:18]
-03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283445   (739780) от 17.02.2019
 
 Detour Doom Project - Detour Doom (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -745,6 +629,122 @@ Freddie Hubbard - Fastball: "Live" At The Left Bank (1967) 2005, Hyena Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB68AA6A2548138EBBFE785DD4306361A1F3F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776703   (735483) от 02.02.2025
+
+The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moose the Mooche [4:37]
+02. And Now There's You [5:14]
+03. Three Little Words [4:55]
+04. Eclypso [5:32](   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31197970887DD9F6F9EB0E7D9B69914267BF8239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776701   (735459) от 02.02.2025
+
+Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesse Jackson [7:23]
+02. Theme from the Odd Couple [8:37]
+03. Lori [7:14]
+04. Theme from Love Story [9:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAFE5FECABD6F93D1FDDCCD6B76E32EBFD15ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528050   (735404) от 31.01.2022
+
+Trummy Young - 1944 - 1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Trombone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood [3:35]
+02. Talk Of The Town [4:32]
+03. Good'n Groovy [3:04]
+04. Rattle And Roll [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Trombone JazzПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C8B3017A7465EAD4E9B55C911C55C34E71AE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528309   (734983) от 01.02.2022
+
+Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time The Dream's On Me [3:34]
+02. Blues In The Night [3:15]
+03. Nocturne [3:36]
+04. Rockin' Chair [3:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2C10B314A2AF4B3A7A3D1ED7F7706000792D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

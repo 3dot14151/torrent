@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1877950   (1074649) от 
+###  Публикация: 1881915   (1077213) от 
+
+Yakuro & Emil Sagitov - Two Soul's (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emil Sagitov - Two Soul's (8:32)
+02. Emil Sagitov - Leafing Through an Old Exercise Book (5:40)
+03. Yakuro - Sunset of Two Souls (5:29)
+04. Yakuro - Ad Lucem Veniens (6:51)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CAE4B0C40A2594106F9507DC5D64E83F7E5962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877950   (1074649) от 26.06.2026
 
 Kitaro - India (1983) Unofficial [FLAC|Lossless|image + .cue] <New Age>
 
@@ -717,35 +746,6 @@ Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1997EABB8C0AF2B4B2603D028D6EDC18C172EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343469   (1033234) от 07.02.2021
-
-Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Хацко (Alexey Khatsko), известный в музыкальной сфере как Amure и DJ.Amure, родился 2 октября 1976 года в городе Обнинск. В числе первых работ Алексея были ремиксы к детским песням (Учат в школе, Дважды два четыре, Крылатые качели и др.), которые неплохо ротировались на радио Kidsmusic (Kids-hits). В 2007 году Алексей записывает свой дебютный альбом "Исповедь", (   Читать дальше...   )01. Фантазия №1 (5:52)
-02. Фантазия №2 (Аллилуя) (5:52)
-03. Фантазия №3 (Rock'n'Roll Mega Drive) (6:39)
-04. Фантазия №4 (6:47)(   Читать дальше...   )Жанр: New Age, Enigmatic |Продолжительность: 18:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
 ```
 
 https://mybot314.ru/tekegram_catalog/

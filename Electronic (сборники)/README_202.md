@@ -1,3 +1,235 @@
+###  Публикация: 1432594   (163091) от 18.12.2020
+
+VA - crazyДвиж number pyat (2020) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Brothers On The 4th Floor - Dreams (Dima Project Remix) (4:01)
+02. Afrika Bambaataa pres. Khayan - Feel The Vibe (Igor Frank Remix) (3:37)
+03. ATC - Around The World (Mike C Green & Alex Marvel Remix) (4:03)
+04. Audioboy - Circles (3:56)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C31223D729534D80448218FD5220BD886A296C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517743   (162355) от 16.12.2021
+
+VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В техно музыке скрывается простая идея - музыка берется из машины, но душу вкладывает в неё человек. Поэтому считать этот жанр абсолютно бездушным наверное тоже неправильно.001. Jacidorex - Speed Of Love
+002. Anml Mthr - Outside
+003. Interfearence - The Carpenter
+004. Sins Of Insanity - Stay Behind(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517505   (162288) от 16.12.2021
+
+VA - Electro House: Neon Plasma Party (2021) [MP3|320 Kbps] <Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем наслаждаться музыкой и оценивать самые последние танцевальные новинки электронной сцены. Впереди на треках сборника под названием "Electro House: Neon Plasma Party" нас ожидает множество интересных музыкальных новинок уходящего года.001. Edu Schwartz - Shadows On The Wall
+002. Praana & Liel Kolet - Waterfall
+003. Ilan Bluestone - Sinai
+004. Graziano Raffa - The Only Way(   Читать дальше...   )Жанр: Electro House, DanceПродолжительность: 12:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B66F18ACDC3AE577FA809F6AADC73A228883872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432857   (162287) от 19.12.2020
+
+VA - Beatport Tech House: Sound Pack #212 (2020) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный ритм и оригинальные мелодии порадуют не только завсегдатаев клубных вечеринок, но и просто тех, у кого отличный музыкальный вкус!001. Tex - The Life Is Experiment
+002. Mattia Pompeo - River (Original Mix)
+003. Ednner Soares - Artifacts
+004. Diego Sosa - Funk Up(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEE6453BF9E36878B3BDD990D27F4419919A491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517511   (162268) от 16.12.2021
+
+VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro, Future House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавная тема музыки сборника "Inter Galactic" является фантастика и космические путешествия, и многие композиции вполне подошли бы в качестве саундтрека для кинематографических космических сиквелов. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам лонгплея.001. Dallanoras - Sat Nam
+002. Marko Valentino - Repeat
+003. Lewis Mcklein - Better Than Yesterday
+004. The Polymode - Class A(   Читать дальше...   )Жанр: House, Electro, Future House, ProgressiveПродолжительность: 11:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C43D5DFD8394DD51CDA3518CA702D6F22A8559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432860   (162107) от 19.12.2020
+
+VA - Essential EDM Selection (2020) [MP3|320 Kbps] <Club, Dance, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто очередной однообразный музыкальный сборник, это настоящий широкоформатный винегрет танцевальных стилей состоящий исключительно из эксклюзивных работ музыкантов работающих в отличных друг от друга жанрах электронной музыки. Вас ждет хорошая разнообразная подборка в виде ста позитивных композиций.001. Malcom Vicious - Around The Globe
+002. King Joshua - I Don't Know Anybody Else
+003. Ben Salgado - Melilla
+004. Keinklang - Blow My Mind(   Читать дальше...   )Жанр: Club, Dance, EDMПродолжительность: 08:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8C57952E4567D794CF10D949EC48E799706CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517501   (161990) от 16.12.2021
+
+VA - The Disco Dream (2021) [MP3|320 Kbps] <Disco, Dance, Funky House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник ремиксов на незабываемые для многих легендарные диско-песни. Для каждого из Вас найдется здесь хотя бы несколько мелодий, которые напевали в минуты радости или те, что подбадривали в минуты печали. Диско, это именно та музыка, под которую не только хочется танцевать, но и жить. Именно этот жанр оставляет не забываемые следы в нашем сердце и душе. Вспоминайте, (   Читать дальше...   )001. Gzz - Groove For Sale
+002. Sugarstarr - Get Up
+003. DJ Ross - Emotion
+004. Dan Shake - Wake, Bake & Shake(   Читать дальше...   )Жанр: Disco, Dance, Funky House, Nu DiscoПродолжительность: 09:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4AA85DC639A903F88773F18AD6DB6C7CCBDD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517920   (161589) от 17.12.2021
+
+VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический и эстетичный вокал в сочетании с завораживающей, ласкающей мелодией, на фоне которой звучит заводная драм-партия. Композиции этой подборки написаны с душой, что привлечёт внимание многих слушателей, которые несомненно захотят добавить их к себе в персональный плейлист.001. Addicted - Alarm
+002. Disrupta - Run Dem
+003. Stillz - The Music
+004. Refracta - Cobra(   Читать дальше...   )Жанр: Electro Bass, D&B, DubstepПродолжительность: Electro Bass, D&B, Dubstep
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41F9B542616A038BE3243356B3841AD7194D799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517918   (161513) от 17.12.2021
 
 VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -513,238 +745,6 @@ Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CC990EA2C26B81BA5A7E19C99E4985287CE19EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967864   (158505) от 21.12.2015
-
-VA - Groovedelicious 40 Deep and Tech House Sounds, Vol 1 (2015) [MP3|320 кб/с] <Deep House, Tech House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural System - Iris Glow - Mdon House Mix [05:46]
-02. Nightgroovers - My Parade - Paradise Mind Mix [05:48]
-03. Paris Lacroix - Place De La Concorde - Maxime Mix [05:46]
-04. Paul Wellsh - Burning Stable - Montenapoleone Deep Mix [05:42](   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 03:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66ACD73CCBC26221E8F028E95FCCE3155EA2C60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967681   (158495) от 21.12.2015
-
-VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Trance, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coming Soon - Bring The Action (Perplex & EffectivE remix) 06:14
-002. Eranga, Cari - Moon Rays (Original Mix) 04:53
-003. Dust - Fou 06:12
-004. Side Effects - Brain Signal (Original Mix) 07:02(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa TranceПродолжительность: 11:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967684   (158462) от 21.12.2015
-
-VA - Chill Out (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvain Poge - Three Nights of Siddaharta [04:39]
-02. Fowler And Branca - Way Out West [04:45]
-03. Aung Win - Thi Lar Mjei Jan [03:10]
-04. Gioari - Progression Dance Between Earth and Sky [06:39](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967649   (158451) от 21.12.2015
-
-VA - Levitation: Easy Listening And Chillout Party (2015) [MP3|320 кб/с] <EasyListening, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Euphonic Traveller - NYC Christmas Lights
-002. Peter Pearson - Cool Shade
-003. Steven Moore - In the Sunshine - Original Mix
-004. Cesar Martinez Ensemble - Que Mas?(   Читать дальше...   )Жанр: EasyListening, ChilloutПродолжительность: 06:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F89B99F0A7B36D014ED2FAA3A4085E04267D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967585   (158446) от 21.12.2015
-
-VA - Charming Bourgeois Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenzino Playa - Dora Steps - Original Mix
-02. Santorini Sunset - Documento - Original Mix
-03. Slow Rhythms - Soul Sound Sista - Original Mix
-04. Sandrino - In the Right Cut - Sandrino's Late Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53CCA1E58B97E288F1E3B82CD8980C6338FC466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967913   (158270) от 22.12.2015
-
-VA - Soulful Love Smooth and Sexy Grooves 25 Tracks (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaun Escoffery - Perfect Love Affair (Radio Version)
-02. Don-E - Spiritual (feat. Carl McIntosh, Junior Giscombe, Leee John, Noel McKoy, Omar, Paul Johnson and Rick Clarke)
-03. Khari Cabral Simmons - Never In Your Sun (feat. India.Arie)
-04. Incognito - Can't Get You Out Of My Head(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C8D2603D8F2A7B584CB241542A070409836A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967936   (158261) от 22.12.2015
-
-VA - Sunlight Project: Vocal Trance Solar Mix (2015) [MP3|320 кб/с] <Vocal, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IRA Ft. Sarah Russell - Constant Invasions (Genesis Remix)
-02. Lange ft. Ilseviolin - Violin's Revenge (James Dymond Remix)
-03. Sunlight Project - I Keep Calling You (original mix)
-04. Tritonal feat. Cristina Soto - Piercing Quiet (Super8 & Tab Remix)(   Читать дальше...   )Жанр: Vocal, Progressive TranceПродолжительность: 07:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31DDD83E45475364E7ECD54D6FE211DDF426019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194253   (157952) от 24.12.2017
-
-VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157952.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Genix - 6 AM Saint
-002. Laura May - Acid Orchestra
-003. Monoverse - Aftermath (Extended Mix)
-004. Rafael Osmo - Airtight(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

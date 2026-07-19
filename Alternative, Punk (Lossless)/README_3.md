@@ -1,3 +1,145 @@
+###  Публикация: 1462464   (1021034) от 15.04.2021
+
+Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song (2:30)
+02. Hanoi (2:08)
+03. Maria (3:11)
+04. Diokhan (2:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B81493C35360189B4C692F1F8696EBEE544E780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462910   (1020802) от 16.04.2021
+
+The Offspring - Let The Bad Times Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Is Not Utopia
+2. Let The Bad Times Roll
+3. Behind Your Walls
+4. Army Of One(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFC8661034B0209324975BFF363E89AE1B57707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463052   (1020643) от 17.04.2021
+
+The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness [03:12]
+02. Bullet [04:09]
+03. Chill [04:13]
+04. F-F-F-Falling [03:52](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B850AAD2C77EFB15B8B0A2CD4B5A1DE35549AD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463046   (1020460) от 18.04.2021
+
+Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact/The Turn (2:27)
+02. Broken Pieces Shine (3:50)
+03. The Game Is Over (4:22)
+04. Yeah Right (3:29)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464329   (1019798) от 22.04.2021
+
+Guano Apes - Planet Of The Apes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative RockПродолжительность: 02:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D485419D5D189BB140978B3A96DD4D6B6B9083C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464405   (1019780) от 22.04.2021
 
 Guano Apes - Bel Air (2011) Gold Edition [FLAC|Lossless|track + .cue] <Alternative Rock>
@@ -600,150 +742,6 @@ Attila - Closure (2021) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20963F2E94FB1E41204263FFFC548F71232D385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349504   (1004269) от 02.01.2020
-
-Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Trip-Hop, Ambient, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal Something. (10:12)
- 02. Candy Truck / You Expected: LAB Your Result: Green (7:15)
- 03. A Devastating Liberation (4:40)
- 04. ¿ (5:13)(   Читать дальше...   )Жанр: Alternative Rock, Trip-Hop, Ambient, MetalcoreПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487593   (1003351) от 06.08.2021
-
-Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Threat [3:49]
-02. Head 2 Head [3:38]
-03. Poison Well [3:30]
-04. Natural High [3:22](   Читать дальше...   )Жанр: Hardcore, Nu MetalПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EBC23CED2B94D63F6CEFEC8583205005786E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350861   (1003009) от 07.01.2020
-
-Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003009.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
-CD2 - 8 Spring Street
-CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487591   (1002524) от 09.08.2021
-
-VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triple J Hottest 100 - ежегодный музыкальный сборник, основанный на голосовании, проходящем на национальном австралийском радио Triple J, в в котором слушатели выбирают лучшего исполнителя года. Голосование проходит через интернет и начинается примерно за две недели до Нового Года и подводит его итоги, учитывая композиции, выпущенные только за этот год. 100 наиболее (   Читать дальше...   )CD1
-
-01. Gotye - Somebody That I Used To Know (Ft. Kimbra) (4:04)
-02. The Black Keys - Lonely Boy (3:13)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351639   (1001995) от 11.01.2020
-
-Circa Waves - Happy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacqueline (02:42)
-02. Be Your Drug (02:28)
-03. Move to San Francisco (03:01)
-04. Wasted On You (03:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:21:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3EA688CE09CAD6FAE765F596C0584DF67CB149
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1261784   (301272) от 12.11.2018
-
-Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [4:52]
-02. Sunology [5:43]
-03. Advice to Medics [2:05]
-04. Super Blonde [2:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261773   (301271) от 12.11.2018
-
-Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just for a Thrill [3:59]
-02. For Someone I Love [4:34]
-03. For All We Know [3:28]
-04. Lazy Melody [2:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538FC140C8094FF873738B4137C25E744630C303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261782   (301267) от 12.11.2018
-
-Antonio Carlos Jobim - Jazz 'Round Midnight (1963 - 1994) 1998, Verve [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passarim [3:41]
-02. Amor Em Paz (Once I Loved) [3:38]
-03. Photograph [2:15]
-04. So Danco Samba (Jazz Samba) [3:46](   Читать дальше...   )Жанр: Brazilian Jazz, Bossa NovaПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9010E54ED9E71A4212213E1412E117E2AE3CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078692   (300878) от 01.12.2016
-
-National Youth Jazz Orchestra - London Pride (2006) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Ring Fanfare (0:55)
-02. London Pride (3:34)
-03. Citrus Fruit With Bells On (6:04)
-04. A Nightingale Swang (5:54)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C5C1B576F5C96D1AA0A9ED5367247E03821342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077996   (300873) от 01.12.2016
 
 George Lewis and His Ragtime Band - Jazz At Vespers (1954) 1992, OJC[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -757,6 +641,122 @@ Dakota Staton - Dakota Staton (1991) Muse Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BC31BAFC7B7FC3F7CC57CC2C7DC84B4A3AB718B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078938   (298061) от 02.12.2016
+
+Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Louis Armstrong - 16 Great Songs (1988) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't We Be Friends (3:47)
+02. A Foggy Day (4:31)
+03. Love Is Here To Stay (3:59)
+04. Don't Be That Way (4:57)(   Читать дальше...   )Жанр: Vocal JazzПеревод: Музыка на этом компакт-диске была записана на аналоговом оборудовании. Мы попытались сохранить, насколько это возможно звук оригинальной записи.Продолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152B9F491800762C576CFAEE10479255281FA124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184927   (297540) от 19.11.2017
+
+Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Blue [05:19]
+02. Riverrun [04:29]
+03. Key West Strut [05:24]
+04. Global Village [05:24](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5525243EBB1B107192FB51F98A66DE2D9FCDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184939   (297444) от 19.11.2017
+
+Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Get It
+02. A Foggy Night in Charleston
+03. The Greeter
+04. The Sheik of Araby(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AE36AAF945D8310B66C1B6A9D0B6002FB8E774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962081   (297238) от 03.12.2015
+
+Don Friedman - Hope For Tomorrow (1975) 2015, Universal[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hope For Tomorrow [10:30]
+ 02.A Place Within [05:51]
+ 03.Paula's Wish [04:29]
+ 04.Beedies [05:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C042DC253003B75B156451EACF1CDA4A5D69AF12
 ```
 
 https://mybot314.ru/tekegram_catalog/

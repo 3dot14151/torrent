@@ -1,3 +1,88 @@
+###  Публикация: 1373094   (881899) от 05.04.2020
+
+Eternal Delyria - Letting Go Of Humanity / Paradox of the Mechanical Angel (2016-2020) [MP3|320 Kbps] <Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881899.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2016) Letting Go Of Humanity
+(2020) Paradox of the Mechanical AngelЖанр: Symphonic Death MetalПродолжительность: 2 CD, 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479ECC2104B6A85E2799D797490C3188B1063406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495508   (880820) от 12.09.2021
+
+Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanese Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gipsy Queen (04:05)
+ 02. Take Me Home (04:35)
+ 03. I Don't Know (04:43)
+ 04. Lying Eyes (04:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8190B729F13976843CCC256B73342DCAC286426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104572   (879771) от 15.02.2017
+
+Battle Beast - Bringer of Pain (2017) Limited Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight to the Heart
+02. Bringer of Pain
+03. King for a Day
+04. Beyond the Burning Skies(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8177B31B0115DB68E21E559F82D05187409FE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996688   (879516) от 14.03.2016
 
 Mobile Deathcamp - Summon the Destroyer (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -655,98 +740,6 @@ Omnium Gatherum - 7 Albums, 4 Singles, 4 Demo, 3 Reissue & Remaster (1999-2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1EB5F107F6B2A50F3FEEF7743C07F293BAA475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374436   (873157) от 10.04.2020
-
-Megatherium - 3 Альбома (2016-2020) [MP3|320 Kbps] <Psychedelic Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873157.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Superbeast
-2018 - Superbeast Alive!
-2020 - GodЖанр: Psychedelic Stoner, Doom MetalПродолжительность: 3 CD, 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39D068B0BA10DD1FB4797DC0532DF7714F22848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300976   (873122) от 26.02.2011
-
-Bullet - Highway Pirates (2011) [MP3|320 kbps]<Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Highway Pirates (4:51)
-2. Back On The Road (4:00)
-3. Stay Wild (2:46)
-4. Blood Run Hot (2:51)
-5. Fire And Dynamite (4:34)
-6. Down And Out (3:40)
-7. Knuckleduster (2:56)
-8. Heavy Metal Dynamite (3:55)
-9. Citylights (4:01)
-10. Into The Night (5:46)Жанр: Heavy metalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A199F88F46ECBD1A811730959D3E0924C48C46CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496186   (873016) от 17.09.2021
-
-Rage - Resurrection Day (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие пауэр-металлисты RAGE выпустят новый студийный альбом “Resurrection Day” 17 сентября на лейбле SPV/Steamhammer.01 - Memento Vitae (Overture) (01:15)
- 02 - Resurrection Day (04:19)
- 03 - Virginity (03:42)
- 04 - A New Land (03:50)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A533B1E09E8FA7C3A2836D76AAEAACCE83AC52
 ```
 
 https://mybot314.ru/tekegram_catalog/

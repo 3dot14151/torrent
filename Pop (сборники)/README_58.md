@@ -1,93 +1,3 @@
-###  Публикация: 905913   (647316) от 07.06.2015
-
-VA - Золотая Песня Года (2015) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.А. Варум - Настоящий ты
-02.Гр. "Пропаганда" - Подруга
-03.Emin и Ани Лорак - Зови Меня
-04.Нюша - Только(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCA8429B5AB201BED7CFA005CC00C6AFCB5250B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517364   (647285) от 01.07.2012
-
-VA - XXXL Русское Радио. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647285.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Иван Дорн - Бигуди
-002 Елка - Около тебя (DJ Nejtrino & DJ Stranger remix)
-003 Винтаж feat. Bobina - На-на-на
-004 Иракли - Я Тебя Люблю
-005 Инь-Ян - Инопланетянин
-006 Горячие Головы - Мы Встретимся Вновь
-007 ELIA - Последние слова (DJ Nejtrino & DJ Kirill Clash remix)
-008 Баnzай - Ради Тебя
-009 Братья Грим & Чи-Ли - Ира, Ира
-010 Pobeda - Лето Любви(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 06:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5737BC38C45112C76755E382614F2B4D5FBAE30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516916   (647283) от 01.07.2012
-
-VA - Летний ливень хитов в ремиксах (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 10:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02CAFC4897767A98A570AD4E7F28BBA63039BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517489   (647032) от 01.07.2012
 
 VA - ЕвроХит Топ-40 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
@@ -778,6 +688,105 @@ VA - Дискотека забытых хитов (зарубежная) - 11 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251F9C8A0A08527B47B9AEF64EF020DA8C4298EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346620   (645107) от 05.06.2011
+
+VA - Superхиты 90-х. Только лучшее (2011) [MP3|320 kbps]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: EurodanceПродолжительность: 05:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505991909A89D23E06DC627908A12C43BE91B447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517962   (644820) от 02.07.2012
+
+VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Rea - As Long As I Have Your Love
+02. Avril Lavigne - I'm With You
+03. Whitney Houston - I Will Always Love You
+04. The Style Council - You're The Best Thing
+05. Sandra - Loreen
+06. Modern Talking - Cinderella Girl
+07. Metisse - Boom Boom Ba
+08. Jason Donovan - Sealed With A Kiss
+09. Falco - Out Of The Dark
+10. Cranberies - ZombieЖанр: PopПродолжительность: 05:01:28
+
+01. HIM - In Joy And Sorrow
+02. Groove Coverage - God Is A Girl
+03. Another Level - From The Heart
+04. All-4-One - I Swear
+05. The Eagles - Love Will Keep Us Alive
+06. Scorpions - Daddy's Girl
+07. Ronan Keating - Brighter Days
+08. Pink - Family Portrait(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142088   (644474) от 13.06.2017
+
+VA - Summer All Stars NRJ Mix (2017) [MP3|241-320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charlie Puth - Dangerously
+002. Clean Bandit feat. Sean Paul & Anne Marie - Rockabye
+003. James Arthur - Say You Won't Let Go
+004. Maroon 5 - Don't Wanna Know feat. Kendrick Lamar(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 07:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C96343504B101CD630CC185ED7E1F2D83760FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

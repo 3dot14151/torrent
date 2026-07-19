@@ -1,32 +1,3 @@
-###  Публикация: 1191697   (263893) от 15.12.2017
-
-Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9:21 (09:21)
- 02. 3:29 (03:29)
- 03. 4:05 (04:05)
- 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191769   (263857) от 15.12.2017
 
 Parks (The Parks, Парки) - Discography 12 Releases (1991-2016) Elektrus, Фоно [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Field Recording>
@@ -738,6 +709,35 @@ Polar Moon - As Above, So Below (2020) Past Inside The Present [FLAC 2.0|48/24|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0923C01B2DA79E81412981CC615F2CF5DEC3F0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424245   (229106) от 16.11.2020
+
+db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromosome (12:11)
+ 02. Hypnagogia (05:33)
+ 03. Pareidolia (09:33)
+ 04. Flote (08:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A30F347A38D8FA9D87716D90D382DF1F99AEF1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1275310   (790487) от 11.01.2019
+
+Alter Bridge - AB III (2010) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip to the Void (4:52)
+ 02. Isolation (4:13)
+ 03. Ghost of Days Gone By (4:25)
+ 04. All Hope Is Gone (4:48)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D42EB4F24C71FB4F7057742061B1AB43B1AAFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388157   (790130) от 04.06.2020
+
+Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violet (3:24)
+02. Miss World (3:00)
+03. Plump (2:34)
+04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275903   (789483) от 13.01.2019
+
+Baby Jey - Someday Cowboy (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah Holliday's Son
+02. U Don't Have 2 Go Alone
+03. Toboggan
+04. Someday My Space Cowboy Will Come(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED7B22CDAF46DB4F9DCABCBAE572209BD33C64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202957   (789090) от 31.01.2018
+
+Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time in Joy (6:19)
+02. Count It Up (3:42)
+03. Front of House (1:45)
+04. Share a Pillow (2:54)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203226   (788665) от 01.02.2018
 
 Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -628,122 +744,6 @@ Mother Mother - Dance And Cry (2018) [FLAC|Lossless|tracks + .cue] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E935794B64E6F8CE9C5822B804EB64F9B99359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277462   (784959) от 21.01.2019
-
-MØ - Forever Neverland (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:45)
-02. Way Down (03:08)
-03. I Want You (03:16)
-04. Blur (03:04)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D64F390184EB0FF4E2570272EB640085EE4233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389220   (784581) от 10.06.2020
-
-The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of An Animal (04:53)
-02. I Know What You're Thinking And It's Awful (03:50)
-03. Instant Nightmare! (03:38)
-04. Is This What You Really Want? (03:30)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26154DE220634DF3BA8B40059A41CB3BD005217C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204808   (784345) от 07.02.2018
-
-Radiohead - Amnesiac (2001) Limited Edition, Book [FLAC|Lossless|tracks + .cue] <Alternative Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Packt Like Sardines In A Crushd Tin Box (04:00)
-02. Pyramid Song (04:49)
-03. Pulk/Pull Revolving Doors (04:07)
-04. You And Whose Army? (03:11)(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FCEE84C578D58C82205B79238E3355E1AAFA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388724   (784246) от 11.06.2020
-
-Wilco - 14 Альбомов (1995-2019) 16-CD [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wilco — американская группа, играющая альтернативный рок. Она была образована в Чикаго в 1994 году участниками Uncle Tupelo, оставшимися после ухода вокалиста Джея Фаррара. Состав коллектива часто изменялся, и только вокалист Джефф Туиди и басист Джон Стирратт остаются постоянными участниками. Кроме них, с 2004 года в состав входят гитарист Нельс Клайн, мультиинструменталисты (   Читать дальше...   )01. Bright Leaves (4:11)
-02. Before Us (3:22)
-03. One and a Half Stars (3:43)
-04. Quiet Amplifier (5:50)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6DF86EE11C4D290D956F87814F53A03F035C09
 ```
 
 https://mybot314.ru/tekegram_catalog/

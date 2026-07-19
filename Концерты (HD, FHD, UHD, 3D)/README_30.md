@@ -1,3 +1,32 @@
+###  Публикация: 1178642   (353316) от 29.10.2017
+
+Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный альбом  Megadeth, посвященный двадцатилетию их четвёртого студийного альбома Rust In Peace 1990 года. Записан в Hollywood Palladium (Hollywood, California) 31 марта 2010 года и выпущен 7 сентября того же года01. Holy Wars...The Punishment Due
+02. Hangar 18
+03. Take No Prisoners
+04. Five Magics(   Читать дальше...   )Производство: Shout! Factory (USA)Жанр: Thrash Metal/Heavy MetalРежиссер: Kerry AsmussenПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4261CEF32D59ACAE6B536BAD9015BA460D927A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 723963   (352296) от 19.11.2013
 
 Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
@@ -704,32 +733,6 @@ Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770E39A1483A71B4593D44710B249A30DF01DB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420533   (332477) от 01.11.2020
-
-Квартирник НТВ у Маргулиса. Группа Tesla Boy (31.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tesla Boy — одна из самых популярных российских групп на Западе. Саунд-продюсер и музыкант Антон Севидов собрал группу в 2008-м: их песни в жанре англоязычного электропопа стали символом нового поколения российской молодежи, и уже спустя год слушатели и критики признали Tesla Boy лучшим дебютом. И только спустя 12 лет, в апреле 2020, группа выпустила свой первый (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB39CE0DF9956FE774A2F4D5E7BA6271473F9EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

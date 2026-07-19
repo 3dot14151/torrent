@@ -1,3 +1,58 @@
+###  Публикация: 1553177   (582963) от 25.05.2022
+
+Audra - Going to the Theatre (2002) 2CD, 20th Anniversary Edition, 2022, Remaster [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Moon Swing (Acoustic) [00:02:26]
+02. There Are No Snakes in Heaven (Acoustic) [00:02:51]
+03. Going to the Theatre (Acoustic) [00:05:16]
+04. All Ghosts Spend Their Time Alone (Acoustic) [00:04:23](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockПродолжительность: 2 CD, 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56B4FD78557DEB91B712D943CCB053432BA192A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553334   (582962) от 25.05.2022
+
+Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grave (Stripped) [00:03:16]Жанр: Metalcore, Post-HardcoreПродолжительность: 03:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357562   (580962) от 07.07.2011
 
 Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
@@ -698,64 +753,6 @@ Indie RockПродолжительность: 01:13:19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214820FE5D677862F97FA0A2C9393104736EF29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923924   (560645) от 02.08.2015
-
-Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods of Speed
- 02. Criminal
- 03. Save Your Breath
- 04. Wolves and Doors(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C0CC85522E539F96E6B33F5D96052F2C5258C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235573   (558664) от 12.07.2018
-
-Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|320 Kbps] <Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The U.S.S.A. 2:27
-02. If I Fall 3:57
-03. Desert Song 4:43
-04. Hole Of Isolation 2:23(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280BB255EF4C8EBBE32873B3D68F0408366F3C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

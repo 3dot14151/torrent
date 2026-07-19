@@ -1,3 +1,238 @@
+###  Публикация: 592372   (135951) от 21.12.2012
+
+Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allure
+02. Loverst
+03. The River
+04. Iterum
+05. Metamorphosis
+06. She Spider
+07. The Conflict
+08. Day Of Revolt
+09. The Persistence
+10. Silica(   Читать дальше...   )Жанр: Indie, Electronic, DanceПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592885   (135454) от 23.12.2012
+
+Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infinite Forest, 04:16
+ 2. Cars Go In Two Directions, 04:50
+ 3. Some Chords From Riku's NES, 01:50
+ 4. Pandas With Tambourines 1, 03:26
+ 5. Pandas With Tambourines 2, 04:36
+ 6. Mosquitoes Are Swarming This Summer, 05:32
+ 7. The Operator Of A Huge Cash Magnet Which Inmost Purpose Is To Destroy The World, 02:48
+ 8. The Symbols And Their Meanings, 04:49
+ 9. Flu, 03:49
+ 10. Your Song, 06:39Жанр: Shoegaze Indie Post RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592830   (135406) от 23.12.2012
+
+Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mis-Shapes
+02 - Pencil Skirt
+03 - Common People
+04 - I Spy
+05 - Disco 2000
+06 - Live Bed Show
+07 - Something Changed
+08 - Sorted for E's & Wizz
+09 - F.E.E.L.I.N.G.C.A.L.L.E.D.L.O.V.E
+10 - Underwear(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592948   (134802) от 24.12.2012
+
+Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We'll Be Kings
+2. Furious Again
+3. I Don't Know
+4. The One Who Laughs Last
+5. Seven Year Itch
+6. Charlie Wants To WatchЖанр: Alt. Rock / Hard RockПродолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592565   (134756) от 24.12.2012
+
+Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134756.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Artificial Nocturne (05:42)
+02. Youth Without Youth (04:17)
+03. Speed The Collapse (03:42)
+04. Breathing Underwater (03:56)
+05. Dreams So Real (02:40)
+06. Lost Kitten (03:16)
+07. The Void (03:17)
+08. Synthetica (03:54)
+09. Clone (05:13)(   Читать дальше...   )Жанр: Indie / Pop-RockПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F258802FCABD1876E70CB04572ACDB92F53C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680186   (134522) от 28.11.2023
+
+The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blast On
+2. Feeling Great
+3. Voodoo
+4. Terrorist(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592753   (134397) от 24.12.2012
+
+Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 (Interlude 1)
+03 Tessellate
+04 Breezeblocks
+05 (Interlude 2)
+06 Something Good
+07 Dissolve Me
+08 Matilda
+09 MS
+10 Fitzpleasure(   Читать дальше...   )Жанр: Indie-Pop, Indie-RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593869   (134160) от 25.12.2012
 
 Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, post-grunge>
@@ -554,227 +789,6 @@ Oceano - Living Chaos (2024) [MP3|320 Kbps] <Deathcore, Soft-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D7F617BD8B1183294951060F4957F9E264C732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822830   (104511) от 08.10.2025
-
-The Red Jumpsuit Apparatus - X’s For Eyes (2025) [MP3|320 Kbps] <Alt. Rock, Mall Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Always The King (feat. Kellin Quinn) (3:15)
-02. - Purple Halo (3:38)
-03. - Perfection (3:19)
-04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C7CD7210D4BD349ED81CB4907A5813D722F681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490218   (102393) от 01.05.2012
-
-Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Never Let Go
-02. Called Out In the Dark
-03. The Weight of Love
-04. This Isnt Everything You Are
-05. The Garden Rules
-06. Fallen Empires
-07. Berlin
-08. Lifening
-09. New York
-10. In the End(   Читать дальше...   )2011Жанр: AlternativeПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9D173A350F45DC3BA2220EB195B5AC7E573AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764776   (101511) от 08.12.2024
-
-Солнце в Тетрадке - Против Течения (2016) [MP3|320 Kbps] <Pop Punk, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome 2
-02. Беги
-03. Четвёртый Вид (Мёртвые Звёзды)
-04. Вместо(   Читать дальше...   )Жанр: Pop Punk, ElectronicПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484525   (99869) от 17.04.2012
-
-Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 01:33
- 02. Doubts And Struggles 03:16
- 03. Crossed Paths 03:02
- 04. Echoes 02:17
- 05. Wilfully Blind 03:47
- 06. No Love, No Regret 03:11
- 07. Despair 01:09
- 08. To Conceive/Insight 02:59
- 09. Discontent 03:11
- 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483436   (99720) от 15.04.2012
-
-Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<Shoegaze, Post Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Shoegaze, Post Rock, Indie RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D67188AB1F825358B233D38F8569C790D11B1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473986   (97893) от 28.03.2012
-
-The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tempest (04:08)
-02. Fool's Road (02:52)
-03. I Do What I Want (03:17)
-04. The Message (03:53)
-05. My Luck Is So Bad (02:59)
-06. The Massacre of Glencoe (02:40)
-07. The Bluenose (02:56)
-08. Burnout (02:36)
-09. Halloween (03:39)
-10. Hi Lily (02:56)(   Читать дальше...   )Жанр: Folk-Punk-RockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28BFEB8EE9BEB0FD52078C50F854FB30A28EB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471945   (97711) от 25.03.2012
-
-At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separation
-02. Novus Ordo Seclorum
-03. Sincere Hatred
-04. The Retaliation
-05. Mona Lisa
-06. The Necromancer
-07. The Walking Death2012Жанр: Post-Hardcore / ElectronicПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F969D87316FA16EE235C1C6116B9611D1D04A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

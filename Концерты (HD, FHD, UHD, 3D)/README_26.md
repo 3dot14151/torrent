@@ -1,3 +1,29 @@
+###  Публикация: 545892   (478211) от 13.09.2012
+
+Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linkin Park отыграли еще один свой концерт в рамках концертного тура "Honda Civic Tour" по Северной Америке — концерт в "Home Depot Center" в г. Карсон (округ Лос-Анджелес, штат Калифорния) 8 сентября (у нас с вами это было раннее утро сегодняшнего дня, 9.09). Этот концерт стал осебенным потому, что он полностью транслировался по американскому телеканалу AXS TV......Жанр: Alternative RockФормат: MKVПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545872   (478124) от 13.09.2012
 
 The Prodigy / Live World's On Fire (2011) BDRip [1080p]
@@ -703,36 +729,6 @@ Supertramp’s “Breakfast In America” был самым продаваемы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B9122994D380BEC43F263D59E8E31F7FDFD10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161837   (463239) от 30.08.2017
-
-Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
-Релиз от1. Intro
-2. Starlight
-3. Living For Tonite
-4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530D454C20E2B25ED4B69AF37C37E58BF9D2680A
 ```
 
 https://mybot314.ru/tekegram_catalog/

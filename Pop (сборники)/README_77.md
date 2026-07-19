@@ -1,90 +1,3 @@
-###  Публикация: 1050961   (534652) от 10.09.2016
-
-VA - Танцевальная хитовая дискотека. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534652.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Good Lyfe & Vermosa Feat. Brkln - After Midnight
-002. Florrie - Real Love
-003. Robin Schulz & M-22 Feat. Aleesia - Love Me Loud
-004. Felix Jaehn Feat. Polina - Book Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050944   (534556) от 10.09.2016
-
-VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Major Lazer Feat. Justin Bieber & Mo - Cold Water
-002. Dido & Dj Mrid - Без Тебя
-003. Uppermost Feat. Jessica Gabrielle - Whisper
-004. Анжелика Пушнова - Всей Моей Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAE5C412B761429FF52E333AF2EA081C552E479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558251   (531872) от 20.06.2022
-
-VA - June EDC Radio: Exclusive Mixed (2022) [MP3|320 Kbps] <EDC, Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеnе Rоdrigеzz - Thе Stоrу Abоut Lifе
-002. Lvа - Whеn In Iроh
-003. Cоаrbу - If Yоu Wаnt Mе
-004. Dоn Diаblо - Thrоugh Thе Stоrm(   Читать дальше...   )Жанр: EDC, Dance, Club, HouseПродолжительность: 11:25:10 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DC1E0EC943AAD2ED503E7C19CAE78F49D0DCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155831   (531674) от 04.08.2017
 
 VA - Cay Hume (K.B. Caps) Projcts (2009) [MP3|320 Kbps] <Disco Euro-Disco>
@@ -757,6 +670,99 @@ Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE169098312B4DA036753A8B7D7F497DC6903248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927129   (521699) от 17.08.2015
+
+Берёзовый Сок - Магнитоальбом (1990) [MP3|224 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро 1
+02 - Скрипка
+03 - Интро 2
+04 - Музыканты(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066061D07B5DEA569B0B424B8B0591A77A78C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372314   (521645) от 07.08.2011
+
+VA - XXXL Музык@Ru 11 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_521645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Даша Суворова - Тебе Любовь Моя
+002 Shahzoda feat. Akcent - All Alone
+003 Вика Дайнеко - Сотри его из Memory
+004 American Gang - I Luv New York (Radio Edit US)
+005 Maxima - Алло
+006 Katy B - Easy Please Me
+007 DJ M.E.G. feat. Карина Кокс - Там Где Ты
+008 John OCallaghan & Betsie Larkin - Save This Moment
+009 Артур Пирожков - Плачь, детка
+010 Thomas Anders & Uwe Fahrenkrog-Petersen - Summer Of Love(   Читать дальше...   )2011Жанр: PopПродолжительность: 06.22.18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1E768F752F4364716784739A3D651993A01831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314112   (521212) от 12.07.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardkiss - PiBiP (4:15)
+02. Mozgi - Digitalization (2:41)
+03. MARUV - Focus On Me (2:56)
+04. Tvorchi - Trip (Orchestral Version) (2:49)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8020E859B884474785C71AB48E942783313B02
 ```
 
 https://mybot314.ru/tekegram_catalog/

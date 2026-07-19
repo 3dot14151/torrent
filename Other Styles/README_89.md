@@ -1,3 +1,192 @@
+###  Публикация: 1038762   (595919) от 01.08.2016
+
+Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Striking Distance
+02. Blood Love
+03. Taken
+04. Sons of Lightning(   Читать дальше...   )Жанр: Indie pop, AlternativeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526927   (595585) от 25.07.2012
+
+VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , Western>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595585.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Creedence Clearwater Revival - The Midnight Special (4:11)
+ 2. Paul McCartney - Heart Of The Country (2:23)
+ 3. Bob Dylan - I'll Be Your Baby Tonight (2:38)
+ 4. Eagles - Take It Easy (3:31)
+ 5. Christie - San Bernadino (3:14)
+ 6. Roy Orbison - Dream Baby (How Long Must I Dream) (2:32)
+ 7. Elvis Presley - That's All Right (1:56)
+ 8. Creedence Clearwater Revival - Cotton Fields (2:54)
+ 9. Lynn Anderson - Rose Garden (2:58)
+ 10. J.J.Cale - Call Me The Breeze (2:39)(   Читать дальше...   )Жанр: Country, Folk , WesternПродолжительность: 05:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41A1831152DF7EBD04AB82E4C1F573F210FA36B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527119   (595584) от 25.07.2012
+
+Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fusion, World Music, Ethnic Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595584.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Last Train To Lhasa (11:44)
+2. Kuos (6:56)
+3. China (Clouds Not Mountains) (7:30)
+4. Amber (7:34)
+5. Kincajou (6:47)
+6. White Paint (6:06)
+7. 887 (Structure) (14:17)Жанр: New Age, Ethnic Fusion, World Music, Ethnic InstrumentalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A78C7192C6E047FDCDF81A9CDFC5C8BE10CC354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526752   (595523) от 25.07.2012
+
+Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recuerdos de la Alhambra (F.Tarrega)    [03:23]
+02. Granada de la suite espaсola N1 (I Albeniz)    [04:21]
+03. Danza espaсola N5 en si menos op 37 (E Granados)    [04:31]
+04. Alegretto de sonatina en do mayor (Moreno Torroba)    [03:19]
+05. Preludio (Moreno Torroba)    [01:54.71]
+06. Sevilla de la suite espaсola N6 (I.Albeniz)    [04:18.21]
+07. Variaciones y fuga de cosas de espaсa (Manuel Ponce)    [14:35]
+08. Fandanguillo de la suite castellana(Moreno Torroba)    [01:59]
+09. Nocturno (Moreno Torroba)    [03:08]
+10. Fandanguillo (J Turina)    [03:57]Жанр: Classical GuitarПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548349   (594731) от 05.05.2022
+
+Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasteland [00:03:40]
+02. Ship Will Sail [00:03:40]
+03. Party Like a Pirate [00:02:43]
+04. After the Rain [00:03:27](   Читать дальше...   )Жанр: Folk Punk, Sailor Punk, CelticПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039543   (594560) от 02.08.2016
+
+Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva (Pianist: Patrick Doyle)
+02. Igor
+03. Scamper & Brain
+04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233084   (593937) от 28.06.2018
 
 Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Easy Listening, Piano>
@@ -571,180 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B14CFD52EBD63B4D39834DECC4608134FCD4016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300839   (588125) от 08.05.2019
-
-Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro/I Want You Forever (3:37)
-02. Song for Guy (5:22)
-03. Honky Cat (4:47)
-04. Rocket Man (3:45)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240EC1DC09DA88F5CABBC37C2C54E10898584F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300735   (588116) от 08.05.2019
-
-Allegro Milano - Plays The Hits Of Tina Turner In DDD (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Me (3:55)
-02. Let's Stay Together (4:04)
-03. What's Love Got To Do With Me (3:37)
-04. Better Be Good To Me (3:22)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C32FC86DF67B1C76E92F43F99776225C648C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551733   (587674) от 20.05.2022
-
-Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Tormenta (05:13)
- 02. Se Prendio (04:34)
- 03. La Serpiente (04:37)
- 04. Parate (03:30)(   Читать дальше...   )Жанр: Folktronica, World, FolkПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F1D0E02C53A721BF92D4ABD633DE55AE74D803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552255   (587626) от 20.05.2022
-
-Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade of Pale (4:17)
-02. Summmertime (3:53)
-03. Fuga in Bb Minor (2:35)
-04. Nocturnes (3:12)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE0D41720921B531CEA789DDB8E45C0A59DDB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56825   (587494) от 20.05.2022
-
-Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ванге́лис (греч. Βαγγέλης, англ. Vangelis, полное имя Эва́нгелос Одиссе́ас Папатанаси́у, греч. Ευάγγελος Οδυσσέας Παπαθανασίου; род. 29 марта 1943, Волос) — греческий (   Читать дальше...   )Список альбомов:
-1971 - Fais Que Ton Reve Soit plus Long Que La Nuit
-1971 - The Dragon
-1977 - Ignacio(   Читать дальше...   )Жанр: New AgeПродолжительность: 09:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300794   (587150) от 09.05.2019
-
-Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lilium (Opening version) (1:34)
-02.Longing (2:12)
-03.Deep Sea (2:56)
-04.Flower-like (1:08)(   Читать дальше...   )Жанр: Electronic, Classical, ContemporaryПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

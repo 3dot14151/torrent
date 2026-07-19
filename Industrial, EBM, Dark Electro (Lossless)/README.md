@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1880453   (1076144) от 07.07.2026
+
+Nachtmahr - Imperivm (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Neofolk>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wer Wind sät [00:03:47]
+02. Unterwerfung [00:04:01]
+03. Nie zurück [00:03:48]
+04. Das Böse [00:03:20](   Читать дальше...   )Жанр: EBM, NeofolkПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76420CC8FB51C53AD76211C71434CE1CC5504D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868531   (1067848) от 03.05.2026
 
 VA - Moonraker - Volume 2 (1995) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Industrial, Synth-pop, EBM>
@@ -711,35 +740,6 @@ Worms Of The Earth - Discography 10 Releases (2006-2021) Disease Foundry, Indust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535C154E3B1C9F3094132AA0B84A1CBB2A977D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470029   (1015793) от 16.05.2021
-
-Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Era de la Bestia [00:04:02]
-02 - Legion [00:03:54]
-03 - No Memories [00:03:46]
-04 - Hope [00:04:29](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

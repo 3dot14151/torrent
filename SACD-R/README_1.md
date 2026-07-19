@@ -145,35 +145,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643702   (210000) от 02.07.2023
-
-Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|SACD-R] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thérèse Juel - Tiden bara går (R. Rönning)
-02. Stockholm Guitar Quartet - Invention No. 14 (J.S. Bach)
-03. Tomas Örnberg's Blue Five - Buddy Bolden Blus (Morton)
-04. Knoa - Unca's Flight (M. Lingedal)(   Читать дальше...   )Жанр: Jazz, Blues, Classical, Folk, World, & CountryПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571642   (209996) от 22.08.2022
 
 Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock, Folk Rock>
@@ -396,64 +367,6 @@ Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654833   (194016) от 22.08.2023
-
-Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do It Again 5:56
-Soloist - Denny Dias, Donald Fagen / Vocals - Donald Fagen
-02 - Dirty Work 3:08
-Soloist, Saxophone - Jerome Richardson / Vocals - David Palmer(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA5B3A63F2CB9C30A64430FD3017FC38B2EE676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662672   (187674) от 18.09.2023
-
-Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Remastered, Capo [DST64|2.0,5.1|2822,4/1|SACD-R] <Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Big Guns 03:53
-02. What’s Going On 02:48
-03. Tattoo’d Lady 04:50(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DD56C160D1B5089EBE19F225669505BDA5F3DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -755,6 +668,93 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691029   (123563) от 10.01.2024
+
+Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' With The Devil 3:36
+02. Eruption 1:42
+03. You Really Got Me 2:38
+04. Ain't Talkin' 'Bout Love 3:49(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877192CC62F1328653834B41507DF4A8B9F836E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691113   (123550) от 10.01.2024
+
+The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Productions, Third Man Records  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Nation Army 3:51
+02. Black Math 3:03
+03. There's No Home For You Here 3:41
+04. I Just Don't Know What To Do With Myself 2:46(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691144   (123537) от 10.01.2024
+
+Nils Lofgren - Acoustic live (1997) SACD, Remastered, 2016, Analogue Productions; Cattle Track Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You 3:36
+02. Sticks And Stones 4:10
+03. Some Must Dream 6:09
+04. Little On Up 5:03(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F498EA2ABB452DDFA4271ABBC1D27BBBA2AFD23
 ```
 
 https://mybot314.ru/tekegram_catalog/

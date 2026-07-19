@@ -1,119 +1,3 @@
-###  Публикация: 1006651   (827249) от 12.04.2016
-
-Joe Zawinul - Zawinul (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Doctor Honoris Causa [13:48]
- 02.In A Silent Way [04:47]
- 03.His Last Journey [04:35]
- 04.Double Image [10:33](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2C2AD004636CDD6B91DEDF5F8C838B4AB1378D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006467   (827248) от 12.04.2016
-
-Abbey Lincoln - Abbey Is Blue (1959) Remaster,2005,Riverside Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afro-Blue (03:20)
-02. Lonely House (03:40)
-03. Let Up (05:32)
-04. Thursday's Child (03:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82E8D4BE5EF9C12877BF94F4A9D1CA0B4545550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006605   (827247) от 12.04.2016
-
-Pharoah Sanders - Village Of The Pharoahs & Wisdom Through Music (1973) 2011, Verve Music Group[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Village of The Pharoahs, Part One [07:15]
- 02.Village of The Pharoahs, Part Two [04:58]
- 03.Village of The Pharoahs, Part Three [04:52]
- 04.Myth [01:48](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB57172F4368B01D3256789F62FBA2B2A1CE859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006569   (827245) от 12.04.2016
-
-Doctor Jazz's Universal Remedy! - Release 1.0 (2004) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Milt Shake
-02	Groovy Night
-03	Elizabeat
-04	Seven Reasons Why(   Читать дальше...   )Жанр: Jazz, Future JazzПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2B3DE1CE41BF79561A9BF109E3E397BF5AC083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006557   (827089) от 12.04.2016
 
 The Glenn Miller Orchestra - In The Digital Mood (1984) Digital Mastering [APE|Lossless|image + .cue] <Jazz, Swing>
@@ -745,6 +629,122 @@ George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D619AA742A86ADDB064D239E17BDFA07A709E854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006910   (825393) от 13.04.2016
+
+Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Baptist Beat [07:09]
+ 02.Recado Bossa Nova [08:47]
+ 03.You're My Everything [05:28]
+ 04.Lotus Blossom [06:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A241D88736BA75F48CFC9F45AF996B1AD014F9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116073   (825068) от 19.03.2017
+
+Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Barbados [04:06]
+ 02.All The Things You Are [07:28]
+ 03.The More I See You [04:07]
+ 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116083   (824875) от 19.03.2017
+
+The Louis Armstrong - Collection (1920-e - 1960-e) 4CD, 1991, Tring [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Mame [02:25]
+02.Stompin At The Savoy [01:51]
+03.I Got Rhythm [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Swing, DixielandПродолжительность: 03:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31129E4D890CBD3524D7A9230E74BC287755EADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116078   (824871) от 19.03.2017
+
+Oscar Peterson - 5 Original Albums (1955, 1959, 1962) 5CD, Remaster, Universal, 2016 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824871.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Oscar Peterson Plays Count Basie:
+01.Lester Leaps In [03:59]
+02.Easy Does It [06:29]
+03.9:20 Special [03:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F819CB66775E0F728A3ADCB51B21802A876FC81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

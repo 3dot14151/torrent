@@ -1,55 +1,3 @@
-###  Публикация: 550345   (457790) от 22.09.2012
-
-Artworks by Renato Guttuso [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Renato Guttuso
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC24F07B06F4496999E90006458D557754AC21CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551302   (451095) от 25.09.2012
-
-Geoffroy Thoorens [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geoffroy Thoorens
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5082D27B82BD04A646CBFA94453D1BD588459B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551301   (450738) от 25.09.2012
 
 Artworks by Digital Artists (23.09.12) [Графика]
@@ -670,6 +618,58 @@ Pixiv Artist - Mii~ina
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBE029F1FC2B8E898F4F711E3BB1DD12ADDA7272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563431   (404766) от 21.10.2012
+
+[Рисованая графика] Artworks by Carol Cavalaris
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Carol Cavalaris.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556E9ACB94977425538B34F981004574666460D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562775   (404753) от 21.10.2012
+
+Herika Noronha [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Herika Noronha
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53089717AB08CBFFF4F6ACE5CE8E55BD82CD461
 ```
 
 https://mybot314.ru/tekegram_catalog/

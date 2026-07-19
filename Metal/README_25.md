@@ -1,3 +1,90 @@
+###  Публикация: 1002383   (848995) от 31.03.2016
+
+Dead Territory - Mind Of Damnation (2016) [MP3|320 кб/с] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Is Digging Your Grave
+02. Winter In Hell
+03. Apocalyptic War
+04. Brutal Happiness(   Читать дальше...   )Жанр: MDMПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF0D61DC302D54BA98EE6D2F2871102FBFF852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002426   (848986) от 31.03.2016
+
+Path Of Destiny - Dreams in Splendid Black (2016) [MP3|320 кб/с] <Symphonic Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848986.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Awakening
+2. Invocation
+3. Embers
+4. Reign of the Ravenous(   Читать дальше...   )Жанр: Symphonic Death Metal, Black MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248A0A1B22B972A7A1554987102B831A27713BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002341   (848785) от 31.03.2016
+
+The Algorithm - Brute Force (2016) [MP3|320 кб/с] <Progressive Metal, Electronic, Mathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. boot (03:28)
+02. floating point (05:08)
+03. pointers (04:40)
+04. brute force (05:22)(   Читать дальше...   )Жанр: Progressive Metal, Electronic, MathcoreПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31175027A0BD2C6E8FB5AF3FE5B8C09FDFF5BE33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 649663   (847736) от 28.04.2013
 
 The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal /Atmospheric Sludge Metal>
@@ -670,93 +757,6 @@ Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DD3DB161F30B20D4C6416D888D2F8A8671EE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113993   (835337) от 13.03.2017
-
-Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, Experimental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night
-02. Inexorbitant Future
-03. Down into the Sun
-04. My Doom(   Читать дальше...   )Жанр: Avant-Garde Metal, Experimental MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97242FA1BBAA0CDBE00B3E29BAF01E1355419590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005339   (834697) от 08.04.2016
-
-I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer (01:02)
-02. Instinct (02:33)
-03. Dark Passenger (03:00)
-04. Bleed (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995184   (834394) от 02.05.2020
-
-Killswitch Engage - 13 Releases (2000-2020) [MP3|320 кб/с] <Metalcore, New Wave Of American Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834394.jpg" />
-</div>
-
-
-###  Подробнее
-
-2000 - Killswitch Engage
-2002 - Alive Or Just Breathing (Reissue 2005)
-2004 - The End Of Heartache (Special Edition)
-2005 - Killswitch Engage (Remastered)(   Читать дальше...   )Жанр: Metalcore, New Wave Of American Heavy MetalПродолжительность: 09:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEC423A22194E19A0E703741B1C209C7FC49386
 ```
 
 https://mybot314.ru/tekegram_catalog/

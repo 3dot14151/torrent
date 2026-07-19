@@ -549,35 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607464   (1044068) от 26.01.2023
-
-Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Быть твоей болью
-2. Истекло навсегда
-3. Супер-герой
-4. Зови когда ты ослабеешь (Гитарная версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607633   (1043965) от 27.01.2023
 
 The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
@@ -745,6 +716,35 @@ Green Day - Nimrod (1997) 25th Anniversary Edition, 2023, Reprise Records [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ABA435A2B3A7AE10B6326A38F43BE4DBFDFAF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608252   (1043737) от 29.01.2023
+
+Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. Highway Star
+03. Strange Kind Of Woman
+04. Maybe I'm A Leo(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E338960D9A54B41CD598E3DB8616934B6408E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

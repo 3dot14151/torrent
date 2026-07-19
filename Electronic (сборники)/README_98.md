@@ -1,3 +1,235 @@
+###  Публикация: 1031611   (651792) от 04.07.2016
+
+VA - Uplifting Trance Free Producer (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Adara -  Brace For Impact (Original Mix) 4:55
+02. Andrew Rayel -  Rise Of The Era (Extended Mix) 5:26
+03. Gareth Emery Ft Janet Devlin -  Lost (Ferry Corsten Remix) 5:31
+04. Alexander Spark -  Influence (Extended Mix) 5:47(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8291E44A6D06E55CDBAE7ADF3C8E756EDEA7762E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904951   (651740) от 05.06.2015
+
+VA - Acoustic Chill Playlist 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Sex on Fire
+02. Max Tanner - Budapest
+03. Zara James - Everybody's Got to Learn Sometime
+04. Jessie Reeves - Somebody That I Used to Know(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1BEE1F20007AABB79CDCD22D9D4BDBA59538B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031579   (651668) от 04.07.2016
+
+Альберт Артемьев - Око Сахары (2016) [MP3|320 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Око Сахары
+2. Надвигающаяся буря
+3. Чёрные скалы
+4. Жара(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C75E5C861B216A9507086B227FEE8A40488B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905371   (651457) от 05.06.2015
+
+VA - Extra Trance (episode 2) (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ramin Djawadi - Game of Thrones Theme (Armin van Buuren Remix) (06:50)
+002. Vertruda - Night Zone (Original mix) (04:28)
+003. Van Yorge & Matt'de Loure feat. Angel Falls - Azul (Original Mix) (05:36)
+004. Andy Moor, Somna, Amy Kirkpatrick - One Thing About You  (Chris Metcalfe Remix) (07:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B1997D7BC4760ABF477D6D7EFB1A04BCDAA6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291995   (650693) от 27.03.2019
+
+VA - Options Remake Of Tracks March -C- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judah - In And Out Of My Life
+02. Mir Omar - Beyond
+03. Kaspar Tasane - Sweet Promises (Original Mix)
+04. Shemsu & Sione (Sp) - White Line (Original Mix)(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FDDF87AE471D52E51F174C5D0311D04C674B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291879   (650691) от 27.03.2019
+
+VA - Caramel Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexander Miguel - Contaol (Paul Angelo & Don Argento Remix)
+002. Anatomica - Cold Hard & Sweet
+003. Antrim - Harmony Of The Seas
+004. Beyond Physical & Veytik - Dark Angel (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CF22A5A4DFE237B2B28D7DE8AB8C402A0F0487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540855   (650684) от 31.03.2022
+
+VA - Electric Synthicate Volume 1-4 (2020-2022) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Solstice - The March (4:16)
+02. Advection Stride - The Hawk (3:13)
+03. NightmareOwl - Changes (5:43)
+04. D'Abyss - All My Demons (5:53)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDFB3C3DE89C5F05A59529945E542EC205F9A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540843   (650670) от 31.03.2022
+
+Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro Pop, French House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reborn (feat. Romuald) (3:42)
+02. Zenith (feat. Prudence & Morgan Phalen) (4:42)
+03. Renegade (feat. Cautious Clay) (3:19)
+04. Cameo (feat. Kareen Lomax) (4:21)(   Читать дальше...   )Жанр: Synthwave, Electro Pop, French HouseПродолжительность: 02:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59645AC2FDA1EC3951BF8340FE28C37DEB8B280A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291898   (650616) от 27.03.2019
 
 VA - Guardians Of The Sea (2019) [MP3|320 Kbps] <Drum And Bass>
@@ -516,241 +748,6 @@ VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032153   (647901) от 06.07.2016
-
-VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting Clouds - Footprints (Beach Mix)
-02. Lady Tut - Nothing Is for Certain - Ibiza Mix
-03. Heni Lasut - Miracle
-04. Lamar Ensemble - Tonal Colors(   Читать дальше...   )Жанр: LoungeПродолжительность: 11:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16230835669CD62F1FE2624410FC7F0AEC7C19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032195   (647900) от 06.07.2016
-
-VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647900.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amirali - Chromatic Dreams
-002. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix)
-003. Sante - Awake Feat. J.U.D.G.E (Agoria Remix)
-004. Danky & Brain - Chasing Cars (R.I.C.K. Remix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 09:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032194   (647776) от 06.07.2016
-
-VA - Trance Is Love - Trance Is  Life (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647776.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ayla -  Ayla (Omar Sherif 2016 Remix) 6:49
-002. John Sander -  Filling Hearts (Original Mix) 7:09
-003. Ben Gold Feat. Christina Novelli -  All Or Nothing (Allen Watts Extended Remix) 5:31
-004. Masters & Nickson Feat. Justine Suissa -  Out There (Robert Nickson 2016 Extended Remix) 7:30(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 09:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE113EE718A61BD6B5207D608A8575D0E1346976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032057   (647774) от 06.07.2016
-
-VA - Options Remake 150 Tracks - JUNE (2016) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta Feat. Zara Larsson -  This One's For You (Stefan Dabruck Remix) 5:03
-002. Nicky Romero -  The Moment (Novell) (Extended Mix) 5:37
-003. Hardwell & Thomas Newson -  8Fifty (Extended Mix) 3:49
-004. Martin Garrix -  Oops 3:53(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 14:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03AE7B232479B691EBBC615B53FA864A55CBC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905925   (647545) от 07.06.2015
-
-Альберт Артемьев - Planet-X (2015) [MP3|320 кб/с]<New Age, Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Планета-X
-02 - В поясе Койпера
-03 - Свет у горизонта
-04 - Облако Оорта(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE581E59081DDACCF51C79F6A3677A0E7B63E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906037   (647544) от 07.06.2015
-
-VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas - Lose My Logic (Thomas Heredia Edit) (04:03)
-02. Tom Colontonio featuring Amber Noel - See the Light (07:02)
-03. Roman Messer & Sarah Shields - A Light Inside (ReOrder Remix) (06:22)
-04. Nico Otten ft. Crystal Blakk - Breathe (Six Senses pres. Factor Six Remix) (08:30)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905920   (647542) от 07.06.2015
-
-VA - Beatport Top 100 June (2015) [MP3|320 кб/с]<House, Tech House, Deep House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enzo Siffredi - Sometimes
-02. Kollektiv Turmstrasse - Sorry I Am Late
-03. Sonny Fodera, Cervendos, Lauren Faith - High
-04. Yolanda Be Cool, DCUP - Soul Makossa (Money) (Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electro House, Progressive HouseПродолжительность: 09:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B5818BAD159BDE698068DEDC129B43A2D2C6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032189   (647282) от 06.07.2016
-
-VA - Hits of My Soul Vol. 04 (2016) [MP3|320 кб/с]<Dance, DubStep, Electronic>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник красивой и качественной электронной музыки, разных жанров.
-Его должен услышать каждый кто хочет насладится красотой, нежностью, и атмосферностью.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественною музыку.01. Bob Sinclar - Cinderella (She Said Her Name) (Edit Club Mix) (05:59)
-02. Sub Focus & Takura - Coming Closer (03:36)
-03. Galantis - Scruffy-Looking Nerfherder (04:19)
-04. The Flashbulb - Burning The Black And White (03:00)(   Читать дальше...   )Жанр: Dance, DubStep, Electronic, House, Pop, Soundtrack, Trance, TrapПродолжительность: 03:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C675BF18BBE5691019EDE9EACCA476620C1DA302
 ```
 
 https://mybot314.ru/tekegram_catalog/

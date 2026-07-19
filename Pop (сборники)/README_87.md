@@ -1,102 +1,3 @@
-###  Публикация: 1248989   (437507) от 22.09.2018
-
-VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437507.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
-002. Dynoro & Gigi D'Agostino - In My Mind
-003. Loredana & Mozzik - BONNIE & CLYDE
-004. Bonez MC & RAF Camora - 500 PS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553281   (436970) от 01.10.2012
-
-VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5 - One More Night
-02. Taylor Swift - We Are Never Ever Getting Back Together
-03. Fun. - Some Nights
-04. Flo Rida - Whistle
-05. P!nk - Blow Me (One Last Kiss)
-06. Justin Bieber - As Long As You Love Me feat Big Sean
-07. Ellie Goulding - Lights
-08. Alex Clare - Too Close
-09. Owl City & Carly Rae Jepsen - Good Time
-10. Neon Trees - Everybody Talks(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554446   (436822) от 01.10.2012
-
-VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. СтаЯ - Душа
-002. Алина Артц - Со мной по-другому нельзя
-003. Инфинити - А он такой
-004. Макс Лоренс - За твои глаза
-005. Она - Самая счастливая
-006. Николай Басков - Странник
-007. Ирина Кулькова - Храните любовь
-008. Филипп Киркоров - Я отпускаю тебя
-009. Lalo Project - Город Goodbye
-010. Оксана Казакова - Гипнотизирую(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554449   (436810) от 01.10.2012
 
 VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб/с]<Pop. Dance>
@@ -781,6 +682,99 @@ VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945778   (431574) от 11.10.2015
+
+VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431574.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Faby Jackson - Dance On Me (Radio Edit)
+2.OMI - Cheerleader
+3.Zedd Feat. Jon Bellion - Beautiful Now (Zonderling Remix)
+4.Alvaro Corz - My Head (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4961805E96C8AE09B2209854E0C92CF7ED41CE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323789   (431185) от 06.09.2019
+
+Zivert - Crazy (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy
+02. Life
+03. Зелёные Волны
+04. Паруса (Feat. Мот)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38639E070BC8A51E808191F53B14F600B89BA0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555676   (431151) от 03.10.2012
+
+VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Семенович - Любовь Под Облаками
+02. August Rigo - Party Hard
+03. Шахзода - Московская Любовь
+04. Daddy Yankee feat. Arcangel - La Dupleta
+05. Зара - Ради Тебя
+06. Dreamway feat. Alex Dru - Can You Feel (Radio Edit)
+07. Стас Шуринс - Сердце (Версия 2012)
+08. Emir - Veda Gecesi
+09. SoundmaniЯ - Твоя Вселенная
+10. Far East Movement feat. Cover Drive - Turn Up The Love (Supasound Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1867FE7CFE11DFD2F3F696FE07A753A16F61498D
 ```
 
 https://mybot314.ru/tekegram_catalog/

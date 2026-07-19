@@ -1,3 +1,119 @@
+###  Публикация: 1833574   (247788) от 02.11.2025
+
+The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellfire (3:32)
+02. I Give You The Creeps (3:44)
+03. A Ghost From The '80S (3:33)
+04. Hier Sein (2:48)(   Читать дальше...   )Жанр: Horror Punk, Heavy MetalПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35892A27CBC67773163C2B12949CF0C9B369D948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624100   (245432) от 04.04.2023
+
+Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LET'S GO! [00:02:53]
+02. VANDAAG NOG WEL [00:03:05]
+03. FAKE [00:02:41]
+04. NEE! [00:02:40](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425D592ABACF21C70519F27320BD1C5C70D9E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624098   (245425) от 04.04.2023
+
+Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:40]
+02. Grotesk [00:03:55]
+03. Man-Made Tragedy [00:03:08]
+04. H.E.L.L. [00:03:51](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BA26EFB3B75E4C7A978EC3DFBC614E1C9C5BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624064   (245399) от 04.04.2023
+
+The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAGEBOI [00:01:08]
+02. RIGHT NOW [00:03:16]
+03. END OF EVERYTHING [00:04:49]
+04. ALONE IN THE CITY [00:03:30](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F3618496937529CD895CEE58F6AC5A035BD617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624089   (245388) от 04.04.2023
 
 Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
@@ -629,122 +745,6 @@ Ghostblade - Machine Made God (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29B8AB38EB3778C0743E3C41DF8503EE0FE967A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372564   (242175) от 03.04.2020
-
-August Burns Red - Guardians (2020) [FLAC|Lossless|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Narrative (04:10)
-02. Bones (04:16)
-03. Paramount (04:49)
-04. Defender (04:21)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B731C5844D797198FB9DECD15F49BD8D3A98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617200   (242110) от 06.03.2023
-
-PeroPero - Massive Tales of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal, Alternative Metal, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vermin [00:06:17]
-02. Luminosities [00:07:05]
-03. Event Horizon [00:04:31]
-04. The Rip [00:05:13](   Читать дальше...   )Жанр: Avant-Garde Metal, Alternative Metal, Math MetalПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E15F1DB90958D9CF6BEFA276AA79DF428E2971E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617758   (241997) от 08.03.2023
-
-Aiden Malacaria - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metalcore, Theatrical>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shores of Acheron [00:02:46]
-02. Infernal Hurricane [00:03:44]
-03. Eternal Rain [00:05:20]
-04. Fortune and Her Wheel [00:04:08](   Читать дальше...   )Жанр: Symphonic Metalcore, TheatricalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ADFEFCA2C4C1D6B778821FFF82ED980B0DF153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618194   (241774) от 10.03.2023
-
-Otherwise - Gawdzillionaire (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Disclosure (3:16)
-02. Exit Wound (2:58)
-03. New Way to Hate (3:08)
-04. Failure (3:15)(   Читать дальше...   )Жанр: Alt.Metal, Modern Hard Rock, Post-GrungeПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A5B22FD59B6BCA4DEA649EE63474525367FE14
 ```
 
 https://mybot314.ru/tekegram_catalog/

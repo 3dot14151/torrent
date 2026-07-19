@@ -1,3 +1,90 @@
+###  Публикация: 1678236   (146127) от 21.11.2023
+
+Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Punchline (Intro) [1:17]
+02 - Paranoid Nation [1:47]
+03 - Not My War [2:00]
+04 - Dode Democratie [3:13](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F589AA8D85D3A9E1DA68D5EF87162E2ED49D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272246   (146028) от 26.12.2018
+
+Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <Emo, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Torso Has Been Severed in Mid Thorax (4:24)
+ 02. Well You Damn Well Should! (2:34)
+ 03. Right This Way, You Maverick Renegade (5:30)
+ 04. I am Champagne and You are Shit (4:52)(   Читать дальше...   )Жанр: Emo, HardcoreПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8070739BB10677C94C1F82CA16937CC41372DEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272065   (145717) от 26.12.2018
+
+Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Post-Punk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ligeti's Breath / Hilflos Kind (22:17)
+02. Ich Sehe Die Alle In Einer Reihe (04:47)
+03. Surrogate Drones (02:56)
+04. YRP (08:51)(   Читать дальше...   )Жанр: Industrial, Post-Punk, ExperimentalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272432   (144832) от 27.12.2018
 
 Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Rock & Roll>
@@ -656,99 +743,6 @@ Maelfoy - Failures, Fears and Forgiveness (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5448ADC689FAFBDCECA86FCCCAED6FDB763785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682233   (131519) от 07.12.2023
-
-MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bite the Fruit [00:04:29]
-02. New Illuminati [00:03:52]
-03. iwantafacetoface [00:03:48]
-04. In Your Shoes [00:04:07](   Читать дальше...   )Жанр: Rap-Rock, Math Rock, Alt.Metal, MetalcoreПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F8D031003F1AE3052464ED8A6113BF2AE15F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682572   (131183) от 08.12.2023
-
-Tariot - Drag Me To Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death By Seven [00:03:28]
-02. Rain On My Parade [00:03:24]
-03. Alas [00:02:58]
-04. Grave Future [00:03:17](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FB783ACF4836C85FBA103354DF7917522A3319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595499   (130694) от 31.12.2012
-
-Thousand Foot Krutch - The End Is Where We Begin (2012) [FLAC|Lossless]<Alternative Rock / Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Introduction
-02 - We Are
-03 - Light Up The Sky
-04 - The End Is Where We Begin
-05 - Let The Sparks Fly
-06 - I Get Wicked
-07 - Be Somebody
-08 - This Is A Warning (Intro)
-09 - Courtesy Call
-10 - War Of Change(   Читать дальше...   )Жанр: Alternative Rock / RapcoreПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

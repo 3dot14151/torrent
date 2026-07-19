@@ -1,3 +1,29 @@
+###  Публикация: 1354439   (987768) от 22.01.2020
+
+Media Player Classic Home Cinema (MPC-HC) 1.9.1 + portable (unofficial) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B7273E27C2DE4A6891DAA18A48CD808317D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354564   (987758) от 22.01.2020
 
 K-Lite Codec Pack 15.3.5 Mega/Full/Standard/Basic + Update [En]
@@ -668,41 +694,6 @@ Xilisoft ISO Burner обеспечивает высокую скорость п�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611621   (987424) от 01.02.2013
-
-Graeme King - Eternal Forest (1999) [MP3|320 кб/с]<New age, Nature sounds>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987424.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:58) 01. Eternal Forest
-(9:24) 02. Lifebreath
-(7:51) 03. Deepest Green
-(6:11) 04. Emeraldo
-(5:50) 05. Shadow Dance
-(2:36) 06. Tree Spirit
-(8:32) 07. Cathedral Pines
-(2:45) 08. Storm
-(3:58) 09. Earth Heart
-(4:07) 10. SeasonsЖанр: New age, Nature soundsПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F45564A26C401EB1EF77A1F196034892DC4313B
 ```
 
 https://mybot314.ru/tekegram_catalog/

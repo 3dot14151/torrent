@@ -1,119 +1,3 @@
-###  Публикация: 1111801   (846805) от 06.03.2017
-
-Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Strange Blues [07:35]
- 02.Millie's Pad [11:20]
- 03.What's New [06:38]
- 04.Disciples Love Affair [06:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111848   (846804) от 06.03.2017
-
-Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.J.C. [07:12]
- 02.I'm Getting Sentimental Over You [05:06]
- 03.Play Together Again [05:16]
- 04.Waltz For Junior [07:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111809   (846754) от 06.03.2017
-
-Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bockhanal [03:01]
- 02.Ergo [03:12]
- 03.Moonlight Becomes You [03:28]
- 04.Headline [03:12](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111804   (846751) от 06.03.2017
-
-Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Django [06:54]
- 02.Duerme Negrita [05:18]
- 03.Evidence [05:16]
- 04.Gracias a la vida [09:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499658   (846323) от 03.10.2021
 
 Johnny Griffin & Eddie "Lockjaw" Davis - Ow! Live at the Penthouse (1962) 2019, Reel to Real [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -744,6 +628,122 @@ Tuba Skinny - Blue Chime Stomp (2016) [FLAC|Lossless|WEB-DL|tracks] <New Orleans
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D9DEE854A26A92359525312E31D782218E900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112070   (845044) от 07.03.2017
+
+Rick Braun - Around The Horn (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Strong
+02. Pool Dancer
+03. Love Take Me (feat. Lindsey Webster)
+04. We Don't Talk Anymore (feat. Peter White)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF55355CA1BE62AFEB9427EFB223BED04B556D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378711   (844876) от 26.04.2020
+
+Oscar Peterson - Somebody Loves Me 1950 - 1954 (2004) 4CD, Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844876.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oscar's Blues [3:11]
+02. For You [2:06]
+03. Pennies From Heaven [2:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6DDAEEBC1090D56B0618EDD76E75F0D5532C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499951   (844556) от 04.10.2021
+
+Charles Mingus - Mingus At Carnegie Hall (1974) 2CD, 2021, Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844556.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction [3:11]
+02. Peggy's Blue Skylight [11:57]
+03. Celia [22:56](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6982924307C5567FBC7CEB8AF5FFD2531382CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500025   (844532) от 04.10.2021
+
+Dave Grusin - Subways Are for Sleeping & Piano, Strings and Moonlight (1962) 2021, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just Taking My Time [4:29]
+02. Ride Through the Night [4:33]
+03. Now I Have Someone [5:34]
+04. When You Help a Friend Out [4:38](   Читать дальше...   )Жанр: Crossover Jazz, Piano JazzПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FF6D436D50CA9334F29810DC84E1C40AA8BFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

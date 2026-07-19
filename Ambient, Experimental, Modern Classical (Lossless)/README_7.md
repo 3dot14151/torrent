@@ -1,32 +1,3 @@
-###  Публикация: 1206655   (781740) от 15.02.2018
-
-VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telefon Tel Aviv - Something Akin to Lust (6:37)
-02. Deru - The Roar and the Dust (3:45)
-03. Before Tigers - Backwards Rituals (5:55)
-04. Rafael Anton Irisarri - Certainty (5:43)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4C06B0C6E552B303E9757D3C6D080C977E905F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206716   (781705) от 15.02.2018
 
 Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Downtempo>
@@ -745,6 +716,35 @@ Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B74A0B8EBE76476CED9560CBE169132CEB6F438D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281961   (748430) от 10.02.2019
+
+Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Soundscapes, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine I (1:47)
+02. Two Nebulas: Eye (4:12)
+03. Two Nebulas: Eve (8:52)
+04. Think That Really Was, I (7:30)(   Читать дальше...   )Жанр: Dark Ambient, Dark Jazz, Soundscapes, ExperimentalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84A1384651564862CCC43CE6EEC33FEE7A37703
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1766575   (33660) от 19.12.2024
+
+Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33660.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766576   (33654) от 19.12.2024
+
+The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Don't Stop the Party» - песня американской хип-хоп группы Black Eyed Peas. Песня была написана участниками will.i.am, apl.de.ap, Taboo и Fergie, а также Джошуа Альваресом и DJ Ammo и спродюсирована will.i.am и DJ Ammo для шестого студийного альбома группы The Beginning (2010). В клипе, режиссером которого выступил Бен Мор, использованы кадры со сцены и за кулисами (   Читать дальше...   )Жанр: Электрохаус, поп, электроПродолжительность: 00:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938ACCD1DD6E1E391E05E66F0691C846AF5284F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766574   (33650) от 19.12.2024
+
+The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33650.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girl like Me» (с англ. — «Девушка как я») — песня американской группы Black Eyed Peas и колумбийской певицы Шакиры. Клип на песню «Girl Like Me» был снят в сентябре 2020 года и вышел 4 декабря 2020 года.Жанр: Реггетон, Латиноамериканский попПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A09AD7C551675B0928ACAD897FFA9BF0604AA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769215   (32746) от 28.12.2024
+
+The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32746.jpg" />
+</div>
+
+
+###  Подробнее
+
+«I Feel It Coming» (с англ. — «Я чувствую, это приближается») — песня канадского исполнителя The Weeknd, записанная при участии французского электронного дуэта Daft Punk для его третьего студийного альбома Starboy (2016). Премьера клипа на песню состоялась 10 марта 2017 года на Vevo канале The Weeknd.Жанр: диско, filter-диско, попПродолжительность: 00:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769004   (32721) от 28.12.2024
 
 Юрий Сучков - В лесу родилась ёлочка (2024) WEBRip [H.264/720p]
@@ -574,84 +678,6 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814095   (6282) от 23.08.2025
-
-Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE58F2695AA1FFD8E58A835182BD93AE6FC992D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818162   (2184) от 18.09.2025
-
-Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorillaz - The Happy Dictator ft. Sparks (Official Visualiser)Жанр: Indie, Trip-Hop, SynthpopПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A34B29E37AF71F5798CA132A2AAA95AB688D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818291   (2152) от 18.09.2025
-
-Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie, Trip-Hop, SynthpopПродолжительность: 00:02-59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A86DD74AC013C87AD79B5DE47922AAD9D30612
 ```
 
 https://mybot314.ru/tekegram_catalog/

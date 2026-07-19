@@ -1,29 +1,3 @@
-###  Публикация: 1790219   (68132) от 08.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Purple Flowers Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный цветочный клипарт 300 DPI.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD030B0424B762A38F375EE787FDCDFAE065B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790348   (68113) от 08.04.2025
 
 Растровый клипарт - Digital Curio - Creative Fabrica - Emerald and Gold Luxury Floral Patterns [JPG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD3A9FC27E8E997A85682D3F32631EDEE89FBCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791284   (67851) от 13.04.2025
+
+Растровый клипарт - Creative Store - Creative Fabrica - Fall Orange Watercolor Flowers Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние оранжевые акварельные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

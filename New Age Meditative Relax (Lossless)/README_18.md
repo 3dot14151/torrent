@@ -1,3 +1,32 @@
+###  Публикация: 1052532   (527912) от 14.09.2016
+
+Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon [00:06:44]
+02. Lyria [00:04:55]
+03. Moola Mantra [00:08:59]
+04. Desert Traveller [00:06:23](   Читать дальше...   )Жанр: World Fusion, New AgeПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C929554BA44F798B7B1ACC7EE938408DCA7B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156310   (527646) от 07.08.2017
 
 Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -717,35 +746,6 @@ Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938900   (479559) от 19.09.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
 ```
 
 https://mybot314.ru/tekegram_catalog/

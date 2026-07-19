@@ -1,3 +1,29 @@
+###  Публикация: 1760154   (37519) от 12.11.2024
+
+WonderFox HD Video Converter Factory Pro 27.8 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37519.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2184F2256487373A37BD4C7E98FAD60731352045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760156   (37516) от 12.11.2024
 
 IObit Driver Booster Pro 12.1.0.469 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -648,32 +674,6 @@ Capture One - один из лучших профессиональных кон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE165A773BAFE2537D81E41F703A8C4A5C0FEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760468   (37325) от 14.11.2024
-
-Ashampoo WinOptimizer 27.00.05 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows хороша, но всегда есть, что улучшить. Вот тут то и появляется Ashampoo WinOptimizer 27! Потому что операционные системы со временем становятся медленнее, менее стабильными и захламлённее. А важные настройки или пропадают, или скрываются где-то в глубине системы. И ещё это постоянное вторжение в личную жизнь, появившееся в Windows 10 и 11, эвфемистически называемое (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A94EB6D3A388035BEC44D0201195AFD5B25A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

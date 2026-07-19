@@ -1,25 +1,25 @@
-###  Публикация: 1808512   (64952) от 25.07.2025
+###  Публикация: 1786770   (68925) от 22.03.2025
 
-Elton John - Live From The Rainbow Theatre With Ray Cooper (Live From The Rainbow Theatre) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Soft Rock>
+Vandenberg - Heading For A Storm (1983) Reissue, Repress, 1991, ATCO Records [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Greatest Discovery (Live From The Rainbow Theatre) (04:23)
- 02. Border Song (Live From The Rainbow Theatre) (03:20)
- 03. Cage The Songbird (Live From The Rainbow Theatre) (03:25)
- 04. Where To Now St. Peter (Live From The Rainbow Theatre) (04:01)(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft RockПродолжительность: 00:52:51
+Поклонники AOR 80-х могут знать Ванденберга по небольшому хиту "Burning Heart", но более вероятно, что вы знаете о главном человеке (в честь которого группа была названа) Адриане Ванденберге за его пребывание в Whitesnake. Тех из вас, кто понятия не имеет, кто этот человек или группа, ждет угощение; "Heading For A Storm" Ванденберга - это солидный (   Читать дальше...   )1. Friday Night 3:37
+2. Welcome to the Club 3:29
+3. Time Will Tell 3:46
+4. Different Worlds 4:31(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D07C42F203621E0E02F3C9A3A7C53A4B0F6ECBD9
+magnet:?xt=urn:btih:BA54974D7DE3346CCDDC6875754DDEF6E1168964
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809147   (64783) от 28.07.2025
+###  Публикация: 1786698   (68899) от 22.03.2025
 
-Green Lung - Woodland Rites (2019) 2020, Limited Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Hard Rock, Stoner Rock>
+Flor de Loto - Cosmos (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Woodland Rites:
-1-1 Initiation
-1-2 Woodland Rites
-1-3 Let The Devil In(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Stoner RockПродолжительность: 01:12:25
+01. Éxodo [00:01:28]
+02. (R)evolución [00:04:39]
+03. Cosmos (feat. Mike DiMeo) [00:05:57]
+04. Ahorita Voy [00:05:11](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52D8FEBEF013511C3EB8F30C2073933FFF3F28D7
+magnet:?xt=urn:btih:F56581C3E31EB4EC3ACB9235DB135788528BF5A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809062   (64774) от 28.07.2025
+###  Публикация: 1786892   (68882) от 23.03.2025
 
-Robin Trower - Come And Find Me (2025) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
+Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Contemporary R&B>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Little Bit Of Freedom
-02. One Go Round
-03. I Would Lose My Mind
-04. Come & Find Me(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:09
+01. Show Some Respect (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:43)
+02. I Might Have Been Queen (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:46)
+03. What’s Love Got To Do With It (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:59)
+04. I Can’t Stand The Rain (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:27)(   Читать дальше...   )Жанр: Pop Rock, Contemporary R&BПродолжительность: 5CD, 04:53:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81CFA03D2EFFFB47B5EDB35893BAD567C458027C
+magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809121   (64763) от 28.07.2025
+###  Публикация: 1787381   (68802) от 25.03.2025
 
-Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Stoner Rock, Progressive Metal, Heavy Metal>
+ARK - ARK (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morningstar 4:16
-02. Shock Me 4:17
-03. Try To Disappear 4:52
-04. Kerosene 5:10(   Читать дальше...   )Жанр: Stoner Rock, Progressive Metal, Heavy MetalПродолжительность: 00:42:39
+01. Burning Down 05:26
+02. Where The Winds Blow 05:06
+03. The Hunchback Of Notre Dame 08:54
+04. Singers At The World's Dawn 06:57(   Читать дальше...   )Жанр: Prog Rock, Heavy MetalПродолжительность: 00:56:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3942F192A2F3A5803EF37F2B0CBEF70F4AFEF044
+magnet:?xt=urn:btih:6F6F6FD9139CBECC91CFEE8DF35A6B22121D87AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809349   (64731) от 30.07.2025
+###  Публикация: 1787301   (68756) от 26.03.2025
 
-Enuff Z'Nuff - Xtra - Cherries (2025) [FLAC|Lossless|image + .cue] <Pop Rock, Power Pop>
+UFO - Seven Deadly (2012) Deluxe edition, Reissue, 2024, Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Они были необычными и нестандартными, но в хорошем смысле. Они никогда не вписывались в рамки хэви-метал-группы, потому что это не их стиль, хотя они и появились на пике популярности этого хханра. Последняя работа, Extra Cherries, стала двадцатым (в некоторых источниках 21-м) альбомом с момента дебюта в 1989 году, которая просто расширяет репертуар группы. Альбом (   Читать дальше...   )01. Heartbeat (2:49)
-02. No Cold Feeling (3:08)
-03. Sanibel Island (It's Outta Control) (4:09)
-04. Heavy Metal (5:21)(   Читать дальше...   )Жанр: Pop Rock, Power PopПродолжительность: 00:51:10
+01 - Fight Night [4:35]
+02 - Wonderland [5:09]
+03 - Mojo Town [3:57]
+04 - Angel Station [6:24](   Читать дальше...   )Жанр: Hard Rock, Blues Rock, RockПродолжительность: 00:58:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BEFF5322DEA99AC004CBBC12841CC1732828651
+magnet:?xt=urn:btih:0CD94AF3036E81B26C087289AD99EB224E326312
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809801   (64665) от 01.08.2025
+###  Публикация: 1787792   (68696) от 27.03.2025
 
-Paul McCartney - Paul Is Live (1993) SHM-CD, Japanese Edition, Reissue, Remastered, 2025, Capitol Records, Limited Edition [FLAC|Lossless|image + .cue] <Pop Rock>
+Chivo - Ouroboros (2022) [FLAC|Lossless|image + .cue] <Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drive My Car
-02. Let Me Roll It
-03. Looking for Changes
-04. Peace in the Neighbourhood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:17:20
+01. Hard to Say
+02. Altered Carbon
+03. Looking Upside Down
+04. Phony Braggart(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:53:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B539CD3ECC1CC3A06ECD8E2E3C895DEE432E9C8
+magnet:?xt=urn:btih:66197EAA5118F2AA65E863F60759282736EA355A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810095   (64556) от 02.08.2025
+###  Публикация: 1787940   (68641) от 28.03.2025
 
-Paul McCartney - Flaming Pie (1997) Japanese Edition, SHM-CD, Reissue, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Rock>
+Hermano - When The Moon Was High (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Song We Were Singing
-02. The World Tonight
-03. If You Wanna
-04. Somedays(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:46
+01 - Breathe [3:32]
+02 - Never Boulevard [4:12]
+03 - Brother Bjork (Live @ W2) [6:58]
+04 - Senor Moreno's Plan (Live @ Hellfest) [4:07](   Читать дальше...   )Жанр: Stoner Rock, Desert Rock, Hard RockПродолжительность: 00:26:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69F8DE5BE4275276CE4D10E51AFB19E0059C3DBC
+magnet:?xt=urn:btih:6FEC9D2B4CB2BBE0D550F23CE5D1EE8E2BC726C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821659   (63910) от 03.10.2025
+###  Публикация: 1787930   (68631) от 28.03.2025
 
-Arjen Anthony Lucassen - Songs No One Will Hear (2025) 3 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Prog Rock>
+Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-CD1-1 End Of The World Show
-CD1-2 The Clock Ticks Down
-CD1-3 Goddamn Conspiracy(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:40:19
+01 - Feeding the Fire [4:30]
+02 - Birth of the Sun [4:17]
+03 - Prisoner [5:34]
+04 - Whatever Comes [3:06](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:42:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4329E76BE03ACDC279CA7F96E77BB59274296155
+magnet:?xt=urn:btih:30723485B9A92CB442F0FEAA15BB79A83C9EA519
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706009   (63285) от 11.03.2024
+###  Публикация: 1787629   (68628) от 28.03.2025
 
-VA - Thunder - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Black Eyed Sons - Cowboys In Pinstriped Suits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Linkin Park - Friendly Fire (2:57)
-02. Nickelback - How You Remind Me (3:44)
-03. Green Day - When I Come Around (2:58)
-04. Blur - Song 2 (2012 Remaster) (2:01)(   Читать дальше...   )Жанр: RockПродолжительность: 03:56:43
+01. Lie To Me [00:03:48]
+02. Medicine [00:03:57]
+03. Foolin' Yourself [00:03:35]
+04. Autumn Reigns [00:04:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8BAF2F48C64CF2B3AF5F596614B1E13179079D6
+magnet:?xt=urn:btih:716FDD9280CBCA9EFBF05493949FEACEB418BFEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,27 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231150   (62736) от 17.03.2024
+###  Публикация: 1788158   (68590) от 29.03.2025
 
-Procol Harum - 12 Studio Albums, 1 Live, 17 Compilation (1967 - 2019) 97 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Rock, Classic Rock, Art Rock>
+Santana - Sentient (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Blues Rock, Fusion, Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эклектичный стиль Procol Harum - гремучая смесь гитарных риффов, вдохновленных блюзом, и шикарных классических тем - в сценическом варианте производил незабываемое впечатление. Эти британцы запомнились в рок-музыке не только шумихой вокруг дебютного сингла "A Whiter Shade of Pale", но, что гораздо важнее, созданием самого понятия классического рока. Шикарные (   Читать дальше...   )1967 - A Whiter Shade Of Pale (Procol Harum)
-1968 - Shine On Brightly
-1969 - A Salty DogЖанр: Progressive Rock, Classic Rock, Art RockПродолжительность: 89:42:45
+01 - Let The Guitar Play (Radio Version) [4:56]
+02 - Stranger In Moscow (Live) [5:31]
+03 - Whatever Happens [4:57]
+04 - Please Don't Take Your Love (Sentient Version) [5:06](   Читать дальше...   )Жанр: Jazz, Latin, Blues Rock, Fusion, Classic RockПродолжительность: 00:54:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:914B9B2D91385D57F1B314599DF473123A71E7F4
+magnet:?xt=urn:btih:9391CA0802FE0AE511925F1079E70A803F03253B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707817   (62552) от 18.03.2024
+###  Публикация: 1789274   (68345) от 03.04.2025
 
-Phish - The Spectrum '97 (2024) 6 x CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+Kiama - Sign Of IV (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_62552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый бокс-сет из 6 CD от Phish. The Spectrum '97 - это полный аудиобокс-сет из двух концертов, записанный вживую 12/2/97 + 12/3/97 в The Spectrum в Филадельфии, штат Пенсильвания - легендарной спортивной и музыкальной арене, которая принимала Phish девять раз в период с декабря 1995 года по ноябрь 2003 года. Запечатлев группу на этом классическом месте во время (   Читать дальше...   )CD1:
-01. Buried Alive (3:41)
-02. Down With Disease (10:25)
-03. Makisupa Policeman (6:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 05:34:28
+01. Cold Black Heart
+02. Tears
+03. Muzzled
+04. Slime(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39B6F400D0D5113D1304D8FB3A96459398A06894
+magnet:?xt=urn:btih:5ABB0315F6F99DD561F3FCA98527C46BB1D485F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707778   (62545) от 18.03.2024
+###  Публикация: 1789559   (68307) от 04.04.2025
 
-Corey Taylor - Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Alternative Rock, Folk Rock>
+Mudhens - Mudhens (1996) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Wish You Well [3:20]
-02 - Back Down [3:33]
-03 - Hearts [4:51]
-04 - Ashes [4:00](   Читать дальше...   )Жанр: Acoustic Rock, Alternative Rock, Folk RockПродолжительность: 00:41:55
+01. This San Juan    [0:04:25.27]
+02. Edinburgh    [0:04:13.00]
+03. Mercy    [0:04:32.05]
+04. Search For Heroes    [0:04:18.00](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22AE044A47A60A27B04164BE0C6CCEF8CE27FDBF
+magnet:?xt=urn:btih:0D7A72775F3C3482945422B4D8AEA4573A34B9F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708495   (62224) от 21.03.2024
+###  Публикация: 1789533   (68291) от 04.04.2025
 
-VA - 10's Rock Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+U2 - How To Dismantle An Atomic Bomb (2004) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Linkin Park - BURN IT DOWN (3:50)
-02. My Chemical Romance - Na Na Na (Na Na Na Na Na Na Na Na Na) (Single Version) (3:23)
-03. Disturbed - The Sound of Silence (4:08)
-04. Jaden Hossler - ANGELS & DEMONS (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:15
+01. Vertigo    [0:03:14.39]
+02. Miracle Drug    [0:03:59.02]
+03. Sometimes You Can’t Make It on Your Own    [0:05:08.67]
+04. Love and Peace or Else    [0:04:50.45](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:49:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDCEBF925DFFF4EBCD7758A6482ACDE805EE5C6C
+magnet:?xt=urn:btih:010B14E68F19F99CAC04BAE18FFC7AE689F8AF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709528   (61816) от 25.03.2024
+###  Публикация: 1789723   (68275) от 05.04.2025
 
-VA - Rock for Running (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Elton John & Brandi Carlile - Who Believes In Angels? (2025) [FLAC|Lossless|image + .cue] <Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Faith No More - Epic (4:54)
-02. Red Hot Chili Peppers - Give It Away (4:43)
-03. Green Day - Bobby Sox (3:44)
-04. Linkin Park - Friendly Fire (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:44
+В закатные годы своей карьеры Elton John поддерживает следующее поколение новых звезд от Chappell Roan до Wet Leg и сотрудничает с артистами таких разных жанров, как Britney Spears, Gorillaz и Young Thug. Однако Who Believes in Angels? ощущается как подлинная встреча двух родственных душ. Созданный совместно с американской королевой кантри-рока Brandi Carlile, 11-кратной (   Читать дальше...   )01. Elton John & Brandi Carlile - The Rose Of Laura Nyro (6:40)
+02. Elton John & Brandi Carlile - Little Richard's Bible (2:59)
+03. Elton John & Brandi Carlile - Swing For The Fences (3:22)
+04. Elton John & Brandi Carlile - Never Too Late (3:36)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA9B3212639B45C3913F2A4142CBFEB71DA02442
+magnet:?xt=urn:btih:7CAE149A9B453DBDA9E039A9B8413EDCE88F6302
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709526   (61815) от 25.03.2024
+###  Публикация: 1789575   (68266) от 05.04.2025
 
-VA - Epic Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Eric Clapton - From the Cradle (1994) CD, Album, Club Edition, BMG Direct Marketing [FLAC|Lossless|tracks + .cue] <Rock, Blues>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Whitesnake - Here I Go Again (5:08)
-02. Alice Cooper - School’s Out (3:30)
-03. Twisted Sister - I Wanna Rock (3:00)
-04. Red Hot Chili Peppers - Under the Bridge (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:47
+01. Blues Before Sunrise    [0:02:57.45]
+02. Third Degree    [0:05:08.60]
+03. Reconsider Baby    [0:03:20.23]
+04. Hoochie Coochie Man    [0:03:15.60](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:00:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:820FA7ECD781487BF1EC10DC1650EED6029F25E1
+magnet:?xt=urn:btih:959152D637EA2399C880739AB70B5C6BF2DC5AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711329   (61387) от 29.03.2024
+###  Публикация: 1790642   (68017) от 10.04.2025
 
-Famy - We Fam Econo (2014) 1st UK Press [APE|Lossless|image + .cue] <Indie Rock>
+VA - El mes del Rock - Abril 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aux Armes (1:39)
-02. Donkey (3:07)
-03. Barbie Girls (2:48)
-04. Eileen (3:44)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:09
+01.  Andrés Calamaro - Cuando te conocí (3:20)
+02.  Twenty One Pilots - Stressed Out (3:22)
+03.  Fito Páez - Mariposa tecknicolor (3:42)
+04.  La Unión - Lobo hombre en Paris (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 01:48:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F0C4597E483C13BEB8E6FBBFE7D55D258970A27
+magnet:?xt=urn:btih:6C40FBB43B909FC0D8B8128C5FD4A0F844DB06CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023523   (61341) от 30.03.2024
+###  Публикация: 1791212   (67853) от 13.04.2025
 
-Rick Miller  - 10 Albums (2004 - 2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+Cirkus - Cirkadelic (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Progressive Rock, Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Plague
-02. State Of Emergency
-03. Covid Concerto
-04. Fateful Apparitions(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 07:56:40
+01 - Pixellated [3:57]
+02 - My Dream [3:12]
+03 - I Don't Know [4:58]
+04 - Human [3:39](   Читать дальше...   )Жанр: Progressive Rock, Symphonic Progressive Rock, RockПродолжительность: 00:38:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FD4916D5A816EF9F12C3D176E0C53A8DFF1AE58
+magnet:?xt=urn:btih:B94095C70C9BFD1384DE961FF4146BC2620C88EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626318   (60611) от 06.04.2024
+###  Публикация: 1791264   (67831) от 13.04.2025
 
-Rod Stewart - 55 albums, 5 Box-sets, 137 CD (1969-2024) [FLAC|Lossless|image + .cue | tracks  + .cue] <Rock, Pop Rock>
+Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сэр Родерик Дэвид «Род» Стюарт — легендарный британский певец и автор песен является одним из величайших певцов и исполнителей, получивший известность сначала в The Jeff Beck Group, затем в The Faces. Наибольшего успеха Род Стюарт добился на сольном поприще, в основном в Великобритании, где 7 его альбомов поднимались на первое место UK Albums Chart, а из 62 хит-синглов (   Читать дальше...   )--------------------------
-
-01. She Makes Me Happy (3:44)
-02. Can't Stop Me Now (4:27)(   Читать дальше...   )Жанр: Rock, Classic Rock, Rhythm Blues, Pop Rock, Soul, Folk, Soft Rock |Продолжительность: 5d 1:07:28 |
+01. Sleepwalker [00:04:28]
+02. Love Kills [00:03:50]
+03. White Widow [00:04:02]
+04. Black Rose [00:04:40](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2 CD, 01:19:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF1CC03B42643AC81EC4634CC78828E8171B793A
+magnet:?xt=urn:btih:3B4E663CDB25E0A691AE3C1782D4D332169B3986
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714907   (60147) от 10.04.2024
+###  Публикация: 1791297   (67827) от 13.04.2025
 
-Mark Knopfler - One Deep River (Deluxe Edition) (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Folk Rock>
+Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Two Pairs Of Hands
-02. Ahead Of The Game
-03. Smart Money(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:10:48
+1. Don't Let Me Down Again
+2. Can't Get On
+3. I'll Be Home
+4. I Wanna Sail Into Your Life(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Soft RockПродолжительность: 00:34:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DC912329F98A1840FD75D4FDF1EE21B4EF84CFF
+magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715437   (59972) от 12.04.2024
+###  Публикация: 1791269   (67823) от 13.04.2025
 
-Mark Knopfler - One Deep River (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Folk Rock>
+Mark Daly - Devil's Arms (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Two Pairs Of Hands
-02. Ahead Of The Game
-03. Smart Money(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:10:48
+01 - Better Off Alone [3:12]
+02 - Devil’s Arms [3:12]
+03 - You Lie [5:10]
+04 - Peace of Mind (Live from Sonic Ranch) [4:52](   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D90FEF35DEEB57F50D7A80BEBCA55D06E74CC21
+magnet:?xt=urn:btih:CE0CF9A8DA115DEAD68040B48110917A077C944B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493741   (59952) от 12.04.2024
+###  Публикация: 1792215   (67677) от 19.04.2025
 
-The Black Keys - 19 albums, 21 CD (2002-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Alternative Rock, Indie Rock>
+Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Black Keys — американская рок-группа, дуэт из США, штат Огайо, исполняющий блюз-рок & гаражный рок и инди-рок. Группа была сформирована в 2001 году в городе Акрон. На протяжении всего своего существования группа состоит из двух человек: гитариста и вокалиста Дэна Айербаха и барабанщикa/ продюсерa Патрика Керни. The Black Keys собственноручно занимаются обработкой (   Читать дальше...   )--------------------------
-
-01. Keep On Dreamin' (4:27)
-02. Eyez (3:41)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Blues Rock, Garage Rock |Продолжительность: 14:48:06 |
+01. Better Days (Live) [00:05:05]
+02. Nemesis (Live) [00:04:24]
+03. Ghosts of the Ocean (Live) [00:05:00]
+04. True Spirit (Live) [00:05:29](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:688C2963AED351582AD3B7D5138B10AC22A65B1F
+magnet:?xt=urn:btih:794CA643B7964006A4A206DB8097E193ADA08B14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710404   (59929) от 12.04.2024
+###  Публикация: 1792550   (67667) от 19.04.2025
 
-Eagles - To the Limit: The Essential Collection (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Country Rock, Pop-Rock>
+Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Take It Easy (2013 Remaster) [3:32]
-02 - Peaceful Easy Feeling (2013 Remaster) [4:18]
-03 - Witchy Woman (2013 Remaster) [4:11]
-04 - Train Leaves Here This Morning (2013 Remaster) [4:11](   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 03:47:48
+01. Bitch (4:13)
+02. Bad Bad One (4:46)
+03. Shatter (4:00)
+04. Queen Latifah - Lay Down (Candles In The Rain) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:698532743529353E76F16237FF7335565C668FE0
+magnet:?xt=urn:btih:CB47C5D484FE67266D0AFFEBAB187A76F23123FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715951   (59756) от 14.04.2024
+###  Публикация: 1792771   (67635) от 20.04.2025
 
-VA - Rock's Unsung Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67635.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crazy Horse - All Alone Now (Single Version) (2:48)
-02. Lowell George - What Do You Want the Girl to Do (4:49)
-03. Little Village - Fool Who Knows (3:46)
-04. Ronnie Montrose - Town Without Pity (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:04
+01. Cadilac [03:53]
+02. Baby Strange [03:06]
+03. Lady [02:15]
+04. Thunderwing [03:46](   Читать дальше...   )Жанр: RockПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72B13651A29F1E10E16F9A1317FC10F86F1F99D1
+magnet:?xt=urn:btih:6C2B3FC64293E713EEA25F9CA013395AF866A71A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715955   (59737) от 14.04.2024
+###  Публикация: 1792990   (67568) от 22.04.2025
 
-VA - Top 50 - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Digital Life Project (DLP) - Digital Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alice Cooper - Elected (4:05)
-02. L7 - Pretend We're Dead (Radio Edit) (2:58)
-03. Blur - Song 2 (2012 Remaster) (2:01)
-04. Green Day - American Idiot (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:46
+01. Out of the Ashes [00:05:06]
+02. The Invention [00:03:44]
+03. Fight the Good Fight [00:06:40]
+04. Simple Complexity/Overture [00:05:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B341C83413417DD7042461046AC6AAC447A0304C
+magnet:?xt=urn:btih:A41AF7E7779C9D375A0835DC23C30A5830049A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716338   (59612) от 15.04.2024
+###  Публикация: 1793222   (67551) от 23.04.2025
 
-VA - Rock This Wedding (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Brave Hearts Factory - Love Never Dies (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Taking Back Sunday - I Am The Only One Who Knows You (3:09)
-02. Post Malone - Chemical (3:03)
-03. Thursday - Signals Over The Air (4:10)
-04. Jimmy Eat World - The Middle (Acoustic Version) (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:21
+01 - Overture Among The Stars (04:37)
+ 02 - Don't Run Away (04:43)
+ 03 - Dreams Always Die At Dawn (04:57)
+ 04 - Emanuel (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D5DF1A0B11BFB78C0A977FCE369BE26CBC64825
+magnet:?xt=urn:btih:EBDAC069CF576EB2B361098949B0ECD9C3495FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716337   (59607) от 15.04.2024
+###  Публикация: 1793394   (67471) от 25.04.2025
 
-VA - 20's Rock Bangers (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Halestorm - Heavy MeNtal (Fuck Yeah) (3:01)
-02. Green Day - Graffitia (3:18)
-03. Avenged Sevenfold - Game Over (3:46)
-04. A Day To Remember - Miracle (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:21
+01 - Out You (00:03:20)
+02 - Freep (00:05:34)
+03 - All in the Golden Afternoon (00:06:13)
+04 - The Little Crocodile (00:02:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:29:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A42E8338FB5651B3C30D386A39DEA51667A631DE
+magnet:?xt=urn:btih:F29DABA971859BCC03A7E3E94D46E162CC7FB54C
 ```
 
 https://mybot314.ru/tekegram_catalog/

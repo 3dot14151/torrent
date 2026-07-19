@@ -1,3 +1,177 @@
+###  Публикация: 961547   (297105) от 03.12.2015
+
+NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hours - All in the Jungle (04:36)
+02. Too Short - Blow The Whistle (02:43)
+03. Eric B And Rakim - I Ain't No Joke (03:53)
+04. Phoenix - 1901 (03:13)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59726F944B72508C5A2BDD27B91DC86682DCAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961349   (297104) от 03.12.2015
+
+NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Hood - Top Of The World (03:30)
+02. Adam Tensta - My Cool (03:47)
+03. Akala - The Edge (03:15)
+04. Chali 2na - International (feat. Beenie Man) (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A58741C90BEB16FC1653D7A180FD6A025C0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961545   (297100) от 03.12.2015
+
+NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boi - Shutterbugg (Feat. Cutty) (03:35)
+02. Drake - Over (03:53)
+03. Ron Artest - Champions (04:13)
+04. KIDZ IN SPACE - 'Downtime' (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F840F2A98F1A0BC227BF4E64C5C7D727E37BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333846   (296914) от 28.10.2019
+
+Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Closer (4:02)
+02. Flow of Life (9:09)
+03. Love Song (6:07)
+04. You and Me Forever (5:50)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16A0134B501CBBD7428E769096345AA4AEAEC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262236   (296865) от 14.11.2018
+
+Dark Life Note - Feelings (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Anxiety and Confusion
+02 Can't Hide
+03 Floating Clouds
+04 No Words(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47C0C063DD04A4D751A9921EF82F25E2BEE9439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262172   (296854) от 14.11.2018
+
+Ray Conniff - Ray Conniff All Time Christmas Favourites (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Christmas Music>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Frosty the Snowman
+02 – Christmas Bride
+03 – Here Come Santa Claus
+04 – Jingle Bells(   Читать дальше...   )Жанр: Instrumental, Easy Listening, Christmas MusicПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD379B543FB418DCF4D2A45B121AD43E27F8343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333848   (296822) от 28.10.2019
 
 Tron Syversen - Peaceful Journey (2011) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
@@ -571,177 +745,6 @@ VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962523   (293504) от 05.12.2015
-
-VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jekha - Light of Fire
-02. Albena - Alnasi
-03. Sangmo - Chort
-04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185483   (293491) от 21.11.2017
-
-Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Doorway to Bliss
-2. Open The Heart
-3. Alive and at One
-4. Connecting with The Divine(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED62064E7070DDD72DEA03998459292FBD6037E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266070   (293390) от 11.12.2010
-
-Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:29:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262618   (293331) от 16.11.2018
-
-Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи ребенком, канадец Джейсон Бек (Jason Beck), более известный как Чилли Гонзалес (Chilly Gonzales), мечтал стать музыкальным Доктором Зло: литавры и духовые достаются супергероям, так почему бы не попрактиковать супертеррор на обычном, негеройском, инструменте? Первым было фортепьяно, затем гитара, барабаны, саксофон, скрипка… диджейский пульт, микрофоны, лэптоп. (   Читать дальше...   )01. Gogol (2:03)
-02. Manifesto (3:08)
-03. Overnight (3:23)
-04. Bermuda Triangle (1:34)(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262668   (293330) от 16.11.2018
-
-Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293330.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Solo Piano II» (продолжение не менее великолепной пластинки «Solo Piano») есть, пожалуй, лучшая манифестация гонзалесовского, извините, гения. Собственно говоря, это фортепианная музыка. Очень негромкая. Очень точно записанная — так, что слышно, как пальцы прикасаются к клавишам и как человек тихо вздыхает в паузах. Очень тонко придуманная — так что романтические (   Читать дальше...   )01. White Keys
-02. Kenaston
-03. Minor Fantasy
-04. Escher(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262763   (293326) от 16.11.2018
-
-Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Call On Him
-02. Easy Come, Easy Go
-03. Any Old Time
-04. Anyone Can Play (Rock Version)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

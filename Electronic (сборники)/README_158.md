@@ -1,3 +1,244 @@
+###  Публикация: 949550   (377426) от 23.10.2015
+
+VA - Negligee Lounge - 30 Erotic Lounge & Chillout Tunes (2013) [MP3|320 кб/с]<Electronic, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Ocean Scene - Aaron Bingle, Venomspace
+02. What You Want - Michiko
+03. September - Lemongrass
+04. Mama (feat. Anita) - Riccicomoto(   Читать дальше...   )Жанр: Electronic, Lounge, ChilloutПродолжительность: 02:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED410EAA14DC97D529924A9C7C07AB59B128579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949556   (377424) от 23.10.2015
+
+VA - Negligee Lounge Vol 2 (30 Erotic Lounge & Chillout Tunes) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Jazz Room 13 (Mazelo Nostra Mix) [04:30]
+02. Dave Ross - Oran Express [04:56]
+03. Van - Sentimentos Do Rio De Janeiro [05:24]
+04. Stepo Del Sol - Spanish Jazz [03:39](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F970C322FBDF45B245AF51B88E4786031E4BBA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415380   (376983) от 12.10.2020
+
+VA - Beatport Goa Trance: Electro Sound Pack #184-1 (2020) [MP3|320 Kbps] <Goa, Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Owntrip - We Are Going For You
+002. Ph4se - Afrolicious
+003. Nozpera - T.F.G (Original Mix)
+004. Singularity - Virtual Reality(   Читать дальше...   )Жанр: Goa, Psy TranceПродолжительность: 12:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E86F2034F3DB7BC21222E079354D5F73E3FA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175671   (376770) от 19.10.2017
+
+VA - The Best Of Trance 61 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Robert Miles - Fable (Lepi Remix)  6:37
+02.  Alex Leavon - Ogma (Extended Mix)  6:11
+03.  Rene Ablaze - Go Get It (Original Mix)  7:03
+04.  Simon McCann - Cohesion (Uplifting Mix)  6:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417DDA57D8EF8437BE88C43933DC3F5EB32CDE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574267   (376674) от 12.11.2012
+
+VA - Sense of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376674.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sense of Vocal Trance Volume 10 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:58:52Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
+002. Mike Koglin feat. LCK - Varana (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67403E65B30D060AFB15E35F1CF96557EFE71A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574403   (376665) от 12.11.2012
+
+VA - Soul of Ibiza Volume 46 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376665.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pillow & Oen Bearen - Until Hell Freezes Over (Original Mix)
+002. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+003. Rafael Frost - Channel 4 (Original Mix)
+004. Ralphie B - Icarus
+005. Rave Channel - Illusion (Original Mix)
+006. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix)
+007. Ruben De Ronde & Aelyn - She's Already Gone (ProgressiveR Remix)
+008. Santerna feat. Vadim Kapustin - I Believe In Life (Solis & Sean Truby Remix)
+009. Sergey Nevone & Simon O'Shine - Balearic Island (Original Mix)
+010. Simone Anes feat. Abigail Bailey - Love Is A Battlefield (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EADA4311FBC0E37C0FFCA2D4A036E697FEB49B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175601   (376636) от 19.10.2017
+
+VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & JES – If Not Now (Album Mix)
+02. Somna – Believer (Extended Mix)
+03. Sunlounger & Eden Iris – Dancing With a Ghost (Club Mix)
+04. Carl Daylim feat. Rita Raga – Not Here To Stay (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175856   (376621) от 19.10.2017
+
+VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chasing Kurt - Sumatra Rain (Club Mix)
+002. Batteriebetrieb - Vibrations (Hellmekanism Remix)
+003. Atix - Pendola (Original mix)
+004. Fractal Vibe - C Song (Fly Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573534   (376554) от 12.11.2012
 
 VA - Club Dubstep - №18 (2012) [MP3|320 кб/с]<Dubstep>
@@ -525,241 +766,6 @@ VA - Playlist Hits Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35101F796F5DEE07FCE93E58C6307A5D90C6B266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068526   (374151) от 04.11.2016
-
-VA - Chillin on a Winters Eve (2016) [MP3|192-320Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freud - Eternal
-02. 100 Debija - Noslepums
-03. Charlae Olaker - Ebben (From "La Wally")
-04. The Gregorians - Until the Rising Sun(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A8DC8B0388FE1EC97869AA5D1347795B90D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069147   (373980) от 04.11.2016
-
-Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [MP3|320 Kbps] <EuroHouse, Eurodance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yerba Del Diablo  4:42
-02. Nu Style  4:31
-03. Eternity  4:18
-04. Fade To Grey  4:42(   Читать дальше...   )Жанр: EuroHouse, Eurodance, TechnoПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C972A4B5E90F88BE553DBC8D834EE6AC3A12C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069537   (373978) от 04.11.2016
-
-VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, Electro, Dancehall, Trap, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & The Federal Empire - Hold On & Believe (Clean) (Radio Edit) 03:54
-02. Flyboy Ft Gavrielle & Jake Newton - Maze (Clean) (Short Edit) 02:46
-03. Party Favor Ft Georgia Ku - In My Head (Clean) (Radio Edit) 03:30
-04. Luca Debonaire - Klubb Killer (Clean) (Short Edit) 02:56(   Читать дальше...   )Жанр: Indie Dance, Bigroom, Electro, Dancehall, Trap, HouseПродолжительность: 08:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD88B1A2A2FFDEDA8C4B6D82E0CA1889A7D462C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069281   (373956) от 04.11.2016
-
-VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren Ft. BullySongs - Freefall (Manse Remix)  2:33
-002. Gareth Emery Ft. Wayward Daughter - Reckless  3:22
-003. Chicane - Offshore (Grum Remix)  3:39
-004. Super8 & Tab - Mega  3:04(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069378   (373870) от 04.11.2016
-
-VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florzinho - A La Luna - Euphonic Traveller Remix
-02. Euphonic Traveller - Pont Notre Dame
-03. Alex Naevecke - Summerlove
-04. Svendaq - Cosmic Sweeper(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C832F9DD438A27EB9D531C4C7A798937A4B8DD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574801   (373455) от 13.11.2012
-
-VA - Trance. Vocal Fascination 36 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373455.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance. Vocal Fascination 36 (2012)
-Год: 2012
-Жанр: Uplifting Trance, Vocal Trance
-Продолжительность: 03:05:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Evgeny Bardyuzha - USSR-2061 (Club Mix)
-002. Faruk Sabanci - Oriental Sentiment (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7D271055F56DE8A8CFE1DB27636992BD2DCCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950231   (373103) от 25.10.2015
-
-VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Horner - Mellow Daze (02:10)
-02. The Big Sound - Lounge Lizard (02:02)
-03. Ginger Tunes - Round Midnight (05:19)
-04. Jive Ass Sleepers - Big Bad Boss Man (04:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950142   (373061) от 25.10.2015
-
-VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Samuel Kimkт - La Zumbera (Video Mix) (03:08)
-02. Flip Capella - Moments in Love (03:23)
-03. Funky Chicos - Funky Town (03:45)
-04. NDS, Tom-E - 2GETHER 4EVER (Radio Mix) (03:52)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B49AADF5F4E071A978092633B0A8D42B3FEDDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1305301   (557045) от 30.05.2019
+
+VA - Sermon On The Rocks (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fire Tiger - Love The Way
+002. Arkells - Hand Me Downs
+003. Ashland - No Trouble
+004. Dean Wareham - Mountains Of The Moon(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36947490BD39200287CD815B8AC0811C6A19BB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153777   (556940) от 28.07.2017
+
+VA - Elegant Rock And Roll (2017) [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chuck Berry - Johnny B. Goode  2:38
+02.  Jackie Brenston & His Delta Cats - Rocket 88  2:46
+03.  Bo Diddley - Who Do You Love  2:30
+04.  Sugar Boy & His Cane Cutters - Jock-A-Mo  2:27(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B895B307FA56DE9ECF77FB468BC15E9E2788E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305277   (556903) от 30.05.2019
+
+VA - Силовая Тренировка (2019) [MP3|320 Kbps] <Hard Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.10 Years - Shoot It Out (3:19)
+02.Adelitas Way - Cage The Beast (3:16)
+03.Adept - Shark! Shark! Shark! (4:18)
+04.Amaranthe - Invincible (3:11)(   Читать дальше...   )Жанр: Hard Rock, Metal, OtherПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC9224A5227BF74F5400049A2D8D772C5979EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045830   (556719) от 25.08.2016
 
 Avantasia - All the Best (2015) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -658,93 +745,6 @@ VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1885AB7B836B7652137DB0BF2DADB37A62C9CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051402   (532575) от 11.09.2016
-
-VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Bowie - Diamond Dogs
-002. Iron Savior - Rebellious
-003. Katatonia - Passer
-004. Lacuna Coil - Live to Tell(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155957   (529465) от 05.08.2017
-
-Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All On Your Own  5:10
-02.  Angel Of Dawn  3:56
-03.  Break Free  5:03
-04.  Falling  4:50(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9DBE2EF6EAE35BF86E8EA1FA3534B0B11A3B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312804   (528280) от 07.07.2019
-
-VA - Recursion Abyss: Metal Meeting (2019) [MP3|320 Kbps] <Metall, Power, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528280.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mindforce - Nightmare
-002. Necrovist - The Journeys Between
-003. Fate After Midnight - Price You Pay
-004. Jon Of The Shred - Reflections Of The Past(   Читать дальше...   )Жанр: Metall, Power, BlackПродолжительность: 10:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507A58E0BE66008C64743B4B84C6DFC8ED5F2AD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

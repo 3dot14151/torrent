@@ -1,30 +1,3 @@
-###  Публикация: 1542187   (243620) от 06.04.2022
-
-Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
-2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542330   (243610) от 06.04.2022
 
 VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Folk>
@@ -76,34 +49,6 @@ A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633384   (243402) от 15.05.2023
-
-Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
-2015 - No Sign Of Glory
-2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,35 +604,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569375   (242025) от 12.08.2022
-
-System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242025.jpg" />
-</div>
-
-
-###  Подробнее
-
-System of a Down (SOAD) — армяно-американская альтернатив-метал-группа, образованная в 1992 году в Лос-Анджелесе Сержем Танкяном и Дароном Малакяном под названием Soil, а в 1995 принявшая нынешнее название.1998 - System of a Down
-2001 - Toxicity
-2002 - Steal This Album!
-2005 - MezmerizeЖанр: Nu Metal, Heavy MetalПродолжительность: 03:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628389   (241973) от 23.04.2023
 
 Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
@@ -739,6 +655,93 @@ A2 Африка(   Читать дальше...   )Жанр: Pop RockПродо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628810   (241807) от 24.04.2023
+
+Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241807.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Do I
+A2 Shouldn't Do That
+A3 Your Appetite
+A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624583   (241806) от 07.04.2023
+
+Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241806.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		On The Beach - На берегу	5:04
+A2		Little Blonde Plaits - Маленькие светлые косички	4:17
+A3		Giverny	5:39
+A4		Lucky Day - Удачный день	3:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B71C09DB794D48807AFC21DFE38A10A7567B362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625380   (241702) от 10.04.2023
+
+Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side-A
+
+01. Rocket
+02. Believer(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

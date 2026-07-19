@@ -1,38 +1,3 @@
-###  Публикация: 527289   (576623) от 26.07.2012
-
-Level 42 - 11 альбомов (1981-2006) [MP3|320 kbps] <Pop-Rock, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576623.jpg" />
-</div>
-
-
-###  Подробнее
-
-О группе:Жанр: Pop-Rock, FunkПродолжительность: 00:50:44
-
-01. Dive Into The Sun (04:01)
-02. Rooted (05:31)
-03. The Way Back Home (06:53)
-04. Just For You (04:52)
-05. Sleep Talking (05:00)
-06. Retroglide (04:49)
-07. All Around (04:57)
-08. Clouds (04:30)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34E1856FA3727E42CEFACE093D61479DC06B2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233838   (576217) от 02.07.2018
 
 Piper - Can't Wait (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Power Pop, Hard Rock>
@@ -756,6 +721,35 @@ Sting - My Songs (2019) Deluxe Edition [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EB86639F9FC6BA0AE46AC2C750CB91FDCE3DE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922797   (566596) от 30.07.2015
+
+Phoenix - Journey From Night to Day (1979) [MP3|320 кб/с]<Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566596.jpg" />
+</div>
+
+
+###  Подробнее
+
+У меня сложилось впечатление, что в мире существ(ует)овало столько групп с таким названием, сколько стран на планете. Эта из Германии, просуществовала с 1977-го по 1983-й, на свои средства ("самопрессом") выпустила единственную пластинку. На ней им удалось совместить, редко совместимые, краут и мелодичный поп-рок.1. Losing Man
+2. Journey From Night to Day
+3. Phoenix
+4. To Be Free(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F93C5D2415B2336C47E46C83B86ACF88A4BA943
 ```
 
 https://mybot314.ru/tekegram_catalog/

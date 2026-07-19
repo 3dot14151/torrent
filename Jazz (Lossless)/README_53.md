@@ -1,119 +1,3 @@
-###  Публикация: 1109883   (857459) от 28.02.2017
-
-Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Music
-2. In Your Own Sweet Way
-3. A Salute To The Count (The Basie Band Is Back In Town)
-4. Chorale(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109847   (857439) от 28.02.2017
-
-Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Twelfth Street Rag
-2. Between the Devil and the Deep Blue Sea
-3. Easy Does It(   Читать дальше...   )Жанр: JazzПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF035420934D008413B810112CDB6D378AE5545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376805   (857014) от 19.04.2020
-
-Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The A Train [2:57]
-02. Perdido [1:59]
-03. Frankie And Johnnie [3:10]
-04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376907   (857013) от 19.04.2020
-
-Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Send Me [6:09]
-02. I Just Called to Say I Love You [4:24]
-03. You Make Me Feel Brand New [5:57]
-04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189276   (856139) от 22.03.2014
 
 Сhicago - Night & Day (Big Band) (1995) [FLAC|Lossless]<Jazz, Big Band>
@@ -746,6 +630,122 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A5671286FBA914FBF5B76F99F0BBC6158035C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377586   (851950) от 22.04.2020
+
+Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'posin' [5:31]
+02. Hallelujah! [5:58]
+03. Portrait In Black And White [5:08]
+04. Hey There [6:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE82470397FFCA09C770774CE12692D53D0E694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377630   (851941) от 22.04.2020
+
+Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The James Bond Theme [0:25]
+02. Surrender [5:23]
+03. On Her Majesty's Secret Service [5:13]
+04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377517   (851898) от 22.04.2020
+
+Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [6:21]
+02. Desafinado [5:39]
+03. Dindi [5:04]
+04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001954   (850568) от 30.03.2016
+
+Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zaire [06:17]
+ 02.The Sepia Love Song [08:38]
+ 03.Una Muy Bonita [05:13]
+ 04.Donna Lee [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B560DBA7487A47827C820BAE31A97E9AAC6D9E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

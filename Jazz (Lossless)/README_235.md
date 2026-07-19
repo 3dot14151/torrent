@@ -1,119 +1,3 @@
-###  Публикация: 1190101   (268926) от 08.12.2017
-
-Bobby Timmons - Six Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268926.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cliff's Edge [06:32]
-02. Tenderly [07:05]
-03. Princess [06:18](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 03:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338887   (268242) от 17.11.2019
-
-Carmell Jones - Jay Hawk Talk 1965 (2014) Universal [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Hawk Talk [5:52]
-02. Willow Weep For Me [4:58]
-03. What Is This Thing Called Love? [8:58]
-04. Just In Time [5:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC75026AC0099F920340623C8A3DFDEF53CFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338884   (268228) от 17.11.2019
-
-Count Basie And Lester Young - Classic 1936-1947 Studio Sessions (2016) 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268228.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shoe Shine Boy [3:01]
-02. Evenin' [2:58]
-03. Boogie Woogie [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 09:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908E743D935D57063FC1E3A6AEC64ABA672FEDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190346   (268112) от 09.12.2017
-
-Nick Brignola - What It Takes (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Eyes [06:33]
-02. Asia [08:17]
-03. Au Privane [07:01]
-04. In A Sentimental Mood [09:53](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5C3CD97F5DC0150895B1DF3ABC3A4B63D47497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190348   (268110) от 09.12.2017
 
 Nick Brignola - All Business (1999) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -745,6 +629,122 @@ Clifton Anderson - Decade (2008) Doxy Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D28B3796EF159CF6E750E8BEEDEFFDB8BCEEA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267788   (265139) от 08.12.2018
+
+Ahmad Jamal - At The Pershing: But Not for Me (1958) 1997, MCA Records [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Not For Me [3:32]
+02. Surrey With The Fringe On Top [2:35]
+03. Moonlight In Vermont [3:10]
+04. (Put Another Nickel in) Music Music Music [2:57](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B8998A0BAEDDB6F5012C8DF255B3AC9ABD771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267792   (265138) от 08.12.2018
+
+Kazumi Watanabe - Mobo (1983) 2CD, 1996, Polydor [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265138.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shang-Hi (Mobo No.1) [6:21]
+02. Yatokesa (Mobo No.3) [15:34]
+03. Alicia [5:44](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE118D6D58999FB712917F8B4157103DB5C5B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267672   (265136) от 08.12.2018
+
+Jimmy Smith - Dot Com Blues (2000) Verve [FLAC|Lossless|image + .cue] <Organ Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only In It For The Money [4:35]
+02. 8 Counts For Rita [3:40]
+03. Strut [5:04]
+04. C.C. Rider [7:09](   Читать дальше...   )Жанр: Organ Jazz, Soul JazzПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF388C5DE7CB2FCA11844DCE1B29434EBAE2C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267674   (265132) от 08.12.2018
+
+Josh Roseman Unit - Cherry (2000) Enja Records [FLAC|Lossless|tracks + .cue] <Big Band, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be Cruel [2:33]
+02. If I Fell [5:10]
+03. Kashmir [6:09]
+04. Land of Make Believe [5:19](   Читать дальше...   )Жанр: Big Band, Jazz FusionПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAAA593D8F4A1ADFEEB62F5648DB803321843E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

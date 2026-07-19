@@ -1,3 +1,90 @@
+###  Публикация: 1640763   (211009) от 19.06.2023
+
+MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Black (Originally Performed by AC/DC) [00:29]
+02. For Those About To Rock (Originally Performed by AC/DC) [00:29]
+03. Heatseeker (Tribute in the Style of AC/DC) [00:29]
+04. Hell's Bells (Originally Performed by AC/DC) [00:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642023   (210578) от 25.06.2023
+
+VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Ellison - Loaded Gun Tonight
+02. Scott Ellison - Shakin With the Blues
+03. Paul Mark and the Van Dorens - Don't Get Me Started
+04. Scott Ellison - These Blues Got a Hold on Me(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641020   (210564) от 25.06.2023
+
+MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Pressure (Tribute in the Style of Queen) [00:29]
+02. Crazy Little Thing Called Love (Tribute in the Style of Queen) [00:29]
+03. We Will Rock You (Tribute in the Style of Queen) [00:29]
+04. Somebody to Love (Tribute in the Style of Queen) [00:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C0E05E5C197550E5FB5E74708921E8DBD6D787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641841   (210443) от 26.06.2023
 
 VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -655,93 +742,6 @@ VA - Rock & Blues part 20 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A4682D995F67BAF9262ED4EB177B07FA7890D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634266   (198204) от 21.05.2023
-
-VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandra Hall - Jump Into My Fire
-02. Tas Cru - Can't Get Over Blues (Again)
-03. Floyd Lee - When You Break A Young Girls' Heart
-04. Tas Cru - Brand New Shoes(   Читать дальше...   )Жанр: Rock BalladsПродолжительность: 01:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AFE0AE5F8466EC8530E398B8D930BC22C7125B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634248   (198192) от 21.05.2023
-
-Helloween - Collection (2023) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helloween люблю с юности. Почти все альбомы сильные. Крутой вокал. До появления интернета, я понятия не имел, что начиная с 94 года, музыканты сменили вокалиста. Настолько голоса похожи, что если не знаешь, то и не поймёшь, что это другой поёт. К концу 90х, группа не поддалась на веяние ядовитой моды и не ушла в сторону скучной, примитивной альтернативы. Команда (   Читать дальше...   )001. Initiation
-002. I'm Alive
-003. A Little Time
-004. Twilight Of The Gods(   Читать дальше...   )Жанр: MetalПродолжительность: 14:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6050E387A42540695A93DE83E8B880FF98A65284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647115   (195643) от 17.07.2023
-
-VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Verve - Bitter Sweet Symphony (6:00)
-02. The 1975 - Somebody Else (5:47)
-03. Cage The Elephant - Cigarette Daydreams (5:27)
-04. The 1975 - About You (5:26)(   Читать дальше...   )Жанр: RockПродолжительность: 04:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7430C186182E820B7AA5266F0653166054671738
 ```
 
 https://mybot314.ru/tekegram_catalog/

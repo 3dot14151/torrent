@@ -1,29 +1,3 @@
-###  Публикация: 431123   (807741) от 11.01.2018
-
-Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC|Lossless]<Classic, Sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ансамбль Органум (фр. Ensemble Organum) — французская музыкальная группа, исполняющая средневековую (и похожую на средневековую) музыку. Основана в 1982 годуПродолжительность: ~35 часов 20 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A20CD4476147B142FB814970EACC6BEA7B52BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505164   (806301) от 26.10.2021
 
 VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
@@ -740,6 +714,35 @@ Bing & Ruth - No Home of the Mind (2017) [FLAC|Lossless|tracks + .cue] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E5397C41B7876B329EADBFFB749DBB6897276B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204032   (785233) от 04.02.2018
+
+The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics (1998) [FLAC|Lossless|image + .cue] <Instrumental, Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Habanera From 'Carmen' (Bizet) (2:30)
+02. O My Beloved Daddy (O Mio Babbino Caro) From Gianni Schicchi (Puccini) (2:41)
+03. 'Tis the Last Rose of Summer (Flotow) (3:47)
+04. Adagio From Spartacus (Khachaturian) (3:33)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
 ```
 
 https://mybot314.ru/tekegram_catalog/

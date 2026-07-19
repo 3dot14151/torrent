@@ -1,3 +1,29 @@
+###  Публикация: 1590848   (188483) от 15.11.2022
+
+Icecream Screen Recorder Pro 7.17 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE3B95A67223B0709DF69DDE6236F88C01F179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590778   (188482) от 15.11.2022
 
 D16 Group - Effects Plugins 11.2022 VST, VST3, AAX (X86/X64) [En]
@@ -649,32 +675,6 @@ Planet VPN 1.4.02.08 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABBAA086788A9DCF832BFD0C10903BDE3A24DB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661549   (188346) от 15.09.2023
-
-SAS.Планета 230909 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188346.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAS.Планета / SAS.Planet / SASPlanet – свободная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone maps, карты Генштаба и др., (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BBF756AB33E6B5E1AC0EF432CEE439F81F8749
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 905255   (651932) от 05.06.2015
+
+Metal Inc. - Traces of the Past (2015) [MP3|320 кб/с]<Heavy Metal / Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise up!
+02. Deceiver
+03. Follow Me
+04. The Cost(   Читать дальше...   )Жанр: Heavy Metal / ThrashПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EAFEEC0F557CE29B28F9FB1586BDDD2A0AC4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905162   (651926) от 05.06.2015
+
+Crow's Claw - Fair Judgement (2015) [MP3|320 кб/с]<Instrumental Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inchlings Of The Shining Needle
+02. Hartmann’s Youkai Girl
+03. Lonesome Werewolf
+04. Night Falls(   Читать дальше...   )Жанр: Instrumental Power MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597DF7F34892B61A57F21C12D08A175B434D3F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905020   (651922) от 05.06.2015
+
+Hell-Us. - Monster Piece (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Nasty
+02. Mr. Rusty
+03. My Tomb
+04. Under The Knife(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A2C3FEBB235AF07D051663631BABD6E7C48EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905252   (651919) от 05.06.2015
 
 Lux Purus - Chaos Creates (2015) [MP3|320 кб/с]<Symphonic Power Metal, Female Vocal>
@@ -671,93 +758,6 @@ Burning Point - Burning Point (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3B7F59208B903E2D7F68C6ACB799C8A1565A3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906192   (645651) от 08.06.2015
-
-Neurotech - Stigma (2015) [MP3|320 кб/с]<Industrial, Cyber Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stigma
-02. Fear the Fear
-03. Of Adversity
-04. Built to Last(   Читать дальше...   )Жанр: Industrial, Cyber MetalПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7269CC9226DAF164AD0141AF3E309CEEC3E6E26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292674   (645087) от 30.03.2019
-
-Bloodbound - Rise of the Dragon Empire (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645087.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Rise Of The Dragon Empire (4:37)
- 2 - Slayer Of Kings (5:04)
- 3 - Skyriders And Stormbringers (3:52)
- 4 - Magical Eye (3:51)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC0CE40A493BC40B96891F627E7A47DFD258BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141934   (644852) от 13.06.2017
-
-Nemesis - The Day of Retribution (1984) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Messiah
-02 - In God We Trust
-03 - Theme of the Guardians
-04 - The King Is Dead(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF80D9081B320A8E79D4A4735E05FEE99B8938A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1163730   (448545) от 06.09.2017
-
-The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remastered, 1990, Ace [MP3|320 Kbps] <Beat, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Reef
-02. Wolfman
-03. She's My Girl
-04. King Of The Wheels(   Читать дальше...   )Жанр: Beat, Rock'n'RollПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3B5A1FB6716BD04D4D112C86ACB69F4C06D435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 242974   (447705) от 07.10.2010
 
 The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP3|128 kbps]<Rock and Roll>
@@ -787,6 +758,35 @@ Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52975D163C2DBA70C176B8320A524254D651EF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248897   (440176) от 21.09.2018
+
+Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP3|320 Kbps] <Folk Rock, Country Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepytime in the Western World (3:30)
+ 02. Gold For Bread (2:47)
+ 03. Furr (4:08)
+ 04. God & Suicide (2:21)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Alternative RockПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

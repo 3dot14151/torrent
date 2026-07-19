@@ -1,3 +1,189 @@
+###  Публикация: 635445   (909706) от 26.03.2013
+
+Stooshe - Slip (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635447   (909525) от 26.03.2013
+
+Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635452   (909505) от 26.03.2013
+
+Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864509   (909481) от 04.02.2015
+
+Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635441   (909438) от 26.03.2013
+
+Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635343   (909339) от 26.03.2013
+
+London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990820   (909286) от 26.02.2016
+
+VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов для любителей рок и метал.
+Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
+A Sound of Thunder - Murderous Horde.avi
+AC-DC - Are You Ready.avi
+AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350780   (908696) от 20.03.2020
 
 Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
@@ -499,195 +685,6 @@ Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D6E703BF9EBB3ACD03A04D92F2B8EF8C263FD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637069   (902580) от 30.03.2013
-
-Afrojack ft. Chris Brown - As Your Friend (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72904DB520908B650E85B75ECC1CC00106CC5EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637066   (902446) от 30.03.2013
-
-Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635BDEDC504D00A4F4CBAE974AC9F19FAEA2E6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637079   (902258) от 30.03.2013
-
-INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FB6737F00B6B1FBFEB26DB67CF64FBDDB284EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369408   (901996) от 24.03.2020
-
-Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 (2016) Tatarka - Altyn (LB Family) [1080p] (PCM)
-002 (2016) Tatarka - Altyn (LB Family)Производство: LB FamilyЖанр: Dance Pop, Rap, Hip-HopПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8FA8DCE405E786D32C53C6FAE97CCF59C723C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369653   (901990) от 24.03.2020
-
-Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901990.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Paradise Lost - Fall from Grace (1080p)Производство: Nuclear BlastЖанр: DoomПродолжительность: 00:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB4A53E3B447A827BB67ECEF27512C7C87E3D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369725   (901881) от 24.03.2020
-
-Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2012 Quest Pistols Show - Разные [1080p]
-002 2013 Quest Pistols Show - Жара [1080p]
-003 2013 Quest Pistols Show - Забудем все [1080p]
-004 2014 Quest Pistols Show - Babyboy [1080p](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD67BCC51FEABA7B82DA749E616A4126622FC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369230   (901783) от 24.03.2020
-
-Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901783.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 Quest Pistols - Дни Гламура
-2007 Quest Pistols - Я Устал
-2008 Quest Pistols - Для Тебя
-2008 Quest Pistols - Клетка(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5366F51C4D1F324BA860EDF6AD0107F8796E8D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

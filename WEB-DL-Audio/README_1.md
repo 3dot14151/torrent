@@ -1,119 +1,3 @@
-###  Публикация: 1665011   (183253) от 29.09.2023
-
-Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screamin’ At The Sky (3:25)
-02. Nervous (3:16)
-03. When The Pain Comes (3:24)
-04. Out Of Pocket (3:08)(   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039165348DA3F8BCE53D7677F7A8F396EF3C739B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665182   (183178) от 29.09.2023
-
-Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Addicted To Your Love
-02 – Bad Habit
-03 – Ready For You
-04 – Touched You With My Chaos(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA71F9A41E065B08C4BAAD09EC76306385DC7AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665187   (183071) от 29.09.2023
-
-Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Creepy Room (Work In Progress Mix) (3:30)
-2. Street Creature (Work In Progress Mix) (4:26)
-3. Castaways (Work In Progress Mix) (4:08)
-4. The Druids (Work In Progress Instrumental) (3:20)(   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964756F90654CE19019886E795AE688E0625D066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665514   (182583) от 30.09.2023
-
-Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams of Yesterday (3:36)
-02. Don't Take It for Granted (3:32)
-03. How Much Can You Take (4:13)
-04. Castaway (4:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185AF80B2C67B4A3027BFD6B1911D8DBFABFD34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665432   (182578) от 30.09.2023
 
 Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <proto-punk, psychedelic rock, rock and roll, shock rock>
@@ -375,93 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665542   (182244) от 30.09.2023
-
-LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (3:27)
-02. Wild (3:01)
-03. Dayglow (3:31)
-04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBEC5DF9FD29A735488F1C4F5EE88DE622477CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665496   (182242) от 30.09.2023
-
-Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey (Are U Coming?) (2:47)
-02. Own My Mind (3:12)
-03. Gossip (2:48)
-04. Timezone (3:00)(   Читать дальше...   )Жанр: Glam-rockПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A625EDF3BD5E00DD9BE20B186D8F32140A1D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665507   (182215) от 30.09.2023
-
-Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Ground (4:40)
-02. Eternal Reign (4:32)
-03. Master of All (Extended Version) (5:03)
-04. Rapture (4:08)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A00286A0FB36A6B151A9FC4E3EF766B93525E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665286   (182129) от 30.09.2023
 
 Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Punk, alternative-rock>
@@ -510,35 +307,6 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665820   (181600) от 01.10.2023
-
-Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Sleep (5:24)
-02. Man Made God (4:00)
-03. Once I Had A Heart (5:29)
-04. Oathkeeper (4:33)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE78EBC993EB0397F64D9E698F5FA2D66F7E40CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -742,6 +510,237 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665660   (181497) от 01.10.2023
+
+Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kombustio [00:03:48]
+02. Muistipalatsi [00:04:57]
+03. Vereen piirretty viiva [00:03:52]
+04. Utopia [00:04:29](   Читать дальше...   )Жанр: Progressive, Thrash, Heavy MetalПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665539   (181468) от 01.10.2023
+
+KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of The Sentinel [00:04:11]
+02. Strike Of The Viper [00:02:24]
+03. Reap The Whirlwind [00:03:34]
+04. One More Shot At Glory [00:04:27](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E288E367D0D2E502FC477F161088CF63C2B97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665581   (181450) от 01.10.2023
+
+Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Videotheque [00:03:50]
+02. Causeway [00:03:56]
+03. LA Dreamers [00:04:09]
+04. Fade Me Out [00:03:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665675   (181438) от 01.10.2023
+
+Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666276   (180373) от 03.10.2023
+
+Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starring Role [00:03:57]
+02. Outside The Spiral [00:03:58]
+03. Privilege [00:04:21]
+04. As it Seems [00:04:36](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B1143EBF96FD5A1E405C988AC27F33010CF203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666207   (180360) от 03.10.2023
+
+Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Social Network
+02. Leeches
+03. Blanket Stealer
+04. One Up(   Читать дальше...   )Жанр: Death Metal, HardcoreПродолжительность: 00:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666054   (180285) от 03.10.2023
+
+YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire [00:03:04]
+02. Gravitation [00:03:33]
+03. Signal [00:03:35]
+04. Magnetism [00:03:31](   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD93CD5633F0EEDD62B57ECE5F536BB089227816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666004   (180178) от 03.10.2023
+
+Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, electropop, synthpop, disco, house, EDM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: Dance-pop, electropop, synthpop, disco, house, EDMПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1631902   (254533) от 07.05.2023
+
+Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Signs — это шедевр гипнотических ритмов и обволакивающей атмосферы с потрясающими вокальными партиями Мими Пейдж, Филдел, Инны Уолтерс и KANGA. Уникальный голос каждого певца возвышает Знаки, добавляя новые уровни болезненной красоты и романтизма.01. Falling Back To You (feat. Mimi Page)
+02. Rain
+03. Coast To Coast (feat. Phildel)
+04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636662   (251915) от 31.05.2023
 
 Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
@@ -712,35 +741,6 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343285   (216135) от 07.12.2019
-
-Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Only by Love 10:34
-2. Hypnotic Eyes 08:55
-3. Stay with Me 10:14
-4. For Ever and Ever 06:41(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

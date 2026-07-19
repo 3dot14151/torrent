@@ -1,3 +1,183 @@
+###  Публикация: 1257819   (343302) от 27.10.2018
+
+Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tracks + .cue] <Medieval, Acoustic, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Wood (3:07)
+ 02. Excalibur (4:01)
+ 03. The Harp of Dagda (3:14)
+ 04. Rise and Fall (2:49)(   Читать дальше...   )Жанр: Medieval, Acoustic, NeofolkПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257810   (343294) от 27.10.2018
+
+Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning the Gods (4:18)
+ 02. Idunn (4:37)
+ 03. The Wolf (3:25)
+ 04. Yggdrasil (4:40)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, FolkПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF39645EB1C4FD3BBF9394CC175A5F7E93CA284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257826   (343293) от 27.10.2018
+
+Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless|tracks + .cue] <Modern Classical, Medieval, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return (5:00)
+ 02. Talisman (4:11)
+ 03. Morrigan (4:36)
+ 04. In Nomine Filius Mortis (4:42)(   Читать дальше...   )Жанр: Modern Classical, Medieval, NeofolkПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD8297D5F7C5AA12C2C198344957CE718F0BD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257540   (343133) от 27.10.2018
+
+Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revengers [01:56]
+02. Our Saviors [02:08]
+03. The King Has Fallen [02:36]
+04. Shadow Warrior [02:05](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBA0762BDF061FB6A2F9E51057B5EA4284B9A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073461   (342831) от 17.11.2016
+
+Alexandre Desplat - L'Odyssee / Одиссея (La Bande Originale Du Film) (2016) [FLAC|Lossless|CD|tracks+.cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandre Desplat - L'Odyssée (04:41)
+02. Alexandre Desplat - Exploration (02:52)
+03. Alexandre Desplat - Autour du globe (03:29)
+04. Alexandre Desplat - L'hydravion (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8389DC956E67F47CE240BC390D98392F96042161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580404   (342465) от 25.11.2012
+
+Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:12:25
+26. Symphony No. 40 in Gminor, K550 (Allegro Molto) (8:37)
+27. Dockside (2:48)
+28. Go Home Gringos (1:59)
+29. The Invasion of Panama (1:47)
+30. Nexus Target (1:41)
+31. Panic Attack / P.T.S.D. (1:43)
+32. Cordis Die (2:29)
+33. Farid (6:10)
+34. Mason Enters / Yemenite Fight (2:48)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8FD26E3DD2706D31F4CA8950DF9D8CAD96872A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180351   (342363) от 03.11.2017
 
 Clint Bajakian - Outlaws (Game Soundtrack) (1997) [FLAC|Lossless|tracks] <Soundtrack>
@@ -568,180 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86AD60A79CD4FA73E5AE22891566BA626D73EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258076   (338536) от 29.10.2018
-
-VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Angel - Johannes Linstead
-02. Hayden's Spirit - Danny Wright
-03. Greenwoods - Paul Machlis
-04. Touching Silk - Frank Stiener, Jr.(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258149   (338521) от 29.10.2018
-
-Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <Soundtrack, Epic Trailer Music, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче:
-The Illume of Life (2016)
-The Saviour (2016)
-Horizon Twilight (2017)Жанр: Soundtrack, Epic Trailer Music, ScoreПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C9D91E742C46A44E33AF98BD5FD762527C2D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258160   (338514) от 29.10.2018
-
-Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existentia [04:20]
-02. Mechanical Heart [05:13]
-03. Eden [03:59]
-04. Roots [03:20](   Читать дальше...   )Жанр: Soundtrack, Instrumental, ScoreПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256BD3C0889C5D8FFAE6AF581A6B4CD69AE828BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074415   (338295) от 19.11.2016
-
-The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Love [00:02:54]
-02. And I Love Her [00:02:34]
-03. I Don't Know How to Love Him [00:03:25]
-04. You Are [00:03:29](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA8740A4BE71AE4FEEBA4B44DF4C276176900B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074632   (338198) от 19.11.2016
-
-VA - Acoustic Heart: The Passion And Romance Of Acoustic Guitar Masters (1997) [FLAC|Lossless|tracks] <Acoustic, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Ritenour - Waiting for You
-02. Peter White - By Candlelight
-03. David Hayes - Lisdonvarne
-04. Peppino d'Agostino - Goodbye Robbie(   Читать дальше...   )Жанр: Acoustic, Instrumental, Easy ListeningПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AAFC609CB6E63358C6D989AACAAE1FE7E95E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074412   (338190) от 19.11.2016
-
-The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Love [00:02:54]
-02. And I Love Her [00:02:34]
-03. I Don't Know How to Love Him [00:03:25]
-04. You Are [00:03:29](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFC450EB24CCE92775D6E5DAEB5B11E30CF8A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

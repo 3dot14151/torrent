@@ -1,3 +1,32 @@
+###  Публикация: 1473400   (1013712) от 29.05.2021
+
+Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Downtempo, Lounge, Space-Age, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский скрипач, композитор и аранжировщик Клод Денжан, вероятно, наиболее известен оркестровыми аранжировками, которые он написал для Шарля Азнавура, включая "Idiote je t'aime" и меланхоличную "Non, je n'ai rien oublie". Денжан писал партитуры для других артистов, в том числе для Моник Тюберт и Макса Фурнье. Он также работал в качестве композитора (   Читать дальше...   )Список альбомов:
+1970 - Moog!
+1973 - Open Circuit
+1976 - Moods(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Space-Age, DiscoПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473733   (1013533) от 30.05.2021
 
 VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
@@ -757,41 +786,6 @@ Umberto Tozzi - The Best Of (2 CD) (2002) [MP3|320 кб/с]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03632EFD1665DFD273D74303CC73E8693A502942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603220   (996926) от 15.01.2013
-
-Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Inevitabile (feat. Giorgia)
-2.Respiro Nel Blu
-3.Andare... In Ogni Senso
-4.Oggi Che Giorno E'
-5.Cantico
-6.Cara Prof
-7.Canzoni Lontane
-8.Amarti E' L'Immenso Per Me
-9.Dolce Barbara
-10.Taxi Story(   Читать дальше...   )Жанр: popПродолжительность: 03:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

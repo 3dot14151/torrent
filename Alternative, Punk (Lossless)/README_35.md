@@ -1,3 +1,120 @@
+###  Публикация: 1563136   (505385) от 13.07.2022
+
+Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amateur (cover of «Rock Me Amadeus» by Falco)
+02. Dise?o Rolas (cover of «Designer Music» by Lipps Inc)
+03. Marciano (Martian) (cover of «I Turned into a Martian» by The Misfits)
+04. The Revolution Will Not Be Televised (La Revo) (cover of the original by Gil Scott-Heron)(   Читать дальше...   )Жанр: Alternative Rock, Rapcore
+Страна исполнителя: Mexico (Mexico City)Продолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F9E580E3314C979D511093E881E75BB8F91FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563611   (503821) от 15.07.2022
+
+Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Burial of the Dead [00:03:18]
+02 End of the World_ A Game of Chess  [00:03:56]
+03 The Fire Sermon [00:03:25]
+04 I Am Error [00:03:52](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891A0D39F0790C2B9A289CDD221465A4D76FA23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563801   (502760) от 16.07.2022
+
+True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Not Alone
+2. Your Confession (feat. Kellin Quinn)
+3. Save Me
+4. Out Loud (feat. Aaron Gillespie)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962605202B7BBB10D073EFE809D21ACCEA47550D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563797   (502756) от 16.07.2022
+
+Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502756.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waiting on You
+2. Gardens of Misery
+3. Dreams
+4. Dying For(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AAADD045B3A8E171F3AFEB372BE2E59C22E114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563779   (502704) от 16.07.2022
 
 Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
@@ -643,122 +760,6 @@ Palisades - Reaching Hypercritical (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DAEF897B37ECD1A6A1A55C9F720622A9664594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055106   (490336) от 21.09.2016
-
-Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Pleasure
-2 - Palm Trees
-3 - Other Men's Girls
-4 - Police(   Читать дальше...   )Жанр: Indie Rock, Dream PopПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15191582211F8B2D9DAB177837190EA2D18B5BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319112   (488733) от 09.08.2019
-
-Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Won't Go Slowly (03:41)
-02. Chocolate (Reworked) (03:47)
-03. Crack The Shutters (Reworked) (03:16)
-04. Open Your Eyes (Reworked) (04:14)Жанр: Indie Pop, Indie RockПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9BFCC0BF1BDAE3836B33D0831EE1BD9004E564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404936   (487285) от 28.08.2020
-
-Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis [00:04:43]
-02. Gottficker [00:03:53]
-03. Blut [00:04:17]
-04. Die Krähe mit dem Schädelbauch [00:04:27](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D459BBC513EDC1109E603832966D4722CDD61861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404969   (487131) от 28.08.2020
-
-From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternative Metal, Rap-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scars that I'm Hiding [00:02:55]
-02. Brick [00:03:23]
-03. What I Get [00:03:03]
-04. Blind [00:02:45](   Читать дальше...   )Жанр: Post Hardcore, Alternative Metal, Rap-RockПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A354D44179FAD9FD691387B85846D84202F6D37D
 ```
 
 https://mybot314.ru/tekegram_catalog/

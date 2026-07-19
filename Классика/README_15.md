@@ -1,32 +1,3 @@
-###  Публикация: 1500928   (839823) от 07.10.2021
-
-VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious Symphony Orchestra - Symphony in E flat major, No 5, Op 82: I (31:46)
-02. Tatjana Franova - Etude in C sharp minor, Op 2: I (04:13)
-03. Great Baltic Symphony Orchestra - The Symphony's Song, Op. 57: I (17:13)
-04. Kaunas Symphony Orchestra - Da Requiem, Op 20: I (18:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112968   (839779) от 10.03.2017
 
 Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image + .cue] <Classical sacred>
@@ -745,6 +716,35 @@ Andre Rieu - Romantique (1998) [FLAC|Lossless|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526A5E5AECAA2488D2B8BEB374BDE174AFA17250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116201   (822482) от 20.03.2017
+
+L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ireneu Sagarra (1917)
+1. Salve Regina “Germinans” 8:02
+
+Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

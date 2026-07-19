@@ -1,3 +1,36 @@
+###  Публикация: 614513   (978973) от 07.02.2013
+
+Inner Missing - Perjury (2013) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sea Of Grey
+2. At High Altitudes
+3. Blindfolded
+4. The Stranglehold Romance
+5. Death On Our Soles
+6. Frigid Stars
+7. Perjury
+8. LifersЖанр: Gothic Doom/Dark MetalПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05776D188B30FABDFD33D5E22B6C007C5C5D0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 436655   (978960) от 16.01.2012
 
 Закон и порядок- Специальный корпус / Law & Order- Special Victims Unit (полный второй сезон-21 серия  )(2000 ) DVDRip [21]
@@ -666,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6EA9739DDEA23DA1215771D783A03425AD1F18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356499   (978729) от 30.01.2020
-
-Opera 66.0.3515.60 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4211B4D4ACECCF916623BCE460DC063FECB07660
 ```
 
 https://mybot314.ru/tekegram_catalog/

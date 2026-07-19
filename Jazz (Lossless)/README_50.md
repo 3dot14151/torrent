@@ -1,90 +1,3 @@
-###  Публикация: 873582   (868547) от 28.02.2015
-
-Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Suit (ft. Chuck Loeb)
-02. Peg (ft. Chuck Loeb)
-03. Swift Kick (ft. Chuck Loeb)
-04. Yorkville (ft. Chuck Loeb)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBEFDD559731704A40755291A219D5ED3FABA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998698   (868405) от 20.03.2016
-
-Tommy & Jimmy Dorsey - Swingin' In Hollywood (1940-e) 1998, Rhino[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.We'll Get It [04:14]
- 02.Song Of India [02:54]
- 03.So Long, Sarah Jane [05:53]
- 04.If I Had You [03:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA1E95D8F41E0711FA497686A9F6604B086E06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106998   (868346) от 22.02.2017
-
-Urs Leimgruber, Don Friedman, Bobby Burri - Reflexionen (1983) Remaster, 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The New Apartment [15:41]
- 02.Bradleys [06:05]
- 03.Bla-Bla-Bla [14:11]
- 04.For Joel [04:51]Жанр: Modern CreativeПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE36064223E3A86E77273F516A6617465DF59B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107183   (868344) от 22.02.2017
 
 Marvin 'Smitty' Smith - Keeper Of The Drums (1987) [FLAC|Lossless|tracks + .cue] <Jazz, Post Bop>
@@ -664,35 +577,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375302   (865611) от 14.04.2020
-
-VA - Blue Note Trip, Vol.08: Swing Low, Fly High (2009) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_865611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romeo & Juliet
-02. Butter (for Yo' Popcorn)
-03. Ain't It Funky
-04. What's the Answer(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C70A08DCCBE28895F81C38B72A971A221FBC161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999328   (864909) от 22.03.2016
 
 VA - Jazz Today! (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -744,6 +628,122 @@ Herb Alpert - Catch The Wind (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182F1F26EC58130D01CF8D90E1026F2BD11FDE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497418   (864867) от 22.09.2021
+
+Art Blakey & The Jazz Messengers - Vol. 2: Mission Eternal (1973) 1995, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gertrude's Bounce [4:47]
+02. Siempre Mi Amor [4:55]
+03. Mission Eternal [12:12]
+04. Moanin' [5:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801D9BB5A2D09D7AA188349FCF07C96F2A097105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108188   (864843) от 24.02.2017
+
+Eddie "Lockjaw" Davis - Quartet (1985) 2000, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just Friends [06:55]
+ 02.Out of Nowhere [08:47]
+ 03.Take the 'A' Train [07:30]
+ 04.S 'Wonderful [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FFC3BF5B474E6E665A91F64AE0A0538F856606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108125   (864841) от 24.02.2017
+
+John Hicks - Something To Live For: A Billy Strayhorn Songbook (1998) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something to Live For [05:47]
+ 02.Daydream [06:45]
+ 03.Medley: Lotus, Blossom [04:12]
+ 04.Blood Count [07:05](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F84EEB8837B0345E235A6C0F6A6B14FB5074827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108231   (864840) от 24.02.2017
+
+Michael Dease - All These Hands (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creole Country
+02. Delta City Crossroads
+03. Good & Terrible
+04. Territory Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:65:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F165ED67FDAE4E81FF486E9435A0E0C637FD4EFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

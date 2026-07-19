@@ -1,119 +1,3 @@
-###  Публикация: 1706004   (113707) от 11.03.2024
-
-VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Together We Fly (4:08)
-02. Chillaxing Jazz Kollektion - Evening Sun (5:25)
-03. Kool&Klean - Dream (3:58)
-04. Chillaxonic - So Far, But so Near (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16FB71FD206456A86A00B7AA0BF362E36717378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706005   (113705) от 11.03.2024
-
-VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Blue Water (4:00)
-02. Love Suggestions - Life Is Love (4:44)
-03. Chillaxonic - Violet Twilight (4:34)
-04. Kool&Klean - Dream (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C308A4028D9B0EBE351898951D10ABF6BFFA802F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706013   (113690) от 11.03.2024
-
-George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming Virginia [3:06]
-02. Time After Time [4:48]
-03. La chanson de rue [3:59]
-04. Too Marvelous for Words [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780FBE1B23B51C6785F5372161BC0FC620F504D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706198   (113667) от 12.03.2024
-
-Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusade Blvd (4:17)
-02. Scam Call (4:22)
-03. Hands Together (4:42)
-04. Old School Jam (feat. Ellis Hall) (3:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83126295DF31F39058FB2F9C693C0EDB5C9DF154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706352   (113659) от 12.03.2024
 
 Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -745,6 +629,122 @@ Dave McKenna - A Celebration Of Hoagy Carmichael (1983) 1994, Concord Jazz [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26771BCA6B899AD890E64D66E8D0BD8928D783EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707064   (113377) от 15.03.2024
+
+Shirley Horn Trio - A Lazy Afternoon (1978) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Old Fashioned [2:45]
+02. There's No You [6:16]
+03. New York's My Home [2:48]
+04. Why Did I Choose You [6:15](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B62ADE3C90FC979318448C31DB930CF27C35BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707026   (113376) от 15.03.2024
+
+Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C Jam Blues [3:42]
+02. I Wonder Why [4:08]
+03. Norwegian Wood [3:46]
+04. There Will Never Be Another You [4:21](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F4F9B763DDD1F7AA74E44BC8267D876C478FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707030   (113375) от 15.03.2024
+
+Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just You, Just Me [4:22]
+02. Traveling Man [5:15]
+03. Stardust [6:07]
+04. Sister Sadie [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9A8E9291EC52A479E5C21A06D1BB5450BE99D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707343   (113370) от 16.03.2024
+
+Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abitudini
+02. Che Ore So'
+03. Nu' Pensiero Felice
+04. Se Mi Vuoi (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
 ```
 
 https://mybot314.ru/tekegram_catalog/

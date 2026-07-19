@@ -1,3 +1,61 @@
+###  Публикация: 1806766   (65328) от 14.07.2025
+
+James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More River To Cross (03:31)
+ 02. Work Song (04:01)
+ 03. Area Grey (03:40)
+ 04. Ghost Train (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722429   (56767) от 12.05.2024
+
+Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2024 - 1975
+2024 - Down in Texas
+2024 - Electric MountainЖанр: Blues RockПродолжительность: 3 CD, 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76821348E50281B41765096F505BD89D4A66C494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723730   (56347) от 16.05.2024
 
 Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>

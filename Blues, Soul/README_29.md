@@ -1,3 +1,61 @@
+###  Публикация: 1174504   (385567) от 15.10.2017
+
+Cary Morin - 2 Albums (2015 - 2017) [MP3|320 Kbps] <Acoustic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cradle to the Grave
+02. Laid Back
+03. Dawn's Early Light
+04. Lay Baby Lay(   Читать дальше...   )Жанр: Acoustic BluesПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3781E418CC7F4814F92038F08A3C5D0025E1DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253187   (385546) от 08.10.2018
+
+Springer & Cagle - Everyday Blues (2018) [MP3|320 Kbps] <Blues Vocals, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday Blues
+02. Lucille
+03. Nasty Little Words
+04. Finally(   Читать дальше...   )Жанр: Blues Vocals, Female VocalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A8C84A7419649FA6A89F3F252D22BB3A691729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413424   (385391) от 08.10.2020
 
 James Brown - Messing With The Blues , 2CD (1990) [MP3|320 Kbps] <Blues>
@@ -687,64 +745,6 @@ Katie Kern - Blues For The Highway (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CEBF68BA75FC51707B119C53015EE71924FF35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070635   (366866) от 07.11.2016
-
-Dirk Stelder - Neer (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ik Ben Wat Ik Ben 04:00
-02. Laat Het Zien 02:20
-03. Nooit Zover Van De Weg Afgedwaald 02:28
-04. Waar Is De Swamp 03:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6784915CBE4C37BD64E7BCCC7A4F9DD79F3B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950786   (366186) от 28.10.2015
-
-Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojo Groove (04:57)
-02. Nao Tire O Meu Blues (02:07)
-03. When The Night Comes Falling From The Sky (05:54)
-04. How Blue Can You Get (05:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1611091   (202870) от 10.02.2023
-
-Depeche Mode - Ghosts Again (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts AgainЖанр: SynthpopПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A77ED3CDEF201D2F868119D1AF5D1E1E22F26BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617605   (201689) от 07.03.2023
 
 Spacehawk - New Generation (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
@@ -742,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C362F1F4363E236CBEF873E0D9ECD08DB5D368C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667859   (175307) от 10.10.2023
+
+Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Due Sono Uno A Roma
+02 – Sin Retorno
+03 – Pensar No Es Sentir
+04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

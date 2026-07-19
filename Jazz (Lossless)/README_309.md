@@ -1,119 +1,3 @@
-###  Публикация: 1695923   (119939) от 31.01.2024
-
-Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pasolini [5:31]
-02. Very Early [4:58]
-03. Estate [5:48]
-04. Maybe Yes [3:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F056921F6CB3C904292D481CEBA0E34E3AF87E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695921   (119936) от 31.01.2024
-
-VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clever Motion - Play This Chords (Original Mix) (3:26)
-02. Dave Belford - Everest (Original Mix) (3:26)
-03. Karim Azak - Give You Devotion (Original Mix) (3:27)
-04. David Alaba - Nu Moves (Original Mix) (3:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4403AFE80769B223B1A33E542C3141185C42F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695719   (119934) от 31.01.2024
-
-Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 'Guys' from Ipanema [5:04]
-02. Donna Lee [6:22]
-03. Pithecanthropus Erectus [8:38]
-04. Children's Song (Nen Neko Bocchan/On Seisei) [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49F0F7A52AA85B32F4CBC0EC413E4AE399A754D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695916   (119930) от 31.01.2024
-
-VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry - I Can't Stop Loving You (4:22)
-02. Kool&Klean - Begin Again (4:34)
-03. Chillaxing Jazz Kollektion - Beautiful Day (4:11)
-04. Chillaxing Jazz Kollektion - Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695920   (119929) от 31.01.2024
 
 VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -746,6 +630,122 @@ Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9908145C9DD937086C7FC4C9E35928C9C2751A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697140   (119069) от 05.02.2024
+
+Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speculation [3:43]
+02. Over the Rainbow [8:21]
+03. Nica's Tempo [5:33]
+04. Blue Concept [5:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE865B8B0CFBD6D7317167546B74F74DFC000EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697240   (118940) от 06.02.2024
+
+VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke Orchestra - Just Kiss My Baby (5:15)
+02. Black & Brown - Tribal Boogaloo (3:39)
+03. Jerome van Rossum - Truth (4:29)
+04. Super Bad - Don't Let The Flies Eat Your Marilyn's Painting (3:36)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCBA3B05844E69B570A0C35F6676492FBF53014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697246   (118934) от 06.02.2024
+
+VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundset City - Late Night (3:34)
+02. Nightview - Nightdrive (3:15)
+03. Jean Mare - Only Lounge (3:17)
+04. Audiozoom - 5th Pleasure (3:14)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697423   (118928) от 06.02.2024
+
+Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (feat. Laura Serra)
+02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
+03. I Can See Clearly Now (feat. Daniele Vit)
+04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
 ```
 
 https://mybot314.ru/tekegram_catalog/

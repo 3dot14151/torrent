@@ -1,3 +1,55 @@
+###  Публикация: 1428215   (180034) от 02.12.2020
+
+VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: BluesПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A9195781F097376BCBA4056D10B286CF2BC06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428218   (180029) от 02.12.2020
+
+VA - Modern Blues (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: BluesПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A734DB01769A48BCD037098223D8056399FBAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666371   (179468) от 04.10.2023
 
 Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 Kbps] <Blues Rock>
@@ -686,64 +738,6 @@ VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05FE274477F69F7231FE8F5ADC9582F991A6FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599094   (160143) от 22.12.2022
-
-Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Winter Blues [09:12]
-02. Catfish Blues [05:15]
-03. Grinning (Live) [05:03]
-04. Smokestack Lightning (Live) [04:11](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350E8F4C087CF7CC4D0B2DE10992090994C5F0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967329   (158716) от 20.12.2015
-
-Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Glimpse of Joy (02:56)
-02. Why Did I Do It (03:47)
-03. Angel of Dreams (03:16)
-04. Going Down That Road (04:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BCEE6D37D7D83F2EF390C1408A89277C7BA049
 ```
 
 https://mybot314.ru/tekegram_catalog/

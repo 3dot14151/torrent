@@ -1,3 +1,32 @@
+###  Публикация: 1326478   (383499) от 21.09.2019
+
+Chips - Chips (1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Bit Of Loving (Mycke' Mycke' Mer) (3:20)
+02. Sympathy (3:03)
+03. Weekend (3:19)
+04. So Long Sally (4:00)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14F84B5A9616C084152AC5B64447226FB9ADE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326765   (383492) от 21.09.2019
 
 Струни серця - Найбільше в світі диво (2019) [MP3|320 kbps] <Pop>
@@ -729,35 +758,6 @@ Vanessa Carlton - Liberman (2015) 2CD Deluxe [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6AFBA572E92CABE11A0135C4320E587B2DC8BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254359   (375122) от 13.10.2018
-
-Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puttin' On The Ritz (4:43)
-02. La Vie En Rose (4:52)
-03. Cheek To Cheek (4:51)
-04. After Eight (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
 ```
 
 https://mybot314.ru/tekegram_catalog/

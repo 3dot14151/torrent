@@ -1,3 +1,90 @@
+###  Публикация: 1165898   (430307) от 14.09.2017
+
+Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ajattomasta Unesta
+02. For Those About to Fight for Metal
+03. Way of the Warrior
+04. Two Paths(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AF2B6ECE720230EE51202BF063370CD20288EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411153   (429842) от 24.09.2020
+
+NZM - Time's Running Out (2020) [MP3|320 Kbps] <Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time's Running Out (03:29)
+ 02. Savior (03:25)
+ 03. Call My Name (Never Fade Away) (02:53)
+ 04. Too Young to Die (04:01)(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC46F9A8AA60CC9B3F1D62BA47E7A847A79C8C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411317   (427638) от 25.09.2020
+
+Elmsfire - Wings Of Reckoning (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Murcielago De La Muerte (01:15)
+ 02. Camazotz (04:09)
+ 03. Croghan (04:13)
+ 04. Maelstrom (05:40)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F805FF7D97FCF631FF0D3580AE57B059638B5A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946519   (427370) от 13.10.2015
 
 Centvrion - V (2015) [MP3|320 кб/с]<Heavy, Power, Thrash Metal>
@@ -662,91 +749,6 @@ Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B671E68621E47C39DE888F632B3633A780CFC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324998   (418673) от 12.09.2019
-
-Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418673.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Steh auf
-2. Steh auf (Trivium Remix)Жанр: Industrial MetalПродолжительность: 00:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D22ED40C20470D509C5AAEF9BEADACE3A5EFD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412410   (418462) от 29.09.2020
-
-Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overton Window (05:31)
- 02. Echo Chambers (04:33)
- 03. Derrida's Poison (03:53)
- 04. Soma Holiday (04:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19292BF1AAEE8F36078E2C85768FA4BDC4C9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947766   (418110) от 17.10.2015
-
-Enshine - Singularity (2015) [MP3|320 кб/с]<Atmospheric Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418110.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dual Existence
-2. Adrift
-3. Resurgence
-4. In Our Mind(   Читать дальше...   )Жанр: Atmospheric Doom, Death MetalПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A069AD16A53E7F66AAED88C3D30AD4C3CCF7334F
 ```
 
 https://mybot314.ru/tekegram_catalog/

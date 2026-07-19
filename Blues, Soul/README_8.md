@@ -1,3 +1,61 @@
+###  Публикация: 1204355   (784980) от 05.02.2018
+
+Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rise Above 5:12
+02. Power Man 3:11
+03. Keep The Rock Alive 3:37
+04. Climbing The Ladder 6:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204435   (784960) от 05.02.2018
+
+Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Train O'Mine 2:58
+02. Rolling on a Log 4:21
+03. The Turning Point 4:14
+04. The Nietzsche Lounge 3:45(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E8E8B78B852DC4A25E825F6BCC7922CF30A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204441   (784936) от 05.02.2018
 
 Peter Karp & Sue Foley - He Said She Said (2010) Blind Pig Records [MP3|320 Kbps] <Blues Rock>
@@ -684,64 +742,6 @@ Stevie Ray Vaughan - Blues You Can Use (2016) [1987 Live - edition ] [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F92C3A977814AE440433CBC54627562C2B18269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211328   (777557) от 07.03.2018
-
-Lilly Martin - Right Now (2015) [MP3|320 Kbps] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealous Kind (04:44)
-02. Lonely Avenue (03:52)
-03. New York City (03:43)
-04. Next To Me feat. Ellis Hall (03:49)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C4E80B5C708E7E712F74562F16AB1FB9B8CE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013769   (777326) от 05.05.2016
-
-Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain
-02. Life On Hold
-03. Drinking
-04. Beautiful Eyes(   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66994179E991444C17C79480A0FF216A7D6394DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

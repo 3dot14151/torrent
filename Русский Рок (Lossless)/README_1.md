@@ -1,119 +1,3 @@
-###  Публикация: 1601534   (1046455) от 01.01.2023
-
-Combat Shock - Everything Goes Wrong (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Abuse [00:03:23]
-02. Enemy [00:03:44]
-03. Digital Warfare [00:02:09]
-04. Crusade (Against This World) [00:03:17](   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6B6597532B1ECAFB78FA206C3EAB62F01D26C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601522   (1046444) от 01.01.2023
-
-Най - Bloodyвосток 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Местное время 20:22 [00:01:07]
-02. В мавзолее пересменка [00:03:14]
-03. Танцы [00:04:22]
-04. Война будет... (Extended Mix) [00:04:11](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BD8AEA42F32DC806CD1F6D60E1C98550656FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601924   (1046261) от 03.01.2023
-
-Турбогроб - Гипертурбореальность (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Погружение [00:02:19]
-02. Псионический луч [00:03:29]
-03. Мы за тобой следим [00:04:05]
-04. Королева черной дыры [00:05:15](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2964901B91B231B9ABDA71039DD982AEC270BEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601926   (1046035) от 06.01.2023
-
-Постарнаков и После 11 - Колея (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы демоны [00:04:04]
-02. Колея [00:04:25]
-03. Люби пока я буду жить [00:04:29]
-04. Поезд [00:04:02](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4FBA27021F4C18A4AF347F35BFBE905D4D6AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604289   (1045383) от 13.01.2023
 
 Аквариум - Дом всех святых (2022) [FLAC|Lossless|image + .cue] <Rock>
@@ -745,6 +629,124 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610674   (1041430) от 11.02.2023
+
+MALAЯ - 9 Releases (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биография:
+В своем творчестве сочетаем разные направления тяжёлой музыки: от панк-рока до альтернативного металла.
+Наша вокалистка в свои 13 лет удивляет зрителей совсем недетской, местами экстремальной, вокальной подачей. Честная авторская лирика и мелодии отражают взрослый мир глазами ребенка, живущего рок-музыкой.2018 - Взрослым
+2018 - Армия нормальных
+2018 - Что-то не то
+2019 - ЛетоЖанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62F4A85DC5AE6F0B5DF5168949285076258BA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438403   (1041195) от 08.01.2021
+
+Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cure for the Soul [00:04:07]
+02. Femme Fatale [00:03:30]
+03. Last Day Home [00:04:38]
+04. Every Bit of Pain [00:04:23](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438527   (1040949) от 09.01.2021
+
+Vjuga - Aeternum (2021) [FLAC|Lossless|tracks + .cue] <Post-Black Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeternum [00:01:01]
+02. Rotten: Thousand Times 'Good Night' [00:05:31]
+03. Rotten: Godforsaken [00:04:20]
+04. On a Vision or in None [00:04:16](   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8CDB94C0886D0A4202AC8986C10470663D3EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438655   (1040921) от 09.01.2021
+
+Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Lossless|image + .cue] <Atmospheric Gothic/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monochrome (03:04)
+02. Inside The Maze Of Deadlock (08:48)
+03. Acontium Waters (11:27)
+04. The Astralnauts (03:08)(   Читать дальше...   )Жанр: Atmospheric Gothic/Doom MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

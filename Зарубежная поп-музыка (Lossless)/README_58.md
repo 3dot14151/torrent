@@ -1,3 +1,179 @@
+###  Публикация: 1568089   (466013) от 06.08.2022
+
+Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятно, но пятьдесят лет прошло с тех пор, как Гилберт О'Салливан праздновал шестинедельное пребывание на вершине чарта Billboard США с песней Alone Again (Naturally) — песней, которая побудила Америку начать невероятный роман с этим ирландцем, но он всё же остаётся самым британским автором-исполнителем.
+Новый альбом Гилберта Driven последовал за его знаменитым (   Читать дальше...   )01. Love Casualty
+02. Blue Anchor Bay
+03. Let Bygones Be Bygones (feat. Mick Hucknall)
+04. Body and Mind(   Читать дальше...   )Жанр: Pop, Pop Rock, Folk RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7F69DAA42AF3389C984ADAD8E1971FA9A8E6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058695   (465873) от 02.10.2016
+
+VA - Radio 538 Hitzone 79 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1
+01. DJ Snake feat. Justin Bieber - Let Me Love You  (3:26)
+02. Jonas Blue feat. JP Cooper - Perfect Strangers  (3:15)
+03. Bastille - Good Grief  (3:28)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E3AB00C0B117ED647AA14BC97FF76EEAF5A18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246134   (465682) от 09.09.2018
+
+Cosmo's Midnight - What Comes Next (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Hip Hop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Confidence (4:29)
+ 02/12. Lowkey (3:40)
+ 03/12. Montego (3:08)
+ 04/12. With U (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Hip Hop, Soul, R&BПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407469   (464262) от 08.09.2020
+
+Aluna - Renaissance (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Starting To Love All The Things I Hate [03:31]
+02. Warrior (feat. SG Lewis) [02:47]
+03. Sneak [02:49]
+04. Envious [03:23](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCF152F303C70DE6FE2186968A432822986C509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941394   (462848) от 27.09.2015
+
+VA - Dream Makers & Heart Breakers (2013) 2CD [APE|image+.cue]<Pop, Rock, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безусловно, что-то из этих треков есть в любой мало-мальски уважающей себя коллекции. Ну кто не слушал и не переслушивал Moon River (Andy Williams) или Unchain My Heart (Ray Charles). Но есть бОльшая часть треков не заслуженно забытая или не известная нашей публике вовсе.
+P.S. Почему-то на AllMusic сборник определяется как Jazz. Думаю, что Вы со мной согласитесь (   Читать дальше...   )CD1
+01. The Beatles - Love Me Do  (2:25)
+02. Elvis Presley - Return To Sender  (2:09)
+03. John D. Loudermilk - Language Of Love  (1:48)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 03:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3116E0E71A532F7D8FFBAF70776E7142FE991BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941429   (462510) от 27.09.2015
+
+Jetty Road - Hearts On Fire (2015) [FLAC|tracks +.cue]<Country, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Bit Of Something
+02. Hearts On Fire
+03. What We Did Last Night
+04. I Turn To You(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CFA3A2136922435B8A5062FB4E997D13CFFF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940542   (462396) от 27.09.2015
 
 VA - Radio 538 Hitzone 75 (2015) [FLAC|Lossless]<Top 40, Pop, Rock, Dance, R&B, House>
@@ -564,180 +740,6 @@ Sarah Brightman - Dive (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Cross
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9DF38EE1EE446541512F97D3025C33D62756F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163026   (452508) от 04.09.2017
-
-Charles Aznavour - Bon Anniversaire Charles (Levon Sayan Presente) (2005) 2CD [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Autobiographie
-02. La Critique
-03. Lisboa(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9411E570997C6158EDDA3387FDAB6F12CF23B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322051   (452389) от 27.08.2019
-
-VA - Romantic Moonlight: Nostalgy (2001) Compilation [FLAC|Lossless|image + .cue] <Pop, Easy Listening, Romantic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - Love Story
-02. Henri Salvador - Petit Fleur
-03. Connie Francis - I Will Wait For You
-04. Charles Aznavour - Une Vie D'amour(   Читать дальше...   )Жанр: Pop, Easy Listening, Romantic, BalladПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D716DE9135EA85DC48348374B7FB2D96A2A010B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943125   (451369) от 02.10.2015
-
-VA - BRAVO Hits 91 (2015) [FLAC|Lossless|WEB-DL]<Top 40, Pop, Rock, Dance, R&B, Soul, Electronic, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Puth feat. Meghan Trainor - Marvin Gaye (3:09)
-02. SDP feat. Adel Tawil - Ich will nur dass du weißt (Radio Edit) (3:22)
-03. Mark Forster - Bauch und Kopf (Radio Edit) (3:33)
-04. Adel Tawil - Unsere Lieder (4:00)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Dance, R&B, Soul, Electronic, HouseПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B138A808E49DC4DE2648377FD2A26BF11FC1FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321266   (450499) от 28.08.2019
-
-Taylor Swift - Lover (2019) Japan, Special Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Forgot That You Existed (02:50)
-02. Cruel Summer (02:58)
-03. Lover (03:41)
-04. The Man (03:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245A96FA7132693AE49F14B1106D66EA7C4504E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569728   (449673) от 14.08.2022
-
-Daryl Hall - BeforeAfter (2022) 2xCD, Compilation, Japanese Edition [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449673.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Dreamtime (4:46)
-02. Babs And Babs (7:44)
-03. Foolish Pride (3:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E0008DDA133025200425AC56A65602B3518D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943239   (449581) от 03.10.2015
-
-VA - Alle 40 Goed 00's (2013) 2CD [FLAC|tracks + .cue]<Pop, R&B, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rehab (Amy Winehouse) (3:34)
-02. I Gotta Feeling (Black Eyed Peas) (4:06)
-03. Poker Face (Lady GaGa) (3:57)
-04. This Love (Maroon 5) (3:26)(   Читать дальше...   )Жанр: Pop, R&B, ElectronicПродолжительность: 02:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFD7C6536D611E4254A35F62AC40B7A29A91D38
 ```
 
 https://mybot314.ru/tekegram_catalog/

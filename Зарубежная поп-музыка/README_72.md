@@ -1,3 +1,32 @@
+###  Публикация: 1584138   (226477) от 17.10.2022
+
+Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Love Is King
+02. Hang On To Your Love
+03. Smooth Operator
+04. Jezebel(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268065   (226386) от 11.12.2018
 
 VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
@@ -721,35 +750,6 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084656   (220983) от 18.12.2016
-
-VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson - Black Or White (3:19)
-02. Roxette - It Must Have Been Love (4:19)
-03. Take That - How Deep Is Your Love (3:42)
-04. Backstreet Boys - Quit Playing Games (With My Heart) (3:54)(   Читать дальше...   )Производство: Sony Music MediaЖанр: PopПродолжительность: 02:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1436544   (1043014) от 01.01.2021
+
+R.saver 8.9 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043014.jpg" />
+</div>
+
+
+###  Подробнее
+
+R.saver — инструмент для восстановления удаленных файлов, а также поддерживает восстановление данных даже после форматирования. Программе под силу восстановление поврежденных файлов с файловых систем FAT и NTFS.
+При использовании программы, пользователю надо всего лишь, определить диск или образ, на котором он собирается произвести сканирование и программа автоматически (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57556D49B3FAE3D461D29D6AE09B507BBC3E7BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436667   (1043013) от 01.01.2021
 
 Notepad++ 7.9.2 Final + Portable [Multi/Ru]
@@ -651,35 +678,6 @@ FastStone Capture представляет собой довольно мощн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA45CCA1316D38C4FE7DA2A0E1795919D35ECD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436888   (1042816) от 02.01.2021
-
-Kryder - Kryteria Radio 271 (Best Of 2020) 2020-12-30 [MP3|192 Kbps] <House, Tech House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Kill Me Slow
-02. Kaskade & BROHUG - 1990
-03. Michael Calfan - Last Call (2013 Version)
-04. SWACQ - Horny Horns(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C8A7844D0267DE02503D22DACDE129127EFE83
 ```
 
 https://mybot314.ru/tekegram_catalog/

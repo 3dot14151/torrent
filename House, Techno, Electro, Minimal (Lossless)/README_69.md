@@ -1,3 +1,176 @@
+###  Публикация: 1797628   (66797) от 17.05.2025
+
+Carlita - fabric presents Carlita (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easttown - Wavy (5:44)
+02. Garrett David & Maudi - Mi Casa (6:27)
+03. Jesse Maas - Gross Weight (6:29)
+04. Mehdi M - Funky Version (4:04)(   Читать дальше...   )Жанр: Electronic, Deep House, Indie DanceПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4ADF18D64B27D138B1185F8B84AE7778D568DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798018   (66693) от 19.05.2025
+
+VA - Coven (2022-2025) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Deep house, Progressive house, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Various Artists - Coven (2025) FLAC
+Various Artists - Coven, Vol. 1 (2022) FLAC
+Various Artists - Coven, Vol. 2 (2023) FLAC(   Читать дальше...   )Жанр: Trance, deep-house, progressive-house, DanceПродолжительность: 6 CD, 04:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DDB9948CCC911137823C96E399F37945F82132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798833   (66554) от 24.05.2025
+
+Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
+02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
+03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
+04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798974   (66533) от 25.05.2025
+
+Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid, Breakbeat, Electro, House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Semi Detached [00:09:32]
+02. Lush (Spacewalk Mix) [00:07:06]
+03. Lush (1926 Trancendance Mix) [00:05:38]Жанр: Electronic, Acid, Breakbeat, Electro, House, Techno, TranceПродолжительность: 5 CD, 04:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801430   (66205) от 11.06.2025
+
+Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Dance, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby I Love U!    [0:04:29.22]
+02. Jenny From the Block (Seismic Crew's Latin Disco Trip)    [0:06:41.40]
+03. Jennifer Lopez feat. LL Cool J / All I Have (Ignorants mix)    [0:04:03.60]
+04. I’m Glad (Paul Oakenfold Perfecto mix)    [0:05:47.73](   Читать дальше...   )Жанр: Electronic, Latin, Dance, PopПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2C491F3BAC62FF308EB67FBBEA66FB5C5CCD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801138   (66169) от 12.06.2025
+
+Volen Sentir - The Book of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech house, Breaks, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volen Sentir – Knowledge
+02. Volen Sentir – Moment of Peace
+03. Volen Sentir – You Will Never Know
+04. Volen Sentir & Marsh – Ascension (Album Edit)(   Читать дальше...   )Жанр: Tech house, Breaks, ProgressiveПродолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AF2D93A1EB31C6A0004310251D09C0783B56EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803701   (65827) от 24.06.2025
 
 VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
@@ -562,180 +735,6 @@ TaTa Golosa (Romina Contiero) - Busca Busca (+ Micromania 2014) (2014) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F91F17797995749E77E18CA9AD3428397958642F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744203   (46178) от 20.08.2024
-
-TaTa Golosa (Romina Contiero) - Fotonovela Y Otras Historias (2009) [FLAC|Lossless|tracks] <Club House, Tribal House, Dance-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fotonovela (video edit) (04:01)
-02. Yo te siento asi (03:19)
-03. El baile de Tata (03:33)
-04. Micromania (original mix) (05:16)(   Читать дальше...   )Жанр: Club House, Tribal House, Dance-popПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3A9B30B92004D5E9C9B02BB4E3B1261013BB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744356   (46101) от 21.08.2024
-
-VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Rivera - We Belong Together (Radio Mix) (3:14)
-02. Tropicalee - Seychelles Sunset Dreams (2:21)
-03. DJ Pacha - Walking On Air (Ibiza Sunrise Edit) (3:16)
-04. Dj Beachshaker - Just like Heaven (Ibiza Dance Radio Cut) (2:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACF2BADE883E066496564D0E3597EB10486CD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746684   (44932) от 01.09.2024
-
-VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Omar - Balearic Harem (4:52)
-02. Yusuf Bhatt - Gonna Keep It (4:16)
-03. Azula - Bedouin (4:52)
-04. Reza Farahani - Hit Me! (4:54)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF6FDB6FB40CD24A213FC1E2D03ADBC00191E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746713   (44920) от 01.09.2024
-
-VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FLAC|Lossless|WEB-DL|tracks] <Oriental House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachid Fairuz - Habiby Da (4:30)
-02. Claude Ravin - Boushret Kheir (4:39)
-03. Jadal Halal - Alayna El Hawa (4:38)
-04. Profesor Esteban - Ya Rayah (5:39)(   Читать дальше...   )Жанр: Oriental HouseПродолжительность: 01:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1E2B6E53346BDAF25552091D57EF72332E0F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746910   (44816) от 02.09.2024
-
-VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Omar - Balearic Harem (Bass Boosted) (4:53)
-02. Yusuf Bhatt - Gonna Keep It (Bass Boosted) (4:16)
-03. Azula - Bedouin (Bass Boosted) (4:53)
-04. Reza Farahani - Hit Me! (Bass Boosted) (4:55)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14D153DA954D08E8C3F3B3CA259F906B5ABE942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747080   (44731) от 03.09.2024
-
-VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakim Assaf - Habiba Mi Amore (6:15)
-02. Sanjay Lamjarred - Min Awel Dekika (5:45)
-03. Burak Abulso'oud - Paro (5:41)
-04. Davide Angiuli - Ensay (5:48)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A351CBD707CFC655BF3A53C84A0D8772F4C5351
 ```
 
 https://mybot314.ru/tekegram_catalog/

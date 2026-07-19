@@ -1,170 +1,3 @@
-###  Публикация: 556976   (409681) от 12.10.2012
-
-Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409681.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
-
-Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
-2. Barcelona - La Nit performance
-3. How Can I Go On - La Nit performance
-4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD86860149166F6F5DC748E8BFF8D39C2676780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169170   (403935) от 26.09.2017
-
-Legends of Rock 'N' Roll - Live '89 (2000) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_403935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный концерт, записанный в Риме в 1989 году, известный также под названием "The Giants of Rock", в котором одновременно участвуют настоящие легенды и "крёстные отцы" рок-н-ролла: Джеймс Браун, Рэй Чарльз, Литтл Ричард, Бо Дидли, Джерри Ли Льюис, Фэтс Домино и Би Би Кинг.01. James Brown - Papa`s Got a Brand New Bag
-02. James Brown - I feel Good (I Got You)
-03. Bo Diddley - Bo Diddley
-04. Bo Diddley - I’m a Man(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Концерт, рок-н-ролл, рокПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C0129528269D94E282F1874E1E9E74974EA40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563758   (401754) от 24.10.2012
-
-Metallica - 30th Anniversary Show's in The Fillmore (2012)2x DVD9
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica (Жанр: Музыка, Концерт, Мультикам-рип.Режиссер: MilanicaАктеры: James Hetfield – lead vocals, rhythm guitar, Lars Ulrich – drums, Lars Ulrich – drums, Robert Trujillo – bass, backing vocals.Перевод: ОтсутствуетПродолжительность: 01:53:52,01:53:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566473   (397969) от 28.10.2012
-
-The Doors - Live At The Bowl '68 (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397969.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 июля 1968 г. The Doors выступали на сцене Hollywood Bowl, дав концерт, ставший с тех пор легендарным. The Doors выступали в поддержку выхода своего третьего альбома «Waiting For The Sun» и сингла № 1 в США «Hello, I Love You». Они оттачивали свои концертные выступления последние 2 года и находились на абсолютном пике своей формы. Теперь оригинальная видеозапись из Hollywood Bowl впервые отсканирована в цифровом виде и отреставрирована, чтобы это шоу выглядело лучше и полнее, чем когда-либо прежде, включая 2 ранее не издававшихся по причине брака трека («Hello, I Love You» и «THE WASP (Texas Radio And The Big Beat)», которые теперь восстановлены. Звукоинженер и сопродюсер The Doors Брюс Ботник заново осуществил микширование и мастеринг звука с оригинальных многоканальных пленок. Теперь это наиболее полное и совершенное издание этого знаменитого концерта.Жанр: Psychedelic RockПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566799   (397927) от 28.10.2012
-
-Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Else Matters
-02. Losing My Religion
-03. In The Air Tonight
-04. Blue MondayЖанр: New Age, enigmatic, choral, ambientpop, mysticpopПеревод: ОтсутствуетПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566534   (397815) от 28.10.2012
-
-Мельница - Дикие Травы в СК "Олимпийский" (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Фолк-РокРежиссер: Роман Бутовский, Юрий ФроловскийПродолжительность: 01:52:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567079   (396921) от 29.10.2012
 
 Twisted Sister - Live At The Astoria (2008) DVD9
@@ -752,6 +585,183 @@ AC/DC - Live At Donington (1991) DVD-9
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577882   (354767) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
+2. Zeppelin Media Moment
+3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577993   (354760) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying
+05. For Your Life
+06. Trampled Under Foot
+07. Nobody's Fault But Mine
+08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255918   (354389) от 08.11.2010
+
+Юрий Антонов - От печали до радости... (2005) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329376   (354308) от 04.10.2019
+
+Popa Chubby - Wild (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт американского блюзмена Popa Chubby (настоящее имя - Ted Horovitz), прошедшего 27 марта 2004 года в Le Plan, La Fnac Evry, Meridien Hotel, France.01. Intro
+02. Un-American Blues
+03. I Can't See The Light Of Day
+04. Top Ten Reasons Why I Can't Sleep At Night(   Читать дальше...   )Производство: США,DixiefrogЖанр: БлюзПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826B06B9767560504BF20387E3F59B19A1F58B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178680   (353297) от 29.10.2017
+
+Iron Maiden - Maiden England '88 (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Iron Maiden записанный 27 и 28 ноября 1988 года в National Exhibition Centre (Birmingham, England). Впервые был выпущен в ноябре 1989 на VHS. В 2013 переиздан на DVD и CD.01. Moonchild
+02. The Evil That Men Do
+03. The Prisoner
+04. Still Life(   Читать дальше...   )Производство: PMI (UK)Жанр: Heavy Metal (NWOBHM)Режиссер: Steve HarrisПродолжительность: 1:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E891CAA5B2017E798288D0A4DA79904748E1C3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072017   (351721) от 13.11.2016
+
+Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gregorian представляет последнюю главу своего прощального тура "Masters Of Chant" в заключительном концерте "Final Chapter".
+То, что началось для продюсера Фрэнка Петерсона и группы в 1999 году, стремительно превратилось в монументальное победное шествие: более 10 миллионов проданных альбомов, а также множество золотых и платиновых наград, делают (   Читать дальше...   )01. Masters of chant
+02. Still haven't found what i'm looking for / only you
+03. Stay
+04. Join me(   Читать дальше...   )Производство: Ear musicЖанр: New Age, Enigmatic, ChoralРежиссер: Мартин МюллерАктеры: GregorianПеревод: ОтсутствуетПродолжительность: 02:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
 ```
 
 https://mybot314.ru/tekegram_catalog/

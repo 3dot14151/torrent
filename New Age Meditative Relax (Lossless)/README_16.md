@@ -1,3 +1,32 @@
+###  Публикация: 1037870   (610194) от 26.07.2016
+
+Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Connect [00:08:49]
+02. Floating to Forever [00:11:04]
+03. Letting Go [00:06:40]
+04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231098   (608849) от 16.06.2018
 
 Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921611   (573592) от 26.07.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parameshwara Mantra (Deep in Love) - 14:03
-2. Sarveshaam Mantra - 6:37
-3. Ganapati Mantra (Strong My Roots) - 7:20
-4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1150223   (595218) от 14.07.2017
+
+Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Looks
+02. Retrograde
+03. Lost Positives
+04. Ghost(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B5B69DF77974B9C9FCEF5D40E3D8C494649193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915065   (595132) от 04.07.2015
+
+Aranda - Not the Same (2015) [OGG|474-530 кб/с]<Alternative, Modern Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Enemy
+02. Not the Same
+03. Don't Wake Me
+04. Dead Man Runnin'(   Читать дальше...   )Жанр: Alternative, Modern Hard Rock, Post-GrungeПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A4C507E9C78BAF57AEE8B226DB0138B16ADDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549046   (594867) от 05.05.2022
 
 Simple Plan - Harder Than It Looks (2022) [MP3|320 Kbps] <Pop-Punk>
@@ -681,61 +739,6 @@ Tempo Bay - Tempo Bay (2016) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45FCD601AA072D589B0238A94DAA4B95A3839102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553177   (582963) от 25.05.2022
-
-Audra - Going to the Theatre (2002) 2CD, 20th Anniversary Edition, 2022, Remaster [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Moon Swing (Acoustic) [00:02:26]
-02. There Are No Snakes in Heaven (Acoustic) [00:02:51]
-03. Going to the Theatre (Acoustic) [00:05:16]
-04. All Ghosts Spend Their Time Alone (Acoustic) [00:04:23](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockПродолжительность: 2 CD, 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56B4FD78557DEB91B712D943CCB053432BA192A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553334   (582962) от 25.05.2022
-
-Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grave (Stripped) [00:03:16]Жанр: Metalcore, Post-HardcoreПродолжительность: 03:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

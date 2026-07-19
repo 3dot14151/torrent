@@ -1,3 +1,83 @@
+###  Публикация: 1861038   (1062178) от 24.03.2026
+
+А. Фридман | Уравнения с частными производными параболического типа (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит обстоятельное и систематическое изложение теории уравнений параболического типа. В ней подробно освещаются многие проблемы, решенные лишь в последнее десятилетие. Общая теория параболических уравнений развивается до уровня, на котором читатель может без труда перейти к изучению периодической научной литературы.
+Автор уделяет большое внимание краевым (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC052709AB4BF0361F1210170AF973C68828CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861034   (1062172) от 24.03.2026
+
+К. Миранда | Уравнения с частными производными эллиптического типа [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой единственный в современной литературе систематический обзор теории эллиптических уравнений с частными производными. Подробно изложены наиболее важные разделы теории линейных и нелинейных эллиптических уравнений второго порядка. Библиография содержит более шестисот названий работ, опубликованных главным образом в период 1924—1953 гг.
+Книга (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0F3ABABF895F7430E59D88C2D82FEC403BD46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861017   (1062170) от 24.03.2026
+
+Л. Хёрмандер | Введение в теорию функций нескольких комплексных переменных (1968) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга принадлежит перу видного ученого, ведущего специалиста в области теории дифференциальных уравнений. Автор известен нашему читателю по ряду его книг в этой области, вышедших в русском переводе. Хермандеру удалось очень компактно изложить основные идеи и понятия теории аналитических функций нескольких комплексных переменных. В основу изложения легло изучение (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B68245AF5E69D0C5D47935893DC09C5B58DCA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860156   (1061775) от 19.03.2026
 
 Люсьенн Феликс | Элементарная математика в современном изложении (1979) [PDF]
@@ -599,84 +679,6 @@ José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D85F49A3DF3CD34FB1D676406B149B43AAD7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851114   (1054767) от 31.01.2026
-
-M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алгебра в том виде, в каком мы её знаем сегодня, состоит из множества различных идей, концепций и результатов. Примерная оценка числа этих различных «элементов» составляет от 50 000 до 200 000. Многие из них получили названия, и ещё больше могли бы (и, возможно, должны) иметь «название» или удобное обозначение. В дополнение к первичной информации, это руководство (   Читать дальше...   )Жанр: МатематикаИздательство: ElsevierФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F165BA688773C5EFBB850ACBE67A866E046AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850824   (1054633) от 30.01.2026
-
-Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850623   (1054617) от 30.01.2026
-
-Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054617.jpg" />
-</div>
-
-
-###  Подробнее
-
-The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
 ```
 
 https://mybot314.ru/tekegram_catalog/

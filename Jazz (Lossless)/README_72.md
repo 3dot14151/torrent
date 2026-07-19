@@ -1,121 +1,3 @@
-###  Публикация: 1012700   (793828) от 01.05.2016
-
-Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Black Pearl [03:39]
- 02.In A Mellow Tone [05:21]
- 03.Man From Bad [04:16]
- 04.Ode To Billie Joe [06:41](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E797157A0231A25444A3C268500E29E5C07A9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012606   (793822) от 01.05.2016
-
-Count Basie & His Atomic Band - Complete Live At The Crescendo 1958 (2016) 5CD, Phono Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793822.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Moten Swing #1 [05:51]
-02.Cute #1 [03:51]
-03.Sweetie Cakes [04:29](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 05:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5394D2F8E0592345139EE8EAB874C5655B5E19AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386594   (793791) от 30.05.2020
-
-B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live At The Regal — концертный альбом Би Би Кинга. Вышел в 1965 году на лейбле ABC Records. Запись была сделана 21 ноября 1964 года на концерте в Чикаго в Regal Theater.
-
-В 2003 году журнал Rolling Stone поместил альбом Live At The Regal на 141 место своего списка «500 величайших альбомов всех времён». В списке 2012 года альбом находится также на 141 месте.01. Every Day I Have The Blues (2:39)
-02. Sweet Little Angel (4:12)
-03. It's My Own Fault (3:36)
-04. How Blue Can You Get (3:37)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BFCDACCAED73A9F388CEF2DF3864F2F877E0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122971   (793720) от 06.04.2017
-
-The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With The Wind And The Rain In Your Hair (5:18)
-02. Oslo (5:11)
-03. Later Blues (5:07)
-04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122904   (793719) от 06.04.2017
 
 Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +627,122 @@ Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53A99111CE6F72CB6A0E4FFC61C6083EADEE4AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274754   (792276) от 08.01.2019
+
+Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Home [5:32]
+02. Samba Mom Mom [4:54]
+03. In A Mellow Tone [5:32]
+04. Don't Let The Sun Catch You Cryin' [4:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5240A8AE4EDA6122B6E3E14138E864365D8CA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274616   (792275) от 08.01.2019
+
+Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792275.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dead End (04:58)
+2. Gotta Lotta Shakalada (03:54)
+3. New Moves (04:16)
+4. Zalal'e Mini (Take It Easy) (06:12)(   Читать дальше...   )Жанр: Funk-jazzПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AE2665AEF9BD770AABA897BD507900456550D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201543   (792265) от 25.01.2018
+
+David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (1980, 1982) 1997, 32 Jazz [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Must Change [04:36]
+02. Mama Lou [05:55]
+03. Davey Blue [09:16]
+04. Carnegie Blues [08:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB19EA1269130A8449B4C326E1A51BEB92861A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201558   (792264) от 25.01.2018
+
+Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teach Me Tonight [03:13]
+02. Fallin' in Love with Love [04:03]
+03. Little Bird [03:07]
+04. A Sleepin' Bee [03:52](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DF4DC26DECC7E1435E5078E09446B404BEB714
 ```
 
 https://mybot314.ru/tekegram_catalog/

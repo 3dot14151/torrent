@@ -1,90 +1,3 @@
-###  Публикация: 1622935   (200519) от 30.03.2023
-
-VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Rock Me (1975) (3:07)
-02. Amanda Lear - Rockin' Rollin' (1978) (3:07)
-03. Amy Holland - Anytime You Want Me (1983) (3:24)
-04. Angel 'o - Secrets Of The Night (1980) (5:05)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 06:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623724   (200245) от 05.04.2023
-
-VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200245.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pet Shop Boys - Go West (2003 Remaster)
-002. Cher - Believe
-003. Blur - Song 2 (2012 Remaster)
-004. Rod Stewart - Rhythm of My Heart(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FACE9FC51E5AFE3C66C2A6176E0EDEC7D98AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626256   (199880) от 13.04.2023
-
-VA - Hits of Active Rest (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dean Lewis - How Do I Say Goodbye (2:43)
-002. David Kushner - Mr. Forgettable (3:07)
-003. Conan Gray - Heather (3:18)
-004. Burna Boy - For My Hand (feat. Ed Sheeran) (2:39)(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B81C53ABD96C8C775D0FFD9675C3B4B711C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627341   (199675) от 18.04.2023
 
 VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, R&B>
@@ -744,6 +657,93 @@ VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590512   (188650) от 14.11.2022
+
+VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready)
+02. Ed Sheeran - 2step (feat. Lil Baby)
+03. Smyles - Running up That Hill (A Deal with God)
+04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827248   (185749) от 20.10.2025
+
+Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (Radio Version) (3:12)
+02. Dreams (Instrumental Version) (4:18)
+03. One Step From Heaven (Special Version) (4:03)
+04. Dreams (Original Version) (4:18)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427113   (183671) от 27.11.2020
+
+VA - Hit Music (зима 2020) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183671.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sam Smith - Diamonds (3:33)
+002. Jason Derulo & Nuka - Love Not War (The Tampa Beat) (3:12)
+003. Volkonsky & Filatova - Буду С Тобой (2:57)
+004. KSHMR feat. Jeremy Oceans - One More Round (Free Fire Booyah Day Theme Song) (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 08:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E71ADB8176FEDEEDA69BA4CBE8595FBB12F6D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

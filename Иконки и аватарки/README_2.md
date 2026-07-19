@@ -1,30 +1,3 @@
-###  Публикация: 1225694   (658502) от 17.05.2018
-
-Иконки - GraphicRiver - Social Media Icons Bundle - 13321643 [AI, EPS, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки в векторе и не только с официальной документацией.
-Автор: Brandify Studio.Формат: AI, EPS, PNGРазрешение файлов: 133 x 256 - 256 x 290
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E96776A43FDF426D44D421713F412331E6D629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225760   (658499) от 17.05.2018
 
 Иконки - Creative Market - 1800 Minimal Icons - 849317 [PSD, EPS, AI, SVG]
@@ -680,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158C95F529E3B1BCA83956763DBEFB136853F90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546323   (480198) от 12.09.2012
+
+LEV Icons Pack by KSV [Графика]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480198.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEV Icons Pack by KSV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9713C6C6A74D10C1B92D54AD962FD57816C2BD7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

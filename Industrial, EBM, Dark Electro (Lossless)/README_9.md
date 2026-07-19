@@ -1,3 +1,32 @@
+###  Публикация: 1798718   (66577) от 24.05.2025
+
+Kmfdm - Hau Ruck 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Industrial Rock, Electro-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Your Hate 2025 [00:05:03]
+02. Hau Ruck 2025 [00:05:21]
+03. You'Re No Good 2025 [00:04:58]
+04. New American Century 2025 [00:04:50](   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4624937AF9650B732C516F2EF09780890C3D0CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798705   (66557) от 24.05.2025
 
 Device Noize - Reflejos (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro>

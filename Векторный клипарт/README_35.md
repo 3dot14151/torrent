@@ -1,111 +1,3 @@
-###  Публикация: 947874   (415393) от 18.10.2015
-
-Векторный клипарт - Vintage ornamental divider and arabesques [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шаблон для дизайна.
-Поздравительная открытка в винтажном исполнении, приглашение, декоративное покрытиее обложки с кружевными элиментами.
-5 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC584EDCF55D2F943B290224616C003E373655B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251611   (415238) от 02.10.2018
-
-Векторный клипарт - Chinese 2019 Backgrounds 3 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Китайский новый год свиньи 2019.
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F1E763AB333EA914D0051076F159BC2E3D7E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711018   (413657) от 15.10.2013
-
-Векторный клипарт - Осенние фоны / Autumn backgrounds [AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние фоныФормат: AI,EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B62E16F70CB78110059F1C19124704432F973F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711065   (413649) от 15.10.2013
-
-Векторный клипарт - Календарь 2014-4 /  Calendar 2014-4 [AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь 2014Формат: AI,EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24749A62C0AE27C1C4EA64F82679BE6567DF02CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948120   (413156) от 19.10.2015
 
 Векторный клипарт - Vector gold baroque pattern [EPS]
@@ -687,6 +579,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C2638603B472609EA5CD7480827253289218312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949207   (376892) от 23.10.2015
+
+Векторный клипарт - Vintage backgrounds with patterns [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+9 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1B53AAAC14FFF17CE20B57DCD5559AF010C9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949203   (376883) от 23.10.2015
+
+Векторный клипарт - Luxury vintage vector backgrounds [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскошные винтажные векторные фоны.
+Декоративные шаблоны для дизайна.
+AI 8 | EPS 25 | + JPG PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF4A3882F4E5E87E4D76250E3277089BFD70B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949204   (376731) от 23.10.2015
+
+Векторный клипарт - RETRO CARS [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ретро авто в векторе.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1082BD954497600BF9FE62A41D659DEE6DECE391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949875   (374648) от 24.10.2015
+
+Векторный клипарт - Gold patterns on dark background [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+Золотые узоры на темном фоне.
+20 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B5C61D23482C27404AD4584A2AFA5B0FFBFEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

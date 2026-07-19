@@ -1,3 +1,91 @@
+###  Публикация: 1274428   (792118) от 08.01.2019
+
+Hymn - Sarah Brightman in Concert (2018) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт Sarah Brightman, снятый 21.09.2018 в зале Ludwigs Festspielhaus (Fussen, Bavaria, Germany).
+Фильм демонстрировался во многих кинотеатрах (в т.ч. в 450 залах США) 8.11.2018, предваряя выход 15-го альбома исполнительницы "Hymn". Всемирное турне в поддержку альбома стартовало 24.11.2018 в Сан-Пауло (Бразилия), в программе тура предполагается (   Читать дальше...   )Act 1.Hymn - The Opera
+01.Gothica
+02.Fleurs Du Mal
+03.Stranger In Paradise(   Читать дальше...   )Производство: Music Delight Productions GmbHЖанр: Pop, Classical, CrossoverРежиссер: Gerd F.SchultzeАктеры: Sarah BrightmanЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B172621DF70FAF31C0A6C247196588B8EF71AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949172   (792036) от 25.01.2018
+
+Поёт Людмила Сенчина (1976) TVRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт ленинградского телевидения с участием Людмилы Сенчиной.1. Я не знаю (из спектакля «С любимыми не расставайтесь», В. Гаврилин — О. Фокина)
+2. Я к тебе не вернусь (А. Петров — И. Резник)
+3. Ты, словно белая ночь (В. Соснов — М. Ромм)
+4. Песня о материнской любви (А. Петров — Т. Харрисон, перевод Т. Калининой)(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: МузыкальныйАктеры: Людмила СенчинаПродолжительность: 0:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB7A6740A783D3149D2A8C76D2AFDE8CA982A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185433   (791949) от 25.01.2018
+
+Сборник клипов - Русские 2000-2016 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот сборник я включил самые достойные и хитовые поп клипы от музыкантов с постсоветского пространства с 2000 по 2016 год. Это 2 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Интро
+061 Валерий Меладзе - Иностранец
+062 Ани Лорак - Обними меня
+063 Группа 101 - Дай мне время(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EF177AF121F36BBA49F79F32F8B2A22ED94300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201387   (791512) от 26.01.2018
 
 Rick Wakeman - Made in Cuba (2005) DVD9
@@ -82,88 +170,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510664   (790280) от 18.11.2021
-
-Bobby McFerrin - Try This At Home (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_790280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert "Bobby" McFerrin, Jr - мастер импровизации и король аудитории. Виртуозно управляя голосом, маэстро вовлекает в выступление зрителей, заставляя их открывать таланты в себе.01. Harmonizin'
-02. Try This At Home
-03. In The Morning
-04. Staccato Groove(   Читать дальше...   )Производство: EuroArtsЖанр: Jazz, VocalРежиссер: Joe BrandmeierПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF4D11A58FE9A091E44FCF7C46A9373CA435415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510890   (790273) от 18.11.2021
-
-Bobby McFerrin - Spontaneous Inventions (1986) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_790273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта в Лос-Анджелесе 28 февраля 1986 года.
-The Aquarius Theatre, Hollywood.Производство: blue noteЖанр: Jazz, Vocal, IprovisationРежиссер: Bud SchaetzleАктеры: Bobby McFerrin & audienceПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27502E0FFFEC0576A7E375B8F3557CC7578BFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510625   (790215) от 18.11.2021
-
-Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_790215.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2000-м году, на рыночной площади (Marktplatz) в Лейпциге прошел концерт, посвященный 250-летию кончины Иоганна Себастьяна Баха. Концерт был необычный и уже само название говорило о том, что зрители услышат джазовые версии известных произведений композитора. Место концерта было выбрано не случайно, т.к последние 27 лет жизни Бах провел в Лейпциге, а рыночная площадь (   Читать дальше...   )Производство: EuroArtsЖанр: Jazz, ClassicalРежиссер: Helga DubnyicsekПродолжительность: 02:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5528EDD2A928E8D364C2F20AFA6BD3377C523896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508879   (790210) от 18.11.2021
 
 Век любви. Концерт к 100-летию Арно Бабаджаняна в Кремле (2021) SATRip
@@ -183,32 +189,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE792AB6796F82554D094DEF13AD9DACAACEE106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476723   (789649) от 19.11.2021
-
-Bobby McFerrin - Live In Montreal (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_789649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Bobby McFerrin на Festival International de Jazz de Montreal в 2003 году.Производство: L'Équipe Spectra / UniversalЖанр: Jazz, Vocal, IprovisationРежиссер: Alan ChicoineПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9BFCF8D2BB8F204C780D8CC591D0A121D67E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,6 +679,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62EAEA3C5D02408657FBB942C15FA780C525C017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388642   (784183) от 11.06.2020
+
+Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broadcast on Public Broadcasting Stations in the US, The Sarah Brightman Special, Harem: A Desert Fantasy was widely available for purchase on DVD. In addition to containing videos of songs from Harem, it also included new videos of “Time to Say Goodbye” and “Anytime, Anywhere,” a photo gallery, a thirty minute “Behind the Scenes” documentary, and a 5.1 surround (   Читать дальше...   )1. Harem (Cancao do Mar)
+2. Beautiful
+3. Mysterious Days
+4. Anytime, Anywhere(   Читать дальше...   )Производство: Austria, DoRo Produktion / USA, Angel Records / EMIЖанр: Classical Crossover, Adult Contemporary, Ethnic Fusion, Adult Alternative, Vocal Pop, Spoken Word, Middle Eastern Pop, Middle Eastern TraditionsРежиссер: Rudi Dolezal, Hannes RossacherАктеры: Sarah BrightmanПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08FD5812E1DFE198111FC49209C4FD7E8813F8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 961059   (303518) от 30.11.2015
-
-Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love For Sale [04:43]
- 02.Prelude To A Kiss [03:35]
- 03.Ida, Sweet As Apple Cider [03:08]
- 04.Willow Weep For Me [04:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261475   (303497) от 11.11.2018
-
-Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Gene [13:58]
-02. Scamperin' [8:49]
-03. Blue Greens and Beans [9:05]
-04. Hip Tip [8:55]Жанр: Hard BopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00E959855100AD7EF169517FB9B17CFED8B46CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261535   (303493) от 11.11.2018
-
-Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday [4:19]
-02. Take Me Down [3:56]
-03. Dreamland [4:17]
-04. Queens Road [3:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-PopПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9FB0FD0EB2ED4A8812D960D8E739E08B42C793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261531   (303492) от 11.11.2018
-
-Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil May Care [2:45]
-02. Fat Daddy [3:22]
-03. Inolvidable [4:51]
-04. Lullaby of Birdland [4:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD015F93FCB47B69C4452DE75AEB439FFA20C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261519   (303434) от 11.11.2018
 
 Lisa Ekdahl - More of the Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -751,6 +635,122 @@ Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A70636C37CA11105AA3B17AFAEAC641CE634E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261784   (301272) от 12.11.2018
+
+Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India [4:52]
+02. Sunology [5:43]
+03. Advice to Medics [2:05]
+04. Super Blonde [2:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261773   (301271) от 12.11.2018
+
+Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just for a Thrill [3:59]
+02. For Someone I Love [4:34]
+03. For All We Know [3:28]
+04. Lazy Melody [2:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538FC140C8094FF873738B4137C25E744630C303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261782   (301267) от 12.11.2018
+
+Antonio Carlos Jobim - Jazz 'Round Midnight (1963 - 1994) 1998, Verve [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passarim [3:41]
+02. Amor Em Paz (Once I Loved) [3:38]
+03. Photograph [2:15]
+04. So Danco Samba (Jazz Samba) [3:46](   Читать дальше...   )Жанр: Brazilian Jazz, Bossa NovaПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9010E54ED9E71A4212213E1412E117E2AE3CC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078692   (300878) от 01.12.2016
+
+National Youth Jazz Orchestra - London Pride (2006) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Ring Fanfare (0:55)
+02. London Pride (3:34)
+03. Citrus Fruit With Bells On (6:04)
+04. A Nightingale Swang (5:54)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C5C1B576F5C96D1AA0A9ED5367247E03821342
 ```
 
 https://mybot314.ru/tekegram_catalog/

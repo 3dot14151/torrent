@@ -1,3 +1,29 @@
+###  Публикация: 1221656   (692890) от 25.04.2018
+
+R-Studio 8.7 Build 170955 Network Edition [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692890.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Studio - лучшее на сегодняшний день программное обеспечение для восстановления данных. Поддерживает файловые системы FAT12/16/32, NTFS, NTFS5, Ext2FS (Linux). Позволяет восстанавливать файлы, как на локальных логических и физических жестких дисках, так и на дисках, расположенных на удаленных компьютерах через компьютерную сеть.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E053503C6CAED88174F8C81FAA72510B485B084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221590   (692878) от 25.04.2018
 
 AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition 7.0 RePack by D!akov [Multi/Ru]
@@ -641,32 +667,6 @@ Total Vectorize - простая программа для конвертиро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB00F8391339C4D29E34B7DA4A8D80D461CE77A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028238   (692583) от 21.06.2016
-
-CCleaner 5.19.5633 Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692583.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58210161B4D760D5BC2EF2940A3E0D403C7E1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

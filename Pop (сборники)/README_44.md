@@ -1,3 +1,32 @@
+###  Публикация: 1285451   (719055) от 27.02.2019
+
+VA - German Top 50 Party Schlager Charts 25.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1B1BE63885ABCEECE6D175A0C6F5F5BDE4643B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400537   (718857) от 05.08.2020
 
 VA - Best New Synthpop (2020) [MP3|320 Kbps] <Synthpop, Dance>
@@ -716,35 +745,6 @@ VA - German Top 50 Official Dance Charts 28.04.2017 (2017) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E69F884870F3E3A04CC44B1844ED22F6CEB3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130052   (716406) от 01.05.2017
-
-VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo - Swalla 3:36
-002. Ed Sheeran - Shape Of You 3:54
-003. Ed Sheeran - Galway Girl 2:51
-004. Harry Styles - Sign of the Times 5:41(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0B9858749BB64CDBB952DD2FD6AE7F55D93906
 ```
 
 https://mybot314.ru/tekegram_catalog/

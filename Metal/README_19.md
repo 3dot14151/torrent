@@ -1,3 +1,90 @@
+###  Публикация: 993244   (897765) от 04.03.2016
+
+Mortal Terror - Creating Destruction (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral March
+02. Too Old To Die Young
+03. Speed Demon
+04. Death Zone(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B111FDB57CCA4DBEF2E89F4B6E2750E677695D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101058   (897172) от 05.02.2017
+
+Nightwish - Vehicle of Spirit (Live) (2016) 3CD [MP3|320 kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vehicle of Spirit - релиз от финской симфо - метал группы Nightwish . Два шоу были записаны во время Endless Forms Most Beautiful World Tour. Oдин на Tampere Stadium (31 июля 2015 года) , а другой на Уэмбли (19 декабря 2015). Кроме того , различные песни были записаны по всему миру. Он был выпущен 16 декабря 2016 года в Европе и 7 января 2017 года в Северной Америке.01 | Shudder Before The Beautiful | 06:58
+02 | Yours Is An Empty Hope | 05:47
+03 | Ever Dream | 05:10
+04 | Storytime | 05:41(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 05:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42048AAB513CEBAB8FCCCA302DFA986E14D28224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370455   (897045) от 27.03.2020
+
+Welicoruss - The Best of Welicoruss / Siberian Heathen Horde (2016-2020) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spellcaster [00:06:12]
+02. Siberian Heathen Horde [00:05:20]
+03. Path of Seductions [00:05:01]
+04. Frostbounded [00:05:08](   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 2 CD, 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6943DBFAD2D8C3D046313C8FB1838F8FB0B46A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370380   (897029) от 27.03.2020
 
 The Black Dahlia Murder - Verminous (2020) [MP3|320 Kbps] <Melodic Death Metal>
@@ -658,93 +745,6 @@ Eternal Of Sweden - Heaven's Gate (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7117F01387961AA3088196A62589D3F88EC446C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102588   (889454) от 10.02.2017
-
-Aeternam - Ruins Of Empires (2017) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Damascus Gate
-2. Paropamisadae
-3. Sun Shield
-4. The Keeper Of Shangri-La(   Читать дальше...   )Жанр: Melodic Death Metal, Symphonic Metal, Folk MetalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F842C4E8DF3E9010F63103A0011AD4682F578353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102650   (889450) от 10.02.2017
-
-Cranial - Dark Towers / Bright Lights (2017) [MP3|320 кб/с]<Atmospheric Sludge Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889450.jpg" />
-</div>
-
-
-###  Подробнее
-
-[11:25] 01. Dark
-[10:45] 02. Towers
-[11:43] 03. Bright
-[10:54] 04. LightsЖанр: Atmospheric Sludge Metal, Progressive MetalПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23286F462C02C68A40DB86CE51E9DA0A3A7F0388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494444   (889354) от 07.09.2021
-
-Redemptus - Blackhearted (2021) [MP3|320 Kbps] <Sludge, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Blackhearted [00:06:18]
-02 Heads You Win Tales I Lose [00:03:53]
-03 Sunk in Perpetual Tidal Waves [00:02:31]
-04 It Was Never Meant [00:03:39](   Читать дальше...   )Жанр: Sludge, Post-MetalПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C033FB43A34B49F9725AA077B977D53CFC512A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

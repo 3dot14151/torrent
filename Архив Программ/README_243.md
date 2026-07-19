@@ -1,3 +1,29 @@
+###  Публикация: 982303   (947995) от 03.02.2016
+
+Air Explorer Pro 1.5.0 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, поддержка подключения по протоколам WebDAV и FТP.Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB1D8FC016BB75004E30AE4E85A57E54D264FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982448   (947994) от 03.02.2016
 
 BitTorrent Free 7.9.5 Build 41713 Stable [Multi/Ru]
@@ -647,32 +673,6 @@ KLS Backup - мощная программа, предназначенная д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6281C8730AF9D333003FEE0DB1537674B40895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090287   (947104) от 06.01.2017
-
-AIMP 4.12 Build 1880 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947104.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DDB26A58B947786183660DAA9F7B61AA0417F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

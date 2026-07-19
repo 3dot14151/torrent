@@ -1,3 +1,90 @@
+###  Публикация: 755412   (927918) от 10.02.2014
+
+Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You're A Woman   (3:55)
+02.  Back To The Future   (3:45)
+03.  L.O.V.E. In My Car   (3:32)
+04.  Jungle In My Heart   (3:41)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988170   (922472) от 19.02.2016
+
+VA - Number One Party '70 '80 Compilation (2003) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazebo - I Like Chopin (01:39)]
+02. Delegation - Put A Little Love On Me (02:00)
+03. Radiorama - Desire (01:51)
+04. Radiorama - Vampires (02:01)(   Читать дальше...   )Жанр: Italo-Disco, FunkПродолжительность: 00:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317C2817C9EF25D2E52C9F0962D7069B60950B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366817   (920140) от 13.03.2020
+
+VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (Special Extended Remix) (06:10)
+02. Caron - Out Of The Night (The First Step) (Extended Version) (07:09)
+03. Ivan - Fotonovela (Extended Special Remix) (06:14)
+04. Sabrina - Boys Boys Boys (Extended Dub Remix) (05:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE0A57EE072BED95404B675C6ECD1DE7922506E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366811   (918882) от 14.03.2020
 
 Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Disco>
@@ -652,93 +739,6 @@ Patty Ryan - You Are My Lover (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E92671E96B1EC22334EFF90CFF069E9C4836230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373035   (880084) от 06.04.2020
-
-Eruption - Disco Stars (2019) Bootleg [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 One Way Ticket 3:37
-02 Raising My Family 3:41
-03 Mr. Pilot Man 3:36
-04 Step Runnin 3:08(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C3493D18589874D7C940211734CD87F664287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373781   (876815) от 08.04.2020
-
-VA - Italo Nites Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Record Playerz - Italomatic (6:27)
-02. Ziggy Phunk - Lost Treasures (6:17)
-03. Rayko - Inchi (6:46)
-04. Chris Massey feat. Mike Grubert - Castro Beat (7:30)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 01:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E1A1B9E3BE39BBE1A69FDB3C246F939A235C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373779   (876617) от 08.04.2020
-
-VA - Italodisco Rarities (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wol Vo - Born Again (3:13)
-02. Jay & Jason - Breaking (6:01)
-03. Jay & Jason - Do You Want (5:38)
-04. Wol Vo - Forever (3:46)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 02:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6991F74E6F189F6202B74E192EA1090F7C478A32
 ```
 
 https://mybot314.ru/tekegram_catalog/

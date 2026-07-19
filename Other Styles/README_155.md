@@ -1,3 +1,177 @@
+###  Публикация: 667310   (221377) от 20.11.2020
+
+VA - Sweet Saxophone (2000) 3 CD [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите погрузиться в атмосферу неги и удовольствия и захватить с собой любимую девушку, то этот дисксет для вас. Саксофон обладает магическим сексуальным (уж извините за каламбур) притяжением. Испытайте на себе и убедитесь в этом.CD-1
+1. Caeptn Coock - Auch Matrosen Haben Heimweh (2:58)
+2. Bill Anderson - My Happyness (2:24)
+3. Billy Vaughn - Morgen (2:29)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CFBFC8BC97DEC78A809584E35D641650086A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342774   (221373) от 04.12.2019
+
+Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01. Birds (6:49)
+1-02. Fall in love (5:10)
+1-03. After the rain (6:19)
+1-04. Inspiration (5:28)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAFB477885A7B964656228CFE2F5874D8CE0887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269285   (221207) от 14.12.2018
+
+Хелависа - Люцифераза (2018) Deluxe Edition [MP3|320 Kbps] <Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кракатук
+2. Поверь
+3. Шей
+4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188892C453E405F28819EAD8EEFAC9AD8F341AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966159   (221064) от 17.12.2015
+
+Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. More than Words 4:16
+ 2. Free Spirit 5:35
+ 3. Moon Dust 5:28
+ 4. Sedona Suite (Sunrise/Prayer/Joy/Sunset) 12:23(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAADF2E89100C4632778ECE748E06277EEE5CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425643   (220574) от 21.11.2020
+
+Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else’s Dream (3:38)
+ 02. Let’s Go to Vegas (3:10)
+ 03. It Matters to Me (3:17)
+ 04. Bed of Roses (3:04)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D0F606A43E7539030EAF62CF8AA1AA61B0CBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084209   (220505) от 18.12.2016
+
+Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Master (02:43)
+02. New Mexico (04:25)
+03. Las Cruces (02:26)
+04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084210   (220326) от 18.12.2016
 
 Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -583,180 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1856F99DA2281C58B3129FA198B09D32B86D8349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241967   (218549) от 15.12.2018
-
-VA - Александр Зацепин Золотая коллекция (2003) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Этот мир придуман не нами [02:38]
-02. Всё было [03:19]
-03. Помоги мне [04:38]
-04. Одиссей [02:38](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084587   (218480) от 19.12.2016
-
-VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
-02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
-03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
-04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737323   (218456) от 22.12.2013
-
-David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, World, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origins (4:15)
-02. The Forbidden Sea (5:09)
-03. Lumaria (4:06)
-04. Sessa Nulma (4:12)(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC91A6CAD61A7D7168069B2F1C2AD8A5DF34A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084331   (218426) от 19.12.2016
-
-VA - Великие и неповторимые. Звезды советского кино (1930-1950) (2001) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из х/ф ПУТЕВКА В ЖИЗНЬ (1931 г.)
-01. Щи горячие. Голова ль, моя головушка. Отчего да почему. Гаврила - Михаил Жаров, Рина Зеленая
-
-Из х/ф ВЕСЕЛЫЕ РЕБЯТА (1934 г.)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80317B591BE11B22215DBF107343B3BFB9E48702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084586   (218418) от 19.12.2016
-
-VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
-02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
-03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
-04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966405   (218179) от 18.12.2015
-
-Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Celts (02:57)
-02. Aldebaran (03:06)
-03. I Want Tomorrow (04:02)
-04. March Of The Celts (03:17)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337BFED10803B3E3FB11A469F1569A74D50B9C7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

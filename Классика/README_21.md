@@ -1,32 +1,3 @@
-###  Публикация: 1219947   (707907) от 17.04.2018
-
-VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ-Chart - I'm Here Alone
-02. Rumor - Canzone Per E
-03. Lorenzo Casanova - Gitarro Amor
-04. Soheyl Keyani - Alles wird gut (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Indie, AcousticПродолжительность: 02:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB67324C24F70F89DA7C2E67E085E4E768D510CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220333   (705893) от 18.04.2018
 
 Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Classical, Piano>
@@ -719,34 +690,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 506856   (681349) от 09.06.2012
+###  Публикация: 1029500   (680134) от 27.06.2016
 
-Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Medieval>
+Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossover, Vocal>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fairy Appears (01:56)
-02. Queen Mab (03:50)
-03. El Velo Azul (03:39)
-04. Moon Spell (02:44)
-05. Summatem Deam (03:57)
-06. Diadem of the Night (05:35)
-07. Summoning of the Artists (03:17)
-08. A Reason to Live (04:24)
-09. Nocturne (02:34)
-10. Le Lacrime di Proserpina (02:17)(   Читать дальше...   )2007-2010Жанр: Neoclassical, Ethereal, MedievalПродолжительность: 00:47:46
+01. Land Of My Fathers (3:24)
+02. Beethoven's Ode To Joy (With David Garrett) (3:44)
+03. Sanctus (Elgar's Nimrod) (3:39)
+04. Barcelona (With Alfie Boe) (4:28)(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 00:55:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507718   (679256) от 10.06.2012
+
+Alirio Diaz - Four centuries of the Spanish Guitar 2CD (1992) [FLAC|Lossless]<Classical, Instrumental>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granados - La maja de Goya
+02. De Falla - Homenaje
+03. Malats - Serenata Espagnola
+04. Segovia - Etude
+05. Turina - Fandanguillo
+06. Moreno Torroba - Sonatina
+07. Sainz de la Maza - Campanas del Alba
+08. Sainz de la Maza - El Vita
+09. Sainz de la Maza - Habanera
+10. Sainz de la Maza - Boeeto Andaluz(   Читать дальше...   )1992Жанр: Classical, InstrumentalПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFAEBA24AEA8B9EF61AAFC46F64A4CDF9831DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

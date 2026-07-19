@@ -1,3 +1,90 @@
+###  Публикация: 248224   (473718) от 15.09.2012
+
+Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Someone Is Waiting For You
+04. Buggy Boy(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:14:06 + 01:10:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406579   (472768) от 04.09.2020
+
+Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
+02. Linda Jo Rizzo - Paradise Island Amor (03:08)
+03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
+04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurodanceПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245734   (469886) от 07.09.2018
+
+VA - Hustle! Reggae Disco: Kingston-London-New York (2002) 2017, Reissue [FLAC|Lossless|tracks + .cue] <Reggae, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Sisters - Ring My Bell (07:58)
+02. Derrick Laro and Trinity - Don’t Stop Til You Get Enough (07:29)
+03. Chariot Riders - Do It Nice & Easy (04:03)
+04. Black Harmony - Don’t Let It Go to Your Head (07:19)(   Читать дальше...   )Жанр: Reggae, DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0300FF9D2BBF42B1D62B8D494CBF199C7FB5A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161264   (469658) от 27.08.2017
 
 VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
@@ -680,99 +767,6 @@ VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169835   (401510) от 29.09.2017
-
-Юрий Соснин - Для тебя (2015) [FLAC|Lossless|tracks] <Italo-Disco, Spacesynth, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождество (5:23)
-02. Happy New Year ! (4:43)
-03. Иллюзия (4:55)
-04. Digital Dance (4:16)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, InstrumentalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE23F80B8AB008744BECB4727F0D2FD44A019536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566975   (396697) от 29.10.2012
-
-Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Radio 04:02
-02. Love To Love You Baby 04:15
-03. Try Me, I Know We Can Make It 03:18
-04. I Feel Love 03:21
-05. Our Love 03:46
-06. I Remember Yesterday 04:46
-07. I Love You 03:11
-08. Heaven Knows 03:31
-09. Last Dance 04:59
-10. MacArthur Park 03:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171409   (395585) от 05.10.2017
-
-Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (5:15)
- 02. Gonna Get You (5:20)
- 03. Hysteria (4:05)
- 04. Love On The Dance Floor (6:32)(   Читать дальше...   )Жанр: Disco, HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577B7D5D59AA593C8857479F394BFF559EC535DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

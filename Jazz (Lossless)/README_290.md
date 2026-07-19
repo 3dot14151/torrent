@@ -1,119 +1,3 @@
-###  Публикация: 1194639   (155687) от 25.12.2017
-
-Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight (03:44)
-02. Baby Lone (03:47)
-03. That's Right! (03:19)
-04. Stay Swing (03:33)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346964   (155484) от 21.12.2019
-
-Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Feel So Young [3:24]
-02. Pennies from Heaven [3:18]
-03. It Had to Be You [3:08]
-04. When You're Smiling [3:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346960   (155448) от 21.12.2019
-
-Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu Ase Turpa Ikavi
-02. Plane Song
-03. Belfast
-04. Nine Million Bicycles(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8578F32168CA16952CC221D92E940DDB0D0C4214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433826   (155040) от 22.12.2020
-
-Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'n' Easy [3:37]
-02. Body and Soul [6:27]
-03. But Not for Me [5:42]
-04. Moonglow [3:57](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B764CBCB7E600C216999069EE0285AC6AA5F93D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433865   (155012) от 22.12.2020
 
 Matthew Halsall - Salute To The Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Spiritual Jazz, Ambient>
@@ -745,6 +629,122 @@ Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E4D04EE56466B9ED9C961D9684FDCAE8D1907AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194617   (154397) от 26.12.2017
+
+Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Up and Down [04:12]
+02. Strollin' [07:24]
+03. Groovin' High [05:43]
+04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347183   (154369) от 22.12.2019
+
+Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This (2019) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Face the Music and Dance (feat. Sharon van Etten) [4:07]
+02. The Sidewinder/The Beat Goes On (feat. Inara George) [4:32]
+03. Driftin' [4:43]
+04. The Thrill Is Gone/Django (feat. Miley Cyrus) [3:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC53B3B56C930549860BEB14265951A8B610130C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600853   (154362) от 29.12.2022
+
+Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There'll Be Some Changes Made [7:20]
+02. How Come You Do Me Like You Do [12:58]
+03. Blues My Naughty Sweetie Gives to Me [5:47]
+04. Tin Roof Blues [7:38](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29FAD8A2A3752B87ECB72C5372AA495A630BCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600851   (154305) от 29.12.2022
+
+Warren Wolf - Christmas Vibes (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Christmas Tree [3:32]
+02. Do You Hear What I Hear? [4:14]
+03. Skating [3:48]
+04. Dance of the Sugar Plum Fairy [3:56](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48B3D68247672BDC14E3552F62F55A915AC2FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

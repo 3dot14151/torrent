@@ -1,154 +1,3 @@
-###  Публикация: 544768   (484344) от 10.09.2012
-
-VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orchestra>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Воздушная кукуруза (Герхон)  02:34
-Оркестр Тома Спенсера
-
-02 - Красный сарафан (обр.Дж.Ласта)  02:10
-Оркестр Джеймс Ласта
-
-03 - Ты прекраснее солнечного света (Р.Катшер)  02:53
-Оркестр Гаральда Бантера
-
-04 - Гордая Мэри (Дж.Фогерти)  02:40(   Читать дальше...   )Жанр: Instrumental,OrchestraПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637AFB3FB3DA48CACF5B3FD45FD613122FAE884F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938269   (483944) от 17.09.2015
-
-Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orchestra of Belarus) (2CDs) (2004) [FLAC|image +.cue]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entr'acte (06:41)
-02. Introduction und Ensemble "Wisst ihr nicht, was wir hier sollen ? (11:59)
-03. Ariette "Hchste Lust ist treues Lieben" (03:41)
-04. Arie "Ach, wenn das du doch vermchtest!" (08:19)(   Читать дальше...   )Жанр: Classical, Romantic Period, OperaПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BF1D119CE8C6AD9DB088DFCEADC34FF7C5118D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938291   (483737) от 17.09.2015
-
-VA - Complete Classical Chillout (2015) [MP3|320 кб/с]<Classical, Instrumental, Chillout>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up North Session Orchestra, W. Axl Rose - November Rain
-02. Up North Session Orchestra, James Hetfield, Lars Ulrich - Nothing Else Matters
-03. Up North Session Orchestra, Edvard Grieg - Lyric Pieces, Book 5, Op. 54 IV. Notturno
-04. Up North Session Orchestra, Paul David Hewson, David Howell Evans, Larry Mullen Jr., Adam Clayton - With Or Without You(   Читать дальше...   )Жанр: Classical, Instrumental, ChilloutПродолжительность: 02:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41451A921ADCECA74406806D68970A460943FC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159555   (483735) от 20.08.2017
-
-Antonio Lucio Vivaldi - Complete Opus 8 "Il Cimento dell'Armonia e dell'Inventione": 12 Concertos including The Four Seasons / Nikolaus Harnoncourt (2009) [FLAC|Lossless|tracks + .cue] &l ...
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto, Opus 8 No.7 in D minor 'Per Pisendel' RV.242
- 1. I.Allegro [02:39]
- 2.  II.Largo [01:51]
- 3.  III.Allegro [03:08]Жанр: ConcertoПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BD2FA526DC61E07071F48A5D37F4D980560B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405374   (483215) от 30.08.2020
-
-Sweet Susie, Manni Montana ‎ - Kv 2006 (Inspired By Mozart) (2005) [FLAC|Lossless|image + .cue] <Electronic, Trip Hop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Manni Montana –	Papageno Superstar	4:27
-2.	Sweet Susie –	Street Style Symphony	5:10
-3.	Sweet Susie –	Don Giovanni Meets Jean Reno	3:58
-4.	Manni Montana – 	Osmin's Wonderworld	4:41(   Читать дальше...   )Жанр: Electronic, Trip Hop, Classical CrossoverПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99C7B6634C2C83E4C6A344730E5008574846276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405351   (483071) от 30.08.2020
 
 VA - Ave Maria (Unknown) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
@@ -757,6 +606,157 @@ Sleeping Beauty
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9B575EC1D966BF832DDC33EE6E208ABF657CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940740   (464766) от 26.09.2015
+
+Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.cue)]<Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, PianoПродолжительность: 00:55:21
+
+01. I. Vivace con brio [05:42]
+02. II. Andantino cantabile [08:29](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940074   (464764) от 26.09.2015
+
+Brahms - Ein deutsches Requiem (John Eliot Gardiner & Orchestre Revolutionnaire et Romantique) (1991) [FLAC|image +.cue]<Classical, Romantic Period, Mass, Sacred music, Requiem>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464764.jpg" />
+</div>
+
+
+###  Подробнее
+
+A German Requiem op. 45 (for soloists, chorus and orchestra)
+01. Selig sind, die da Leid tragen (09:57)
+02. Denn alles Fleisch, es ist wie Gras (13:13)
+03. Herr, lehre doch mich (08:58)(   Читать дальше...   )Жанр: Classical, Romantic Period, Mass, Sacred music, RequiemПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A44E600F05F2631D8CFC34E1EA83244F0DB5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940275   (464759) от 26.09.2015
+
+Beethoven - Piano Sonatas Nos.26, 27 & 29 (Solomon Cutner) (2000) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 26 in E flat major ("Les Adieux"), Op. 81a
+01. Les Adieux- 1. Les Adieux- Adagio - Allegro (06:49)
+02. Les Adieux- 2. L'Absence- Andante espressivo (03:54)
+03. Les Adieux- 3. Le Retour- Vivacissimamente - Poco Andante (05:42)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, SonataПродолжительность: Testament
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D7CDD7D328C3CB60552E408446474BE6427967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549339   (459664) от 21.09.2012
+
+VA - Лучшая музыка против стресса #100 (2012) [MP3|224 кб/с]<Classic>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альбинони. Концерт для гобоя с оркестром ре мажор, соч.7 №6: II. Adagio
+02. Вивальди. Концерт для скрипки с оркестром ля минор, соч.4 №4, RV 357: II. Grave
+03. Моцарт. «Маленькая ночная серенада», концертная симфония для скрипки и альта с оркестром, KV 525: II. Romance. Andante
+04. Бах. Органная прелюдия ре минор, BWV 539 (переложение Т. Докшицера)
+05. Альбинони. Концерт для трубы и органа ми-бемоль мажор: I. Grave
+06. Гайдн. Симфония №49 фа минор, Hob.I:49 «La Passione»: III. Menuetto
+07. Моцарт. Дивертисмент №3 для струнного оркестра фа мажор, KV 138: II. Andante
+08. Бах. Соната №5 до мажор, BWV 529: II. Largo
+09. Бах - Гуно. Ave Maria (переложение С. Болтина)
+10. Альбинони. Концерт для трубы и органа соль минор: I. GraveЖанр: ClassicПродолжительность: 06:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9FE728F69F4EF4000E234A54B1757ACF1191BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059551   (459362) от 05.10.2016
+
+Il Volo with Placido Domingo - Notte Magica - A Tribute To The Three Tenors (2016) Live [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - La forza del destino: Sinfonia (Live) 8:04
+ 02. - Turandot: Nessun Dorma (Live) 3:32
+ 03. - Granada (Live) 4:28
+ 04. - Mattinata (Live) 2:40(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 01:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A651D59E58DD7ACBCD83B17B269B7D0EBA95303
 ```
 
 https://mybot314.ru/tekegram_catalog/

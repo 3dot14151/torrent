@@ -1,3 +1,61 @@
+###  Публикация: 923924   (560645) от 02.08.2015
+
+Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods of Speed
+ 02. Criminal
+ 03. Save Your Breath
+ 04. Wolves and Doors(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722C0CC85522E539F96E6B33F5D96052F2C5258C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235573   (558664) от 12.07.2018
+
+Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|320 Kbps] <Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The U.S.S.A. 2:27
+02. If I Fall 3:57
+03. Desert Song 4:43
+04. Hole Of Isolation 2:23(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280BB255EF4C8EBBE32873B3D68F0408366F3C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305628   (555933) от 02.06.2019
 
 Печной Сверчок - Ненависть (2019) [MP3|320 Kbps] <Alternative>
@@ -689,64 +747,6 @@ Valoria - Dead Languages (2022) EP [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28902C3A84C614291140D8B3F8E7DE8D5ED76263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557630   (539265) от 16.06.2022
-
-Rings of Saturn - Rings of Saturn (2022) EP [MP3|320 Kbps] <Technical Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539265.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shrine
-2. Kronos
-3. Ascending
-4. Genesis(   Читать дальше...   )Жанр: Technical MetalcoreПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584B658E28AECD14F8751375FBB8D11DA05F6F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557633   (539264) от 16.06.2022
-
-Senna - A Moment Of Quiet (2022) EP [MP3|320 Kbps] <Post-Hardcore, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rosehip
-2. Lavender
-3. Blue Mallow
-4. Jade(   Читать дальше...   )Жанр: Post-Hardcore, Progressive RockПродолжительность: 00:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4FFE2DAFE9B6EEEE95FE1D9B1544935241AE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

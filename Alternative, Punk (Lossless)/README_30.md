@@ -1,3 +1,119 @@
+###  Публикация: 1042871   (576139) от 14.08.2016
+
+Nothing But Thieves - Nothing But Thieves (2015) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Experimental Rock, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excuse Me
+02. Ban All the Music
+03. Wake Up Call
+04. Itch(   Читать дальше...   )Жанр: Alternative Rock, Experimental Rock, Math RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003E44FDA530183D4DB7A085B155E7FC61E35A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151119   (575806) от 17.07.2017
+
+Coldplay - Kaleidoscope (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All I Can Think About Is You (4:35)
+ 2. Miracles (Someone Special) (4:37)
+ 3. A L I E N S (4:42)
+ 4. Something Just Like This (Tokyo Remix) (4:34)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:24:9
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6D42167CF6D1374C6E197B430777BA859BEEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303117   (573033) от 21.05.2019
+
+The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way In (02:41)
+02. Put Some Miles On (04:00)
+03. Black Light (04:40)
+04. Bullet Holes (04:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303590   (570965) от 22.05.2019
+
+Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room Temperature
+02. Right Side of My Neck
+03. Hurts Me Too
+04. Pigeon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043733   (570945) от 17.08.2016
 
 PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
@@ -629,122 +745,6 @@ Masfel - En garde! (2005) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD416C2C2791D536E3DD1234C8DE83650E1F382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556675   (558308) от 10.06.2022
-
-Abyss, Watching Me - Nix (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558308.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spiral
-2. Best Believe
-3. Losing
-4. Prisoner of Honor, Pt. 2(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3819DB183AAE576E5BC8F265DAD53906B66774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235581   (557370) от 13.07.2018
-
-Masfel - Moni (2001) Maxi-Single, Remix [FLAC|Lossless|tracks + .cue] <Experimental rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557370.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Angyaltojás - Angel's Egg
-2. Angyaltojás (remix) - Angel's Egg (remix)
-3. Szívlapát - Heart Shovel
-4. Szívlapát (remix) - Heart Shovel (remix)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B097DD7573C0A329057F3CCFFF6426D78C78FBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556694   (557177) от 11.06.2022
-
-Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557177.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exile the Filth
-2. Vacant Mind
-3. Deadweight
-4. Suffer(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EE8AB67BE91F94453368F9CBDFC2833DCBB5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556682   (557129) от 11.06.2022
-
-Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Connections
-2. The Cycle
-3. Ebb & Flow
-4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

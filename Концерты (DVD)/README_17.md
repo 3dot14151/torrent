@@ -1,175 +1,3 @@
-###  Публикация: 274721   (46880) от 14.08.2024
-
-Deep Purple: Live In California 1974 (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple - Live In California 74 это пожалуй самый грандиозный концерт культовой группы Deep Purple ??!!!
-Видеокассета VHS "California Jam, April 6th 1974" увидела свет в Великобритании в 1981 г. , потом выпушена там же в 1984 и 1991 годах. В США она была издана в 1983 году под другим названием "Live At The California Jam". В Японии, были выпушены (   Читать дальше...   )1. Burn
-2. Might Just Take Your Life
-3. Lay Down Stay Down
-4. Mistreated(   Читать дальше...   )Жанр: Hard rockФормат: DVD VideoПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583269   (46786) от 15.08.2024
-
-Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124408   (46685) от 16.08.2024
-
-Eurythmics Ultimate Collection  (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
-</div>
-
-
-###  Подробнее
-
-. . . Eurythmics" получили признание, благодаря качеству своих песен и сумели остаться фаворитами в средствах информации. Леннокс - одна из наиболее визуально поразительных женских исполнителей, с голосом редкого качества.
-
-. . . Энни Леннокс можно с полным основанием назвать одной из ведущих певиц Великобритании восьмидесятых годов. Концерты Eurythmics - это, (   Читать дальше...   )Жанр: РокПеревод: ОригинальныйПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206735   (46684) от 16.08.2024
-
-Dire Straits - Rockpalast (1979) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
-</div>
-
-
-###  Подробнее
-
-This FULL DIGITAL RECORDING & NOT RE-ENCODED torrent comes from a RE-BROADCAST (APRIL 27/28, 2007)
-FULL DIGITAL RECORDING & NOT RE-ENCODED01. Down To The Waterline
-02. Six Blade Knife
-03. Once Upon A Time In The West
-04. Lady Writer(   Читать дальше...   )Жанр: RockРежиссер: 1Festival (Germany)В ролях: Mark Knopfler: Guitar, Vocals
-David Knopfler: Guitar, Vocals
-John Illsley: Bass, Vocals
-Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжительность: 01:24:43 + 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589698   (46678) от 16.08.2024
-
-Metallica - Quebec Magnetic (2012) DVD9+DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 октября и 1 ноября 2009 года у группы Metallica состоялись два концерта в рамках тура “World Magnetic” в городе Квебек. Всего на оба вечера было продано свыше 33 тысяч билетов. Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Так же стоит отметить, что за данный выпуск проголосовало более 35 (   Читать дальше...   )Производство: Universal MusicЖанр: Thrash MetalРежиссер: Wayne IshamСубтитры: ОтсутствуютПродолжительность: 02:14:52+00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 14176   (46669) от 16.08.2024
-
-METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот концерт, отыграный в Форте Ворс, Техас, в мае 1997 года, пришёлся на "золотой период" группы. Тогда музыкантами впервые была опробована новая концепция живого выступления - концерт на арене. В плейлисте были отыграны классические теперь композиции как со свежих на тот момент альбомов Load/Reload, Black Album, так и с ранних трэш-скрижалей - Ride The (   Читать дальше...   )01 - So What
-02 - Creeping Death
-03 - Sad But True
-04 - Ain't My Bitch(   Читать дальше...   )Жанр: Thrash MetalУчастники: Lars Ulrich - ударники, James Hetfield - гитара, вокал, Kirk Hammett - гитара, Jason Newsted - бас-гитара, бэк-вокалФормат: DVD videoКачество: DVD9Продолжительность: 01:57:53 + 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C8252A9AAF282EDCACFC64AED6E44111121AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544727   (46653) от 16.08.2024
 
 Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus DVD) (2012) DVD5
@@ -739,6 +567,178 @@ PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Форма
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61055   (45636) от 26.08.2024
+
+Kiss: "Rock the nation. Live!" (2005)  DVD9x2
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722745   (45615) от 26.08.2024
+
+Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт коллектива Cheap Trick состоялся в 1999 году в Рокфорде, штат Иллинойс, и потому диск назван Silver, что отмечает 25-летие группы.
+Американский релиз этого концерта в NTSC был издан в 2001 году, а в этой раздаче DVD в формате PAL, выпущенный в 2005 году в Германии.1. Ain't That a Shame
+ 2. I Want You to Want Me
+ 3. Oh Candy
+ 4. That 70's Song(   Читать дальше...   )Производство: ГерманияЖанр: Hard Rock, Power PopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214374   (45526) от 27.08.2024
+
+Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлогается  две концертные записи одного из классиков блюз-рока сделанные с разницей в десять лет от легендарного британского лейбла "Parlophone". Когда у издательства возникла необходимость выпустить положенный статусу суперзвезды видеосборник лучших хитов оказалось, что клипов-то записано меньше, чем пальцев на одной руке. Выход, конечно, (   Читать дальше...   )Концертные выступления:
+Live In Dortmund In 1992
+01. Cry Me A River
+02. Feelin' Albright(   Читать дальше...   )Жанр: Mузыкальное видео, блюз-рок, рок, попПеревод: ОригинальныйФормат: DVD VideoКачество: DVD9Продолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 67580   (45425) от 28.08.2024
+
+AC/DC - Stiff Upper Lip Live 2001 DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brian Johnson - lead vocals
+Angus Young - lead guitar
+Malcolm Young - rhythm guitar, backing vocals
+Cliff Williams - bass, backing vocals(   Читать дальше...   )01. Stiff Upper Lip
+02. You Shook Me All Night Long
+03. Problem Child
+04. Thunderstruck(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 02:07:28 min
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182858   (45404) от 28.08.2024
+
+W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт W.A.S.P. 2001 года в Key Club (Hollywood, L.A.)1. 	Helldorado
+2. 	Inside the Electric Circus
+3. 	Chainsaw Charlie
+4. 	Wild Child(   Читать дальше...   )Производство: Snapper MusicЖанр: Heavy Metal, Glam MetalПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 78762   (45117) от 31.08.2024
+
+Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойник "Live After Death" с записью выступления Iron Maiden на сцене Long Beach Arena в Калифорнии в 1984г. Первый диск содержит полный 90-минутный концерт. Великолепная запись, которая представлена на DVD, намного отличается от обычного живого видео 80-х. При просмотре концерта вы сможете послушать два разных варианта звука - специальную обработку под (   Читать дальше...   )Жанр: Heavy MetalРежиссер: EMI Records UK LtdАктеры: Steve Harris, Dave Murray, Adrian Smith, Nicko McBrain, Bruce DickinsonПеревод: ОригинальныйПродолжительность: > 4.5 часов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E58821F388FACD107C8F045359518230F9F66C
 ```
 
 https://mybot314.ru/tekegram_catalog/

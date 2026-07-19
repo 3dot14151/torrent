@@ -1,3 +1,29 @@
+###  Публикация: 1387665   (791206) от 02.06.2020
+
+AIMP 4.70 build 2217 RC 2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791206.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD50E810B9827615DF0EFF384FC36501005820FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387349   (791197) от 02.06.2020
 
 R-Drive Image 6.3 Build 6303 + BootCD [Multi/Ru]
@@ -649,33 +675,6 @@ uTorrent 3.5.5 Build 44994 (Ad-Free) [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEC3C66CAE2E24502DD26E38926CFF336D53A83A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275108   (790914) от 10.01.2019
-
-Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybrid x86 & x64 (от 09.01.2019) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
-Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BA3B347CAFF1F1F88FEA5A5C837C5EE0613984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 819689   (687987) от 15.03.2019
+
+Any Given Day - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687987.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 - My Longest Way Home
+2016 - Everlasting
+2018 - Loveless (Single)
+2019 - OverpowerЖанр: Melodic MetalcoreПродолжительность: 02:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84481EB9ABD3B3DD3809AE7A58E186EC371D7C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504638   (687699) от 06.06.2012
+
+Delain - We Are The Others (2012) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal,Melodic Metal,Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother Machine (4:36)
+02. Electricity (4:11)
+03. We Are The Others (3:19)
+04. Milk And Honey (4:28)
+05. Hit Me With Your Best Shot (3:58)
+06. I Want You (4:52)
+07. Where Is The Blood (feat. Burton C. Bell) (3:16)
+08. Generation Me (3:44)
+09. Babylon (4:07)
+10. Are You Done With Me (3:07)(   Читать дальше...   )Жанр: Symphonic Metal,Melodic Metal,Female VocalsПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F6FD0B88CB7A0A5F9E5D3252729DADC54B72BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222083   (687479) от 28.04.2018
+
+Riot V - Armor Of Light (2018) 2CD Digipak Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687479.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Victory
+02. End of the World
+03. Messiah(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC67217739F83060BA8FD5828E908D66C51FD5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222337   (687357) от 28.04.2018
 
 Orbit Culture - Redfog (2018) EP [MP3|320 Kbps] <Groove Metal, Melodic Death Metal>
@@ -667,93 +760,6 @@ Dimmu Borgir - Eonian (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13EDA06F559A65BF214FACD92906611DD24DA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030220   (676674) от 29.06.2016
-
-Circle Of Contempt - Structures For Creation (2016) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Inception (02:01)
-02. Filth (03:11)
-03. Ascend From Disruption (02:57)
-04. Structures For Creation (03:21)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4675531F6442DA63B6603FD087F07019E86D4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290798   (676586) от 21.03.2019
-
-Stahlmann - Kinder der Sehnsucht (2019) [MP3|320 Kbps] <Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vom Himmel verloren
-02. Wahrheit oder Pflicht
-03. Die Besten
-04. Mein Leben fällt(   Читать дальше...   )Жанр: Neue Deutsche HarteПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDC5EB74CC9B384B9C2D137665760144B545C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290804   (676323) от 21.03.2019
-
-Battle Beast - No More Hollywood Endings (2019) [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken
-02. No More Hollywood Endings
-03. Eden
-04. Unfairy Tales(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AA47F91C98F72486A35E4C3CAE51DF9E112C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

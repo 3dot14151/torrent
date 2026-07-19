@@ -1,32 +1,3 @@
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350372   (626891) от 14.06.2011
 
 VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
@@ -751,6 +722,35 @@ Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FF81ACE4F521DA3116102AE8A23BFEB4D1A5D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248884   (437148) от 22.09.2018
+
+VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437148.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diana King - I Will Do It 3:41
+002. Phil Giava feat. Jacinta - You're My Destination (Extended Mix) 4:19
+003. Miss Jane - It Is A Fine Day (ATB Remix) 3:18
+004. Nadia & Alan Divall - Superstar (A.Voltage Remix) 4:23(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 08:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
 ```
 
 https://mybot314.ru/tekegram_catalog/

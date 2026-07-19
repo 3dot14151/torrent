@@ -1,3 +1,90 @@
+###  Публикация: 1251826   (413069) от 03.10.2018
+
+VA - Great Rock Collection (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Make Them Suffer - 27 Time
+002. The Longshot - Love Is For Losers
+003. Audiotopsy - What Am I
+004. The Isley Brothers - Total Destruction To Your Mind(   Читать дальше...   )Жанр: RockПродолжительность: 10:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF6968E84DA61FF171B7A6C64AD69A7AEEE8E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325458   (412582) от 15.09.2019
+
+VA - Monarchs Of Oblivion: Rock Collection (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412582.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hail The Sun - Glass Half Empty
+002. Beak - Abbots Leigh
+003. Electric Citizen - Mother's Little Reject
+004. Ubikar - High Step(   Читать дальше...   )Жанр: RockПродолжительность: 11:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFE33B4A815CEE7F8C1AEC5555D7C35BE8CF89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167831   (412577) от 22.09.2017
+
+VA - Lust And Love: Rock Hard Revue (2017) [MP3|320 Kbps] <Hard Rock, Alternative, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412577.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Liv Sin - Black Souls
+002. Mean Streak - Tear DownThe Walls
+003. Vhaldemar - 1366 (Old King's Visions)
+004. Daxx & Roxane - Lust & Love(   Читать дальше...   )Жанр: Hard Rock, Alternative, MetallПродолжительность: 12:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C4053E32083C8B52A557413D802E389771FE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572920   (412369) от 31.08.2022
 
 VA - Music For You vol. 24 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
@@ -658,93 +745,6 @@ VA - Nothing To Lose (2019) [MP3|320 Kbps] <Indie, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDCEA8D3F58F1A39302BE16554F272D842C61DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414533   (383297) от 09.10.2020
-
-VA - Кроссфит 2 (2020) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rise Against - Savior (4:02)
-02 - The Romantics - What I Like About You (2:55)
-03 - Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up) (3:06)
-04 - Rick Springfield - Jessie's Girl (3:14)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 03:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929674FCD887875909F821AF10714173EBC02387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326966   (380781) от 22.09.2019
-
-VA - House Of The Rising Sun (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380781.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beak - The Brazilian
-002. Steady Hands - Drop D And Dance Beats
-003. Newman - Ghost In The Night
-004. Tuka Tuka Version - House Of The Rising Sun(   Читать дальше...   )Жанр: RockПродолжительность: 09:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B32C3FC93BF57958F88AA96916CFAC2F85A86DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326899   (380777) от 22.09.2019
-
-VA - Rock Drive 7 (2019) 4CD [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380777.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Savoy Brown - Payback Time
-02. Mindi Abair & The Boneshakers - Seven Day Fool(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Blues RockПродолжительность: 04:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8946F9D2529647ED86F7AE4ACD2A3A92CEEB6C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,294 +1,3 @@
-###  Публикация: 1383734   (810114) от 16.05.2020
-
-Слава КПСС & Djigli - RARE GODS 4 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DROP INTRO [02:09]
-02. PHNOM PENH [03:02]
-03. SHUGARMAN [02:54]
-04. JOSEPH BRODSKY [03:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330EAA0ACAE7FCA1742E27227EB06181E92CC76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383736   (810110) от 16.05.2020
-
-Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До мурашек [02:56]
-02. Da Da Da [03:18]
-03. Аккуратно [03:00]
-04. 1, 2 [02:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383719   (809962) от 16.05.2020
-
-eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beauty of It [01:19]
-02. No (feat. Flee Lord & Grafh) [03:33]
-03. Nothin' Like You (feat. Nyticka Hemingway) [03:07]
-04. The Pot [02:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1499B8EA012628E9171A2FB888B261603C0831AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383716   (809814) от 16.05.2020
-
-All That Glue - Sleaford Mods (2020) [MP3|320 Kbps] <Hip-Hop, Indie, Punk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. McFlurry (Remastered) [04:28]
-02. Snake It (Remastered) [02:28]
-03. Fizzy (Remastered) [02:57]
-04. Rich List [03:03](   Читать дальше...   )Жанр: Hip-Hop, Indie, PunkПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A709F96282420164CDCD2D435E20261E3425D207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009595   (807473) от 22.04.2016
-
-Alai Oli - Равновесие / Глубина (2016) [MP3|320 кб/с] <Alternative Rock, Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Медея 2
-02. Ладони
-03. La La La
-04. Мост(   Читать дальше...   )Жанр: Alternative Rock, ReggaeПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870D914181E4AEFEC361139D4F39360C6A9E1317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884669   (807072) от 03.04.2015
-
-VA - Pure... Urban (2013) Box Set, 4CD [FLAC|Lossless]<R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему фирма Sony решила, что городская музыка это обязательно R&B? Этого я Вам сказать не могу, но вот то что на этом четырехдисковом сете собрали самых заметных игроков этого жанра - это я могу сказать с полной определенностью.
-И ещё слово pure имеет значение на городском жаргоне virgin - девственный. Так что перед Вами девственно чистая городская музыка.CD1:
-01. R Kelly - Bump n' Grind [1993]  (4:11)
-02. TQ - Westside [1998]  (3:53)
-03. Alicia Keys - No One [2007]  (4:08)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 04:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCA85A4E5D2C92A78BBA27E197412F1782A07F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198392   (806058) от 12.01.2018
-
-VA - Reggae (2018) [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zanaba – Reggae 2018 3:36
-02. Kingston Kings – Hands In The Air 4:11
-03. Sam Aica – Never 3:40
-04. Steel System – Jamaica Styling 4:09(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D782C53456086BC09C3AE91A70779F02DB516BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505490   (804246) от 27.10.2021
-
-Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804246.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «99 Problems» Big Baby Tape 2:39
-2. «So Icy Nihao» Waves B 2:33
-3. «Big Tymers» Flory 3:11
-4. «Dirrt» Big Baby Tape 2:41(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A977BC92CCD467B5543F12BF7ECE3E5F9F31DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505856   (802497) от 28.10.2021
-
-Барбитурный - Ч/Ч (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802497.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:34] 01. Голова
-[2:48] 02. Вверх ногами
-[3:11] 03. Для пустых залов
-[3:27] 04. Муза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120394   (801855) от 31.03.2017
-
-50 Cent - Best Of (2017) [MP3|320 Kbps] <Rap, Hip Hop, Gangsta Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  50 Cent - In Da Club  3:14
-02.  50 Cent feat. Nate Dogg - 21 Questions  3:44
-03.  50 Cent - P.I.M.P.  4:10
-04.  50 Cent - Disco Inferno  3:34(   Читать дальше...   )Жанр: Rap, Hip Hop, Gangsta RapПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E3297C7F59CE827B68CEB6997F6198EA978150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198935   (801606) от 15.01.2018
 
 VA - This Is Kizomba (2017) [MP3|320 Kbps] <Reggae, Pop>
@@ -746,6 +455,296 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B3FF0E2CA2D7CBB20BC66E891CE5C7FAE16464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511195   (789419) от 20.11.2021
+
+ChipaChip, Vnuk - Дохлый номер (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шизгаре [02:35]
+02. Поцелуй (feat. NyBracho) [03:23]
+03. Ералаш [03:54]
+04. По ошибке [03:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2A33D6620BA2F5312D28FD406AFB7AA49E5FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511202   (789370) от 20.11.2021
+
+Redo - ARKTECH (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X.R.O.M [02:17]
+02. RIZZLA [02:26]
+03. PETROL (feat. BATO, RAM) [03:25]
+04. OCHERED' [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ECF52A39E9C60D7CAC4DED71C90CDD23AB9AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511201   (789364) от 20.11.2021
+
+Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые Найки [04:24]
+02. Ветер и Берёза (feat. Turken) [06:43]
+03. Три сестрёнки [02:56]
+04. Прожигаю [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC1661988A2B58D9C2A7084506D17558896D90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511205   (789361) от 20.11.2021
+
+ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ради нее [03:37]
+02. Время [03:23]
+03. Без тебя [03:30]
+04. Пацаны [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E04498F1EF9FF10B84E93D3C61EFC46678E888B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511198   (789315) от 20.11.2021
+
+Loc-Dog - Счастье в простом (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интерес [02:41]
+02. Иду к ней [03:08]
+03. Подгрузило 2021 [02:21]
+04. Счастье в простом [02:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81784306FC438182F92F4EC3654EC790E48E8582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511211   (789314) от 20.11.2021
+
+Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Потерян [02:54]
+02. Помолчи [02:57]
+03. Рахманинов [02:56]
+04. Плач гитары [03:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420190CAF7ED2EB3935779ADFB71BABBDE0A9D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511207   (789311) от 20.11.2021
+
+ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цитрус [03:00]
+02. Лимб [03:47]
+03. Карантин (feat. СД) [02:40]
+04. Насквозь [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDDB4DB85C237FEC95D5508A3FF0D0CBF9BDAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511214   (789310) от 20.11.2021
+
+SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO [02:03]
+02. FLOWJOB [01:58]
+03. МИКРОЗАЙМ [03:28]
+04. МНОГА ТРОЕК [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436FEA215CD80968C05B7015B6EBE6A0A0B46827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511206   (789309) от 20.11.2021
+
+Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Картина мира [02:49]
+02. Голгофа [03:51]
+03. Монархия 2.0 [03:05]
+04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511200   (789304) от 20.11.2021
+
+VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звони Эмилю (prod. by shawtyglock, Roks, Waves B) [03:05]
+02. Исповедь (feat. TVETH) (prod. by GloryKeyz., fonkyfake) [03:24]
+03. Что он за демон (prod. by GloryKeyz.) [02:22]
+04. Вампирский щит (prod. by GloryKeyz., kaguya, enoughsleep) [02:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A45968A8E0B4812B8D34F7B6B5D70AE51811D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1194242   (155980) от 25.12.2017
+
+Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Be Gone (04:42)
+02. Secret (04:52)
+03. Before the Day (04:23)
+04. Comin' Home (03:31)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56F2588F8134E1443D76919023B69192D2873DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194256   (155946) от 25.12.2017
 
 Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
@@ -716,35 +745,6 @@ VA - Hit News Vol. 5/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC888A5C5A0619663B43365DEBB3D4CABEFEAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519023   (151118) от 22.12.2021
-
-VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Starship - Nothing's Gonna Stop Us Now (4:30)
-03. Cher - Dancing Queen (3:42)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37147A51A7F38BEA4DEA0439D5AAECFB50D14943
 ```
 
 https://mybot314.ru/tekegram_catalog/

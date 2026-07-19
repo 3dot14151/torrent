@@ -1,32 +1,3 @@
-###  Публикация: 1371779   (888691) от 01.04.2020
-
-Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_888691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Michael Brecker And Lisa Fischer)
-02. I Shot The Sherrif (Maxi Priest And Lee Ritenour)
-03. Get Up Stand Up (Lee Ritenour And Dave Grusin)
-04. No Woman No Cry (Jonathan Butler)(   Читать дальше...   )Жанр: Jazz, Reggae, Funk / SoulПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01B5DA74F9AF97449C4509AA958A3ED74674EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994834   (888241) от 09.03.2016
 
 John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -744,6 +715,35 @@ Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A53DF760F56115179C4E81435A6EE95F8A7406C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995470   (884786) от 11.03.2016
+
+Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alone Together [03:19]
+ 02.Blues in C Minor [06:08]
+ 03.River Dry [13:06]
+ 04.Round Midnight [09:15](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582DA309CF7652CB18096DB9571525507CFDCEE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

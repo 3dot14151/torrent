@@ -1,3 +1,29 @@
+###  Публикация: 1701966   (116060) от 23.02.2024
+
+Руки Вверх! Лужники на Бис! (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые хиты на главном стадионе страны: видеоверсия концерта на БСА «Лужники» 22 июля 2023 года собравшего рекордные 75 000 зрителей.Жанр: концерт, музыкаРежиссер: Роман БутовскийПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701988   (116056) от 23.02.2024
 
 «Крематорий» в Горбушке. 39 лет (2022) WEBRip [H.264/1080p]
@@ -682,37 +708,6 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [720p]
 08. Instrumedley
 09. Trial of Tears
 10. New Millennium(   Читать дальше...   )Жанр: Progressive RockАктеры: John Petrucci, John Myung, Mike Portnoy, James LaBrie, Jordan RudessПеревод: ОтсутствуетПродолжительность: 02:56:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489690   (102082) от 29.04.2012
-
-Joe Satriani: Satchurated - Live in Montreal (2010/2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт был снят во время тура “The Wormhole Tour” в поддержку альбома “Black Swans And Wormhole Wizards” 12 декабря 2010 года в концертном зале Metropolis в Монреале, Канада.
-Joe Satriani - Guitar
-Jeff Campitelli - Drums
-Allen Whitman - Bass
-Mike Keneally - Keyboards
-Galen Henson - Rhythm GuitarЖанр: Instrumental RockРежиссер: Pierre & Francois LamoureuxАктеры: Joe Satriani, Jeff Campitelli, Allen Whitman, Mike Keneally, Galen HensonПеревод: ОтсутствуетПродолжительность: 02:19:43
 
 ## Скачать торент
 ```bash

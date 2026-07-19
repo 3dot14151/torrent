@@ -1,32 +1,3 @@
-###  Публикация: 1667859   (175307) от 10.10.2023
-
-Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Due Sono Uno A Roma
-02 – Sin Retorno
-03 – Pensar No Es Sentir
-04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668451   (174044) от 12.10.2023
 
 Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Dance-pop>
@@ -745,6 +716,35 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08B32308F203FB7DF5367F29F1481AE38C7A6B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677990   (149192) от 19.11.2023
+
+Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible [00:03:21]
+02. Terminal 001 [00:03:20]
+03. Breathe [00:04:01]
+04. Axiom [00:04:02](   Читать дальше...   )Жанр: Dance, retrowave, synthpop, synthwaveПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F021FABDA5DCF081FC96C623E25C3915C183B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

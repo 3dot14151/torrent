@@ -1,3 +1,29 @@
+###  Публикация: 972551   (980575) от 07.01.2016
+
+Игра на понижение / The Big Short (2015) DVDScr
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда речь идет о деньгах, совесть молчит. А уж если речь об огромных деньгах!.. Это основанная на реальных событиях история нескольких провидцев, которые независимо друг от друга предсказали мировой экономический кризис 2008 года задолго до того, как о нем зашептались в кулуарах на Уолл-стрит. И предсказав, стали на нем зарабатывать. Сами того не желая.Производство: США, Plan B Entertainment, Regency EnterprisesЖанр: ДрамаРежиссер: Адам МакКейАктеры: Кристиан Бэйл, Стив Карелл, Райан Гослинг, Брэд Питт, Мелисса Лео, Хамиш Линклэйтер, Джон Магаро, Рейф Сполл, Джереми Стронг, Мариса ТомейПеревод: Двуголосый закадровый, любительский (Parovoz Production)Продолжительность: 02:10:09Реклама: В релизе присутствуют вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D0B548B29E2D20698280A50670B3F0F01A4CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356021   (980567) от 29.01.2020
 
 Glass Tides - In Between (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -687,35 +713,6 @@ VA - Best Tracks, Pt. 02 (2015) [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B64FFD7515E69E818F2F42CDD7B5F720AC830424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973364   (980322) от 08.01.2016
-
-DJ Nike Twist - TranceWave 132 @ GTI Radio (07.01.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shake - Teleporter 7.5 (Original Mix) (TesseracTstudio)
-2. Alan Morris - Nothing Left (Uplifting Mix) (Transistic)
-3. A.R.D.I. - Morning Sunlight (ReOrder & Dave Deen Remix) (Silent Shore)
-4. ACCADIA - Blind Visions (Neptune Project's Third Eye Remix) (Lost Language)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214CB4E7A25EE745D499140861D81A2DD9A6CD08
 ```
 
 https://mybot314.ru/tekegram_catalog/

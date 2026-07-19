@@ -1,119 +1,3 @@
-###  Публикация: 1700503   (117015) от 17.02.2024
-
-Andrew Hill Trio - Invitation (1974) 1992, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catfish [6:32]
-02. Lost No More [5:23]
-03. Morning Flower [12:19]
-04. Invitation [8:41](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58C74F42E9B82F635E3F033B227C326491358CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700613   (117010) от 17.02.2024
-
-Сергей Седых - Дельта (2023) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На изломе / At The Break 06:19
-02. Стрекоза на панаме / Dragonfly On a Panama Hat 02:18
-03. Дельта / Delta 05:09
-04. Сюжеты вырванных страниц / Plots of Torn Pages 03:54(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAB8D63FE9B2278F71E0179C3DCC2EA0BAA5065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700515   (117007) от 17.02.2024
-
-VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Fade into the Sunset (4:44)
-02. Chillaxonic - Ethereal (5:09)
-03. eJazz Artistry - No Rhyme, No Reason (3:48)
-04. Kool&Klean - Whispers in My Ear (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987CD0C8C6D2073A9E5BBFF7116E117AB10ACE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700549   (117004) от 17.02.2024
-
-Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. June Night [2:34]
-02. Night and Day [2:48]
-03. Limehouse Blues [2:45]
-04. I Love You [3:05](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE2A1819B06CE6A093CAD6233AF8CAE0CEC0B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700550   (116994) от 17.02.2024
 
 Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +629,122 @@ Alan Broadbent Trio - Trio In Motion (2020) Savant Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF047190FFA6C03D0116CE5129CA40DCD091ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701461   (116323) от 21.02.2024
+
+Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vie en rose [5:23]
+02. C'est si bon [4:43]
+03. Nuit et jour (Night and Day) [5:48]
+04. Le soir [4:24](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41517E1421AC510C140CC32C525B1EB36E553E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701764   (116191) от 22.02.2024
+
+VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Lanza - Together in Electric Dreams (4:14)
+02. Larkster Quartet - Suspicious Minds (3:17)
+03. Meesha - Don’t Start Now (3:10)
+04. Olivia Keast - Get Lucky (4:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43552690CD1F78C61982B5EA5EC75D9CD5049A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701728   (116175) от 22.02.2024
+
+The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear a Rhapsody [3:56]
+02. Meditation [3:55]
+03. In Your Own Sweet Way [4:08]
+04. A Sleepin' Bee [5:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701476   (116173) от 22.02.2024
+
+Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scratchin' in the Gravel [4:36]
+02. Lonely Moments [2:52]
+03. What's Your Story, Morning Glory? [4:27]
+04. Easy Blues [3:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E41675BFB0DDCF39AFD2DFF307E9485637E629
 ```
 
 https://mybot314.ru/tekegram_catalog/

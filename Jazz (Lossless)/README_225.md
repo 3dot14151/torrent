@@ -1,119 +1,3 @@
-###  Публикация: 1078938   (298061) от 02.12.2016
-
-Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Louis Armstrong - 16 Great Songs (1988) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't We Be Friends (3:47)
-02. A Foggy Day (4:31)
-03. Love Is Here To Stay (3:59)
-04. Don't Be That Way (4:57)(   Читать дальше...   )Жанр: Vocal JazzПеревод: Музыка на этом компакт-диске была записана на аналоговом оборудовании. Мы попытались сохранить, насколько это возможно звук оригинальной записи.Продолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152B9F491800762C576CFAEE10479255281FA124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184927   (297540) от 19.11.2017
-
-Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Blue [05:19]
-02. Riverrun [04:29]
-03. Key West Strut [05:24]
-04. Global Village [05:24](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5525243EBB1B107192FB51F98A66DE2D9FCDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184939   (297444) от 19.11.2017
-
-Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Get It
-02. A Foggy Night in Charleston
-03. The Greeter
-04. The Sheik of Araby(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5AE36AAF945D8310B66C1B6A9D0B6002FB8E774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962081   (297238) от 03.12.2015
-
-Don Friedman - Hope For Tomorrow (1975) 2015, Universal[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hope For Tomorrow [10:30]
- 02.A Place Within [05:51]
- 03.Paula's Wish [04:29]
- 04.Beedies [05:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C042DC253003B75B156451EACF1CDA4A5D69AF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962043   (297237) от 03.12.2015
 
 Archie Shepp - Live In San Francisco (1966) 2015, Universal[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -745,6 +629,122 @@ Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEED87B534199CA7B1DD73F2ADFDBE9FCC215DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079352   (294541) от 04.12.2016
+
+Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Huyana (Nicolas Folmer) [08:05]
+ 02.Wild (Pierre Bertrand-Cagnes) [07:18]
+ 03.Zamba Blanca (Pierre Bertrand-Cagnes) [05:05]
+ 04.Cajon Negro (Pierre Bertrand-Cagnes) [04:52](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079540   (294370) от 04.12.2016
+
+Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Parking Lot Blues [05:24]
+ 02.3000 Miles Ago [07:55]
+ 03.Isn't She Lovely [04:58]
+ 04.Soul Fusion [05:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695090B9634FBBCF57701A48068E51B93416CD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079629   (294360) от 04.12.2016
+
+SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294360.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oh Oh
+2. Voodoo Voodoo
+3. New York City Bank
+4. Stay By My Side(   Читать дальше...   )Жанр: Rockabilly, SwingПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735696460516C52219A30644436B2791694B79A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079623   (294187) от 04.12.2016
+
+Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy In Love
+02. Fall
+03. Mama
+04. Midnight Calling(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE78175944421F28F11D830C1EE0766EF89ED3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

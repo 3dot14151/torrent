@@ -1,32 +1,3 @@
-###  Публикация: 1399280   (732967) от 01.08.2020
-
-Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Sir (02:57)
- 02. Wild Ducks And Low Flying Doves (04:08)
- 03. L.B.F.M. (05:26)
- 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399547   (732938) от 01.08.2020
 
 VA - American Rock Hits (2020) [MP3|320 Kbps] <Rock>
@@ -745,6 +716,35 @@ Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE62AC5D5564172CA0A06843F560347B83753A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025051   (712207) от 11.06.2016
+
+Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding The Flame (03:54)
+02. Do You Want Me Now (04:03)
+03. Supersonic Girl (03:07)
+04. Mr. Hangman (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1430719   (169998) от 11.12.2020
-
-Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169998.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Jam Session:
-01. Jam Blues [14:45]
-02. What Is This Thing Called Love? [15:54]
-03. Ballad Medley [17:26](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 03:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430843   (169984) от 11.12.2020
-
-Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) (2018) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 My Funny Valentine 6:37
-2 Bye Bye Blackbird 5:50
-3 For Once In My Life 6:15
-4 'S Wonderful 3:33(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3BDE591AD204EA03C0EBAB0894F2B9B8382359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596433   (169890) от 10.12.2022
-
-Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169890.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Complete Communion [20:41]
-02. Elephantasy [19:39]
-03. Symphony for Improvisers [19:44]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D4E3EC592D265B6D1A5A132DE3CD6F058D23CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344551   (169881) от 11.12.2019
-
-John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [7:25]
-02. 96th Street Sonata: Casilda [4:40]
-03. 96th Street Sonata: Mellow Max [1:53]
-04. 96th Street Sonata: King Bert [3:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048BEC0E7927544099E2912D5188057A8114DB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344544   (169877) от 11.12.2019
 
 Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E8415A5BFBA99FA0F3706FF1792EE54330B2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672594   (168223) от 29.10.2023
+
+Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...For Whom I Love So Much [6:31]
+02. Slow Hot Wind [5:19]
+03. If I Ruled the World [3:04]
+04. I Can't Escape from You [4:38](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F513D2E6BADBB2DA260021FA16D43ED254E8EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672591   (168183) от 29.10.2023
+
+Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine #1 [2:20]
+02. Over the Rainbow [3:32]
+03. Let's Get Lost [3:44]
+04. I've Never Been in Love Before [4:28](   Читать дальше...   )Жанр: CoolПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41EA78662831369D8C35D9BB4067C658E236CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672598   (168160) от 29.10.2023
+
+Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drop [3:53]
+02. Altered State [3:56]
+03. New Mexico [4:07]
+04. On the Bus [3:35](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672593   (168150) от 29.10.2023
+
+Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed the Fire [8:17]
+02. Bust-a-Move [5:06]
+03. Blossom [6:38]
+04. Pinocchio [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

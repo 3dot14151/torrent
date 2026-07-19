@@ -1,3 +1,29 @@
+###  Публикация: 1770323   (32451) от 31.12.2024
+
+Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dog Man: Mission Impawsible воплощает любимую серию книг в жизнь! Погрузитесь в это полное экшена и юмора приключение. Ключ от города попал в руки суперплохого парня, отперев все тюремные двери и освободив множество злодеев. Помогите Dog Man и его друзьям преследовать суперплохих парней в их самой невероятной миссии! Переключайтесь между Dog Man и его Supa Buddies, (   Читать дальше...   )Тип издания: RepackРазработчик: Floor 84 StudioЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434CB3D59FD6CB353682AAED79FE5A4B5F8E4D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770231   (32412) от 31.12.2024
 
 Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
@@ -641,32 +667,6 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:377A4DC318C126E8664CF6010890EF8E8DFBAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773891   (30556) от 18.01.2025
-
-Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический платформер 1983 года Montezuma's Revenge возвращается в стиле 2.5D, и теперь Педро предстоит отправиться в ещё более долгое путешествие с более 100 каверзных уровней! К 40-й годовщине эта ранее незаконченная игра была доработана в соответствии с видением её создателя Роберта Йегера. Теперь вы можете в роли Педро или его сестры Розиты спуститься глубоко (   Читать дальше...   )Тип издания: RepackРазработчик: Mission Critical Studios, Handcrafted Mystical Games, Normal DistributionЖанр: Экшены, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BD34719E5215255D12D3CC405E9FE58DD007A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

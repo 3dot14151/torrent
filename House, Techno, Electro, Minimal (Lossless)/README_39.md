@@ -1,3 +1,183 @@
+###  Публикация: 1233888   (575898) от 02.07.2018
+
+U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Angels (feat Terri B!)
+03. F......Camera
+04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554698   (575678) от 31.05.2022
+
+VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
+02. Seleck - Blows My Mind (Original Mix) 06:55
+03. Ric Niels - Sabeht (Original Mix) 07:01
+04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234161   (574698) от 03.07.2018
+
+VA - Madre Natura, Vol. 32 (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darius Syrossian - Andranik (06:38)
+2. Anna - Leave House (08:16)
+3. Paul C & Paolo Martini - Tears For Fears (Joyce Muniz remix) (06:30)
+4. Viktor Talking Machine - Abby (07:33)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BD0A4C2299D02312DC70733BE0D85A68D567BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362363   (573101) от 12.07.2011
+
+OceanLab - Sirens of the Sea (2008) [FLAC|Lossless]<Progressive House, Trance, Downtempo, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_573101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Just Listen
+ 2. Sirens of the Sea
+ 3. If I Could Fly
+ 4. Breaking Ties
+ 5. Miracle
+ 6. Come Home
+ 7. On a Good Day
+ 8. Ashes
+ 9. I Am What I Am
+ 10. Lonely Girl(   Читать дальше...)Жанр: Progressive House, Trance, Downtempo, ProgressiveПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151410   (572742) от 19.07.2017
+
+New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutti Frutti (Takkyu Ishino Remix) (7:55)
+ 02. The Game (Mark Reeder Spielt Mit Version) (6:48)
+ 03. Academic (Mark Reeder's Akademix) (7:23)
+ 04. People on the High Line (Purple Disco Machine Remix) (7:05)(   Читать дальше...   )Жанр: House, Downtempo, New WaveПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555111   (572218) от 02.06.2022
+
+VA - Digital Emotions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redspace - Zest (Original Mix) 6:42
+02. Fabri Lopez - Abstract Idea (Original Mix) 7:57
+03. MONNER - Katarsis (Original Mix) 7:20
+04. Proluction - Neon Dance (Original Mix) 6:02(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47347F591CA3A9FC70EAF1C52F5D1B658C67EC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043764   (571176) от 17.08.2016
 
 Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -568,180 +748,6 @@ PVNV - SAVE.RESET EP (2017) Taapion Records [FLAC|Lossless|WEB-DL|tracks] <Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DD2B634EA7BF71C602C0068BB02AA41B53368A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045663   (558149) от 24.08.2016
-
-VA - Ibiza Classics (2016) [FLAC|Lossless|tracks] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Milan, Phoenix - Carnival [02:53]
-02 Felix - Don't You Want Me 2015 (Classic Mix) [03:39]
-03 Afro Medusa - Pasilda [03:21]
-04 Mason - Exceeder [02:55](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED0672AC4CD76BFCE3CDE829293A3C970CE59AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153472   (558084) от 27.07.2017
-
-Solee - What Remains Are the Memories (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee – What Remains Are the Memories (Continuous DJ Mix)
-02. Solee – Dromen (Reinterpretation)
-03. Solee – Years Gone By
-04. Solee – Infinidad(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 04:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AEA28E0652080D3839E9F7D43B847461CF1F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153587   (558071) от 27.07.2017
-
-Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|image + .cue] <House, Downtempo, Soul, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Too Much (3:52)
-02. Sugar And Spice (I Found Me A Girl) (4:57)
-03. She's A Super Lady (5:05)
-04. A House Is Not A Home (7:08)(   Читать дальше...   )Жанр: House, Downtempo, Soul, DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045683   (558044) от 24.08.2016
-
-VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baum, Caal - Ridearound (Original Mix) (06:35)
-02. Level Groove - Disco Maniacs (Original Mix) (06:57)
-03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
-04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235750   (557363) от 13.07.2018
-
-Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control (09:59)
- 02. Redeem (06:45)
- 03. Redeem (Version) (06:52)
- 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045866   (556782) от 25.08.2016
-
-Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Picture (04:34)
-02. Superstitious (04:54)
-03. On The Beach (03:00)
-04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

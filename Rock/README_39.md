@@ -1,32 +1,3 @@
-###  Публикация: 1544099   (623921) от 14.04.2022
-
-3rd Secret - 3rd Secret (2022) [MP3|320 Kbps] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm of the Ride (4:33)
-02. I Choose Me (4:30)
-03. Last Day of August (5:27)
-04. Winter Solstice (4:22)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5073EA2152C19FCA417F05628D7D9E5C6CEDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295121   (622498) от 11.04.2019
 
 Screamin' Rebel Angels - Heel Grinder (2019) [MP3|320 Kbps] <Rockabilly>
@@ -763,6 +734,35 @@ Swing Cats - A Special Tribute To Elvis (2001) [MP3|256 Kbps] <Rock, Blues, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50159CAA177082E49F7F067CDA616E58E6E4D670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296195   (613450) от 16.04.2019
+
+Reverend Horton Heat - Whole New Life (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole New Life (02:34)
+02. Hog Tyin' Woman (03:11)
+03. Hate to See You Cry (03:47)
+04. Got It in My Pocket (02:44)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC867F94366998C4ADC96BE94C538548C815D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

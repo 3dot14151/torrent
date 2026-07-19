@@ -1,3 +1,29 @@
+###  Публикация: 1276338   (788544) от 15.01.2019
+
+Your Universal MultiBoot Installer UEFI 0.0.1.2 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788544.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF9EA3D2A618AE02C573DB9108CAA7C7AF692DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276316   (788543) от 15.01.2019
 
 IObit Driver Booster 6.2.0.200 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -647,32 +673,6 @@ Notepad++ - бесплатный редактор текстовых файло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AFC5FC10038651C9A1D40D7919671C6D28427B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511858   (788346) от 22.11.2021
-
-ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788346.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2634F12DAD52A673A41E97DB04E8A1704732C69B
 ```
 
 https://mybot314.ru/tekegram_catalog/

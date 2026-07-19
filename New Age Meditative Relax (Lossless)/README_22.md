@@ -1,3 +1,32 @@
+###  Публикация: 1070935   (363997) от 08.11.2016
+
+Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered [FLAC|Lossless|tracks+.cue] <New Age, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Landing (1:05)
+02. Turn Around (3:51)
+03. Gravity Of Love (3:58)
+04. T.N.T. For The Brain (5:17)(   Читать дальше...   )Жанр: New Age, TranceПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950892   (363658) от 29.10.2015
 
 Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
@@ -720,35 +749,6 @@ TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073547   (344639) от 16.11.2016
-
-Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (Feat. Nanuk) (02:18)
-02. The Omega Point (05:39)
-03. Diving (02:52)
-04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

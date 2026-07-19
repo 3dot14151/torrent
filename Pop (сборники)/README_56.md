@@ -1,87 +1,3 @@
-###  Публикация: 1031506   (652149) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U. K - Roadrunner ( 1987 )
-02. T. Ark - Under Cover Lover ( Extended Version 1988 )
-03. Mauro - Lady Africa ( 1987 )
-04. Trans X - 3-D Dance ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031514   (652148) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - Come Back And Stay ( 1987 )
-02. C. C. Catch - Summer Kisses ( 1988 )
-03. Falco - Coming Home ( Jeanny Part II, One Year Later 1986 )
-04. ABBA - I Saw It In The Mirror ( 1973 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516502   (652125) от 29.06.2012
-
-VA - Сливки Европы плюс 7 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40872700EBEE78DF28A1CEE062DEAB4C54B665B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516550   (652107) от 29.06.2012
 
 VA - Летний коктейль хитов (2012) [MP3|256 кб/с]<Pop>
@@ -772,6 +688,99 @@ VA - Русская Дискотека 8 (2012) [MP3|256 kbps]<Pop|Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB54169A3A6D49533FB0AC1DA95B8BF45D787FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516793   (651540) от 29.06.2012
+
+VA - Хит-парад Союз Лето!!! 50/50 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Слава - Sex Не Любовь
+02 Morra - One love
+03 Remady & Manu-L feat. J-Son - Single ladies
+04 Нюша - Воспоминание
+05 Leventina - Freak it out
+06 Горячие Головы - Мы Встретимся Вновь
+07 Pogee feat. Barbara - Abracadabra (Original mix)
+08 El Rico - Игры В Любовь
+09 Modana & Carlprit - Party crash
+10 Vesna - Море Дышит(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA1FAF5932D9C28C8D0C384C35410158BF29C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031685   (651376) от 04.07.2016
+
+VA - Огонек (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женя Белоусов - Золотые купола [05:18]
+02. Мираж - Музыка нас связала [04:28]
+03. Андрей Державин - Чужая свадьба [04:27]
+04. Aлена Апина - Электричка [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 04:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031590   (651250) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 30 (Ласковый Май) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шатунов Юрий - Белые Розы ( 1988 )
+02. Барабаш Юрий - Младшая Сестренка ( 1992 )
+03. Исангулов Рафаэль - Театр ( 1989 )
+04. Шурочкин Владимир - Ласковый Май ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356A4D26E493150B0B567EC9CF709963A1237C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

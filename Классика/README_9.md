@@ -112,35 +112,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 994874   (887421) от 09.03.2016
-
-И. С. Бах (J. S. Bach) - Полное собрание произведений (Hanssler 172 CD) (2000) [MP3|320 кб/с] <Classical>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. conductor: Helmuth Rilling)
-
-01. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': I. Coro 'Wie schön leuchtet der Morgenstern'
-02. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'Жанр: ClassicalПродолжительность: 178:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995241   (886364) от 10.03.2016
 
 Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
@@ -736,6 +707,35 @@ Jenny Oaks Baker - Classic - The Rock Album (2014) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790AE970F87360C56578A841E17B54533161879A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996521   (878769) от 14.03.2016
+
+Giuseppe Verdi - Un ballo in maschera (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Opera>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prelude
+01. Prelude (4:17)
+Act 1
+02. Act 1: "Posa in pace, a'bei sogni restora" (Chorus, Samuel, Tom) (1:35)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

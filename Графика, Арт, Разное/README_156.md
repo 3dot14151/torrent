@@ -1,38 +1,12 @@
-###  Публикация: 1785190   (24733) от 14.03.2025
+###  Публикация: 1790400   (22116) от 08.04.2025
 
-Фотография - FlippedNormals - 500+ Female Turnaround Poses For Sculpting (Reference Pictures) [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем нашу обширную коллекцию из 500+ женских поворотных поз для скульптуры — тщательно подобранный набор справочных изображений, призванных предоставить скульпторам разнообразный набор динамичных и подробных поз. Этот всеобъемлющий ресурс создан для того, чтобы поднять искусство фигуративной скульптуры на новый уровень, предоставляя бесценные справочные материалы, (   Читать дальше...   )Формат: JPGРазрешение файлов: 3400x6048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCCE9D1FA01202B7D3A430309A6697008B7661B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785035   (24701) от 14.03.2025
-
-Обои - Eternal Mix Wallpapers Part 39 [JPG]
+Обои - Eternal Mix Wallpapers Part 57 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22116.jpg" />
 </div>
 
 
@@ -43,7 +17,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17A412E5B2F4E2EFA6905AB5E358A4534E3306F
+magnet:?xt=urn:btih:C7F2478CD4E4657CE2A2B0F5D4478F00BD8B5255
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,15 +25,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785279   (24586) от 15.03.2025
+###  Публикация: 1790590   (22006) от 09.04.2025
 
-Обои - Eternal Mix Wallpapers Part 40 [JPG]
+Обои - Eternal Mix Wallpapers Part 58 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22006.jpg" />
 </div>
 
 
@@ -70,7 +44,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C52AE0ADFED9693D5FBD7F74F3D1A1D233703CFE
+magnet:?xt=urn:btih:D219CC6952D6BBE2242DD0385FDBC2BBEC6D77D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,160 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785551   (24483) от 16.03.2025
+###  Публикация: 1792826   (20718) от 21.04.2025
 
-Обои - Eternal Mix Wallpapers Part 41 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB16FAAA3F31FD1F4A3D34A3A26F79EAE9B664D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785892   (24288) от 18.03.2025
-
-Обои - Eternal Mix Wallpapers Part 42 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 43 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786462   (24096) от 20.03.2025
-
-Обои - Eternal Mix Wallpapers Part 43 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786694   (23980) от 21.03.2025
-
-Обои - Eternal Mix Wallpapers Part 44 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786908   (23872) от 22.03.2025
-
-Обои - Eternal Mix Wallpapers Part 45 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97819BFA69E78FD2D1DE57B49A74DCBEB2027D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786896   (23862) от 22.03.2025
-
-Книжная иллюстрация - Le Petit Journal - Illustrations From History [JPG]
+Книжная иллюстрация - Creative Fabrica - 30 Unique Mandala Coloring Page Bundle for KDP Interior [JPG, PNG, SVG, PDF, AI]
 
 >>Графика, Арт, Разное
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иллюстрации из французской газеты Le Petit Journal.Формат: JPGРазрешение файлов: 3413x1563 - 3069x4382
+Набор из 30 уникальных раскрасок с мандалами для интерьера KDP.Формат: JPG, PNG, SVG, PDF, AIРазрешение файлов: 612 x 792
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FC25D8AFF0FBF8BC384CE359B5BBD1C83249123
+magnet:?xt=urn:btih:4EA0CCF78DCBB28C0A666D58EEF201DDD80E5FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786819   (23858) от 22.03.2025
+###  Публикация: 1792827   (20707) от 21.04.2025
 
-Картинки - Medieval European Sculptors Part 3 [JPG]
+Картинки - Fayne - Creative Fabrica - Mandala Adult Coloring Pages Pack 12 [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотографии средневековых европейских скульптур с авторами, биографиями (на английском и частично на русском) и датами.Формат: JPGРазрешение файлов: Разное
+30 картинок с мандалой в двух разрешениях.Формат: JPGРазрешение файлов: 2550 x 2550 - 2550 x 3300
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E517286A0B325A9C39088480AA79B3E443340CE
+magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786988   (23739) от 23.03.2025
+###  Публикация: 1798622   (17126) от 24.05.2025
 
-Картинки - Dutch Automotive History - NCAD, 159 Producers - 9710 HQ Scans [JPG]
+Картинки - jaceyadrian - Creative Fabrica - Deep Purple Mandala Inspired Wallpaper [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотографии и брошюры из коллекции Нидерландского центра документации по истории автомобилестроения NCAD. Уникальная коллекция NCAD является одним из крупнейших автомобильных архивов в Европе.
-Каждая марка автомобиля сопровождается документом с информацией о годе выпуска, названии марки и страны, выпускающей автомобиль.Формат: JPGРазрешение файлов: Разное
+Изображения в стиле тёмно-фиолетовой мандалы.Формат: JPGРазрешение файлов: 11783 x 11783
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36A48811D6717E6C1365AA3087A816E64620470A
+magnet:?xt=urn:btih:3E3A8CC1DF99E3C8DCB2F667C1A5787AB2269FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,187 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787255   (23662) от 24.03.2025
+###  Публикация: 1799284   (16673) от 27.05.2025
 
-Обои - Eternal Mix Wallpapers Part 46 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5D6E5FA89E2E6CF160167352B3A37710CB317A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787282   (23621) от 24.03.2025
-
-Картинки - Medieval European Sculptors 1000+ JPG [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1000+ картинок работ европейских скульпторов с папками с именами авторов, названием работ, датами и биографией автора на английском.Формат: JPGРазрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C714A625B3ECA5DCA9E1B0C625510C55D0B95366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788138   (23250) от 28.03.2025
-
-Обои - Eternal Mix Wallpapers Part 47 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788352   (23148) от 29.03.2025
-
-Фотография - ArtStation - 1000 Eye & Mouth & Nose & Ear Image Reference Pack – Vol 1 [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет включает в себя 1000 фотографий разных частей лица человека.Формат: JPGРазрешение файлов: 1464x1464 - 10000x7500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788358   (23117) от 29.03.2025
-
-Обои - Eternal Mix Wallpapers Part 48 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414C73C9FAE84A06EB4C048D58863A5AF8001E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788573   (23037) от 30.03.2025
-
-Обои - Eternal Mix Wallpapers Part 49 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C640166B790A5E2726CF11BBE4D6158A74ACCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788552   (23015) от 30.03.2025
-
-Книжная иллюстрация - Harper's Pictorial History of the Civil War (1894) [JPG]
+Книжная иллюстрация - PLAY ZONE - Creative Fabrica - Valentine’s Day Stained Glass Coloring Pages For Adults [EPS, JPG, PDF, PNG, SVG]
 
 >>Графика, Арт, Разное
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иллюстрированная история гражданской войны от Харпера
-
-Это факсимильное издание оригинальной работы, опубликованной в 1869 году, представляет собой сокровищницу первоисточников для любого исследователя. Количество упомянутых деталей придает непосредственность сегодняшним людям. Военные, политические и социальные вопросы подробно обсуждаются. Карты, черно-белые иллюстрации (   Читать дальше...   )Формат: JPGРазрешение файлов: 1689x2517 - 3084x2176
+Раскраски с витражами на тему Дня святого Валентина для взрослых.Формат: EPS, JPG, PDF, PNG, SVGРазрешение файлов: 960 x 1248 - 2550 x 3300
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CEA7224CE08D2D0F5A8715B536652D84C6EB3BB
+magnet:?xt=urn:btih:6755B60B61455BA306B5E156527ACB6BF75D5129
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,26 +156,234 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788571   (23009) от 30.03.2025
+###  Публикация: 1799287   (16663) от 27.05.2025
 
-Фотография - DigitalStock - Retro, Black & White Times [JPG]
+Книжная иллюстрация - E A G L E - Creative Fabrica - 190 Deer Mandala Coloring Pages - KDP [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с оленями в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E9CE6245BAA610FC8BB1C40A3FF67056C99A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799281   (16657) от 27.05.2025
+
+Книжная иллюстрация - CockPit - Creative Fabrica - Bold and Easy Animal Coloring Pages V-09 [JPG, PDF, PNG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с животными.Формат: JPG, PDF, PNGРазрешение файлов: 1792 x 2688
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48EBF05D3288C604B9FE999AD49D898DA775AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799727   (16228) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - Stained Glass Butterfly Coloring Pages [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с бабочками в стиле витражного стекла.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFD114C16FCE1C791993755EED705F2A2E85873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799732   (16224) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 196 Mammoth Mandala Coloring Pages - KDP [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с изображением мамонтов в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E693A1273656AA699ECACD06741C811F78986C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799744   (16221) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 200 Jaguar Mandala Coloring Pages - KDP [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с изображением ягуаров в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB821577C892A5D92578CE095C9AF451AA4408CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799735   (16220) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 220 Decora Anime Girls Coloring Pages [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16220.jpg" />
+</div>
+
+
+###  Подробнее
+
+220 Раскрасок девочек из аниме.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52C51FB4FE24AEF8C0BEF9D6F71A6563BA698E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799798   (16213) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 275 Stained Glass Fairies Coloring Pages [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с изображением витражного стекла с феями.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6F6E696D89B0D577AA523BD78E80B1EB3A2D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800426   (15799) от 03.06.2025
+
+Обои - Art Gallery TV 4K [PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция картин в рамах для режима заставки телевизора.
+Количество: 30 шт.Формат: PNGРазрешение файлов: 3840X2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74DD5FDC4E20608DC94168FC9B33D78CEC2EE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800450   (15791) от 03.06.2025
+
+Фотография - ArtStation - Duo Battle Reference Pictures 930+ [JPG]
 
 >>Графика, Арт, Разное
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Retro, Black & White Times - ретро фотографии в хорошем качестве.
-Количество: 100шт.Формат: JPGРазрешение файлов: 3750x3000 - 3450x3450
+В мире искусства и фотографии вдохновение часто приходит из самых неожиданных источников. Сегодня мы находимся на грани эпической схватки — битвы, которая обещает переопределить наше восприятие искусства позирования. Это титаническое столкновение представляет собой не что иное, как битву между Джеймсом и Эмили, которая обещает стать монументальным событием в мире (   Читать дальше...   )Формат: JPGРазрешение файлов: 2048x1151
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:915FFDC33F25B66F362E501EDDC3C5339DA4EC99
+magnet:?xt=urn:btih:FAE6B76307DC2747FE2AAF496BA0D41100A406D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,15 +391,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788836   (22798) от 01.04.2025
+###  Публикация: 1800517   (15699) от 04.06.2025
 
-Обои - Eternal Mix Wallpapers Part 50 [JPG]
+Обои - Eternal Mix Wallpapers Part 59 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15699.jpg" />
 </div>
 
 
@@ -526,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F58CC6E611EF75AC2FDAD44F1A79DD753AB4E5F
+magnet:?xt=urn:btih:D1E957BDF33719520B81307D266F1E7EEFA9850D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,25 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789160   (22725) от 02.04.2025
+###  Публикация: 1800902   (15353) от 07.06.2025
 
-Картинки - Vintage Style Illustrations of Pretty Womans in 1950's [JPG]
+Книжная иллюстрация - E A G L E - Creative Fabrica - 250 Stained Glass Dragon Coloring Pages [JPG, PNG, PDF]
 
 >>Графика, Арт, Разное
->>Картинки
+>>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Качественные иллюстрации женщин в стиле 50-ых из Adobe Stock.Формат: JPGРазрешение файлов: 2592x1856 - 6720x4880
+Раскраски с изображением витражного стекла с драконами.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D25E44FB00E3585598A55095C5C4647DC9024794
+magnet:?xt=urn:btih:10535B8A84A8EAF5608B1BC26FADA937764B507C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789119   (22711) от 02.04.2025
+###  Публикация: 1800923   (15346) от 07.06.2025
 
-Картинки - PICTURES 01 [JPG]
+Книжная иллюстрация - Bronze Mart - Creative Fabrica - Fox in the Pumpkin Patch Coloring Pages [PNG, PDF]
 
 >>Графика, Арт, Разное
->>Картинки
+>>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разные, интересные, качественные картинки под разные нужды.Формат: JPGРазрешение файлов: 2160x2700 - 15000x10411
+Раскраски c изображениями лисы на тыквенной грядке.Формат: PNG, PDFРазрешение файлов: 613 x 792 - 960 x 1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44C561C20A22699A7D0D92FB243E6917236C9AAB
+magnet:?xt=urn:btih:2D0575D5CCC15D43E448D490C4A657B4BADFAB66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,15 +470,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789047   (22698) от 02.04.2025
+###  Публикация: 1801409   (15093) от 10.06.2025
 
-Обои - Eternal Mix Wallpapers Part 51 [JPG]
+Обои - Eternal Mix Wallpapers Part 60 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15093.jpg" />
 </div>
 
 
@@ -605,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A027E02E0B773994F7D656699ABBC96E46162ECA
+magnet:?xt=urn:btih:568284FCDFF340928AEFC71A35C4C78478417DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,15 +497,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789242   (22614) от 03.04.2025
+###  Публикация: 1801751   (14821) от 12.06.2025
 
-Обои - Eternal Mix Wallpapers Part 52 [JPG]
+Иконки - IconScout - Optical Icon Pack [PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки на оптическую тему.Формат: PNG, SVGРазрешение файлов: 1024x1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44F6DD04D77535369C6546105FB16B05047FB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801889   (14734) от 13.06.2025
+
+Иконки - IconScout - Bakery 3D Icon Pack [PNG, GLB]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки на тему пекарни.Формат: PNG, GLBРазрешение файлов: 1024x1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F880ED10830F9472D5FD46588423C6938921DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802364   (14470) от 16.06.2025
+
+Обои - Eternal Mix Wallpapers Part 61 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14470.jpg" />
 </div>
 
 
@@ -632,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9D0924A23A65FACEE52BC2663C09D1DC921649D
+magnet:?xt=urn:btih:CA49060382F87A9400611AA8BEA08BAC131F6021
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789134   (22532) от 04.04.2025
+###  Публикация: 1802720   (14097) от 19.06.2025
 
-Обои - Весна в мире из мулине [JPG]
+Иконки - ekatastudio - Envato - Camping 3D Icon Set - G8Q2E38 [PNG]
 
 >>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вашему вниманию, представлен набор картинок от молодого, и подающего большие надежды представителя современного искусства - Мявкина, который безвозмездно предоставил нам материал, и попросил разместить его. По слухам, автор ведёт скрытный образ жизни, и избегает общественного внимания. Говорят, женщины его обожают, а дети ходят за ним по пятам. С его слов, автор (   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
+Иконки на тему кемпинга.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8939A26523F4A1C54CA12E42A8C278F9CCF20F47
+magnet:?xt=urn:btih:6D475AABEE4896B9370A36FC3050C91922AE13C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,26 +602,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789670   (22382) от 05.04.2025
+###  Публикация: 1802721   (14090) от 19.06.2025
 
-Обои - Eternal Mix Wallpapers Part 54 [JPG]
+Иконки - ekatastudio - Envato - Camping 3D Icon - YC3Z2FK [PNG]
 
 >>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Иконки на тему кемпинга.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F5314C89D8A57EF2D5B0AFFC29785ADEAF34F16
+magnet:?xt=urn:btih:3C30C553E7B1BC840462A7EF68F78C87F185E3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802989   (14053) от 20.06.2025
+
+Фотография - ArtStation - 550 + Splash Art Weapons And Poses Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splash Art Weapons And Poses Reference Pack содержит коллекцию динамичных поз для всплеск-арта, демонстрирующих использование холодного оружия. С акцентом на движение и действие, позы созданы, чтобы вдохновлять творчество и помогать художникам оживлять своих персонажей с помощью динамичных и убедительных иллюстраций. Независимо от того, новичок вы или профессионал, (   Читать дальше...   )Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB752208F963FE7953D843644C8F36BFFB8E27F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802997   (14045) от 20.06.2025
+
+Фотография - ArtStation - Splash Art Gun Pose Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14045.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пакете представлено более 900 высококачественных изображений с женскими персонажами, вооруженными различными типами оружия. Этот великолепный набор включает в себя различные углы, позволяющие вам выбрать нужную позицию, динамические и статические позы, оружие и многое другое! Это обязательный инструмент для дизайна персонажей, иллюстрации, комиксов и многого (   Читать дальше...   )Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E517246211F0DD29B4F48D4551525A2FAC508999
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1358873   (966285) от 10.02.2020
-
-Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966285.jpg" />
-</div>
-
-
-###  Подробнее
-
-2.01 Days Like This 3:45
-2.02 If I Ever Grow (Shattuck Plaza) 5:14
-2.03 Nowhere Fast 4:27
-2.04 Retainer (Quarks) 7:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37254F892E8975847D50BCDCB0AE8A4BCCCA800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977559   (965474) от 21.01.2016
 
 VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
@@ -745,6 +716,35 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0EF64CC600C6C50FBB47CCB827B8F4C5C12B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365769   (929019) от 08.03.2020
+
+Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saga (5:46)
+02. Barbarella Reloaded (4:13)
+03. Love In Rimini (4:24)
+04. Fancy Lady (4:06)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

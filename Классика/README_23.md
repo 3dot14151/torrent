@@ -1,141 +1,3 @@
-###  Публикация: 514686   (656946) от 25.06.2012
-
-Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2CD [APE|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Quartet #3 In E Minor, Op. 87 - 1. Adagio; Allegro [13:17]
-02. Double Quartet #3 In E Minor, Op. 87 - 2. Andante Con Variazioni [08:38]
-03. Double Quartet #3 In E Minor, Op. 87 - 3. Scherzo: Allegro [06:59]
-04. Double Quartet #3 In E Minor, Op. 87 - 4. Finale: Allegro Molto [07:15]
-05. Double Quartet #4 In G Minor, Op. 136 - 1. Allegro [07:23]
-06. Double Quartet #4 In G Minor, Op. 136 - 2. Larghetto [05:34]
-07. Double Quartet #4 In G Minor, Op. 136 - 3. Scherzo: Moderato; Trio [06:47]
-08. Double Quartet #4 In G Minor, Op. 136 - 4. Finale: Vivace [05:59]Жанр: ClassicalФормат: 2CDПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514832   (656937) от 25.06.2012
-
-Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) [FLAC|Lossless]<Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in B flat major, op.12, No.4
-01. Allegro (03:59)
-02. Largo (07:27)
-03. Allegro (01:56)
-
-Sinfonia in D major, Callen 30
-04. Allegro    (04:25)
-05. Andante (03:49)
-06. Minuetto (02:34)
-07. Presto (02:23)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311F258088C219AD1D02F6D406E2B3AA4C9F0FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514928   (656830) от 25.06.2012
-
-Wolfgang Amadeus Mozart – Divertimenti KV 136-138, 251: The Amsterdam Baroque Orchestra conductor Ton Koopman (1772) Authentic instruments/1990 Erato/FLAC|Lossless<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Divertimento D-dur KV 136 (125a)
-01. 1. Allegro
-02. 2. Andante
-03. 3. Presto
-Divertimento B-dur KV 137 (125b)
-04. 1. Andante
-05. 2. Allegro di molto
-06. 3. Allegro assai
-Divertimento F-dur KV 138 (125c)
-07. 1. Allegro(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DA15278504A728715F98D8732BF86F000DFB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515819   (654165) от 27.06.2012
-
-Johann Sebastian Bach – Oboe Concertos: VA Swedish Chamber Orchestra oboe Alexei Ogrintcouk, Authentic instruments (1713-1730)/2010, BIS BIS-SACD-1769/[FLAC|Lossless]<Oboe>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in F major for oboe, strings and b.c. 18:58
-Reconstructed from BWV49 and BWV169
-Arranged and edited by Hermann Tottcher and Gottfried Muller (Sikorski)
-1. I. Allegro	07:29
-2. II. Siciliano	05:07
-3. III. Allegro	06:12
-Concerto in D minor for oboe, strings and b.c. 11:40
-Reconstructed from BWV 35 and BWV156 Reconstruction by Arnold Mehl (Edition Kunzelmann)
-4. I. Allegro	05:25
-5. II. Adagio	03:00(   Читать дальше...   )Жанр: OboeПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CD257BB91EF9A055E8C2E575B112EEBD00A539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515845   (654163) от 27.06.2012
 
 VA - Современное звучание Мировой Классики (2012) [MP3|320 kbps]<Classical>
@@ -780,6 +642,122 @@ Pieter Wispelwey, Florilegium - Vivaldi: Vivaldi Concerti (1997) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC3E6F032A24FC0613798504551BD8B7683ED3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033814   (635818) от 12.07.2016
+
+Gustav Leonhardt, Alan Curtis, Helmut Hucke, Collegium Aureum - C.P.E. Bach: Concerti Wq 46, 23 & 165 (1990) [FLAC|Lossless|tracks] <Classical, Concertos>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Concerto for 2 harpsichords, 2 horns, strings & continuo
+in F major, H. 408, Wq. 46
+01.  Concerto doppio F major H410 (Wq46) - Allegro    09:57
+02.  Concerto F major H410 (Wq46) - Largo    07:22(   Читать дальше...   )Жанр: Classical, ConcertosПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033840   (635812) от 12.07.2016
+
+Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Campa - La Folia (1490-1701) 1998 [FLAC|Lossless|image + .cue] <Renaissance, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635812.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. Folias Antiguas 
+01.  Folia Rodrigo Martinez (1490)    05:36
+02.  Recercada Quarta sobre la Folia (1553)    01:30
+03.  Folia Para quien crie cabellos (1557)    02:11(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91A8209237945B2AF35BA8C203D49FA1F5389FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542203   (633433) от 09.04.2022
+
+Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLAC|Lossless|image + .cue] <Classical, Overtures>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coriolan, Op. 62 (7:22)
+2. Leonore III, Op.72 (12:49)
+3. Egmont, Op. 84 (7:42)
+4. Leonore II, Op. 72a (12:44)(   Читать дальше...   )Жанр: Classical, OverturesПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144231   (629224) от 21.06.2017
+
+The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilation, Remastered [FLAC|Lossless|image + .cue] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blue Danube Waltz (9:15)
+02. Die Fledermaus Overture (7:45)
+03. Pizzicato Polka (2:34)
+04. Perpetual Motion (3:00)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8973DD276C970F2932B4267411CAC5E92D50C10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

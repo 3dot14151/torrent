@@ -1,119 +1,3 @@
-###  Публикация: 1342193   (226147) от 01.12.2019
-
-Lu Watters' Yerba Buena Jazz Band - Air Shots From The Dawn Club 1941 - 1942 (1997) Merry Makers Record Company [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South [2:45]
-02. London Blues [2:59]
-03. The Wise Old Owl [2:18]
-04. Yerba Buena Shout [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891F1DC2C02C46D63B635994411DE570FBB16318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424805   (226089) от 18.11.2020
-
-Nino Tempo - Purveyor of Balladry: The Best Of Nino Tempo On Atlantic (1990 - 1993) 2018, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darn That Dream (Live) [4:56]
-02. This Masquerade (Instrumental Version) [3:57]
-03. Anyone Who Had a Heart [3:09]
-04. Amazon River (feat. April Stevens) [4:10](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0F3BBEF50D098F24FA785D7AEBA9AC0AE47E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650214   (226058) от 02.08.2023
-
-George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Salah [5:27]
-02. Up Tohickon Creek [6:14]
-03. Graduation Day [4:56]
-04. Indian Summer [7:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23AD0B05047FE95D0803684D6762FC616B7D72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342187   (226029) от 01.12.2019
-
-Earl Hines - Four Classic Albums Plus 1954 - 1961 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226029.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monday Date [2:12]
-02. Bill Bailey, Won't You Please Come Home [3:25]
-03. Do You Know What It Means To Miss New Orleans [2:01](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E55BEE6BFE2DEDAB378B8407F87C01F4ADEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342375   (226020) от 01.12.2019
 
 Kurushimi - What Is Chaos? (2018) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Jazz, Jazzcore, Free Jazz>
@@ -745,6 +629,122 @@ Milt Jackson - Ain't But A Few Of Us Left (1981) 1993, Original Jazz Classics [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E80E9478190BB4EFA7E7D531F1B759E8E8CFB9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269086   (223516) от 13.12.2018
+
+Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto for Tom: Tomfoolery [4:41]
+02. Concerto for Tom: Hornful of Blues [4:55]
+03. Concerto for Tom: Cooking with Bacon [3:16]
+04. Grand Ur [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3528D744CFDDD65D960A39BA04B0816D826ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269089   (223510) от 13.12.2018
+
+Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark [2:46]
+02. Walkin' The Dog [3:07]
+03. Patty Cake, Patty Cake [3:31]
+04. Jazz Me Blues [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268807   (223500) от 13.12.2018
+
+Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saro-Wiwa [9:33]
+02. Chairman Fred (I Wish Fred Hampton Was Here) [7:23]
+03. Knife [7:24]
+04. For Martyrs [3:04](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBF7327D159964003AB2A2AAD76FA5836830C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651109   (223494) от 05.08.2023
+
+Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witch Doctor No. 2 [6:11]
+02. 'Round Midnight [5:52]
+03. Mood for Lighthouse [4:06]
+04. Walkin' [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1768936D05FE37D993130E52151AB4942F4DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

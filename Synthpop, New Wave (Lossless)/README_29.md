@@ -1,32 +1,3 @@
-###  Публикация: 1731388   (107663) от 21.06.2024
-
-3force - Unleash (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Down [00:03:32]
-02. Voyager [00:03:13]
-03. Unleash [00:03:24]
-04. Meet the Devil [00:03:57](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D883A7F89CB6A98F236AA864B6557CA04807E0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708165   (107565) от 23.06.2024
 
 Depeche Mode - A Broken Frame (1982) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
@@ -745,6 +716,35 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06747EC9A871C76C011369AC087491716BF2067A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780925   (70361) от 20.02.2025
+
+VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galaxion - Embryo Zero (5:08)
+02. Phobotrax - A Better Place (5:29)
+03. Dreamtime - Before The Dawn (6:31)
+04. Staffan Ohman - Point Of No Return (6:39)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7D9E3F96299517F093E946D8D0B200CDCB0A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

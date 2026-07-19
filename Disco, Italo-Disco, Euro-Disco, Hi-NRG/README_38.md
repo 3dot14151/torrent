@@ -1,32 +1,3 @@
-###  Публикация: 1340452   (263982) от 23.11.2019
-
-Ole - Super Disco Tube (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Flamenco (Version Larga) (8:36)
-02. Mi Corazon (2:58)
-03. Regresso (5:25)
-04. From Space To Spain (Desde El Espacio A Espana) (6:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215CAC899D7EDE7B36961C2CAF2D844B7676F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193594   (262120) от 21.12.2017
 
 VA - Italo Disco: The Lost Legends Vol.6 (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -743,6 +714,35 @@ Spinners - Dancin' And Lovin' (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE067BBF8A86BC7E9442A78EC527E625791F99D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627574   (242765) от 20.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amaya - Trapped (Vocal Version)
+02. Siberian Heart - Don't Stop The Music (Spezial ZYX Maxi Version)
+03. The Sweeps - The Last Dream (Flashback Remix)
+04. Mention - Dreams (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B68510E50E2D7E187EB59194ED367B510E5758
 ```
 
 https://mybot314.ru/tekegram_catalog/

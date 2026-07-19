@@ -1,3 +1,148 @@
+###  Публикация: 1427613   (182384) от 29.11.2020
+
+VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBaby, Roddy Ricch - ROCKSTAR (3:01)
+02. Internet Money, Gunna, Don Toliver, NAV - Lemonade (3:15)
+03. Jonas Brothers, KAROL G - X (3:05)
+04. J Balvin, Dua Lipa, Bad Bunny, Tainy - UN DIA (ONE DAY) (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE34847CC3026F2D3C24DB800185FCAE2BDD3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427734   (182203) от 29.11.2020
+
+Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of Love (3:44)
+ 02. New Day Ahead (3:41)
+ 03. Love the Light (3:24)
+ 04. Greater Good (3:16)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A176F5F8EC0EF50C96405AB4C7CA91094E648E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593076   (181535) от 25.11.2022
+
+Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisibles [00:03:35]
+02. À tout jamais [00:03:46]
+03. Que l'Aube est belle [00:05:08]
+04. L'Emprise [00:03:55](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593282   (181121) от 26.11.2022
+
+Michael Bublé - Michael Bublé's Cozy Christmas (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Beginning to Look a Lot Like Christmas (03:26)
+02. Let It Snow! (10th Anniversary) (02:39)
+03. Winter Wonderland (02:29)
+04. Have Yourself a Merry Little Christmas (03:50)(   Читать дальше...   )Жанр: Pop, Christmas musicПродолжительность: 00:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1649BFBCB6FF3DD0D14891397980A0FD98FE2163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665842   (180281) от 03.10.2023
+
+Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Came To Dance [00:02:24]
+02. Sorry Daniel [00:03:14]
+03. Bitch With A Broken Heart [00:02:51]
+04. I Wrote A Song [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FBD4CC6DC5B2C4FC4A7A3937630938C2ADE152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666079   (180210) от 03.10.2023
 
 Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
@@ -600,151 +745,6 @@ Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF72627A2E769865EF711F1FE56588B15E8B0EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344380   (170319) от 10.12.2019
-
-V.A. - NOW 100 Hits: Even More Forgotten 80s (2019) 5CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01.Five Star - System Addict
-02.Dexys Midnight Runners & Kevin Rowland - Jackie Wilson Said (I'm In Heaven When You Smile)
-03.The Style Council - Speak Like A Child(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 06:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456B016F046A8DBEC72BCDC5549FAACEE76E90DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672218   (170264) от 27.10.2023
-
-Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To New York (Taylor's Version) (3:33)
-02. Blank Space (Taylor's Version) (3:52)
-03. Style (Taylor's Version) (3:51)
-04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DB53C0A07CB261BF6C58519018E61AA63DF378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672107   (170163) от 27.10.2023
-
-VA - Ballads for a Broken Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Photograph (4:18)
-02. Fleetwood Mac - Landslide (2018 Remaster) (3:20)
-03. Alec Benjamin - Let Me Down Slowly (2:49)
-04. Benson Boone - In the Stars (3:36)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDAB8C279D294113025F7610BEEA5A5802E3836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955776   (170077) от 10.12.2019
-
-Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) 4CD Box set [FLAC|tracks + .cue]<Pop Rock>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170077.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Roxbox!: A Collection Of Roxette's Greatest Songs» - это музыкальная подборка лучших песен шведской поп-рок-группы «Roxette», представленная на 4 CD дисках, она содержит все хиты «Roxette», включая 2 новые песни «One wish» и «Reveal».01. Neverending Love (03:29)
- 02. Secrets That She Keeps (03:43)
- 03. Goodbye To You (04:02)
- 04. Soul Deep (03:35)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 05:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C08D3070B00E40D797B0CAD9A680A08095C58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596561   (169844) от 10.12.2022
-
-Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon (03:06)
-02. Unsichtbar (03:42)
-03. Wer weiss (03:32)
-04. Seit du nicht mehr da bist (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
 ```
 
 https://mybot314.ru/tekegram_catalog/

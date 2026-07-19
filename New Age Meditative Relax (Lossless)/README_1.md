@@ -1,3 +1,32 @@
+###  Публикация: 1349314   (1004225) от 02.01.2020
+
+Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etheric Worlds III (4:57)
+02. Warriors of Light (5:31)
+03. Mirages (feat. Angelux Ruddy) (5:28)
+04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349731   (1003775) от 04.01.2020
 
 Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
@@ -713,35 +742,6 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357327   (970644) от 06.02.2020
-
-Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Oak Wood
-02. Jade
-03. I Love The Rain
-04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

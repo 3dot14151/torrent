@@ -1,3 +1,148 @@
+###  Публикация: 1844580   (1050435) от 28.12.2025
+
+Linkin Park - One More Light (2017) Argentina, 559687-2 [FLAC|Lossless|image + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Can Save Me (3:46)
+02. Good Goodbye (Feat. Pusha T And Stormzy) (3:31)
+03. Talking To Myself (3:51)
+04. Battle Symphony (3:36)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Pop RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DF792B10CECCA23D7090E116B13329621DF2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844582   (1050434) от 28.12.2025
+
+Linkin Park - Living Things (2012) Brazil, 9362495048, AD0001000 Pressing [FLAC|Lossless|image + .cue] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In The Echo (3:26)
+02. In My Remains (3:21)
+03. Burn It Down (3:50)
+04. Lies Greed Misery (2:27)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative Rock, Alternative MetalПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D61E13DE04DFB9B0DABA2C7205DC2E85EFBA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844584   (1050433) от 28.12.2025
+
+Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake (1:41)
+02. Given Up (3:09)
+03. Leave Out All The Rest (3:29)
+04. Bleed It Out (2:44)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative Metal, Alternative RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08791A884C1206242A1437888F061A74E357B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844588   (1050364) от 29.12.2025
+
+Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Experimental, Electronic, Industrial Hip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (1:08)
+02. Pts.Of.Athrty // Jay Gordon (3:46)
+03. Enth E Nd // Kutmasta Kurt Featuring Motion Man (4:00)
+04.Тип издания: DigipakЖанр: Alternative / Nu-Metal, Experimental, Electronic, Industrial Hip HopПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840650   (1047543) от 07.12.2025
+
+Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour— американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман.Список альбомов:
+2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Nu MetalПродолжительность: 06:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601273   (1046460) от 01.01.2023
 
 Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -599,151 +744,6 @@ Foo Fighters - Medicine at Midnight (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD5145A1E273BF4D947681B9B5F608CE7595044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614760   (1037819) от 25.02.2023
-
-Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracker Island (Feat. Thundercat) [00:03:33]
-02. Oil (Feat. Stevie Nicks) [00:03:50]
-03. The Tired Influencer [00:03:31]
-04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615424   (1037586) от 26.02.2023
-
-The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Rainbows Have Ends [00:03:23]
-02. Nothing Can Stop The Sound [00:03:29]
-03. The Light Is about To Change [00:04:25]
-04. Fudge [00:04:31](   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8B1C24B04C47B1BE45067A9635FC44C1505141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442325   (1036942) от 24.01.2021
-
-Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sports! (03:25)
-02. Hasta la Vista (03:42)
-03. Homesick (03:03)
-04. Validation (02:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442320   (1036939) от 24.01.2021
-
-Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas All Over Again (04:20)
-02. Shake Hands With Santa Claus (02:42)
-03. This Is Christmas (03:43)
-04. Christmas Don’t Be Late (01:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616141   (1036742) от 01.03.2023
-
-Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hate Well Spent [00:01:02]
-02. Manic Vortex [00:01:56]
-03. Splendor Solis [00:00:10]
-04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

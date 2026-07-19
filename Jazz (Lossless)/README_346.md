@@ -1,135 +1,3 @@
-###  Публикация: 455898   (77495) от 21.02.2012
-
-Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The Music of Pink Floyd (2008) [FLAC|Lossless]<Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (6:29)
-02. On the Run (Part1) (3:43)
-03. Time (11:00)
-04. Any Colour you like (2:18)
-05. The great Gig in the Sky (8:42)
-06. Money (6:49)
-07. Us and Them (6:23)
-08. Brain Damage (6:20)
-09. On the Run (Part 2) (3:45)2008Жанр: Cool JazzПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455937   (77475) от 21.02.2012
-
-Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House (5:31)
-02. Mode VI (8:14)
-03. Another Tango (6:52)
-04. Turn Out The Stars (9:19)
-05. Rhapsody (8:12)
-06. Very Early (7:02)
-07. But Beautiful Part I (3:41)
-08. But Beautiful Part II (9:13)
-09. Puccini's Walk (5:24)2012Жанр: Jazz, BopПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452862   (76463) от 16.02.2012
-
-Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let the Stars Get in Your Eyes
-02. I Left My Heart in San Francisco
-03. Hawaiian Wedding Song
-04. Seattle
-05. Days of Wine and Roses
-06. Beyond Tomorrow
-07. Ivy Rose
-08. More
-09. We've Only Just Begun
-10. Papa Loves Mambo(   Читать дальше...   )2001Жанр: Vocal JazzПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770620   (71960) от 02.01.2025
-
-Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust/Skylark [6:09]
-02. It Might as Well Be Spring [4:09]
-03. My Funny Valentine [4:37]
-04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771033   (71930) от 05.01.2025
 
 VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -761,6 +629,122 @@ Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210C9DF86B01886E32D5DD78562A04ACDBDB9130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776076   (71334) от 30.01.2025
+
+Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Latin Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corcovado [6:22]
+02. Tears (Razao de Viver) [3:34]
+03. Wave [9:08]
+04. Voce (You) [3:13](   Читать дальше...   )Жанр: Bop, Latin Jazz, Guitar JazzПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D79C10079B2B4729A8965BA17D3E410953F0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776080   (71333) от 30.01.2025
+
+Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Gene Krupa [0:47]
+02. As Catch Can [7:07]
+03. I Can't Get Started [9:51]
+04. Just in Time [6:53](   Читать дальше...   )Жанр: CoolПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEDEA5DF29ECDE32BAC73341AC8CE11FAA15D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776082   (71332) от 30.01.2025
+
+Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ve que (Coming Home) [6:15]
+02. Nguoc dong Huong Giang (Going Up Stream the Perfumed River) [4:36]
+03. Chi toi (My Lovely Sister) [7:23]
+04. Chi toi (My Lovely Sister) [5:36](   Читать дальше...   )Жанр: Smooth Jazz, World FusionПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776079   (71331) от 30.01.2025
+
+Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going There [6:12]
+02. In the Interim [4:25]
+03. This Is My Song [3:09]
+04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
 ```
 
 https://mybot314.ru/tekegram_catalog/

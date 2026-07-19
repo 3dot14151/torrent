@@ -1,3 +1,32 @@
+###  Публикация: 222664   (39726) от 21.10.2024
+
+Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Modern Talking - Youre My Heart, Youre My Soul (3:50)
+2.Modern Talking - You Can Win If You Want (3:43)
+3.Modern Talking - Cheri Cheri Lady (3:45)
+4.Blue System - Sorry Little Sarah (3:30)(   Читать дальше...   )Жанр: Pop|EurodiscoПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C192A4884CEBD46D29514165D29D33F5F66E4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756660   (39566) от 22.10.2024
 
 Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
@@ -716,35 +745,6 @@ VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71039DF65AF85EB8F578381A27D2FAE71BE14BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776021   (29399) от 29.01.2025
-
-VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie Abrams - That’s So True (2:46)
-02. Billie Eilish - BIRDS OF A FEATHER (3:30)
-03. Jazeek - Ma Baby (2:18)
-04. The Weeknd - Timeless (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

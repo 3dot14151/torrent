@@ -1,119 +1,3 @@
-###  Публикация: 999849   (863147) от 23.03.2016
-
-Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aquarian Moon [07:46]
- 02.Bouquet [08:11]
- 03.Rojo [06:04]
- 04.Maiden Voyage [05:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADCA8BB0395EAF447E99212F0B1F2531259DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999501   (863145) от 23.03.2016
-
-Grant Green - Talkin' About (1964) 1999, Blue Note Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Talkin' About J.C. [11:45]
- 02.People [07:29]
- 03.Luny Tune [07:44]
- 04.You Don't Know What Love Is [07:39](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5EA1C882C71F3E6CE9EAC8F48995C2D817C0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999508   (863051) от 23.03.2016
-
-Coleman Hawkins - At the Golden Circle, Stockholm 1963 (2001) Dragon Records[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [00:40]
- 02.Oh Lady Be Good [08:38]
- 03.If I Had You [10:38]
- 04.Bean and the Boys [09:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5699F5BAB3BB9544E13BAA67701FF49A0B074AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375975   (862364) от 16.04.2020
-
-Olaf Polziehn Trio featuring Harry Allen - American Songbook, Vol. 2 (2003) Satin Doll Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Or Leave Me [6:01]
-02. Ballad Of The Sad Young Men [6:05]
-03. Jubilee [4:31]
-04. Call Me Darling, Call Me Sweetheart, Call Me Dear [7:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F0B075DB2D738713010C529882472BD1C9093E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109186   (861098) от 26.02.2017
 
 Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -749,6 +633,122 @@ Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109883   (857459) от 28.02.2017
+
+Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857459.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Summer Music
+2. In Your Own Sweet Way
+3. A Salute To The Count (The Basie Band Is Back In Town)
+4. Chorale(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109847   (857439) от 28.02.2017
+
+Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Twelfth Street Rag
+2. Between the Devil and the Deep Blue Sea
+3. Easy Does It(   Читать дальше...   )Жанр: JazzПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF035420934D008413B810112CDB6D378AE5545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376805   (857014) от 19.04.2020
+
+Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The A Train [2:57]
+02. Perdido [1:59]
+03. Frankie And Johnnie [3:10]
+04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376907   (857013) от 19.04.2020
+
+Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Send Me [6:09]
+02. I Just Called to Say I Love You [4:24]
+03. You Make Me Feel Brand New [5:57]
+04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

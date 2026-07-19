@@ -1,148 +1,3 @@
-###  Публикация: 1414122   (406819) от 06.10.2020
-
-Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient Dub, Lounge, House, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Love (Radio Mix) (4:17)
- 02. About Us (Radio Mix) (4:32)
- 03. Blue Planet (Radio Mix) (3:35)
- 04. Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Electronic, Ambient Dub, Lounge, House, DowntempoПродолжительность: 02:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4865F253A1809AFF9AF07683ACCB2A5985B17EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168895   (404990) от 25.09.2017
-
-Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of the Sufis
-02. A Pure Flame of Love
-03. Endless Love (Duet Version)
-04. The Chaser(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168839   (404984) от 25.09.2017
-
-Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Story (From Love Story) (03:00)
-02. Chariots Of Fire (From Chariots Of Fire) (02:58)
-03. Merry Christmas Mr Lawrence (From Merry Christmas Mr Lawrence) (03:17)
-04. Flashdance (What A Feeling) (From Flashdance) (02:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168843   (404898) от 25.09.2017
-
-Richard Clayderman - The Andrew Lloyd Webber Collection (2017) [FLAC|Lossless|tracks] <Instrumental, Piano, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry for Me Argentina 03:35
-02. The Music of the Night 05:31
-03. Memory 05:27
-04. Another Suitcase in Another Hall 03:15(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4419BCF2E107DBBD33A678E88300D67D7F243508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168847   (404885) от 25.09.2017
-
-Richard Clayderman - The ABBA Collection (2017) [FLAC|Lossless|tracks] <Instrumental, Piano, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia
-02. Knowing Me, Knowing You
-03. Dancing Queen
-04. S.O.S(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B740BB0E710C72AFC54726F0B4E2A94C1A16E620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171538   (395707) от 05.10.2017
 
 VA - Autumn Chill: Ecliptic (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
@@ -742,6 +597,151 @@ VA - Restaurant Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F4070F8749F55FB722719BCA287C700F9A5CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576356   (364118) от 15.09.2022
+
+VA - Deep & Uplifting: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift Of Africa - Stay (06:32)
+02. Boyzen SA - Bambelela (feat Butler - AfroSoul mix) (06:24)
+03. Thap Soul - Silent Love (05:09)
+04. Deepofomin - Apollo (07:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71DA9FB0CF5313426A1AEFB79300CDAEB47ADAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576365   (363859) от 15.09.2022
+
+Tricky (Adrian Thaws) - 11 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Abstract Hip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking Of [00:02:11]
+02. Close Now [00:01:37]
+03. Running Off [00:01:44]
+04. I'm In The Doorway [00:02:51](   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-HopПродолжительность: 11 CD, 06:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246235D3F182BC6ED085798B4AD048AF32CE24CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417561   (357699) от 20.10.2020
+
+Hugo Kant - Far From Home (2020) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholia (5:34)
+02. Before Midnight Tonight (5:17)
+03. The Second Sun (6:00)
+04. Sure The Sun Will Rise (4:56)(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu JazzПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF508600B07BE41D0FE4AD2CE822E69D18A8D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329174   (354440) от 04.10.2019
+
+Jay-Jay Johanson - Kings Cross (2019) Digital Booklet [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo, Alternative>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Time Yet (4:58)
+ 02. Heard Somebody Whistle (3:04)
+ 03. Smoke (4:34)
+ 04. Lost Forever (4:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, Downtempo, AlternativeПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E370DA23B348D3CAB933DA570C1547E1C2B624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577725   (350169) от 21.09.2022
+
+VA - Coffee to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Out Of Hours (03:09)
+02. Michael E - For Hayley (feat Ramon Sanz) (04:36)
+03. Gabrielle Chiararo - Estate (03:40)
+04. Living Room - This Old Rollercoaster (instrumental mix) (05:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72836505BB37C35FF332F65F1AC37555F6CDB32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

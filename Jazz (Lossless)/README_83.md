@@ -1,119 +1,3 @@
-###  Публикация: 1013129   (776940) от 06.05.2016
-
-Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Masquerade
-02. The Lights Still Burn In Paris
-03. Land Of Make Believe
-04. Black Coffee(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64F3BD2FCE28EB3195164D447FA63897CDD5485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014024   (776927) от 06.05.2016
-
-VA - Smooth Jazz Vocal Grooves (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Cole - So Good 4:16
-02. Lin Rountree - Givin' You Love 4:02
-03. James Vargas - Say You Will 5:34
-04. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A376C4C76108142FC7C284FFFAA4094C75E81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013685   (776923) от 06.05.2016
-
-Allan Holdsworth - One City Night (1995) [FLAC|Lossless|tracks] <Jazz, Fusion, Free Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funnels (06:24)
-02. Looking Glass (08:50)
-03. Auhkukah (05:49)
-04. Low Levels, High Stakes (07:12)(   Читать дальше...   )Жанр: Jazz, Fusion, Free Jazz, Contemporary JazzПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4352A0A157D669C15C3076EBD853BD70C35E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211900   (776912) от 09.03.2018
-
-Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Mississippi [05:41]
-02. Well You Needn't [06:48]
-03. Blue Monk [08:41]
-04. Stuffy Turkey [06:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB36931230A8BA438E4A36830BBE6492ADCB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211898   (776911) от 09.03.2018
 
 Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9F25541F2A336606429D5259A67324E3847188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278052   (774409) от 23.01.2019
+
+Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big V [5:15]
+02. Lester Bowie's Gumbo Stew [10:37]
+03. One for Luba [10:30]
+04. Meeting Time [6:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015703   (774362) от 11.05.2016
+
+Booker Ervin, Pony Poindexter, Larry Young - Gumbo! (1963) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Front O'Town [05:09]
+ 02.Happy Strut [02:58]
+ 03.Creole Girl (aka Melphamiene) [04:08]
+ 04.4-11-44 [03:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5BD275F82B688A6E3742B37D6DA1F97C029676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278001   (774303) от 23.01.2019
+
+Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Runs The Voodoo Down [10:27]
+02. Sanctuary [3:59]
+03. It’s About That Time/The Theme [9:45]
+04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213040   (774296) от 14.03.2018
+
+VA - Jazz Covers of Pop Songs Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody to Love - Meg Birch 3:40
+02. I’m Not in Love - Olivia Keast 2:51
+03. Lovely Day - Nora & Will 3:44
+04. Sweet Dreams (Are Made of This) - Talisha Karrer 2:36(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F37F54B957FD2AB2D98B5F9699B0EB7DFF2FB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

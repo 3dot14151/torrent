@@ -1,119 +1,3 @@
-###  Публикация: 1201995   (790973) от 27.01.2018
-
-Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primal Scream [07:10]
-02. The Cheshire Cat Walk [10:10]
-03. Invitation [05:33]
-04. Pagliacci [05:56](   Читать дальше...   )Жанр: Jazz Fusion, Big BandПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72CF4FB07983A011F5FB832019210531DCBFA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510534   (790863) от 17.11.2021
-
-David "Fathead" Newman - It's Mister Fathead (1958 - 1967) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790863.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hard Times [4:44]
-02. Weird Beard [4:50]
-03. Willow Weep for Me [5:00](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13FF413943586AB200035B9560141C84DFBEA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387765   (790686) от 03.06.2020
-
-Dan Knight - Montreux (1998) After Hours [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squeeze Me [4:10]
-02. My Foolish Heart [3:48]
-03. Almost September [3:27]
-04. Almost Like Being in Love [2:27](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano jazzПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB7DE9CEB5763B55FB2EFA40863F9A4D45E125D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202215   (790561) от 28.01.2018
-
-Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mel's Drive In [07:54]
-02. Circle Dance [01:35]
-03. The Rising [09:17]
-04. Hearth [07:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202214   (790560) от 28.01.2018
 
 Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +629,122 @@ Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275493   (789914) от 12.01.2019
+
+Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sink
+02. Dancing On Symbols
+03. This May Bear Some Fruit
+04. Scrunch(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275530   (789905) от 12.01.2019
+
+Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dumbo StationMaurizio Giammarco. 4:55
+02. Big OneElvio Ghigliordini. 6:58
+03. Narvalo. 6:19
+04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510942   (789866) от 19.11.2021
+
+Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace [10:36]
+02. I'm Gonna Laugh You Right Outta My Life [7:13]
+03. Silli in the Sky [6:52]
+04. Love Like Ours [7:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5625D943B3CAC944DFCEE361642A263D6E00CFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510944   (789857) от 19.11.2021
+
+Stephanie Nakasian with The Harris Simon Trio - Show Me The Way To Get Out Of This World (2012) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome Road [4:18]
+02. So in Love [4:40]
+03. Lucky So and So [4:24]
+04. Easy Street [3:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8292F26E54450B1FA5FCA6D8DA9E77B092BB45B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

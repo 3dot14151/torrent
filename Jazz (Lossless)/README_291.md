@@ -1,119 +1,3 @@
-###  Публикация: 1194617   (154397) от 26.12.2017
-
-Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Up and Down [04:12]
-02. Strollin' [07:24]
-03. Groovin' High [05:43]
-04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347183   (154369) от 22.12.2019
-
-Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This (2019) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face the Music and Dance (feat. Sharon van Etten) [4:07]
-02. The Sidewinder/The Beat Goes On (feat. Inara George) [4:32]
-03. Driftin' [4:43]
-04. The Thrill Is Gone/Django (feat. Miley Cyrus) [3:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53B3B56C930549860BEB14265951A8B610130C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600853   (154362) от 29.12.2022
-
-Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There'll Be Some Changes Made [7:20]
-02. How Come You Do Me Like You Do [12:58]
-03. Blues My Naughty Sweetie Gives to Me [5:47]
-04. Tin Roof Blues [7:38](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29FAD8A2A3752B87ECB72C5372AA495A630BCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600851   (154305) от 29.12.2022
-
-Warren Wolf - Christmas Vibes (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Christmas Tree [3:32]
-02. Do You Hear What I Hear? [4:14]
-03. Skating [3:48]
-04. Dance of the Sugar Plum Fairy [3:56](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48B3D68247672BDC14E3552F62F55A915AC2FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518542   (154287) от 20.12.2021
 
 Erroll Garner - 1951-1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -749,6 +633,122 @@ Stanley Turrentine - Sugar (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9699D508E702E300D62140CD9DC6FBEA350B00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601131   (152886) от 30.12.2022
+
+Howard Rumsey’s Lighthouse All Stars - Sunday Jazz a la Lighthouse (1953) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Others [6:01]
+02. All the Things You Are [5:16]
+03. Creme de Menthe [4:31]
+04. Viva Zapata! [8:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3DB9F92B4FFED8AAA1E07D8D99AECD4B929348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601117   (152791) от 30.12.2022
+
+Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tracks + .cue] <Cool, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnabout [2:17]
+02. Sunday Kind of Love [2:03]
+03. I Want to Be Happy [2:12]
+04. Tenderly [3:18](   Читать дальше...   )Жанр: Cool, SwingПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35D57B33B1B3BAECD6D6F750CCB7DBB312C9531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601120   (152784) от 30.12.2022
+
+Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Happy [5:36]
+02. If I Had You [4:35]
+03. Lullaby Of Birdland [5:16]
+04. Out Of Nowhere [6:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982AF6AB71E567EBBD70D8BA35F2FAB3C6E08FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271190   (152673) от 22.12.2018
+
+Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down Yonder in New Orleans [3:30]
+02. You Took Advantage Of Me [4:35]
+03. Mean to Me [4:51]
+04. Shake It & Break It [3:52](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F2EDF122EB5B5B320A2ACEC70E02BF86C1BF12
 ```
 
 https://mybot314.ru/tekegram_catalog/

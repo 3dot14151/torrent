@@ -1,38 +1,3 @@
-###  Публикация: 581628   (322079) от 28.11.2012
-
-Syndicate - The Best Disco 80 (1980) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  Billy Ocean - Stay the night
-02  La Flavour – Mandalay
-03  Lipps Inc. - Funky Town
-04  Ottawan - Youre O.K
-05  Roberta Kelly - Kabaka Shaka
-06  Massara – Margherita
-07  Spargo - You and Me
-08  T.H.P. - Good to Me
-09  Gilla - Tom Cat
-10  Gepy and Gepy - Body to Body(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD89CF6FDCC0480FD5B6CF6C120B3821F7AC3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421104   (321904) от 03.11.2020
 
 Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
@@ -746,6 +711,35 @@ VA - New Generation Italo Disco: The Lost Files Vol.1 (2016) [MP3|320 Kbps] <Hi-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259E487BCBE78E5530E63A18120D957C036223C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079413   (295980) от 03.12.2016
+
+VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roby - It's My Life (Short Bacardi Mix) 7:08
+02. Limelight - Falling in Love (Radio Beach Club Remix) 4:38
+03. Brad Lake - Run in the Night (Radio Mix) 4:19
+04. Momento - Hold Me in the Night (Radio Blast) 4:47(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 01:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EAAD1D5B65267C8575F1E1CB92587D41D67030
 ```
 
 https://mybot314.ru/tekegram_catalog/

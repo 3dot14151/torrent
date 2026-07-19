@@ -1,3 +1,32 @@
+###  Публикация: 1168941   (405052) от 25.09.2017
+
+D.C. LaRue - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405052.jpg" />
+</div>
+
+
+###  Подробнее
+
+D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, родился 26 апреля 1948 года в городе Мериден, штат Коннектикут. Американский певец, автор песен и продюсер. Его музыка в 1970-х и начале 1980-х годов пользовалась успехом в клубах и танцевальных чартах по всему миру.Список альбомов:
+1976 - The Tea Dance
+1978 - Confessions
+1979 - Forces Of The Night(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 02:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169899   (401430) от 29.09.2017
 
 Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
@@ -746,35 +775,6 @@ Pupo (Enzo Ghinazzi) родился в 1955 году итальянском го
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA96EE1A401309F19F5BB24B7D777059A053388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326478   (383499) от 21.09.2019
-
-Chips - Chips (1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Bit Of Loving (Mycke' Mycke' Mer) (3:20)
-02. Sympathy (3:03)
-03. Weekend (3:19)
-04. So Long Sally (4:00)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14F84B5A9616C084152AC5B64447226FB9ADE9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

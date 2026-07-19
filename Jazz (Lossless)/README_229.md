@@ -1,119 +1,3 @@
-###  Публикация: 964229   (284146) от 10.12.2015
-
-Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cherry [04:37]
- 02.Walkin' Again [06:57]
- 03.Pennies From Heaven [06:32]
- 04.Red Top [08:16](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3610500CCB73FB3EED2C40E5A455ADEF54C04DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186830   (283887) от 26.11.2017
-
-Karen Souza - Velvet Vault (2017) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fall In Love Too Easily
-02. Don't Let The Sun Go Down On Me
-03. I'm Beginning To See The Light
-04. Valerie(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF2FEC4AADCE38D1C8F15339B7505B5CFA63083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964053   (283792) от 10.12.2015
-
-VA - A Jazz Christmas (2015) 2CD [FLAC|track+.cue]<Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283792.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этих двух дисках Вы найдете прекрасных джазовых исполнителей, которые помогут провести Вам удивительную рождественскую ночь у красивой ёлки. И что может быть лучше наслаждения от прекрасного джаза в волшебную ночь!CD1:
-01. Chet Baker - Winter Wonderland  (2:28)
-02. Dave Brubeck Quartet - Santa Claus Is Comin' To Town  (3:39)
-03. Ella Fitzgerald - Sleigh Ride  (2:54)(   Читать дальше...   )Тип издания: 2CDЖанр: Jazz, ChristmasПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A855BD861A646C22C98FD268E74205EFC0045FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849490   (283158) от 12.12.2014
-
-Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabond [05:18]
-02. Message In A Bottle [06:16]
-03. Bretagne [05:01]
-04. Psalmen [04:36](   Читать дальше...   )Жанр: Jazz, World Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081542   (283123) от 10.12.2016
 
 Cedar Walton - Among Friends (1982) 1990, Bellaphon[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +629,122 @@ Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0438AA1BD56033A5888EE15EEDC68B5D0CABEBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964890   (281065) от 12.12.2015
+
+Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.cue]<Modern Creative, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bantul [06:27]
+ 02.Monk Funk [15:10]
+ 03.My Funny Valentine [15:00]
+ 04.My Life [16:20](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081576   (281054) от 11.12.2016
+
+VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[FLAC|Lossless|image + .cue] <Dixieland, Swing, Bop, Hard Bop, Big Bang>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281054.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Donald Byrd & Johnny Coles - Child's Play [05:38]
+02.Howard McGhee - Shades of Blue [05:06]
+03.Freddy Hubbard - Ley [05:49](   Читать дальше...   )Жанр: Dixieland, Swing, Bop, Hard Bop, Big BangПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0F95824D9BF069981D99AE4C4C4F57495A4FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082037   (281036) от 11.12.2016
+
+Kenny Clarke - Bohemia After Dark (1955) 1992, Savoy[FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bohemia After Dark [06:11]
+ 02.Chasm [04:23]
+ 03.Willow Weep For Me [06:22]
+ 04.Hear Me Talkin' To Ya [03:16](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5D02B53D0EB6105EC889E2624FC0BC8D1A9C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081923   (281025) от 11.12.2016
+
+Bill Evans Trio - Live At Ronnie Scott's: Letter To Evan & Turn Out The Stars (1980) 2CD, 1992, Dreyfus[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281025.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Letter To Evan:
+01.Emily [05:34]
+02.Days Of Wine And Roses [08:26]
+03.Knit For Mary [06:08](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C52E18C2C7944755EAC542654C8D7B83C26DC53
 ```
 
 https://mybot314.ru/tekegram_catalog/

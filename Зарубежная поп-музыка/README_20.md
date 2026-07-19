@@ -1,3 +1,32 @@
+###  Публикация: 1206079   (782961) от 12.02.2018
+
+Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Singing This Song For You (3:12)
+02. Ne Me Regarde Pas (4:11)
+03. If (3:36)
+04. Tu Sais Je T'Aime (You Know I Love You) (3:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205928   (782945) от 12.02.2018
 
 Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) Atlantic [MP3|320 Kbps] <Funk, Synth-Pop>
@@ -717,35 +746,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9819E7518A6D597C4D7A88D889BDAC585364AA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210956   (778271) от 05.03.2018
-
-Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
-02. Rooster Run 3:22
-03. My Aunt Mari Doesnt Care About My Jacket 4:23
-04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

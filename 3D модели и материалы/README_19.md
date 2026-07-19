@@ -577,37 +577,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 235165   (498474) от 11.09.2010
-
-3D модели - Evermotion - HDModels Cars Vol. 03 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник высококачественных моделей автомобилей от Evermotion vol.3
-BMW X6, Mazda 6 new, AUDI R8, Honda CR-V, Chevrolet Camaro, Dodge Charger, SEAT Ibiza, VolksWagen Scirocco, Citroen C4, AUDI A2
-
-примеры моделей - http://www.evermotion.org/comm/HDMC3/HDmodelscars_vol_3.pdf
-
-в раздаче только модели в формате .max и lowpoly_vray.max
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243104   (495900) от 25.08.2018
 
 3D модели - TurboSquid - Chevrolet Corvette Stingray (C7) Coupe 2014 - 1131721 [C4D, FBX, OBJ]
@@ -679,6 +648,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24ECEB46370F277F8175364C31EA024AF5AEEDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243037   (495719) от 25.08.2018
+
+3D модели - TurboSquid - Mercedes-Benz SS Roadster 1930 Erdmann&Rossi retro legend sport cabriolet - 641235 [MAX, OBJ, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495719.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Mercedes-BenzФормат: MAX, OBJ, C4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972C5E3ED9BA54A8C84A35A008AD920DF7103291
 ```
 
 https://mybot314.ru/tekegram_catalog/

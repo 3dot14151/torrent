@@ -1,31 +1,3 @@
-###  Публикация: 1797734   (17892) от 18.05.2025
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (июнь 2018) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17892.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25D1CB1B1182B4D0CA9DE440FD4C02EE7E76311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797791   (17890) от 18.05.2025
 
 Журнал | BOUDOIR Inspiration (BOUDOIR) (сентябрь 2018) [PDF] [EN]
@@ -719,6 +691,34 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DC1B0EB91C2EF42E28455967F76C4984EF03E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806675   (11551) от 14.07.2025
+
+Журнал | BOUDOIR Inspiration (LINGERIE) (июль 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11551.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: LINGERIE InspirationЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6AAB493433A20D4AEFB9A63D65FAC4C60CF4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

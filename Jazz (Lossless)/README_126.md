@@ -1,119 +1,3 @@
-###  Публикация: 1293347   (637669) от 03.04.2019
-
-Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637669.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wheatleigh Hall [8:52]
-02. Sumphin' [10:29]
-03. Con Alma [9:28](   Читать дальше...   )Жанр: BopПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798DD596B4158E2404645AB284CCAC96D5FEB5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293314   (637664) от 03.04.2019
-
-Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Doom Jazz, Modern Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malignant Cloud (9:40)
-02. The Round-Up (7:45)
-03. Frank and the Girl (9:43)
-04. The Forbidden Border (6:25)(   Читать дальше...   )Производство: Veal Records - Veal0001Жанр: Experimental Jazz, Doom Jazz, Modern ClassicalПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862F2C524A13B237BDBF74AF6EE4AD91E41F92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143094   (637576) от 17.06.2017
-
-Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Off to See the Wizard [01:21]
-02. Over the Rainbow [03:02]
-03. The Jitterbug [03:18]
-04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228323   (637529) от 31.05.2018
-
-McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crescent [10:32]
-02. Monk's Dream [9:35]
-03. Darn That Dream [8:18]
-04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143266   (637483) от 17.06.2017
 
 Zoot Sims - Down Home (1960) 2005, Charly [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -745,6 +629,122 @@ Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA5BFAA585261995916C62B730F7F3527121970B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908670   (632488) от 15.06.2015
+
+Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Garden Of Souls [14:03]
+02. Toy Dance [07:30]
+03. We Now Interrupt For A Commercial [03:25]
+04. Broad Way Blues [08:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4B7EF7D521B76FE82D1A479F36BF573FC1F3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908642   (632417) от 15.06.2015
+
+Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Flower [02:34]
+02. I Got It Bad [05:09]
+03. In A Sentimental Mood [09:22]
+04. Ruby [05:58](   Читать дальше...   )Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212883C69774B877188A0FE57444FA5A4CF1F572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228899   (632191) от 03.06.2018
+
+Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluemantique [5:32]
+02. Passepied nouveau [4:53]
+03. L'autre ballade [5:38]
+04. Romance [5:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2309A16B5CDBCB5E6432F2568F98DFCA4DEE4F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543228   (631834) от 10.04.2022
+
+Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961) 10CD, 2018, The Intense Media [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - The Louis Armstrong Story Vol.1 & Vol.2:
+01. Muskrat Ramble [2:33]
+02. Heebie Jeebies [2:55]
+03. Gut Bucket Blues [2:43](   Читать дальше...   )Жанр: Dixieland, Swing, Vocal JazzПродолжительность: 12:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119798F2140AD5D4519DB82D8974862FAFF5D7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

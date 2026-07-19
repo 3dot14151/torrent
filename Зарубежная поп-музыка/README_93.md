@@ -1,3 +1,29 @@
+###  Публикация: 1749351   (43563) от 14.09.2024
+
+VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCDA33D72B9D210ABF4EAA677283BE9A526AA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749886   (43358) от 16.09.2024
 
 VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
@@ -713,35 +739,6 @@ VA - Super Hits 80's Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5CB5FCDBFAD03FAA6765E0368ACC338A0AA5A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222664   (39726) от 21.10.2024
-
-Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eurodisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Modern Talking - Youre My Heart, Youre My Soul (3:50)
-2.Modern Talking - You Can Win If You Want (3:43)
-3.Modern Talking - Cheri Cheri Lady (3:45)
-4.Blue System - Sorry Little Sarah (3:30)(   Читать дальше...   )Жанр: Pop|EurodiscoПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C192A4884CEBD46D29514165D29D33F5F66E4E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

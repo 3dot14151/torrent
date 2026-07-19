@@ -1,29 +1,3 @@
-###  Публикация: 1139720   (1020184) от 19.04.2021
-
-The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 CS/dlc) License GOG [Game of the Year Edition Deluxe]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020184.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls IV: Oblivion Game of the Year Edition является одной из лучших RPG в истории. Шагните в самый яркий и проработанный игровой мир. Вы можете пойти только по основной сюжетной линии или погрузиться в этот мир с головой и найти для себя множество интересных и разнообразных заданийТип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, ActionЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D845F363C3B1FCAA2E103EC6192C19B6EBC8673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136196   (1016623) от 10.05.2021
 
 The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) License GOG
@@ -668,6 +642,32 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAE66B04A4CD04E3BF39BC9844A25F1F963020D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486280   (1004836) от 30.07.2021
+
+Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди веками служили древним богам, но однажды взбунтовались и заточили эти огромные воплощения бедствий в священных стенах Цитадели. Но там пробудилось зло... Чтобы напоследок отомстить всему миру, древние боги обрушили на него великий Мор. Человечество вымирает, но последний луч надежды ещё не угас. Тяжкая ноша выпала на долю воина-одиночки. В его руках двуручный (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Flag StudioЖанр: RPG, Action, SoulslikeЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6655B71385F9F4C2A630F8C3E3B45DE3DF07FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

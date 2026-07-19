@@ -1,119 +1,3 @@
-###  Публикация: 1067935   (384622) от 30.10.2016
-
-Dexter Gordon - Cute: The Lionel Hampton Sessions (1977) 2003, Universe[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cute [07:01]
- 02.They Say That Falling in Love Is Wonderful [07:56]
- 03.Lullaby of Birdland [04:19]
- 04.I Should Care [05:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705CDAACC1AAA82A89F34903F96D7F3322A9E204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414444   (383726) от 09.10.2020
-
-Sam Lazar Trio - Playback (1961) 1998, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep [5:09]
-02. Long Gone [3:53]
-03. Bag's Groove [4:06]
-04. Fuzz Buzz [7:07](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE163B790687915676DBB29D059D47981A73462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414635   (383725) от 09.10.2020
-
-Walt Dickerson - 1976 (2010) Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky [10:17]
-02. Awareness [4:29]
-03. Key of Wisdom [6:00]
-04. Yesterdays [9:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6496B37C5392297D755B093EB7BF390EA981E3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414633   (383724) от 09.10.2020
-
-Peter Bernstein - Let Loose (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Loose [6:47]
-02. Resplendor [7:06]
-03. Hidden Pockets [6:01]
-04. Tres Palabras [5:25](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484861F2A724E69C5D07F0F9063399F6E9A4A2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414631   (383722) от 09.10.2020
 
 Allen Farnham - Live at Maybeck Recital Hall, Vol. 41 (1994) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -743,6 +627,129 @@ John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51EBB51F81BA981871CB9C2235738D348C88D0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068334   (380879) от 01.11.2016
+
+Chris Flory with Duke Robillard - Blues In My Heart (2003) [APE|Lossless|image + .cue] <Swing, Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Scam   (06:46) 
+  02| Willow Weep For Me   (07:20) 
+  03| Bernie's Tune   (04:49) 
+  04| I've Got A Right To Sing The Blues   (05:01) (   Читать дальше...   )Жанр: Swing, Rhythm & BluesПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2181BE16CEBF8A703F3C68F40164E74DB8FC1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068349   (380871) от 01.11.2016
+
+Jay McShann - Hootie's Jumpin' Blues (1997) [APE|Lossless|image + .cue] <Piano Blues, Jump Blues, Jazz Instrument>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Hootie Blues   (03:52) 
+  02| Vine Street Boogie   (04:31) 
+  03| 'Fore Day Rider   (02:12) 
+  04| Hands Off   (02:56) (   Читать дальше...   )Жанр: Piano Blues, Jump Blues, Jazz InstrumentПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA60A0754B3BFA1D7C416E402535FD566574D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573405   (380858) от 10.11.2012
+
+Victor Wooten - Sword and Stone & Words and Tones (2012) [FLAC|Lossless]<Jazz, Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sword and Stone [5:02]
+02. Love Is My Favorite Word [4:08]
+03. Pass Me Not, O Gentle Savior [3:31]
+04. Get It Right [4:55]
+05. A Woman's Strength [4:23]
+06. It's All Right [4:02]
+07. Love To Hear U Laugh [5:28]
+08. Say Word [4:06]
+09. Be What U Are (I Love you More) [3:55]
+10. H.O.P.E. [1:45](   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410231   (380472) от 10.10.2020
+
+Glenn Miller - The Missing Chapters. Vol. 1 – 9 (1995 - 1998) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гленн Миллер (англ. Alton Glenn Miller; 01.03.1904 - 15.12.1944) - американский тромбонист, аранжировщик, лидер биг-бэндов.
+Создал собственный коллектив в 1937 году. Новый биг-бэнд Гленна Миллера, созданный в 1938 году, достиг значительного успеха - с этим оркестром он записал музыку к фильмам «Серенада Солнечной долины» (Sun Valley Serenade) и «Жены оркестра» (англ. (   Читать дальше...   )Список альбомов:
+Volume 1. American Patrol (1995)
+Volume 2. Keep 'Em Flying (1995)
+Volume 3. All's Well Mademoiselle (1995)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 14:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B2172CF6757DC1E63B12A89C14833333C3522C
 ```
 
 https://mybot314.ru/tekegram_catalog/

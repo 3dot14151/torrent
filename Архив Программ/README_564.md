@@ -1,3 +1,29 @@
+###  Публикация: 1392917   (768937) от 28.06.2020
+
+Internet Download Manager 6.37 Build 16 Final + Retail + Themes
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B831900AC111E4930FD84F868B2A0D5DE05006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393016   (768936) от 28.06.2020
 
 JRiver Media Center 26.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -644,32 +670,6 @@ Cumulative Update KB4015219 for Windows 10 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C591D5EF74E19129A32AD867BF31A71E3DF7FD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125353   (768651) от 14.04.2017
-
-Cumulative Update KB4015221 for Windows 10 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумулятивное обновление KB4015221 для x86-x64 платформ, повышающее номер сборки Windows 10 Version 1507 до 10240.17354Язык интерфейса: Русский,Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AE2989C983D642334741A352F35C5E25F3C029
 ```
 
 https://mybot314.ru/tekegram_catalog/

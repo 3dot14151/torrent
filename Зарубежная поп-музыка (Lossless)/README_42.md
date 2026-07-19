@@ -1,3 +1,208 @@
+###  Публикация: 1539118   (659044) от 24.03.2022
+
+VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer
+02. Machine Gun Kelly - bloody valentine
+03. Jimmy Eat World - The Middle
+04. Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F9CEE17C28A393CB2FBAA69F975D67494C4618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225688   (658594) от 17.05.2018
+
+VA - Top Of The Pops '1975 (2018) 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом начинаю небольшую (пока) серию путешествий по победителям топов прошлого века.
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
+Эти программы (   Читать дальше...   )CD1:
+01. ABBA - S.O.S.  (3:21)
+02. David Essex - Hold Me Close  (3:53)
+03. Bay City Rollers - Bye Bye Baby  (2:52)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 02:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155AC6B9DB9EF05DCF36D79DBF5704290C62B946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226146   (656651) от 19.05.2018
+
+Ірина Білик (Ирина Билык) - 11 Альбомов (1990-2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Того, кого
+02. Рассвет
+03. Моя любовь
+04. Не любовники(   Читать дальше...   )Жанр: PopПродолжительность: 10:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1DED0498335CAB9F27FE218B911356E1A1EDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904102   (656433) от 01.06.2015
+
+Maroon 5 - V (2014) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maps
+02. Animals
+03. It Was Always You
+04. Unkiss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7F047049B0278B8B710F5000771DA4B9AED395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904248   (655304) от 02.06.2015
+
+Simply Red - Big Love (2015) [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On
+02. Daydreaming
+03. Big Love
+04. The Ghost Of Love(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7488D9562D34535A411CC52CADC0B10B8F8C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904116   (655177) от 02.06.2015
+
+Ace Of Base - Hidden Gems (2015) [FLAC|Lossless]<Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Would You Believe
+02. Go Go Go
+03. Into the Night of Blue
+04. Don't Stop(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36AB8162E457039880192A6D7D2A65BE30E0E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140760   (654938) от 07.06.2017
+
+Modestia Aparte - Por Amor al Arte (Digitally Remastered) (1988) [FLAC|Lossless|tracks + .cue] <Spanish Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Playas de Mazarrón (3:34)
+02 Es tu Turno (3:09)
+03 Quizá (3:38)
+04 Como un Sultán (4:29)(   Читать дальше...   )Жанр: Spanish PopПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB683F1854DD0836C02B2A4446D5466B3F3627A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539710   (654840) от 28.03.2022
 
 Michael Jackson - Thriller 25 (1982) Super Deluxe Edition, Reissue, Remastered, 2018 [FLAC 2.0|44,1, 48, 96/16, 24|WEB-DL|tracks] <Soul, Disco, Funk>
@@ -536,209 +741,6 @@ Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292719   (645183) от 30.03.2019
-
-Vacuum - I Breathe (1997) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Breathe (Radio Edit) (3:56)
-02. I Breathe (Antiloop Out Of Oxygen Radio Edit) (3:36)
-03. I Breathe (Antiloop Out Of Oxygen Edit) (4:43)
-04. I Breathe (Album Edit) (4:37)Жанр: SynthpopПродолжительность: 00: 16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306F9953EFB18415DF08D05532F122ACA2E42ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292624   (644980) от 30.03.2019
-
-VA - Top Of The Pops '1982 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка 80-х на грампластинках, магнитофонных записях, переведенная в электронные форматы - относительно простая и ориентированная на массового слушателя.. Те, кто слушал ее тогда - слушают до сих пор, многие из тех, кто создавал ее ещё живы, а значит, и рассказывать об этом периоде развития мировой музыки можно долго, много и всесторонне. К этому времени появляются (   Читать дальше...   )CD1:
-01. Dexy's Midnight Runners - Come On Eileen  (4:01)
-02. Adam Ant - Goody Two Shoes  (3:20)
-03. The Jam - Town Called Malice  (2:55)(   Читать дальше...   )Релиз состоялся: 13 октября 2017 годаЖанр: 1980s, pop, rockПродолжительность: 03:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E1CD6E968AFA11A95684ABC25CB68F2DE83395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142094   (644865) от 13.06.2017
-
-Murray Head - Tete a Tete (2007) [APE|Lossless|image + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seras-tu Là ? [0:03:40.08]
-02. Crystal Heart [0:03:54.71]
-03. Tornado [0:04:14.01]
-04. Love Yourself [0:03:34.22](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00: 47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD829C859BFAC08615D5E1B88B132A6FE07F3FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142238   (644595) от 13.06.2017
-
-VA - InAkustik Reference Sound Edition: Great Cover Versions (HQCD) (2013) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644595.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:20] 01. Chris Farlowe & The Thunderbirds - All the Way Lover
-[4:13] 02. Friend N Fellow - Here Comes the Rain Again
-[4:42] 03. Sophie B. Hawkins - Damn I Wish I Was Your Lover (Acoustic)
-[5:31] 04. Chris Thompson - Davy's on the Road Again(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D950C6257F9AB71FDF9B2430FEE194AEFA5A71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292557   (644459) от 30.03.2019
-
-Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) [FLAC|Lossless|tracks + .cue] <Pop, Alternative, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. !!!!!!! (00:13)
-02. Bad Guy (03:14)
-03. Xanny (04:03)
-04. You Should See Me in a Crown (03:00)(   Читать дальше...   )Жанр: Pop, Alternative, ElectronicПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44694ED7AFA2EFB3836629DAB6C74C11C5CABAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141594   (644355) от 13.06.2017
-
-London Grammar - Truth Is A Beautiful Thing (2017) Deluxe [FLAC|Lossless|tracks] <Indie-Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rooting for You [04:29]
-02. Big Picture [04:41]
-03. Wild Eyed [04:28]
-04. Oh Woman Oh Man [04:37](   Читать дальше...   )Жанр: Indie-Pop, AlternativeПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292741   (643195) от 31.03.2019
-
-VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Pop-Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.G. The Prince Of Rap - Eurodance Megamix 2k19
-02. J.O.Y.C.E feat. A.k.-s.w.i.f.t. - Get 2Gether (Real Thing Remix)
-03. Free 2 Night - Music in Your Mind (Remastered)
-04. Alex feat. Marwa - Intuition(   Читать дальше...   )Жанр: Euro-Dance, Pop-DanceПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

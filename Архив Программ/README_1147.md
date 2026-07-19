@@ -1,3 +1,29 @@
+###  Публикация: 939444   (472952) от 22.09.2015
+
+360 Total Security Essential 7.2.0.1021 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472952.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Total Security Essential предлагает комплексную защиту от всех видов вредоносных программ и онлайн угроз. Бесплатный антивирус от Qihoo 360 использует защиту в реальном времени с антивирусными движками Avira и Bitdefender, проактивным QVM II и облачным 360 Cloud, а также "Исправление системы" для комплексной оценки и быстрого восстановления аномальных (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343DEB54BD2DDB3DADAA2B753020B3D2549CD5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406709   (472941) от 04.09.2020
 
 BurnAware Professional / Premium 13.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -642,32 +668,6 @@ Topaz Labs Photoshop Plugins Bundle 2015 (21.09.2015) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7894C5C390AEB87B980EF15CD4E3B92E2B66ACA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406631   (472546) от 04.09.2020
-
-UltraISO Premium Edition 9.7.5.3716 (DC2020-09-04) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472546.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B55650779592CB292ABFCA1273E7F6F1880321
 ```
 
 https://mybot314.ru/tekegram_catalog/

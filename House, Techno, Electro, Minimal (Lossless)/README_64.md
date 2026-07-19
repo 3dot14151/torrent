@@ -1,3 +1,175 @@
+###  Публикация: 1707135   (113429) от 15.03.2024
+
+Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People (Ah Yeah) with Bobby Gillespie [00:04:30]
+02. Love One Self with Joe Love [00:04:36]
+03. Up Is Down with DJ Genesis [00:04:42]
+04. Steal & Adapt (or) [00:04:34](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B36EA6B14FEC7ABD4A0CEA7DC23FB6433B4B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706999   (113418) от 15.03.2024
+
+Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fluo [00:09:03]
+02. Valkyrie [00:05:05]
+03. Moul [00:03:33]
+04. Glam [00:04:56](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416C98DD0002B9FCFA43A3621EB306A4F1032197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706991   (113417) от 15.03.2024
+
+LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axolotl [00:06:49]
+02. Corriente de aire [00:01:59]
+03. Manantial [00:04:27]
+04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707355   (113361) от 16.03.2024
+
+Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argy, Son Of Son - Faust (3:38)
+02. Argy, Weekend Heroes - No One’s Coming (3:39)
+03. Argy, Omnya - Aria (3:56)
+04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709611   (112789) от 25.03.2024
+
+VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 продолжительностью 01:09:33
+1. Charles Webster & Ursula Rucker – Begin Anew (Quivver & Dave Seaman Beginapella)Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711753   (112427) от 31.03.2024
+
+Anyma - Genesys II (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112427.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Anyma & PARISI - Sacrifice (3:46)
+02. Anyma - Now Or Never (3:59)
+03. Anyma - The Light (3:35)(   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD43AF6F4E3930728B83794807835189BFA771A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823065   (112358) от 09.10.2025
 
 VA - Milk & Sugar House Nation Ibiza 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -562,177 +734,6 @@ Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Pea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03146969A7AB4D3D51A0E572033D6B1FF0D87B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723615   (109417) от 16.05.2024
-
-Seb Zito - Dialled In LP (2024) [FLAC|Lossless|WEB-DL|tracks] <deep house, progressive house, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Again (Extended Mix) [00:05:53]
-02. Take It Easy (Extended Mix) [00:05:12]
-03. Magic Arp (Extended Mix) [00:06:29]
-04. Who Created House (Extended Mix) [00:07:41](   Читать дальше...   )Жанр: deep house, progressive house, DanceПродолжительность: 2 CD, 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445CED25C6A50E8BADC3AB31B7089FD7C3112E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723786   (109387) от 17.05.2024
-
-Niel De One - People Are People (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Niel De One - People Are People (Dub Mix) [4:00]
-2. Niel De One - People Are People (Old Bass System Dub Mix) [4:04]
-3. Niel De One - People Are People (Deepbass Dub Mix) [4:15]Жанр: House, Speed GarageПродолжительность: 00:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A283DBC1622EAF92D0525579AE32CE20D46B8BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724181   (109285) от 19.05.2024
-
-VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony S - Not the Droids You're Looking For (6:40)
-02. DGL.Co. - Music.Life.Solutons (5:20)
-03. J Dovy - Once Upon a Night (7:24)
-04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724237   (109278) от 19.05.2024
-
-Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voo Da Borboleta
-02.O Sussurro Das MontanhasЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBD1F551A0CBDD4928D849C896DA655D49583C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724218   (109272) от 19.05.2024
-
-Soul Button - Tranquility: Ethereal Techno (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly (Soul Button Remix Mixed) [00:06:55]
-02. Divided Mind (Mixed) [00:04:04]
-03. Quartz (Mixed) [00:05:52]
-04. Moira (Mixed) [00:06:08](   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934FD734015B1CDB0741EBEEAE12ABA48FB2D6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724175   (109268) от 19.05.2024
-
-VA - Electronica Confessions, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beekay Deep - Le Tchate (6:44)
-02. Niala'Kil & Alec Carlsson - Esperanza (9:58)
-03. Humberto Fabrette - Searching for the Sun (8:07)
-04. Pablo Angel - The Release (Pabloco's Breakless Mix) (4:28)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23FC228A993CBA4C51BBFF79384F24B15A8D5A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

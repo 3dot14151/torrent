@@ -1,48 +1,22 @@
-###  Публикация: 1042743   (578316) от 13.08.2016
+###  Публикация: 1040484   (586477) от 05.08.2016
 
-Экшены - GraphicRiver - Splatter Ink Photoshop Action - 12720711 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Splatter Ink - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A421C8993E4705D0EA0C4EA6C47652DB3F400680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042756   (578308) от 13.08.2016
-
-Экшены - Splatter Photoshop Action [ATN, ABR, PAT]
+Экшены - GraphicRiver - Epic Studio Pop Culture 4 [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Splatter - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+Epic Studio Pop Culture 4 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EECC6F4B248DB012A38D8E33FCE39A660E0DA9AE
+magnet:?xt=urn:btih:A1FFEA2051F89A384BCD75CE4566BEE504F1378D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042727   (578202) от 13.08.2016
+###  Публикация: 1040563   (586475) от 05.08.2016
 
-Экшены - CreativeMarket - Lovely Watercolor Effect Actions [ATN, ABR]
+Экшены - GraphicRiver - Epic Studio Transparent Sketching [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lovely Watercolor Effect - экшен для Вашего творчества.Формат: ATN, ABR
+Epic Studio Transparent Sketching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4360240A93B8F9ECFF5D638E9825EAD9D6E03DA4
+magnet:?xt=urn:btih:CC10266F6D26967AEE77ED96B633088D705B1180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042763   (578195) от 13.08.2016
+###  Публикация: 1040482   (586449) от 05.08.2016
 
-Экшены - GraphicRiver - Splash Art 2 Photoshop Action [ATN, ABR, PAT]
+Экшены - GraphicRiver - Epic Studio Pop Culture [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Splash Art 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+Epic Studio Pop Culture - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47681A914F42F94A63AFD7EF2A3F767C9B66D85
+magnet:?xt=urn:btih:D63097EF330B2E6FAB9A72C85C8B67BFB15DD4D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,81 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233671   (578171) от 01.07.2018
+###  Публикация: 1040595   (586443) от 05.08.2016
 
-Векторный клипарт - Different Shops Set 23 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные магазины
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BA334AE704A8862D932D190E5B5EF27E7712D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233664   (578168) от 01.07.2018
-
-Векторный клипарт - Vector Interior Collection #1 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Интерьер
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540ECAF4402AB7339BF7746C66C5C87F33392AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042718   (578096) от 13.08.2016
-
-Экшены - GraphicRiver - Paint Splatter - Photoshop Actions [ATN, ABR]
+Экшены - PhotographyPlanet - Dragan-Inspired Actions [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paint Splatter - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Dragan-Inspired - Andrzej Dragan создал стиль в фотографии, который многие пытаются подражать. С помощью этого набора действий, вы можете легко преобразовать обычные фотографии в мощный стиль Dragan. В комплект входит 17 действий.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62D0DA7892967A716E27B55C605A2B32E34D8ACC
+magnet:?xt=urn:btih:EEDC8E6CD5EFB46DC1BA7EFED6A91BE68E433F68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042758   (578088) от 13.08.2016
+###  Публикация: 1040568   (586442) от 05.08.2016
 
-Экшены - GraphicRiver - Soul - Photoshop Action [ATN, ABR, PAT]
+Экшены - GraphicRiver - Epic Studio Transparent Sketching 3 [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soul - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+Epic Studio Transparent Sketching 3 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA460F45ECA2C22F7FB2EC86C11C9722C2446AA
+magnet:?xt=urn:btih:D2400CBB391B90D287F681385D024387AD3AF711
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042731   (578084) от 13.08.2016
+###  Публикация: 1040481   (586397) от 05.08.2016
 
-Экшены - GraphicRiver - Artista - Mixed Media Art Photoshop Action [ATN, ABR]
+Экшены - GraphicRiver - Epic Art 2 Photoshop Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Artista - Mixed Media Art - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Epic Art 2 - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9099A4BA59E74996479D5661FAD0F8B3F62485B
+magnet:?xt=urn:btih:CF97A6CC864A32248FDB5D192119263B41325AA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,109 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233658   (578066) от 01.07.2018
+###  Публикация: 1040602   (586319) от 05.08.2016
 
-Векторный клипарт - Vector Girls Collection #4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Девушки
-50 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500A422F1DAFBF0E0910BCABFF55B6A664DEC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233659   (578057) от 01.07.2018
-
-Векторный клипарт - Vector Fruits Collection #13 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фруктовая коллекция
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6351C71A2C9EF21E30D497D76B217D156249AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233661   (577951) от 01.07.2018
-
-Векторный клипарт - Vector Kids ClipArt #4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Детский клипАрт
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D689B93ACF105816FF454435EF773A17BC7E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233781   (577937) от 01.07.2018
-
-Экшены - GraphicRiver - Watercolor Rangoli Dust Photoshop Action - 21513543 [ATN, ABR, PAT]
+Экшены - GraphicRiver - Photoshop Text Effect: Cinematic 3D Actions [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Watercolor Rangoli Dust - данный экшен фотошоп превратит ваши фото в полотно акварели. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 1500px – 6000px. Оптимальный диапазон составляет от 3000px – 4000px.Формат: ATN, ABR, PAT
+Photoshop Text Effect: Cinematic 3D - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE3A1DF0089275055604ECD6B9C74FEDA505A3C6
+magnet:?xt=urn:btih:1FA77631DA6D3791339E0C139B97C1EA51F8E95A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042879   (576308) от 14.08.2016
+###  Публикация: 1040711   (585428) от 06.08.2016
 
-Экшены - CreativeMarket - Marble Texture Generator Action [ATN]
+Экшены - GraphicRiver - Photography V10 [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Marble Texture Generator - экшен для Вашего творчества.Формат: ATN
+Photography V10 - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C989E50F3B6B737B16764662F14FFB9FCEE95A16
+magnet:?xt=urn:btih:0A74EA1512C3115A95FA8B475B9332DCEA71CC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042884   (576305) от 14.08.2016
+###  Публикация: 1040726   (585423) от 06.08.2016
 
-Экшены - CreativeMarket - Watercolor Texture Generator [ATN]
+Экшены - GraphicRiver - Pursuit Effect Action [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Watercolor Texture Generator - экшен для Вашего творчества.Формат: ATN
+Pursuit Effect - экшен для Вашего творчества.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F8FABE22B4B481FE39EAAACC576DAA8B782EA47
+magnet:?xt=urn:btih:68053C735E6EF8E3DD11E1D9C5F18EFEB0FC5165
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042881   (576304) от 14.08.2016
+###  Публикация: 1040737   (585369) от 06.08.2016
 
-Экшены - GraphicRiver - Scatter Photoshop Action [ATN, ABR]
+Экшены - CreativeMarket - 10 Vintage Actions Bundle [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Scatter - экшен для Вашего творчества.Формат: ATN, ABR
+10 Vintage Actions Bundle - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15F1EB17DCA8308E1D77125CE326441EE29C9820
+magnet:?xt=urn:btih:4C43794B356CDC4B9FA09275F2AD88D5CE14CA37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042907   (576295) от 14.08.2016
+###  Публикация: 1040742   (585361) от 06.08.2016
 
-Экшены - CreativeMarket - Mystery Light [ATN]
+Экшены - GraphicRiver - Oniric Actions and Textures Vol.1 [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mystery Light - экшен для Вашего творчества.Формат: ATN
+Oniric Actions and Textures Vol.1 - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:656ADA81004703A5BDF698453FB36B6134251B5F
+magnet:?xt=urn:btih:B1B73D5FA022BB2C0F8F2AC209C9041B125075A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042894   (576292) от 14.08.2016
+###  Публикация: 1040718   (585353) от 06.08.2016
 
-Экшены - GraphicRiver - Particles Photoshop Action [ATN, ABR]
+Экшены - GraphicRiver - Gorgeuos Pencil Drawing Photoshop Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Particles  - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Gorgeuos Pencil Drawing - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54A60D362B04A73363C22291ECE03502AA19991
+magnet:?xt=urn:btih:F34D5B420B2799D247308AD43001EC4F97C1E207
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042889   (576291) от 14.08.2016
+###  Публикация: 1040721   (585345) от 06.08.2016
 
-Экшены - GraphicRiver - Soot Photoshop Action [ATN, ABR]
+Экшены - GraphicRiver - Medieval Photoshop Action [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soot - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Medieval - экшен для Вашего творчества.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD437924F395F830ADCF6BD27BB7F511B259A0D1
+magnet:?xt=urn:btih:FEABB537A5DC36BB6D0064F6E181755AA7D5DD04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042912   (576290) от 14.08.2016
+###  Публикация: 1040724   (585343) от 06.08.2016
 
-Экшены - CreativeMarket - Movie Tones Photoshop Actions [ATN]
+Экшены - GraphicRiver - Tattoo Maker PS Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Movie Tones - экшен для Вашего творчества.Формат: ATN
+Tattoo Maker - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F302686E133E4FD3E6090CA364D0006D635BAC08
+magnet:?xt=urn:btih:5AE01CB3EFE50F48024DB281B5ECFF632F7B0CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +362,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042877   (576148) от 14.08.2016
+###  Публикация: 1040729   (585293) от 06.08.2016
 
-Экшены - GraphicRiver - Geometric Haze 2 Photoshop Action [ATN]
+Экшены - GraphicRiver - Halftone Maker - Photoshop Action - 9612903 [ATN, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Geometric Haze 2 - экшен для Вашего творчества.Формат: ATN
+Halftone Maker - экшен для Вашего творчества.Формат: ATN, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0890E848A5833B6A06EE17041A1AAEA5B4AA67C1
+magnet:?xt=urn:btih:ACA1EC78C2015A86850C12603D98E0DDB1532ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,25 +388,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042887   (576145) от 14.08.2016
+###  Публикация: 1040635   (585197) от 06.08.2016
 
-Экшены - GraphicRiver - Hand Draw - Photoshop Action [ATN, ABR, PAT]
+Экшены - GraphicRiver - Pencil Sketch Photoshop Action - 17227306 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hand Draw - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+Pencil Sketch - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8B8681049488C77AF4830E2B4A0B71876474C95
+magnet:?xt=urn:btih:F10D3485C2A70B869124E81E22E1D07856E5B63B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,25 +414,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042896   (575982) от 14.08.2016
+###  Публикация: 1040716   (585188) от 06.08.2016
 
-Экшены - GraphicRiver - Sketch Photoshop Action (With 3D Pop Out Effect) [ATN, ABR]
+Экшены - GraphicRiver - Perfectum - Vintage Watercolor Photoshop Action [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sketch (With 3D Pop Out Effect) - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Perfectum - Vintage Watercolor - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B729ED7C861E9C7C135C72D97F89126A94317BA
+magnet:?xt=urn:btih:D79B0211D31B25B14D29A6CC1EEE8416C4303740
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,26 +440,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233917   (575900) от 02.07.2018
+###  Публикация: 1040977   (584458) от 07.08.2016
 
-Экшены - Watercolor Ink Art Photoshop Action [ATN, ABR, PAT]
+Экшены - Glowing Stars - AndriyFM [ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Watercolor Ink Art - этот экшен фотошоп без особых усилий, поможет создать из ваших фотографий  красочный арт-этюд. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.
-Чтобы получить наилучший результат, вам следует использовать изображения (   Читать дальше...   )Формат: ATN, ABR, PAT
+Glowing Stars - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8680A2A0DCC5753E04230BEA99DB3C08B8E79641
+magnet:?xt=urn:btih:6777BDBD23D149B46077966F5407696F2FC6EE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150549   (575610) от 17.07.2017
+###  Публикация: 1041156   (584435) от 07.08.2016
 
-Экшены - GraphicRiver - Another Days Photoshop Action [ATN, ABR, PAT]
+Экшены - GraphicRiver - Codex Action [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Another Days Photoshop Action - позволяет создать картину заброшенных городов.Формат: ATN, ABR, PAT
+Codex - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54870676E52DD2BFED9C435BA4A1EA62F2D1C332
+magnet:?xt=urn:btih:819FAA1EF94E9ECF3AEA9D79E35322E0E9565799
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +492,181 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234014   (574620) от 03.07.2018
+###  Публикация: 1041094   (584426) от 07.08.2016
 
-Растровый клипарт - Ripe strawberry in wicker basket [JPG]
+Экшены - GraphicRiver - Light Runner Photoshop Action [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спелая клубника в плетеной корзине для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3888x2592-6052x4276
+Light Runner - экшен для Вашего творчества.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18046BF67DBC1F0FBA1CC59FEE6AE427E31155B1
+magnet:?xt=urn:btih:6EAC92CEECCA3C9766C79FBD71BDF4D80AF4A38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041099   (584423) от 07.08.2016
+
+Экшены - GraphicRiver - Motion Light Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motion Light - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28D1FF3DB4AAE926513F7F146B7172699437C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040970   (584422) от 07.08.2016
+
+Экшены - GraphicRiver - Stain Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stain - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1203A3EFE7354352D3B68BC836E84FE765632701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041121   (584393) от 07.08.2016
+
+Экшены - CreativeMarket - Ultimate Oil Painting Effect [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate Oil Painting Effect - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD3C4EF56CD2F711FFEBDC783BA1B2C6124A2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041111   (584387) от 07.08.2016
+
+Экшены - GraphicRiver - Oil Light Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oil Light - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5174E1A4F2697288551731E6CB9BA8FF59D1A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040981   (584377) от 07.08.2016
+
+Экшены - GraphicRiver - Dimensions - 3D Generator Action [ATN, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dimensions - 3D Generator - экшен для Вашего творчества.Формат: ATN, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B12A75CB19CE5C42376C6679313C4A80504F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040971   (584327) от 07.08.2016
+
+Экшены - GraphicRiver - TechnicalArt Photoshop Action [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584327.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechnicalArt - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0D6E6B0113B854D29E7B027F24081D77CF09DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

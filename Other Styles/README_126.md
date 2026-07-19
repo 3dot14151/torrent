@@ -1,3 +1,177 @@
+###  Публикация: 1070689   (366531) от 07.11.2016
+
+Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Quarantine Zone (20 Years Later) - [3:40]
+02. The Hour - [1:02]
+03. The Last of Us - [3:04]
+04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255343   (366232) от 17.10.2018
+
+Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titles (2:18)
+ 02. Mourning (3:24)
+ 03. Beach (2:35)
+ 04. Knife (2:25)(   Читать дальше...   )Жанр: Score, ModernПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576400   (366159) от 14.09.2022
+
+Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinding Lights [03:29]
+02. Bad Habits [03:51]
+03. Wellerman (2k21 Native RMX) [02:12]
+04. Cold Heart [03:24](   Читать дальше...   )Жанр: New Age, Instrumental, Native AmericanПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5DF295B8C40CAC6C84EF65C513FEB25370154A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255367   (366059) от 17.10.2018
+
+The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterlily (4:29)
+ 02. Miss Casey Medley (2:00)
+ 03. Byker Hill (2:47)
+ 04. Atlantic Blue (4:15)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255339   (366052) от 17.10.2018
+
+VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Bird - Prayer of St. Francis (From St. Francis Hymn) (00:21)
+02. Alanis Morissette - Hand in My Pocket (03:38)
+03. HAIM - Little of Your Love (03:33)
+04. Adolf Fredrik Girls Choir - Panis Angelicus (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2603EC4694D1F20603B26A24653C0C82B440E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328097   (366029) от 29.09.2019
+
+Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triangular Navigation (9:01)
+02. We Continue the Search (7:42)
+03. Andromeda (5:59)
+04. Comets Went Forever (4:54)(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327099   (366028) от 29.09.2019
 
 VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -591,180 +765,6 @@ Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951361   (363067) от 29.10.2015
-
-Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage To Paradise
-02. The High Road
-03. Almeria
-04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071064   (361674) от 09.11.2016
-
-VA - Acoustic 90s Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Torn
-02. Anjali Joseph - Angel
-03. Thom Cooper - Scar Tissue
-04. Meg Birch - I Wouldn't Believe Your Radio(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FF69E961D66C545DE8764AA67C09BC3C825B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070841   (361664) от 09.11.2016
-
-Taylor Davis - Odyssey (2016) [MP3|320 Kbps] <Instrumental, Soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй альбом собственных композиций Taylor Davis.01. Gateway (3:17)
-02. The Summit (3:29)
-03. Wilderness (3:10)
-04. Hunter's Frontier (4:06)(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A83D03DBDEF41F5D7009B094C0CAB6026BF8465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328638   (361019) от 01.10.2019
-
-Longhouse - Native Chants (2019) [MP3|192 Kbps] <Native American, World, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Warrior Is Born
-02. The Guardian
-03. The Wisdom of One
-04. Grandfather's Teaching(   Читать дальше...   )Жанр: Native American, World, FolkПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9D5D5B40AFD8C014157408AABA3487E1990C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416392   (360369) от 19.10.2020
-
-Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiritual Zen (3:01)
-02. Inner Peace (3:34)
-03. New Age Spirit (3:12)
-04. Yoga Poses (3:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B440F2DC0BD7D5AB18DA645D3025F3EFE9C860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723207   (360247) от 16.11.2013
-
-Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Harlequin and Pierrot (6:45)
-02. - Shaman Flight (8:40)
-03. - Moving Seagrass (6:04)
-04. - Mon Coeur (6:38)(   Читать дальше...   )Жанр: Meditative, New AgeПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

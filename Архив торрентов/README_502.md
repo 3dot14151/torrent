@@ -1,3 +1,29 @@
+###  Публикация: 1362730   (947926) от 24.02.2020
+
+ORPALIS PaperScan Professional 3.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947926.jpg" />
+</div>
+
+
+###  Подробнее
+
+ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9350FE1B0EC0633F991AEB8913BE414168CB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362661   (947918) от 24.02.2020
 
 DaisyDisk 4.9 CR2 [Multi/Ru]
@@ -667,33 +693,6 @@ FastScripts  - Утилита для быстрого запуска AppleScript
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCA18C24105671C671300D3597FDEDF062BE6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090498   (947671) от 06.01.2017
-
-Framer Studio v79 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Framer Studio - инновационные прототипирование.
-Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом. Framer позволяет определить анимацию и взаимосвязь. JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.  Framer Студия имеет интеграцию с Photoshop и Sketch и позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 декабря 2016Разработчик: PODIUM BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21A8B185385CACECE35AB099CCE6D4D9EC4A98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

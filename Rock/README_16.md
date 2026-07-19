@@ -1,32 +1,3 @@
-###  Публикация: 1497882   (861250) от 24.09.2021
-
-Ringo Starr - Change The World (2021) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861250.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let’s Change The World
-2. Just That Way
-3. Coming Undone
-4. Rock Around The ClockЖанр: RockПродолжительность: 00:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B554894455FF8FD1FA0E6F7BCF58D49CB249FD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109167   (860996) от 26.02.2017
 
 Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
@@ -748,6 +719,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E9C2A20917D612BB49CCC715FA0AE4196FE4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309313   (842303) от 15.03.2011
+
+Manfred Mann's Earth Band - Star Collection (4CD BOX) (2011) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Art Rock, Symphonic Rock, Progressive RockПродолжительность: 05:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

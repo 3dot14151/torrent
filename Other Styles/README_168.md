@@ -1,3 +1,201 @@
+###  Публикация: 594217   (133923) от 25.12.2012
+
+Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin (Guitar - Mike Oldfield)
+02. Traveller
+03. Flight Of The Eagle (Guitar - Mike Oldfield)
+04. Gayatri
+05. Shadow Dancer
+06. Jai Ram
+07. Moola Mantra
+08. Mangalam
+09. Dancer In The Void (Guitar - Mike Oldfield)
+10. Be StillЖанр: New Age, RelaxПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594117   (133526) от 26.12.2012
+
+Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She’s A Pass [3:16]
+02. Mega City One [3:13]
+03. The Plan [2:37]
+04. The Rise Of Ma-Ma [1:55]
+05. Anderson’s Theme [2:37]
+06. Lockdown [2:46]
+07. Cornered [2:17]
+08. Kay Escapes [3:17]
+09. Mini-Guns [2:02]
+10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594102   (133511) от 26.12.2012
+
+Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_133511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - The Atlas March [1:15]
+02. Cloud Atlas Opening Title [3:47]
+03. Travel To Edinburgh [1:42]
+04. Luisa's Birthmark [3:00]
+05. Cavendish In Distress [1:23]
+06. Papa Song [4:15]
+07. Sloosha's Hollow [2:59]
+08. Sonmi-451 Meets Change [3:34]
+09. Won't Let Go [4:10]
+10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594109   (133476) от 26.12.2012
+
+007: Координаты «Скайфолл» /Skyfall (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Bazaar, Istanbul [05:16]
+ 02. Voluntary Retirement [02:22]
+ 03. New Digs [02:32]
+ 04. Severine [01:19]
+ 05. Brave New World [01:50]
+ 06. Shanghai Drive [01:26]
+ 07. Jellyfish [03:22]
+ 08. Silhouette [00:56]
+ 09. Modigliani [01:05]
+ 10. Day Wasted [01:31](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680665   (133344) от 01.12.2023
+
+James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrumental, Pop, Easy listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133344.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01 - Non Stop Dancing 65-66 - 01:20:37
+CD 02 - Non Stop Dancing 66-67 - 01:15:34
+CD 03 - Non Stop Dancing 67-68 - 01:14:36
+CD 04 - Non Stop Dancing 1968 - 01:11:17(   Читать дальше...   )Жанр: Instrumental, Pop, Easy listeningПродолжительность: 25:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681758   (132372) от 04.12.2023
+
+Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Brighter Dawn (8:00)
+02. The Gift of Life (6:56)
+03. The Voice Inside (9:28)
+04. Tomorrow's Dream (10:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681768   (132348) от 04.12.2023
 
 Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -583,180 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690580   (123806) от 08.01.2024
-
-Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Chakra Gayatri Mantra
-02. Sarva Mangala
-03. Prabhujee
-04. Buddham Sharanam(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406CB4E6BF5E0073021EFB3C4D6327107EB6E4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690160   (123585) от 10.01.2024
-
-VA - Бременские музыканты (2023) Официальный саундтрек к фильму [FLAC|Lossless|WEB-DL|tracks] <Films/Jeux vidéo / Musiques de films>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серенада Трубадура. Детство [00:02:21]
-02. Песня маме [00:03:13]
-03. Серенада Трубадура (15 лет) [00:00:17]
-04. Дуэт Короля и Принцессы [00:01:03](   Читать дальше...   )Жанр: Films/Jeux vidéo / Musiques de filmsПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDD3329AD71B2C18C29FA728CD58F02B859D465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691419   (123315) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85434100DE4D234734A7675ECD0639F71062A246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691409   (123311) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [MP3|320 Kbps] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692774   (122196) от 18.01.2024
-
-Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  'Til the End of Time
-02.  Daydreamer
-03.  Walk of Life
-04.  Aisha(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692580   (122188) от 18.01.2024
-
-VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindrid Souls - End of Time (6:25)
-02. Marga Sol - Aido (4:38)
-03. Noam Garcia - Main Force (10:56)
-04. Tibetania - Pai Gardens (5:54)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C02F2196589DA00E9F17225C652A83BF26119F
 ```
 
 https://mybot314.ru/tekegram_catalog/

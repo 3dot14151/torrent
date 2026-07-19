@@ -1,3 +1,61 @@
+###  Публикация: 966001   (222765) от 16.12.2015
+
+Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafon AB [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sweet Mary Jane
+2. Copenhagen Blues
+3. You're so Fine
+4. Somebody(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A745F6B7486A253F8C2BFA23E87D4259250954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966112   (222306) от 16.12.2015
+
+Юкон - Pow-Wow Hard Boogie (2015) [MP3|320 кб/с] <Blues rock, Hard rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Холодно
+02. Бибикинг
+03. Мне Лень
+04. Кошкин Блюз(   Читать дальше...   )Жанр: Blues rock, Hard rockПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85C9FF5F0B142A56617D4CBA96AE9DFB51BC9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342891   (221129) от 04.12.2019
 
 Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
@@ -687,58 +745,6 @@ Max Merritt - I Can Dream (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC87CC80674E6E95E984A91F02B0C8078687146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428215   (180034) от 02.12.2020
-
-VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: BluesПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A9195781F097376BCBA4056D10B286CF2BC06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428218   (180029) от 02.12.2020
-
-VA - Modern Blues (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: BluesПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A734DB01769A48BCD037098223D8056399FBAAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

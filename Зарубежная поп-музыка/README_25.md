@@ -1,3 +1,32 @@
+###  Публикация: 1524463   (743763) от 16.01.2022
+
+Amy Holland - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Soft Rock, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эми Холланд (Amy Celeste Boersma, US) была удостоена номинации на премию "ГРЭММИ" за лучшую новую исполнительницу после своего дебютного одноименного альбома. Сингл ''How Do I Survive'' взлетел в топ-20 чартов Billboard и вывел Эми на первое место.01. How Do I Survive (4:03)
+02. Strengthen My Love (4:01)
+03. Here In The Light (4:01)
+04. Stars (4:28)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, DiscoПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D6A235B9792F02E47AF7C06ADAF1641619C25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217457   (743486) от 04.04.2018
 
 Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capitol Records, Compilation [MP3|320 Kbps] <Country, Alternative Country>
@@ -716,35 +745,6 @@ Sheila - Tendances (серия "Другие восьмидесятые") (1988)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55EEB05CE27269CD630DD477FC800C006979B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399469   (732906) от 01.08.2020
-
-VA - Home Gym (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinkie - Must Be Love (feat. Celina Sharma) (2:52)
-02. Flo Rida - Good Feeling (4:08)
-03. Charli Xcx - 1999 (3:09)
-04. Daft Punk - One More Time (5:20)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25916F168769A1BA336D4ECC154119DE56EDFAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

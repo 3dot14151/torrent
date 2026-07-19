@@ -1,3 +1,175 @@
+###  Публикация: 1373770   (876619) от 08.04.2020
+
+ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <Nu-Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2001 ILL NINO - God Save Us DVDRip
+002 2001 ILL NINO - Unreal DVDSRip
+003 2001 ILL NINO - What Comes Around DVDRip
+004 2003 ILL NINO - How Can I Live  DVDRip(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8153C1938D383EA8F86D67E88D424363F51366F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373709   (876612) от 08.04.2020
+
+Юлия Чичерина - Фонтан счастья/Рынок-лабиринт (2020) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Юлия Чичерина - Фонтан счастья
+Манасаровар — озеро живой воды, считается источником жизни, максимальная глубина 90 метровЖанр: Альтернативный РокПродолжительность: 00:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768A4D3BC1BCABEA64C3BA2F61A9D3A7E287B3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643296   (875484) от 13.04.2013
+
+Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip, SATRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Источники видео в основном из DVD, видео адаптировано для экранов 16:9. Звук взят также из DVD - PCM (в нескольких - из CD), сжат во flac; AC3 нормализован.1986 - Peace Sells
+1987 - Wake Up Dead
+1988 - In My Darkest Hour
+1988 - Anarchy In The U.K
+1989 - No More Mr. Nice Guy
+1990 - Hangar 18
+1990 - Holy Wars... The Punishment Due (Director's Cut)
+1991 - Go To Hell
+1992 - Symphony Of Destruction
+1992 - Symphony Of Destruction (Edited Gristle Mix)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295E5DC851FD22F3A0162A4CE195D950D0D22436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997146   (875237) от 16.03.2016
+
+Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник видеоклипов The Videos 1989—2004 содержит все на тот момент (2006г) видеоклипы, в разное время снятые группой, начиная с «One» 1989 года и заканчивая «Some Kind of Monster» 2003-го, а также различные бонус-материалы, включая альтернативные версии клипов и трейлер к документальному фильму 2005 года «Metallica: Some Kind of Monster».1. One
+2. Enter Sandman
+3.The Unforgiven
+4. Nothing Else Matters(   Читать дальше...   )Жанр: МузыкаАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert Trujillo, Jason NewstedПеревод: ОтсутствуетПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C532F401DE229855C54D837CED3675293691E4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373799   (874435) от 09.04.2020
+
+Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Feuerschwanz - Das Elfte GebotЖанр: Mitellater Folk-RockПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA630F5B7F76E12B03A58ABA306647450A625EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644050   (873265) от 14.04.2013
+
+Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ReggaeПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374429   (872834) от 10.04.2020
 
 Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
@@ -534,171 +706,6 @@ CDA: Ауткаст (2020) Один из нас (Single)Производство
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B92D79E71486F7F734BE2785910502BEE55B6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498140   (857505) от 26.09.2021
-
-Сборник зарубежных видеоклипов (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка видеоклипов зарубежных исполнителей.1. ABBA - I Still Have Faith In You
-2. Anitta - Loco
-3. Ava Max - Everytime I Cry
-4. Becky G - Green light go(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D41678E7154DA8528587B52DF4119383AF910B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873598   (857390) от 06.03.2015
-
-ABBA - The Definitive Collection (1974-1982) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857390.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Waterloo
-2 Ring Ring
-3 Mamma Mia
-4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648033   (855438) от 24.04.2013
-
-Sara Tunes - VIP (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648027   (855371) от 24.04.2013
-
-Marty - Suddenly (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4D6EFF128E52F0FF4C77744121CBFC5DB41664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648031   (855285) от 24.04.2013
-
-Chase The Ace - California (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 00:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DC9964B8D39EBD8E693EF410B8163DC451961B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769067   (854167) от 23.03.2014
-
-Сборник клипов - VA - Various Music part. 51 (2014) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Ferrari - Guere Guere 1080p (2:59)
-2. Andrew Rayel - Power Of Elements (Trancefusion 2014 Anthem) 720p (3:26)
-3. ARASH feat Helena - ONE DAY 1080p (3:46)
-4. Armin van Buuren feat. Lauren Evans - Alone 1080p (4:06)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

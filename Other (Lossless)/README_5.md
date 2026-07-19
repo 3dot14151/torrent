@@ -1,3 +1,108 @@
+###  Публикация: 499462   (256373) от 21.05.2012
+
+Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neofolk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dante O' Doré (03:50)
+02. Wadi el 'arish (08:31)
+03. Etheros (02:27)
+04. Zjw (05:04)
+05. Capriccio di cenere (05:27)
+06. Les cloches de Clisson (02:25)
+07. Sacrum II (03:25)
+08. Over the Border (03:42)
+09. Physeos (03:31)
+10. Escalder's Spellbinding (02:53)(   Читать дальше...   )2002Жанр: Acoustic, Ethereal, NeofolkФормат: CD, AlbumПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498635   (255778) от 19.05.2012
+
+Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Set Free (04:34)
+02. Yoo Doo Right (07:13)
+03. Where Did You Sleeep Last Night (03:44)
+04. Like Roling Stone (06:31)
+05. Love Lies (07:11)
+06. Oh My Love (03:27)
+07. Voodoo Chile (03:48)
+08. Heart And Soul (04:03)
+09. Persuasion (06:34)
+10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497342   (253475) от 16.05.2012
+
+VA - Cтаринные русские романсы. Золотая коллекция (2005) [FLAC|Lossless]<Vocal, classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Константин Огневой - Утро туманное
+02. Петр Топчий - Я помню вальса звук прелестный
+03. Валентина Кочур - Не пробуждай воспоминаний
+04. Николай Кондратюк - Я встретил вас
+05. Евгений Зубко - Астры осенние
+06. Петр Топчий - Калитка
+07. Галина Мурзай - Темно-вишневая шаль
+08. Анатолий Кочерга - Забыли Вы
+09. Виктор Титкин - В минуту признанья
+10. Тамара Концевая - О, позабудь былые увлеченья(   Читать дальше...   )2005Жанр: Vocal, classicalПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496032   (252972) от 14.05.2012
 
 Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listening>
@@ -682,96 +787,6 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432553   (161883) от 19.12.2020
-
-VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайная вечеря (5:44)
-02. Гефсиманский сад (6:21)
-03. Арест (4:18)
-04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588534   (157375) от 13.12.2012
-
-Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_157375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Raga Puriya Kalyan [11:48]
-2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
-Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
-3. I. Lalit (Presto) [16:36]
-4. II. Bairagi (Moderato) [08:11]
-5. III. Yaman Kalyan (Moderato) [14:32]
-6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271783   (147407) от 25.12.2018
-
-Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Lossless|image + .cue] <Gothic, Dark, Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gespenster-Revue im Theater Obszön (03:47)
-02. Ein Requiem in Sepia (04:24)
-03. Menschliche Trauer (03:47)
-04. Kali Yuga (03:29)(   Читать дальше...   )Жанр: Gothic, Dark, AcousticПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1880335   (1075906) от 06.07.2026
+
+Enya - REDISCOVER Enya (2026) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Time (3:38)
+02. Orinoco Flow (4:26)
+03. Anywhere Is (3:58)
+04. Watermark (2:25)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 02:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E4EA6E550C180ECA4379CD2925124722DCDAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870940   (1069296) от 15.05.2026
 
 Spiritual Gaia - Compilation (2026) [MP3|320 Kbps] <Easy Listening, Meditation, Relax>
@@ -739,35 +768,6 @@ VA - A mystery to people (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0282D0E25337A1900953A53F1202AE70DFB471A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355877   (980361) от 29.01.2020
-
-VA - Music Collection (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980361.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 After Sunrise - Ibiza Mood
-002 Airsh4d3 - lady
-003 Airstream - Ambience (Autumn Cut)
-004 Aleceo feat. Sergi Kampanella - Clouds(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 1/01:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A1DE2ED9244E7FB3FD0DA35E0D018EE0DD4349
 ```
 
 https://mybot314.ru/tekegram_catalog/

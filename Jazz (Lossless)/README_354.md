@@ -1,119 +1,3 @@
-###  Публикация: 1786365   (69014) от 20.03.2025
-
-Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impressions [4:21]
-02. Remembering Wes [6:53]
-03. Groove Yard [4:49]
-04. Canadian Sunset [5:58](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7DBEED32EDB0103C46A5FBD91EDE271629F10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786369   (69013) от 20.03.2025
-
-Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Blues for Wes [4:28]
-02. Bock to Bock [6:35]
-03. For Heaven's Sake [6:27]
-04. Montgomery Blue [6:09](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786362   (69012) от 20.03.2025
-
-Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Man, Blind Man [8:19]
-02. A Tribute to Someone [8:46]
-03. King Cobra [6:55]
-04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786606   (68963) от 21.03.2025
-
-Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Hill [3:55]
-02. Lullaby of Loosdrecht [7:59]
-03. Mitzi [4:41]
-04. Bossa for Sax [9:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728189B35F69A06594CA73AFD2BB0DCA89A57A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786603   (68959) от 21.03.2025
 
 Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -745,6 +629,122 @@ VA - Urban Grooves Vol. 5 (Urban Funk Breaks Dub Hip Hop Beats) (2025) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790140   (68168) от 07.04.2025
+
+Mr. Jazzek - Swing Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Habit (2:41)
+02.  Alanna Lyes - Stay (2:48)
+03.  Break It Up (2:28)
+04.  Bukovina (2:54)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806FA25FC3C11FED9CDFA4A7A18DB9C253377377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790473   (68075) от 09.04.2025
+
+Siberian Dixieland - The Scent Of The Era (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevedore Stomp [6:50]
+02. Doctor Jazz [3:57]
+03. Kansas City Stomp [4:12]
+04. The Western Blues [4:09](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FE694C7CD85E1B9E0C1477674078E085AEDAED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790253   (68070) от 09.04.2025
+
+Gene Krupa And His Orchestra - 1945 - 1946 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tea for Two [2:27]
+02. Harriet [2:52]
+03. Yesterdays [3:23]
+04. Lover [2:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F043F7CC96A38D32C76B22B2FF04891EFDB3ADDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790640   (68019) от 10.04.2025
+
+VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, , Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Melania - Resta cu' mme (4:57)
+02.  Chiara Civello - Tu Si Na Cosa Grande (4:26)
+03.  Francia Damore - Un Giorno Che Non Va (3:56)
+04.  Fred Buccini - Nun è peccato (3:47)(   Читать дальше...   )Жанр: Lounge, , Smooth JazzПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C1BC1BBFC19FEAB0BF88B9C1CD4E4373B3FC12
 ```
 
 https://mybot314.ru/tekegram_catalog/

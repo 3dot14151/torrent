@@ -1,3 +1,90 @@
+###  Публикация: 1357393   (974331) от 03.02.2020
+
+Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974331.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Around My Dream (Extended Version) 5:39
+2 Step By Step 3:42
+3 Love Is Alive 3:49
+4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357381   (974328) от 03.02.2020
+
+Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Wild, Wild Western
+2 I Won't Forget
+3 Champagne For The Boy
+4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357388   (974266) от 03.02.2020
+
+Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974266.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Don't Talk To The Snake 8:02
+2 Let's Start Now 7:32
+3 Africa 5:37
+4 Agent Of Liberty 4:22(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357487   (973078) от 04.02.2020
 
 London Boys - Playlist: The Best of London Boys (2016) Compilation [FLAC|Lossless|WEB-DL|tracks] <EuroDisco, EuroPop, 80s>
@@ -663,93 +750,6 @@ VA - Italo Disco (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B45682AE1CC5144D8B3824A2D36C11B43930C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755412   (927918) от 10.02.2014
-
-Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You're A Woman   (3:55)
-02.  Back To The Future   (3:45)
-03.  L.O.V.E. In My Car   (3:32)
-04.  Jungle In My Heart   (3:41)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988170   (922472) от 19.02.2016
-
-VA - Number One Party '70 '80 Compilation (2003) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gazebo - I Like Chopin (01:39)]
-02. Delegation - Put A Little Love On Me (02:00)
-03. Radiorama - Desire (01:51)
-04. Radiorama - Vampires (02:01)(   Читать дальше...   )Жанр: Italo-Disco, FunkПродолжительность: 00:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317C2817C9EF25D2E52C9F0962D7069B60950B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366817   (920140) от 13.03.2020
-
-VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Boys - London Nights (Special Extended Remix) (06:10)
-02. Caron - Out Of The Night (The First Step) (Extended Version) (07:09)
-03. Ivan - Fotonovela (Extended Special Remix) (06:14)
-04. Sabrina - Boys Boys Boys (Extended Dub Remix) (05:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE0A57EE072BED95404B675C6ECD1DE7922506E
 ```
 
 https://mybot314.ru/tekegram_catalog/

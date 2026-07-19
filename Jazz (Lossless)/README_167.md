@@ -1,119 +1,3 @@
-###  Публикация: 1316640   (504235) от 28.07.2019
-
-Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504235.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Groove Blues:
-01. Ammon Joy [13:20]
-02. Groove Blues [9:35]
-03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934218   (503768) от 04.09.2015
-
-Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Replacement [05:31]
-02. Splainin' [05:29]
-03. Backstroke Boogie [07:13]
-04. Biker's Dozen [05:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E23193B1A5BCE892FD5F389C072E2680A11EC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934316   (503762) от 04.09.2015
-
-Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One O'Clock Jump, Pt. 1 (feat. Michel Pastre Big Band)
-02. Swing Brother Swing (feat. Michel Pastre Big Band)
-03. They Can't Take That Away from Me (feat. Michel Pastre Big Band)
-04. Travelin' Light (feat. Michel Pastre Quartet)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC86770969D25F1557A036EFDB6C6C223926D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934154   (503759) от 04.09.2015
-
-Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spider Webs [05:09]
-02. If Women Ruled The World [05:03]
-03. God Bless The Child [05:58]
-04. You Gotta Be [04:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8410A89D2C7DE097FC65F96156A4B48BE0E1C8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934157   (503758) от 04.09.2015
 
 Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
@@ -757,6 +641,122 @@ VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564483   (499750) от 19.07.2022
+
+Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Moments [9:14]
+02. Elixir Suite [9:47]
+03. Hi Fly [7:51]
+04. Tribute to Duke and Mingus [5:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB335F86B2078C33430661F59CB83D825E507649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564482   (499744) от 19.07.2022
+
+Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Says [12:54]
+02. Sis [6:38]
+03. A Little Booker [13:56]
+04. Easy Winners [4:55]Жанр: Hard Bop, Post-BopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564651   (499668) от 19.07.2022
+
+V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset
+02. eJazz Artistry - I Can't Stop Loving You
+03. Chillaxonic - Dream into Reality
+04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564647   (499664) от 19.07.2022
+
+VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLAC|Lossless|image + .cue] <Contemporary Jazz, Fusion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curtis Stigers - Jealous Guy
+02. Joe Jackson - Girl
+03. Pink Turtle - Imagine
+04. Lucky Peterson - Yer Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Fusion JazzПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D01941CA2505F66937ACF8C5ADD9B9091D50E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

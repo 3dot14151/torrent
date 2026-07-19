@@ -1,3 +1,177 @@
+###  Публикация: 1304444   (1022411) от 06.04.2021
+
+Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, Entropy Records, ZeECc [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud One (08:30)
+ 02. Cloud One (Submoon Remix) (06:44)
+ 03. Cloud Two (06:30)
+ 04. Cloud Three (07:20)Тип издания: CD, WebЖанр: Dub Techno, Ambient •Продолжительность: 16:08:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4DF040D7F074E3A369893ED0265018946DA798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461057   (1021951) от 09.04.2021
+
+Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry (3:39)
+02. Gains (3:27)
+03. I Need Someone (4:54)
+04. Remember (7:05)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212270   (1021450) от 12.04.2021
+
+Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Downtempo, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me In (05:38)
+ 02. Hover (05:20)
+ 03. On The Bottom (05:00)
+ 04. Castle Of Air (06:07)(   Читать дальше...   )Жанр: Dub Techno, Downtempo, TechnoПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77226741911A0A82C32C69704E4EC302C2527E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462331   (1021137) от 14.04.2021
+
+VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Dance-Pop, Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade, Will K - Flip Reset (03:08)
+02. Slushii - All I Need (03:46)
+03. Vicetone - No Rest (03:29)
+04. Tokyo Machine, Weird Genius, LIGHTS - Last Summer (02:53)(   Читать дальше...   )Жанр: Electro House, Dance-Pop, DubstepПродолжительность: 02:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C9AA524027F772FA639BF01BB08A55E656101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462883   (1020783) от 16.04.2021
+
+Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futurum Est Nostrum
+02. God Save the Rave (feat. Harris & Ford)
+03. Never Stop The Show
+04. We Love Hardcore (feat. Dimitri Vegas & Like Mike)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781870D524965C8F90CC7587E3BB1B5FBB28CE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463699   (1020326) от 19.04.2021
+
+Kymelle - Show  That Body Baby (1996) Maxi-Single [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show That Body Baby (Ultimate Single Mix) 3:48
+02. Show That Body Baby (Ultimate Mix) 5:40
+03. Show That Body Baby (Mix Version) 5:19
+04. Show That Body Baby (The T. Mix) 4:25Жанр: Euro HouseПродолжительность: 00:19:23.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C518AB0D100DE1527982EF0FDC33EF92DA87A226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176824   (1019279) от 25.04.2021
 
 Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
@@ -571,176 +745,6 @@ Doctrina Natura - The Fire Of The Beginning Of Time (2021) Alexandar [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E0E714FD1B297680D87ABC250CF80A777BFFA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477142   (1011320) от 13.06.2021
-
-Shingo Nakamura - Glow (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Commence
-02. Shingo Nakamura - Phenomena
-03. Shingo Nakamura; Brandon Mignacca - Darling Midnight
-04. Shingo Nakamura - Before You Go(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F7820C2A6AA2BD2C1EFB6E5F2633945AF34A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285895   (1011259) от 13.06.2021
-
-Umwelt - Discography 45 Releases (1998-2021) Shelter, New Flesh, Rave Or Die, Fundata [FLAC|Lossless|tracks+.cue, tracks] <Electro, Acid, Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear On The Dark Planet (05:20)
- 02. Accelerating Universe (05:20)
- 03. Ravenous Horde (04:49)
- 04. Raiders Of The Final Frontier (04:10)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Electro, Acid, Techno, Industrial, Experimental •Продолжительность: 17:45:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0866C48B3B347BEC78216BD1BBBA1335AFCC8F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063922   (1011074) от 14.06.2021
-
-Boris Divider - Discography 20 Releases (2004-2021) Artificial Domain [FLAC|Lossless|tracks+.cue, tracks] <Electro, Techno, Experimental, Glitch, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ликвидаторы (05:25)
- 02. Припять (06:45)
- 03. Цезий-137 (06:30)
- 04. РБМК (05:46)Тип издания: CD, WEB, VinylЖанр: Electro, Techno, Experimental, Ambient •Продолжительность: 11:11:15 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CD42D27ADCDCC173B564354DAD9D4CEFAC27A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477787   (1010849) от 16.06.2021
-
-El Perro De La Noche - Discography 11 Releases (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Perro 11 A (06:40)
- 02. El Perro 11 B (06:31)Тип издания: WebЖанр: Techno, Tech House, Dub Techno, Deep House •Продолжительность: 02:41:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90D76FB53D5D4853E9D258BE0AD15DE034644C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477960   (1010499) от 18.06.2021
-
-Ofenbach - Ofenbach (2019) EP [FLAC|Lossless|tracks + .cue] <EDM, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katchi (2:32)
- 02. Rock It (2:26)
- 03. I Got Burned (Feat. Tim Rogers) (2:38)
- 04. Be Mine (2:42)(   Читать дальше...   )Жанр: EDM, House, Nu DiscoПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A825EA126FCFD7FDE45AE00E5709DFCF35CFF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418591   (1009995) от 21.06.2021
-
-Echo Inspectors - Discography 11 Releases (2012-2021) Primary [colours] [FLAC|Lossless|tracks|Web, Vinyl] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad Roy (07:25)
- 02. Mad Roy (Bluetrain Special Edition Dub) (08:16)Тип издания: Web, VinylЖанр: Dub Techno •Продолжительность: 02:59:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F364DC1524E372EA4452EA1AF6F127B3F7387123
 ```
 
 https://mybot314.ru/tekegram_catalog/

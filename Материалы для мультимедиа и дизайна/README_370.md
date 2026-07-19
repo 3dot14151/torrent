@@ -1,22 +1,23 @@
-###  Публикация: 1790869   (67990) от 11.04.2025
+###  Публикация: 1787943   (68646) от 28.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Boho Fall Cute Flowers Seamless Patterns [JPG]
+Шрифты - Dmitri Zdorov - Dimka - Slimmary [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт c кириллицей.
+Разработчик: Dmitri ZdorovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4E20DB2D43AD9AA154DA7F387CC26D06C83A367
+magnet:?xt=urn:btih:D48A062FA077B623E128DDA038CD1DC785477734
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790866   (67986) от 11.04.2025
+###  Публикация: 1788037   (68632) от 28.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Gold & Black Plaid Digital Papers [JPG]
+Шрифты - Creative Market - Gouffas - Retro Fun Font - 278616763 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров в золотую и черную клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Gouffas - Retro Fun Font — изящный, элегантный и плавный рукописный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
+magnet:?xt=urn:btih:70FD4F5C8E2AC0ADBC2BF5ABD4D424FBF8D1E021
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790877   (67985) от 11.04.2025
+###  Публикация: 1787997   (68625) от 28.03.2025
 
-Текстуры - DizzyArtStudio - Creative Fabrica - Maroon Iridescent Leopard Print Textures [JPG]
+Шрифты - Creative Market - Rieches - Graffiti Urban Font - 197297289 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Леопардовые текстуры.Формат: JPGРазрешение файлов: 3600 x 3601 - 3601 x 3601
+Rieches - Graffiti Urban Font — изящный, элегантный и плавный рукописный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
+magnet:?xt=urn:btih:7E74779FC41DDDBC9BB4B8366C7814AA7F6AA758
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +81,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790870   (67984) от 11.04.2025
+###  Публикация: 1788002   (68624) от 28.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Mexican Knitted Flowers Seamless Pattern [JPG]
+Шрифты - Creative Market - Khasioma - Japanese Texture Font - 217758340 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных цветочных узоров - Мексиканский трикотаж.Формат: JPGРазрешение файлов: 3600 x 3600
+Этот шрифт — изящный, элегантный и плавный рукописный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
+magnet:?xt=urn:btih:0DED7771A202E1C8BDA1B32B35DAA83353078165
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +109,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790858   (67983) от 11.04.2025
+###  Публикация: 1788355   (68609) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Black & Gold Art Deco Patterns [JPG]
+Пресеты - Creative Market - 15 Coastal Cowgirl Lightroom Presets - 290909733 [XMP, DNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чёрно-золотые узоры в стиле арт-деко.Формат: JPGРазрешение файлов: 3600 x 3600
+Эти пресеты специально разработаны для тех, кто хочет получить великолепный мягкий теплый тон. Этот пакет был протестирован на бесчисленном количестве фотографий. Мы включаем 15 различных пресетов с различным тоном, экспозицией и т. д. С этим различным выбором вы сможете найти подходящий пресет.Формат: XMP, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
+magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +135,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790854   (67980) от 11.04.2025
+###  Публикация: 1788274   (68601) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pink Scandinavian Flowers Digital Papers [JPG]
+Шрифты - MyFonts - Master Press [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+Крепкий винтажный шрифт с засечками Master Press демонстрирует округлые черты и решительный характер в своем дизайне.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4D1612B489363B742149C9B663D5A63CE1D4650
+magnet:?xt=urn:btih:4E2A2147D7D3FA15A5374DFD13FCC03ADC2FEE65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790844   (67979) от 11.04.2025
+###  Публикация: 1788255   (68591) от 29.03.2025
 
-Растровый клипарт - sugamiart - Creative Fabrica - Free Valentine Glitter Digital Paper [JPG]
+Пресеты - cinematicstills - CINE STILLS VOL I [XMP, DNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатная цифровая бумага с розовым блеском на день Святого Валентина.Формат: JPGРазрешение файлов: 3600 x 3600
+Эта эксклюзивная линейка пресетов привносит ее классическую, живописную эстетику в ваши фотографии. Разработанные специально для гибридных фотографов, эти 14 тщательно созданных пресетов усиливают вневременную красоту как цифровой, так и пленочной работы.Формат: XMP, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
+magnet:?xt=urn:btih:31523CD0EE6F70189DAFE40FBD4C8DF8BC943BCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +189,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790845   (67977) от 11.04.2025
+###  Публикация: 1788252   (68583) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Tropical Leaves Seamless Patterns [JPG]
+Шрифты - Creative Market - Soncara – Futuristic Soft Serif Font - 290861627 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных тропических узоров (орнаментов).Формат: JPGРазрешение файлов: 3600 x 3600
+Soncara Futuristic Soft Serif Font — это современный и гладкий футуристический шрифт с мягкими закругленными краями и изысканной эстетикой дизайна.
+
+Кириллица поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:980FCC2AEBD3E4C6A9320096DA0005AF1B319E1A
+magnet:?xt=urn:btih:39C08BE53445E7A4A850C4213669E8E96D587A4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +217,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790847   (67974) от 11.04.2025
+###  Публикация: 1788346   (68576) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Groovy Flowers Digital Papers [JPG]
+Шрифты - Creative Market - Mistur Sleuth Bold Sans Serif - 290455786 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров (орнаментов) в виде цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+Mistur Sleuth - жирный шрифт без засечек от Timelesstype.Co.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B2A295CB050C6BC6FC5366117544613C84703B
+magnet:?xt=urn:btih:F30321192610CD066311990517CBE1C10AD2854A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +245,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790853   (67973) от 11.04.2025
+###  Публикация: 1788272   (68575) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Soft Pastel Flowers Digital Papers [JPG]
+Шрифты - Creative Market - Vorsce - A Legacy of Style - 290928287 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+Неподвластный времени шрифт с засечками, сочетающий элегантность и изысканность.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
+magnet:?xt=urn:btih:7A71BF54F9D8B36E9576A500E5270C16AB0B2947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +273,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790852   (67972) от 11.04.2025
+###  Публикация: 1788256   (68572) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Spring Floral Fruits Digital Papers [JPG]
+Шрифты - Creative Market - Chreed: 36 Dynamic Styles - 290885008 [OTF, TTF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных узоров из весенних цветов и фруктов (сгенерированных AI).Формат: JPGРазрешение файлов: 3600 x 3600
+Раскройте творческий потенциал с Chreed, семейством шрифтов с переменной плотностью, которое может похвастаться 36 универсальными стилями.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
+magnet:?xt=urn:btih:57E2896E53A26CD3F30030C09DFF99DAD0F08662
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +301,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790864   (67969) от 11.04.2025
+###  Публикация: 1788221   (68571) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [JPG]
+Шрифты - Envato - Con serifa moderna Feona - 9QZAWXJ [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Feona — мягкий, женственный шрифт с засечками, стильный и современный. Идеально подходит для придания элегантности свадебным приглашениям, логотипам или брендингу класса люкс.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D889BF8E68F5AD83904BFE9BF4E4EF4DCEB7BCB7
+magnet:?xt=urn:btih:6BA69177A65C17A923AEFB8364A3A699B874E689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +329,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790859   (67968) от 11.04.2025
+###  Публикация: 1788354   (68570) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Citrus Fruits Seamless Patterns [JPG]
+Шрифты - MyFonts - Quiz Show [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров из летних цитрусовых фруктов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Quiz Show черпает вдохновение из изысканного рукописного письма с элегантными отсылками к ар-деко в формах букв. Высокий x-height создает дружелюбное и гостеприимное ощущение.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
+magnet:?xt=urn:btih:5EE40386A110EFC2C868EDCC09D1E292B1FF86B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +357,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790851   (67967) от 11.04.2025
+###  Публикация: 1788214   (68562) от 29.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Vintage Beige Plaid Digital Papers [JPG]
+Шрифты - Creative Fabrica - Mocca Font - 777922 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 цифровых листов бумаги в винтажную бежевую клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт Mocca Sans, вдохновленный знаменитым минималистским логотипом, идеально подходит для разработки любых проектов.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FE1B7B0E93D68C377EA9628758FB818521B472C
+magnet:?xt=urn:btih:D3EF267B5C46601611267514D44AB96FC5486AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +385,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790850   (67964) от 11.04.2025
+###  Публикация: 1788548   (68552) от 30.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Winter Shabby Chic Digital Papers [JPG]
+Шрифты - Creative Market - Display font Fierce - 2394782 [OTF, PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных цветочных узоров в зимнем стиле (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Fierce — жирный шрифт кисти (OpenType-SVG), созданный акриловой краской на прозрачной пленке. Это придает ему уровень детализации, который вы просто не можете получить с традиционным векторным шрифтом. Краска выглядит почти как сухая кисть, потому что вы можете видеть каждый штрих.
+
+Кириллица не поддерживается.Формат: OTF, PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58A4AB48955F31417C1503DFB216180CEBCA72D2
+magnet:?xt=urn:btih:049B4A40D5F77C6A4D411B871B608CF6BE0E2C85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +413,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790860   (67963) от 11.04.2025
+###  Публикация: 1788376   (68545) от 30.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Red Green & Gold Seamless Patterns [JPG]
+Шрифты - Максим Мавряшин - KFproduction- Melectron [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров красно-зелёно-золотого цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Описание: Бесплатный шрифт c кириллицей.
+Разработчик: Максим Мавряшин
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BD3A9FC27E8E997A85682D3F32631EDEE89FBCA
+magnet:?xt=urn:btih:6AE0C514C219B3619D5DDD8ABC30909DB0D2BFE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +441,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791066   (67930) от 12.04.2025
+###  Публикация: 1788569   (68543) от 30.03.2025
 
-Фоны - STCrafts - Creative Fabrica - Aztec Fabric Digital Paper Backgrounds [PNG]
+Шрифты - Creative Market - De Lionist - Handwritten Script Font - 92472328 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровые бумажные фоны на тему ацтекской ткани.Формат: PNGРазрешение файлов: 3600 x 3600
+De Lionist — это естественный рукописный шрифт, который представляет собой пленительное сочетание артистизма и функциональности с большим количеством лигатур. Этот шрифт, часто вдохновленный каллиграфией и историческими стилями письма, сплетает буквы в танец элегантных связей.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4612E6A00F502BB5E5992674C7D2D45808846501
+magnet:?xt=urn:btih:F0DF94F3550FAA3B564B46A3ED82075028DE709A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +469,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791051   (67929) от 12.04.2025
+###  Публикация: 1788403   (68533) от 30.03.2025
 
-Текстуры - AllisonSuns - Creative Fabrica - Free Blue and Gold Marble Stone [PNG]
+Шрифты - MyFonts - Royal Portasear [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая мраморная бумага сине-золотого цвета.Формат: PNGРазрешение файлов: 3600 x 3600
+Royal Portasear привносит уникальный потрепанный вид находки на распродаже в цифровую эпоху, в старую пишущую машинку Sears Portable.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D30B6FB68D74B335C26BD550FA061278C4E0CF45
+magnet:?xt=urn:btih:C28BA99E8A572211E6FF01BADE557ECAC521AE72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +497,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791062   (67928) от 12.04.2025
+###  Публикация: 1788406   (68524) от 30.03.2025
 
-Текстуры - AllisonSuns - Creative Fabrica - Free Blue Galaxy Digital Paper [PNG]
+Шрифты - Black Foundry - Ampere [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага стилизованная под голубую галактику.Формат: PNGРазрешение файлов: 3600 x 3600
+Уникальный характер Ampere заключается в его тонких, но ярких чертах. Внутренние углы смягчены квадратными чернильными ловушками, выбор, который смягчает его острые углы для гладкой, изысканной отделки без ущерба для структуры.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02237A543B9EF6BAA5398BE26E3D403EF91AA245
+magnet:?xt=urn:btih:2E7F2B1CB9CE3721FDC4FEC09BCA29DF58526977
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +525,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791063   (67927) от 12.04.2025
+###  Публикация: 1788659   (68496) от 31.03.2025
 
-Фоны - STCrafts - Creative Fabrica - 3D Turquoise Flowers Digital paper backgrounds [PNG]
+Пресеты - Archipelago Quest - Quest 12 LXCQ [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоны с 3D бирюзовыми цветами.Формат: PNGРазрешение файлов: 3600 x 3600
+Quest 12 LXCQ предлагает вам современный взгляд на традиционную тональность, которую вы полюбили и ожидаете от пресетов LXC. Включены три отдельных пресета, которые гармонично работают, чтобы соответствовать всей вашей работе. Также включен уникальный творческий профиль, который дает вам мгновенный легкий и воздушный эффект для этих причудливых романтических моментов. (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43CAB12597CA533E81A728D94F6935EBFC6F8957
+magnet:?xt=urn:btih:938ED68616098E1868CEDC45E674919A1D3B2EA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +551,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791057   (67919) от 12.04.2025
+###  Публикация: 1788756   (68494) от 31.03.2025
 
-Фоны - STCrafts - Creative Fabrica - Purple Galaxy Glitter Night Sky Digital [PNG]
+Звуковые библиотеки - Artlist - Inspired by Godzilla x Kong [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоновые изображения в стиле фиолетовой галактики, сверкающей в ночном небе.Формат: PNGРазрешение файлов: 3600 x 3600
+Набор из 30 музыкальных сэмплов от Aritlist.io с кинематографической темой "Годзила и КингКонг"Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0E1E2692ECFB2E0F6E829D055DED74C8104DAC2
+magnet:?xt=urn:btih:DA77A5484D7E36722F854F96751A46CE9CB32514
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +577,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791060   (67909) от 12.04.2025
+###  Публикация: 1788748   (68490) от 31.03.2025
 
-Текстуры - STCrafts - Creative Fabrica - Purple and Gold Ginkgo Texture Digital paper [PNG]
+Шрифты - Maxim Raikov - Behance - DARAY - FREE SAN-SERIF FONT - 120181105 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с фиолетово-золотистой текстурой под листья гинкго.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+В добавленных файлах "Daray By He Rez AD" расширенная кириллица от "He Rez AD" (Украинская, Белорусская, Молдавская), им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39705CC5AA5AB97CA2282900E189AE707FC925DA
+magnet:?xt=urn:btih:D7F513DD7B1B21B471CDA9729DF5FCE997C3A35C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +605,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791058   (67908) от 12.04.2025
+###  Публикация: 1788657   (68487) от 31.03.2025
 
-Текстуры - STCrafts - Creative Fabrica - Purple and Turquoise Luxury Floral Texture Digital paper [PNG]
+Шрифты - Creative Market - Holokai Typeface - 91659528 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фиолетовая и бирюзовая цифровая бумага с роскошной цветочной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Holokai Typeface — это категория шрифтов, специально разработанных для использования в больших размерах, как правило, для заголовков, названий, логотипов и других заметных элементов дизайна.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62BB97F76E239544E749E39AA3FA7FEB49503D14
+magnet:?xt=urn:btih:EC3809E5A5563DC1D603FB7FA34354BB26C3D2CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +633,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791065   (67901) от 12.04.2025
+###  Публикация: 1788782   (68477) от 31.03.2025
 
-Текстуры - STCrafts - Creative Fabrica - Luxury Lilac Texture Digital Paper [PNG]
+Шрифты - Font Bundles - Best Seller - Lovely Love Heart Font - 1414560 [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с роскошной сиреневой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Шрифт Lovely Love Heart Font Best Seller выглядит одинаково очаровательно и элегантно. Он закодирован в PUA, что означает, что вы можете легко получить доступ ко всем глифам и росчеркам! Он имеет изменяющуюся базовую линию, плавные линии, великолепные глифы и потрясающие альтернативы.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83E705CD78930C1C22F88308AA94163B0C10EA1E
+magnet:?xt=urn:btih:64EAD97200BC279527F194A4710BF7CE75F738CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +661,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791053   (67900) от 12.04.2025
+###  Публикация: 1788690   (68471) от 31.03.2025
 
-Фоны - STCrafts - Creative Fabrica - Native American Crochet Digital paper backgrounds [PNG]
+Шрифты - Creative Market - Dotted Font - 6539513 [OTF, EPS, PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровые бумажные фоны стилизованные под вязание крючком индейцев Америки.Формат: PNGРазрешение файлов: 3600 x 3600
+Такой уникальный и веселый шрифт для ваших творческих задач. Бонусом к шрифту идут несколько графических элементов.Формат: OTF, EPS, PNG, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4FB9EDE3069500771ACFF39C046783C2FA2BBC6
+magnet:?xt=urn:btih:F971C059E0A599AF7F4D72BF14619450E9226111
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +687,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791061   (67899) от 12.04.2025
+###  Публикация: 1788980   (68451) от 01.04.2025
 
-Текстуры - STCrafts - Creative Fabrica - Frozen Winter Texture Digital paper [PNG]
+Пресеты - Archipelago Quest - CINEMATIC STYLE BUNDLE - VOL 01 [XMP]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с морозной зимней текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Вдохновленный современными мастерами кинематографа, набор стилей Quest Cinematic Style Bundle включает в себя 4 коллекции предустановок, которые привносят в ваши изображения магию серебряного экрана. Каждый набор в этой коллекции улучшает ваши фотографии драматическими и атмосферными кинематографическими тонами и инструментами, превращая ваши изображения в визуально (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E753B99378C1A374975FF782D0A2D96DE25F7874
+magnet:?xt=urn:btih:906FDAC108002CE730B28D769A34C03559BE6B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

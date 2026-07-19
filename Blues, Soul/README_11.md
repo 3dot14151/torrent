@@ -1,3 +1,61 @@
+###  Публикация: 1021129   (740980) от 29.05.2016
+
+Dan Patlansky - 2 Альбома (2006, 2012) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real    04:30
+02. Dead Shrimp Blues    05:39
+03. Only An Ocean    06:22
+04. Bad Weather Blues    07:22(   Читать дальше...   )Жанр: Blues Rock ♦Продолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2122BDA6C58C19C529C402119BC2D3B3909FDFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021045   (740895) от 29.05.2016
+
+Janiva Magness - Love Wins Again (2016) [MP3|320 кб/с] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Wins Again (03:18)
+02. Real Slow (03:51)
+03. When You Hold Me (03:58)
+04. Say You Will (03:50)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBD5A6D250FE30CAB102292675632B563538226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021039   (740688) от 29.05.2016
 
 Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
@@ -687,64 +745,6 @@ Diggin' Roots Band - Bring It Home (2016) [MP3|320 кб/с] <Funky Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A19417D6FB065F3E524BF2313709CC90320A7FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025118   (712209) от 11.06.2016
-
-Ed Deane - Wireless Set (2016) [MP3|320 кб/с] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampire (03:09)
-02. Sweatshop (05:05)
-03. I Need a Holiday (03:41)
-04. It's for You (03:39)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C38639FE5D0E9F8616A963B43F786C682C50482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025560   (710109) от 12.06.2016
-
-Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always Worth the Pain (04:27)
-02. I Am a Woman (03:57)
-03. I Can’t Hold On (03:42)
-04. Fire Shut in My Bones (03:46)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA08E98E845F086681A8498825DFE2C9DDB9071C
 ```
 
 https://mybot314.ru/tekegram_catalog/

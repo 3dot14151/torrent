@@ -1,3 +1,32 @@
+###  Публикация: 1297582   (603596) от 23.04.2019
+
+Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Vocal >
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tonight We Rise
+02.Feels Like Love
+03.Red Angel
+04.Everest(   Читать дальше...   )Жанр: Pop Rock, Dream Pop, VocalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297563   (603590) от 23.04.2019
 
 VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -716,41 +745,6 @@ Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527037   (595445) от 25.07.2012
-
-Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DiscoПродолжительность: 04:42:27
-
-01. A Neverending Ride
-02. A Voice In The Dark (Version 2008)
-03. Can't Help Falling In Love
-04. Changing My Ways (You Got Me)
-05. Cirque De La Lune
-06. Colours Of Life
-07. Come Back And Break My Heart
-08. D.I.S.C.O. (Lust For Life)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1368319   (907414) от 21.03.2020
+
+Foo Fighters - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock, Post-Grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everlong 4:10
+02. The Sky Is A Neighborhood 4:05
+03. Best Of You 4:15
+04. Learn To Fly 3:55(   Читать дальше...   )Жанр: Rock, Alt.Rock, Post-GrungeПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A618675FBA77312705B7658A9B032A076C5D7A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368318   (907077) от 21.03.2020
+
+Linkin Park - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - In The End 3:37
+02. Linkin Park - Numb 3:06
+03. Linkin Park - One More Light 4:15
+04. Linkin Park - Somewhere I Belong 3:34(   Читать дальше...   )Жанр: Rock, Alt.RockПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF848BB730E17D8D20F278F312BD3C6E6F11485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368314   (907073) от 21.03.2020
+
+System Of A Down - Essentials (2020) [MP3|320 Kbps] <Rock, Alternative, Nu-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chop Suey! 3:31
+02. Sugar 2:34
+03. Toxicity 3:39
+04. B.Y.O.B. 4:16(   Читать дальше...   )Жанр: Rock, Alternative, Nu-MetalПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE47B061AB711929BAE74F9ABF7D7000D886F2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991911   (904047) от 29.02.2016
 
 VA - Collection Rock (2016) [MP3|320 кб/с] <Rock, Pop-rock, Folk-rock>
@@ -658,93 +745,6 @@ VA - Gothic Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FEEF882A493EEE9AEECB8C400AC4995C6E32C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101842   (892756) от 08.02.2017
-
-VA - Nu Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alter Bridge - The Writing On The Wall 4:28
-002. Annisokay - Blind Lane 3:57
-003. Any Given Day - Hold Back The Time 4:44
-004. Alter Bridge - Crows On A Wire 4:27(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AE88988292743B74D48CF1F330ABEB174D88F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101829   (892664) от 08.02.2017
-
-VA - Alternative Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Doors Down - Believe It 3:22
-002. 3 Doors Down - Pieces Of Me 3:38
-003. 3 Pill Morning - Never Look Back 3:22
-004. 12 Stones - Bulletproof 3:06(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 09:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8556F0770298E76553AC793545FA20C594BC047C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101859   (892630) от 08.02.2017
-
-VA - Hard Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blackfoot - Need My Ride 3:36
-002. Bon Jovi - Come On Up To Our House 4:36
-003. Boneyard Dog - Mother Lode 4:23
-004. Broken Secret - With You 4:26(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 07:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BB9E0DB90A09CFCB30C050DC2EB7659F882BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

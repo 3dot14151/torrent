@@ -1,32 +1,3 @@
-###  Публикация: 1248884   (437148) от 22.09.2018
-
-VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437148.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diana King - I Will Do It 3:41
-002. Phil Giava feat. Jacinta - You're My Destination (Extended Mix) 4:19
-003. Miss Jane - It Is A Fine Day (ATB Remix) 3:18
-004. Nadia & Alan Divall - Superstar (A.Voltage Remix) 4:23(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 08:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570347   (436051) от 20.08.2022
 
 2 Unlimited - No Limits! (1993) [OGG|485 Kbps] <Electronic>
@@ -745,6 +716,35 @@ E-Type - The Explorer (1996) [OGG Vorbis|484 Kbps] <Electronic, Downtempo, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA86EBE3FF0BDAF0E9137020D4681CAE0783F5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577943   (350054) от 21.09.2022
+
+E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	E-Type–	True Believer	3:40
+02. 	E-Type–	The Tide	3:57
+03.	E-Type–	Eurofighter	3:47
+04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1371753   (888584) от 01.04.2020
+
+:10: - Collection 5 Releases (2009-2020) CRL Studios [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Abstract, Breakbeat, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low On Life (04:04)Тип издания: WebЖанр: Industrial/IDM/DowntempoПродолжительность: 02:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103674   (885655) от 12.02.2017
 
 Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop>
@@ -713,35 +739,6 @@ OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5845904367DD89F8F8B3D15B3288D79F20798030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085475   (764295) от 31.01.2019
-
-P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Ambient, IDM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agentenfister (Fist Faster Remix) (03:03)
- 02. Distress-Insomnia (06:04)
- 03. Jobs (EA-Dub) (03:31)
- 04. Heiden Heiland (04:25)(   Читать дальше...   )Тип издания: CD, Cassette, WEBЖанр: Rhythmic Noise, Industrial, Ambient, Noise, IDM, Experimental •Продолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
 ```
 
 https://mybot314.ru/tekegram_catalog/

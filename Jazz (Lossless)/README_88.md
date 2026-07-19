@@ -1,119 +1,3 @@
-###  Публикация: 1279789   (764598) от 31.01.2019
-
-The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the A Train [7:12]
-02. Tom, Vaguely [6:19]
-03. You Tempt Me [5:22]
-04. Let Us Make a Joyful Noise/Spiritual [11:15](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B738DCA97E7335BAC7F862D84EE42DE470260967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521615   (764500) от 03.01.2022
-
-Lee Konitz & The Brazilian Band - Brazilian Rhapsody (1995) Venus Records [FLAC|Lossless|image + .cue] <Cool, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Triste [7:30]
-02. Berimbau [7:31]
-03. Menina Moca [6:09]
-04. Triste [6:46](   Читать дальше...   )Жанр: Cool, Bossa NovaПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDE8BB5988984B0DA34C0EFF1C21DFF47A2D1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214636   (764147) от 22.03.2018
-
-Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loops [09:40]
-02. Pacific School [09:48]
-03. Francesca's Flowers [04:30]
-04. Zephyr Cove (Bass Entrance) [02:35](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214640   (764144) от 22.03.2018
-
-Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rainbow Lady [03:58]
-02. So Sorry, S'il Vous Plait [02:43]
-03. Body And Soul [06:26]
-04. In Your Own Sweet Way [03:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214642   (764073) от 22.03.2018
 
 Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
@@ -745,6 +629,122 @@ Bud Freeman - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B3BB2445A15328F43717C30ACB205463DAF1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215022   (761925) от 24.03.2018
+
+Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pipeline [03:03]
+02. Memory [11:07]
+03. Planetella Rock [04:27]
+04. The Heyday [05:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3597C12E8A33A2DEF6B6B9DF552A3CA4B7E70C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215015   (761820) от 24.03.2018
+
+Batida - Batida (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Samba, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ponteio [04:29]
+02. Pra Quem Quiser [04:03]
+03. Listen To The Land [00:40]
+04. Oceans Between Us [04:33](   Читать дальше...   )Жанр: Latin Jazz, Samba, Bossa NovaПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E8653C0C74117FB3B9841EDC65ABA642653D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017260   (761332) от 17.05.2016
+
+Billy Higgins - The Soldier (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sugar And Spice [04:51]
+ 02.Midnite Waltz [09:48]
+ 03.Just In Time [05:46]
+ 04.If You Could See Me Now [06:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AC7F93D7BD26CE4DB51945769ECF8967E5B460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017524   (761329) от 17.05.2016
+
+Tim Garland - One (2016) [FLAC|Lossless|tracks] <Contemporary Jazz, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761329.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sama'i for Peace (5:37)
+2. Bright New Year (7:05)
+3. The Eternal Greeting (6:00)
+4. Colours of Night (6:46)(   Читать дальше...   )Жанр: Contemporary Jazz, JazzПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9779DA8E5F95B405CC6CC4B1825F40719486E01A
 ```
 
 https://mybot314.ru/tekegram_catalog/

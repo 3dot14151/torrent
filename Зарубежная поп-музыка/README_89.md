@@ -1,3 +1,38 @@
+###  Публикация: 467257   (82049) от 14.03.2012
+
+Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo (4:39)
+02. Down The Rabbit Hole (2:41)
+03. Ring Of Fire (2:06)
+04. Fever (3:32)
+05. Tribal Segment (1:24)
+06. Sleepwalker (5:00)
+07. Whataya Want From Me (4:26)
+08. Soaked (4:37)
+09. Aftermath (5:01)
+10. Jamming With Lazers (4:59)(   Читать дальше...   )2011Жанр: Pop-RockПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E420CD46C53959C325C4CE299CB3A779412E18EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467113   (81805) от 13.03.2012
 
 Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
@@ -782,35 +817,6 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEA57E64725D20A03B82D15D1EB7A249E9C1821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775485   (71406) от 27.01.2025
-
-VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown - Sex Machine
-02. Peoples Choice - Do It Anyway You Wanna
-03. Earth, Wind & Fire - Saturday Nite
-04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677A13D455960AD26F54954AF7E525DB8B6E4746
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 741399   (982096) от 04.01.2014
+
+Minami-ke / Сёстры Минами [ТВ-1] [2007, TV, 13 ep] DVDRip 480p Raw + Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая обыкновенная история: жили-были сестры Минами, три японских школьницы – старшая, благоразумная Харука, средняя, несносная Кана и младшая, коварная Тияки. Каждый день они ходили в школу, готовили еду, смотрели сериал и общались – друг с другом, с друзьями и подружками. Учеба, опоздания, первые любовные письма в ящиках для сменки, розыгрыши, недоразумения, забавные прозвища и несуразные соревнования... короче, идиллическая школьная рутина.
+© World ArtЖанр: комедия, повседневностьФормат: MKVПродолжительность: ТВ (13 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD076423D181370B3E23931CD70DE2E0F245CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741415   (982095) от 04.01.2014
 
 Minami-ke Okaeri / Сёстры Минами [ТВ-3] [2009, TV, 13 ep] DVDRip 720p Raw + Rus
@@ -693,41 +720,6 @@ Roger Shah - Music for Balearic People 244 (2013-01-18) [MP3|256 кб/с]<Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D347584AA52489CDC25420A43EE863C2E70D3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610988   (981824) от 05.02.2013
-
-Butterfly & Stan Sanych - Trance Life Radio Podcast 007 (January 2013) (29.01.2013) [MP3|320 кб/с]<Progressive House, Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Echd -  Something About You (Elfsong & Aeron Aether & Something More Mix)
-02. Michael & Levan feat. Stiven Rivic -  Free Fall (Original Mix)
-03. Fehrplay -  Incognito (Original Mix)
-04. Thomas Hayes -  Waterfall (Original Mix)
-05. Moonsouls -  Resolution (Original Mix)
-06. Steve Brian & Cressida -  Systemic (Original Mix)
-07. Damian Wasse -  Into The Love (Club Mix)
-08. Reconceal -  Renascentia II (Original Mix)
-09. RAM & XB -  Symphonik (Original mix)
-10. Armin Van Buuren & Markus Schulz -  The Expedition (Original Mix)Жанр: Progressive House, Progressive Trance, Melodic TranceПродолжительность: 02:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F581DEA18B9AE8B42B513D73A48BAED9FC54F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

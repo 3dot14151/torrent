@@ -1,3 +1,90 @@
+###  Публикация: 1528742   (733983) от 03.02.2022
+
+Korn - Requiem (2022) [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgotten
+02. Let The Dark Do The Rest
+03. Start The Healing
+04. Lost In The Grandeur(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43020449858F9808704DC66589EA14802387706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399329   (732968) от 01.08.2020
+
+Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation (04:40)
+ 02. Lyonen (04:54)
+ 03. No Borders (04:53)
+ 04. Nehme Die Sunde (03:23)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3DAC3E4BB7B7E301E2C3932C2058501C1C91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399367   (732956) от 01.08.2020
+
+Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Human (04:43)
+ 02. Railrunner (06:35)
+ 03. Fiber of Our Being (04:58)
+ 04. Our Last Light (04:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04D033B63FAD13E5AE6EF137CAC0805E688C6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399262   (732903) от 01.08.2020
 
 Barron - Light In The Dark (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
@@ -658,93 +745,6 @@ The Neologist - Are We Not Drawn Onward To New Era (2020) Disc 1 [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A4EF529B10597B68C02FDA3B681D97756D45CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399678   (725065) от 02.08.2020
-
-Lockdown Revival - Stay Home (2020) [MP3|320 Kbps] <Modern Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown (01:18)
- 02. Wake Me Up (03:10)
- 03. The Call (04:17)
- 04. Wrong (04:38)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED946E687A87BE61315E98CA87F638DDFE1358F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399707   (724980) от 02.08.2020
-
-Dark Wizardry - Burden Of Salvation (2020) [MP3|320 Kbps] <Symphonic Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture (07:11)
- 02. To Victory I (05:45)
- 03. To Victory II (06:33)
- 04. Todeskampf (02:01)(   Читать дальше...   )Жанр: Symphonic Metal, Progressive MetalПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CBA71BA5B30085029CE1999998DD0D094257EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129194   (724498) от 27.04.2017
-
-Speed Queen - King of the Road (2017) EP [MP3|320 Kbps] <Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Murder 05:02
-02. King of the Road 03:37
-03. Kids of Rock 'N Roll 03:13
-04. Fly High 03:07(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5969215F65E2A097C49B1B8F719C57F942C64FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

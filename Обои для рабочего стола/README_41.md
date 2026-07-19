@@ -1,29 +1,3 @@
-###  Публикация: 1237570   (551525) от 24.07.2018
-
-Обои - Wallpapers Full HD / Кошачьи #10 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DB69544652EF065DA3E3F0435E99DAF9869D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237560   (551479) от 24.07.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 317 [JPG, PNG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:081222C9DF764ED003F03FDA320EF9A5E8B8D9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309758   (549357) от 21.06.2019
+
+Обои - Desktop Wallpapers Full HD. Part (460) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C582BD905083A09E5B1E4EAD488E3F0C63E479
 ```
 
 https://mybot314.ru/tekegram_catalog/

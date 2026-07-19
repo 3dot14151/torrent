@@ -1,322 +1,3 @@
-###  Публикация: 1580342   (329991) от 02.10.2022
-
-ГефесТ - Сам не свой (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Посвящение(zloy) [00:03:25]
-02. Invictus [00:04:08]
-03. Эйфория [00:05:06]
-04. ГефесТ [00:03:54](   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E52561F91751CAA9DA3852659B86FCFBC5C9740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580611   (329978) от 02.10.2022
-
-Однорукий Бандурист - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андеграунд [00:03:37]
-02. Протест против протеста [00:02:30]
-03. Всё катится [00:03:25]
-04. Беспонтовые телодвижения [00:03:18](   Читать дальше...   )Жанр: RockПродолжительность: 3 CD, 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AC7F5DB75CF66F48A815871D3F91B8DA9295F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580478   (329917) от 02.10.2022
-
-Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, Blackened>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Головошил [00:03:08]
-02. Царь трухи [00:02:04]
-03. Ненасытная утроба [00:01:12]
-04. Сродство [00:02:53](   Читать дальше...   )Жанр: Crust, Grindcore, BlackenedПродолжительность: 2 CD, 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CCB2369E70BBB06B28E9E3FDB4CE25B2DC1626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580616   (329816) от 02.10.2022
-
-Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город [00:07:10]
-02. 7 дней [00:05:30]
-03. Эйдолон [00:05:34]
-04. Декаданс [00:06:56](   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 4 CD, 03:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5ECB012F246BBF18CE7DEB65EBCACB5159ED0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956938   (329028) от 15.11.2015
-
-Юрий Хой и Сектор Газа - Вой на луну. Лучшее и неизданное (2015) 2CD [FLAC|image + .cue] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее сольное творчество лидера известной российской рок-группы "Сектор Газа" Юрия Хоя (Клинских) впервые издано официально: песни, записанные Юрием Хоем за 6 лет до образования в 1987 году "Сектор Газа" впервые увидят свет. Первая часть с ранними песнями Хоя будет дополнена компиляцией из лучших песен "Сектор Газа" - последний сборник (   Читать дальше...   )01. 30 лет
-02. Туман
-03. Пора домой
-04. Лирика(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39ACCF8D7E3AB25807091FF8A27BFCD427A5392C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956766   (328354) от 16.11.2015
-
-VA - Рок против шерсти (приложение к журналам Салон AV и АвтоЗвук) (2003) [FLAC|lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телевизор - Без сахара (03:40)
-02. Дочь Монро И Кеннеди - Бытовая II (03:53)
-03. Ноль - Человек и кошка (03:53)
-04. Юлия Теуникова и Город Макондо - Чистый спирт (03:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFBF1C1ED8C0E2C230891ACA20D97AADB7FD6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581012   (328061) от 04.10.2022
-
-СА:МИ - Мантра (2022) 2CD, Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мантра [00:04:12]
-02. ЯR [00:03:20]
-03. Р. С. М. [00:03:49]
-04. Время [00:03:36](   Читать дальше...   )Жанр: Rapcore, Alternative RockПродолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8FD8C3A85E892194090380AFBDFAF15190EF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842654   (327410) от 19.11.2014
-
-Маша и Медведи - Гусеницы (2014) EP [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Правдивая   (4:16)
-02.  Аве Мария   (3:17)
-03.  Яйцо (feat. Инна Желанная)   (4:05)
-04.  Нева (cover 5'nizza)   (4:56)Жанр: RockПродолжительность: 00:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957247   (327376) от 17.11.2015
-
-Линда - Карандаши и Спички (2015) [FLAC|tracks|WEB] <Alternative, Trip-hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карандаши и Спички (03:54)
-02. Болеют Все (04:53)
-03. Кошкин Дом (03:58)
-04. Мне Хорошо (03:02)(   Читать дальше...   )Жанр: Alternative / Trip-hopПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB4ADD4A6F736CD26F2743650BEDE4567F5DA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581646   (326417) от 06.10.2022
-
-Тролль гнёт ель - Девять (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Танцуй, танцуй!
-2. Я люблю зелёный
-3. Фру Маннелиг
-4. Оседлай дракона(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7916AE9C7B98A474D86086E96C54DFD390BD9E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581271   (326409) от 06.10.2022
-
-Виталий Дубинин - Бал - Маскарад (2022) Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Бал-Маскарад
-03. Бес в твоих глазах
-04. Русский сон(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E381AB6601209D3CDEC5EEA83C85263B80475F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582022   (325498) от 07.10.2022
 
 АнимациЯ - За кадром (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -749,6 +430,325 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B491D7E065CDE0CB2B453C7E858BE21F3A7CB80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421590   (317560) от 05.11.2020
+
+Игорь Романов И Его группа (Союз) - Учитель успеха (1988) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Учитель успеха
+02. Ливень
+03. Черный ворон
+04. Счастливый билет(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, New WaveПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA0738BCAD31AC9E15AE6EFE50FFCE22FDA05BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959519   (317307) от 24.11.2015
+
+Тараканы! - MaximumHappy Live (2014) [FLAC|image + .cue] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская панк-группа «Тараканы!» выпустила новый альбом, представляющий собой концертную версию двух одноименных пластинок, выпущенных в 2013 году. Альбом был записан на двух весенних концертах «Тараканов!» в Москве и Санкт-Петербурге, а один из бонус-треков — на фестивале «Доброфест», который проходил с 27 по 29 июня 2014 года под Ярославлем. «В аудиодорожках (   Читать дальше...   )01. Миру – мир
+02. Мешки с костями
+03. Бог и полиция
+04. 5 слов(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E99835536374A8BFD3E13C190C249A3EC014B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259862   (316784) от 05.11.2018
+
+Beer Bear - Мёд (Honey) (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Косолапое Утро (0:26)
+02-Beer Bear (2:51)
+03-Мёд (4:17)
+04-Кулачные Бои (5:31)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05763BF281FA5C6341F141073B152A23F2039112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332266   (316028) от 19.10.2019
+
+Ляпис Трубецкой - Звездная серия (1999) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снежная королева [03:17]
+02. В платье белом [04:54]
+03. Ты кинула [03:53]
+04. Яблони [05:30](   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C2C4CAF61D8CB83049BAA988488971B325A3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421865   (315440) от 06.11.2020
+
+Игорь Романов - Красный свет (1995) [WavPack|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оcторожней, сталкер!
+02. Стрелы
+03. Племена
+04. Диктатор(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF56264F9E11FEA8809861228B4233BE6776A909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421905   (314912) от 06.11.2020
+
+Машина времени - В метре (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314912.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просыпается ветер
+2. Пой песню, пой, дульсимер
+3. Мы рядом
+4. Свет рождает свет(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79B4BC6595938F8CFF031ECF01E7854FB79B444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583051   (314545) от 13.10.2022
+
+Jhonny Box - Proxima (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proxima [00:03:37]
+02. Urban [00:03:33]
+03. Shock [00:03:52]
+04. Периметр [00:04:03](   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82693B39A8B4C5F8C2DBCBEC54BADF6AF71B3B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583038   (314319) от 13.10.2022
+
+Midnight Spirit - Emptiness Outside (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal, Core, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:36]
+02. Shrouding Madness [00:03:51]
+03. Sadist [00:06:00]
+04. Emptiness Inside [00:04:23](   Читать дальше...   )Жанр: Metal, Core, RockПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A54F295251BA4D0FF74811AD72B64AA5C8049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959791   (314099) от 25.11.2015
+
+Алиса - Лучшее за 30 лет. Часть 2 (2015) 2CD [FLAC|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Три дороги
+02. На пороге неба
+03. Осеннее солнце
+04. Такие дела, хозяин(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DF53B45D26E6AA1399C62244BBD98F04327D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332401   (313882) от 20.10.2019
+
+Amatory - Doom (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Nu-Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сигнал (prod. by BOGUE) (2:01)
+02. Космо-камикадзе (3:25)
+03. Звёздная грязь (3:27)
+04. Черно (3:10)(   Читать дальше...   )Жанр: Alternative, Nu-Metal, Modern MetalПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C47339EBF3F0F3E8ED08227FF52FADA04DBD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332532   (313880) от 20.10.2019
+
+LaScala - Agonia (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Манеж
+2. Без правил
+3. Пьяная
+4. Контроль(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31656F7362A8418FDE03C0A444776586E9D01389
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1646861   (208763) от 17.07.2023
+
+Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Ballad [00:03:36]
+02 St. Charles Square [00:03:55]
+03 Barbaric [00:04:08]
+04 Russian Strings [00:03:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2295E9A0D75395E7C2306B7A67836B3E00D2CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648574   (208108) от 24.07.2023
 
 Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <Rock & Roll, Rockabilly>
@@ -346,6 +375,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653938   (205923) от 18.08.2023
+
+VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_205923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Durga Mcbroom, Jackie Lomax, Snowy White – Come Together (04:00)
+ 02. Charles Jones, Sonny Landreth – Something (03:42)
+ 03. Roger Joseph Manning, Jr. – Maxwell’s Silver Hammer (03:39)
+ 04. Eric Dover, Carmine Appice – Oh! Darling (03:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326F1CA6FDEAD337AB515D9B2831D137628FBF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654327   (205803) от 20.08.2023
 
 VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
@@ -368,6 +426,35 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECB36B229D217547B26DA4F86233B2DB7BA2839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653238   (205564) от 15.08.2023
+
+JJ Chardeau - Ombres And Lumieres: In Terra Cognita 2 - Europa 1: Occidentalis (2023) [MP3|320 Kbps] <Progressive Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_205564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Donibane Lohitzue (04:54)
+ 02 - Eire (05:37)
+ 03 - Iceland & Fire (03:03)
+ 04 - Scandinavia (07:32)(   Читать дальше...   )Жанр: Progressive Rock OperaПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC52D649FD2424F70111605FCB41B127D2379856
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,93 +739,6 @@ John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97FF534AA8B2A147C8000CAC265E158BF5771FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587426   (192709) от 31.10.2022
-
-John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Said It Would Last Forever
-02. Open Your Heart
-03. Stringin' A Line
-04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587515   (192707) от 31.10.2022
-
-Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Get Your Guns
-02. Miracle
-03. Blaze Of Glory
-04. Blood Money(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C1C43703CF5040D0749A7921200341B33FF47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 81   (191955) от 05.09.2023
-
-VA - 100 Greatest Guitar Solos (2004) (Первая раздача Клуба)
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191955.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Led Zeppelin - Stairway to Heaven
-002 Van Halen - Eruption
-003 Lynyrd Skynyrd - Freebird
-004 Pink Floyd - Comfortably Numb(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA13448771B235441F13E6DB4E667F0B9079556
 ```
 
 https://mybot314.ru/tekegram_catalog/

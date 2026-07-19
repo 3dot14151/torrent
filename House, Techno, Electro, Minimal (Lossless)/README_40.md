@@ -1,3 +1,177 @@
+###  Публикация: 1045663   (558149) от 24.08.2016
+
+VA - Ibiza Classics (2016) [FLAC|Lossless|tracks] <House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Milan, Phoenix - Carnival [02:53]
+02 Felix - Don't You Want Me 2015 (Classic Mix) [03:39]
+03 Afro Medusa - Pasilda [03:21]
+04 Mason - Exceeder [02:55](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED0672AC4CD76BFCE3CDE829293A3C970CE59AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153472   (558084) от 27.07.2017
+
+Solee - What Remains Are the Memories (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee – What Remains Are the Memories (Continuous DJ Mix)
+02. Solee – Dromen (Reinterpretation)
+03. Solee – Years Gone By
+04. Solee – Infinidad(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 04:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AEA28E0652080D3839E9F7D43B847461CF1F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153587   (558071) от 27.07.2017
+
+Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|image + .cue] <House, Downtempo, Soul, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Too Much (3:52)
+02. Sugar And Spice (I Found Me A Girl) (4:57)
+03. She's A Super Lady (5:05)
+04. A House Is Not A Home (7:08)(   Читать дальше...   )Жанр: House, Downtempo, Soul, DiscoПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045683   (558044) от 24.08.2016
+
+VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baum, Caal - Ridearound (Original Mix) (06:35)
+02. Level Groove - Disco Maniacs (Original Mix) (06:57)
+03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
+04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235750   (557363) от 13.07.2018
+
+Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control (09:59)
+ 02. Redeem (06:45)
+ 03. Redeem (Version) (06:52)
+ 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045866   (556782) от 25.08.2016
+
+Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Picture (04:34)
+02. Superstitious (04:54)
+03. On The Beach (03:00)
+04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235862   (556608) от 14.07.2018
 
 VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
@@ -570,180 +744,6 @@ Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D902AD14CFCAAAE420D77AC092C030F9574399F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049531   (543752) от 05.09.2016
-
-Cassius - Ibifornia (2016) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Missing (feat. Ryan Tedder)
-02. Love Parade (feat. Mike D.)
-03. Action (feat. Cat Power & Mike D.)
-04. Go Up (feat. Cat Power & Pharrell Williams)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EFFE89B18C4E8DB41B12AAE1DCAF8E1344070D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049814   (542390) от 06.09.2016
-
-VA - Miami Underground (2016) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Maurice Deek - You Makin Me (Daniel Shepherd Remix) [06:37]
-02 Anie - Betty Ford [06:29]
-03 Ponyfarm - Run Away (Extended) [05:05]
-04 Julez Cordoba - Heat [07:44](   Читать дальше...   )Жанр: HouseПродолжительность: 02:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219F61F2730A168BA6E2E9FF77275917AF468380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049825   (542237) от 06.09.2016
-
-VA - Luxury Deep House 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Cassis [05:46]
-02. Simplex Sensus - Rhyme Master [06:16]
-03. Chiffre 100 - Backshore [06:49]
-04. Mighty Real - Cherry Pie [06:09](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D016F6FE9764E4A98A5582CF36E9CDE8D1CCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050144   (540517) от 07.09.2016
-
-VA - Remix EP 01 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joachim Pastor - Joda (Worakls Remix) (05:38)
-02. N'to - Chez Nous (Joachim Pastor Remix) (06:30)
-03. Joachim Pastor - Taïga (N'to Remix) (05:52)
-04. Joachim Pastor - Oulan Bator (Oliver Koletzki Remix) (07:07)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EC64374B56E93F2A16D125924BF00132D7ABCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557685   (539181) от 16.06.2022
-
-York - Indigo (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Balearic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey (3:21)
- 02. Antigua (3:48)
- 03. Out Of The Woods (ft. Scot & Millfield) (6:51)
- 04. When You're Around (ft. SHEARS, Scot & Millfield) (3:21)(   Читать дальше...   )Жанр: EDM, Progressive House, BalearicПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6729211846C053FA26D0E20ECA99C362DF66683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154587   (539166) от 31.07.2017
-
-VA - 10 Years Of Universe Media (2017) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe Project & DCS - We Fall Down (feat Jennifer Wallace - Triple Dee remix) (07:18)
-02. Dawn Tallman - Find Strength (Dave Anthony vocal remix) (06:40)
-03. DeepCitySoul - Groove School (Grant Nelson remix) (07:25)
-04. Kathy Brown - Baddest Bitch (Ricky Morrison Vox) (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B109004DDA35CC89EBA3BD61731B2B95502C7335
 ```
 
 https://mybot314.ru/tekegram_catalog/

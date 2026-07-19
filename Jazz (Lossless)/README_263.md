@@ -1,119 +1,3 @@
-###  Публикация: 1641977   (231665) от 25.06.2023
-
-Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arianna [6:21]
-02. Bologna d'Inverno [9:32]
-03. Why Cry? [10:55]
-04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647232   (231633) от 18.07.2023
-
-Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Yourself A Merry Little Christmas / I'll Be Home For Christmas [7:19]
-02. Silver Bells / In The Bleak Mid-Winter [3:58]
-03. White Christmas / Let It Snow, Let It Snow, Let It Snow / Winter Wonderland [7:00]
-04. Away In A Manger [2:10](   Читать дальше...   )Жанр: Bop, Swing, Big BandПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFCED622C68870534C4BEAC9AF2E1FF25DE06F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643046   (231608) от 30.06.2023
-
-Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Henderson - The Kicker [4:09]
-02. McCoy Tyner - Song for My Lady [7:33]
-03. Flora Purim - Dindi [3:37]
-04. Jim Hall & Ron Carter Duo - St. Thomas [4:48](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D56249C85DD1B0E124F70AED6B63FBE8B66598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647789   (231407) от 23.07.2023
-
-Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got A Brand New Baby [5:28]
-02. Bop City Flamenco [6:06]
-03. Lovely Nights In Spain [3:24]
-04. Spain [4:38](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7016CEA99488C12678018673C8EEDEA7038731BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647489   (231350) от 23.07.2023
 
 Clark Terry Quintet - Top And Bottom Brass (1959) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -748,6 +632,122 @@ Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268345   (228227) от 10.12.2018
+
+Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fly [6:31]
+02. You'd Be So Nice to Come Home To [4:03]
+03. Meditation (Meditacao) [9:12]
+04. The Boy from Ipanema [5:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268350   (228218) от 10.12.2018
+
+Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry Baby [4:22]
+02. Sweet Cakes [3:41]
+03. You've Changed [3:20]
+04. Baby Let Me Hold Your Hand [3:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424528   (228206) от 17.11.2020
+
+Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [4:39]
+02. Copout Extension [8:22]
+03. Duel Fuel - Part I [2:45]
+04. Duel Fuel - Part II [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268343   (228132) от 10.12.2018
+
+Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex [3:55]
+02. Beautiful Woman [4:37]
+03. The Jam with Albert [9:21]
+04. Elementary Guitar Solo No.5 [6:52](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
 ```
 
 https://mybot314.ru/tekegram_catalog/

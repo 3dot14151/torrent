@@ -1,3 +1,177 @@
+###  Публикация: 1050670   (536363) от 09.09.2016
+
+Форум - Никто Не Виноват (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечтатель • Dreamer
+02. Закодирована Дверь • Door With A Code
+03. Ты Пожалеешь • Yo'll Be Sorry
+04. Серенада • Serenade(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2781746B23F41AAC5533DBE83DE5B44D4BDF962C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819259   (535792) от 06.09.2014
+
+Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Heaven Only Knows (2:57)
+A2. So Serious (2:44)
+A3. Getting To The Point (4:31)
+A4. Secret Lives (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EE1D2F2D7B42967397EC7B1B19EB322D412FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155340   (535070) от 02.08.2017
+
+Каролина (Люба Орлова/Гусева) - Дискобар (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Дискобар
+03. Не надо слёз
+04. Наш звёздный вечер(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C01853CC281A25A3C9ED997496471121FF6A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154851   (534969) от 02.08.2017
+
+Мираж - Dance remix (1997) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Больше Не Прошу
+02. Электричество
+03. Новый Герой
+04. Музыка Нас Связала(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5E88F44B721FD9427BD7FE79AB935D723FBEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240137   (531262) от 09.08.2018
+
+Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531262.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Am The Disco Machine (3:06)
+A2. Hot Passion (5:38)
+A3. Y-O-U (4:19)
+A4. Go Down Main Street (3:41)(   Читать дальше...   )Производство: Pinball Records - 6. 23 794Жанр: DiscoПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A2EBDBF9C006B8AEC65127062BE7AF7C8000DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157440   (525163) от 12.08.2017
+
+Карабас Барабас и Мальвина - Мальвина (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Мальвина
+03. Ждать не буду!
+04. На день рожденья Мальвины(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70281BC85B4BAE8691CBD941569E7C9B18C9B576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157414   (525128) от 12.08.2017
 
 Ласковый Май - 1 альбом -Оренбург- (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -567,177 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B81FD225909EEEE9648BD330F058F2F2CA90265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539943   (505316) от 27.08.2012
-
-VA - Concord Jazz: SACD Sampler. volume 1 (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  Beija-Flor – The Jim Hall QuartetЖанр: JazzПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D7C5C5D3E60B176A198E9E337CB63DC9E15FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933169   (505286) от 02.09.2015
-
-Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505286.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Tous Les Garcons Et Les Filles
-A2	Le Temps De L'amour
-A3	Mon Amie La Rose
-A4	Le Premier Bonheur Du Jour(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163C29272355029070F6791E9154ADFBDFC27D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931951   (505200) от 02.09.2015
-
-Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin O' My Teeth (3:15) (DR13)
-02. Symphony Of Destruction (4:03) (DR13)
-03. Architecture Of Aggression (3:34) (DR13)
-04. Foreclosure Of A Dream (4:17) (DR13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BFC1A8AA71D90EA92D989AC00A4E3ED05D69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934232   (503192) от 04.09.2015
-
-Круиз - Круиз-1 (1986) /1988, Мелодия ТЗГ/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503192.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Intro (4:46)
-A2. Дальний свет (4:26)
-A3. Случилось (4:50)
-A4. Последний рассвет (5:44)(   Читать дальше...   )Производство: Мелодия ТЗГЖанр: Heavy MetalПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047EF3BA6AB130CAF8E8700922CA0D0C3C3F4163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935045   (500208) от 07.09.2015
-
-Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500208.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Was Made For Lovin' You (4:31)
-A2. 2,000 Man (4:54)
-A3. Sure Know Something (4:01)
-A4. Dirty Livin' (4:19)(   Читать дальше...   )Производство: Casablanca Records / Victor MusicalЖанр: Glam RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6B8E15EEBBB4778040C7F6550D6E4867E9DF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820471   (496444) от 10.09.2014
-
-Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496444.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Night Life (3:51)
-A2. Juke Box Hero (4:20)
-A3. Break it Up (4:14)
-A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
 ```
 
 https://mybot314.ru/tekegram_catalog/

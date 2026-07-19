@@ -1,3 +1,90 @@
+###  Публикация: 929808   (518492) от 20.08.2015
+
+The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell on Earth
+02. The Awakening
+03. World in Ashes
+04. Always the Fugitive(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B9DF846B8B964FC28900D3674C9E943829A95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929756   (518487) от 20.08.2015
+
+Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aeon Of Cold
+2. Zero Gravity
+3. Storm Centre
+4. Last Of All Winters(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EE5151D2CA2A214A785BB41BDFAE2E75DD5247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929775   (518477) от 20.08.2015
+
+Myrkur - M (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518477.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skøgen Skulle Dø
+2. Hævnen
+3. Onde Børn
+4. Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, Female VocalПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512EE2FF19F92CD61358DAAFF69B95CA3AABB435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560344   (517895) от 02.07.2022
 
 Bongbongbeerwizards - Ampire (2022) [MP3|320 Kbps] <Drone, Doom, Stoner Metal>
@@ -664,93 +751,6 @@ Soilwork - 10albums + 2EP (1998-2015) [MP3|320kbps] <Modern Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992C26D8B41F8523368F9BF82ED11B4A6D73CED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932299   (509544) от 29.08.2015
-
-Arkuum - Trostlos (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509544.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prolog
-2. Trübsinn
-3. Ferne Welten
-4. Interlude(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB89A6626074219684FF2BC793CBB6012F62EEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562237   (508935) от 09.07.2022
-
-Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Pray For Me (03:41)
-02. Within Temptation & Annisokay - Shed My Skin (feat. Annisokay) (04:30)
-03. The Purge (04:16)
-04. Entertain You (03:31)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88D1903D985E6964BE001589B72510555D74D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316049   (508827) от 23.07.2019
-
-Through Fire - All Animal (2019) [MP3|320 kbps] <Alternative Metal, Modern Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Animal (03:30)
-02. Medicine (03:37)
-03. Sick and Tired (03:44)
-04. Listen To Your Heart (03:35)(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Post-GrungeПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ACB95CBEFCA1E43C1F16E459D779D88512C7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

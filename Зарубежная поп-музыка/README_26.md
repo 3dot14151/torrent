@@ -1,3 +1,32 @@
+###  Публикация: 1399469   (732906) от 01.08.2020
+
+VA - Home Gym (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinkie - Must Be Love (feat. Celina Sharma) (2:52)
+02. Flo Rida - Good Feeling (4:08)
+03. Charli Xcx - 1999 (3:09)
+04. Daft Punk - One More Time (5:20)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25916F168769A1BA336D4ECC154119DE56EDFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529288   (732645) от 06.02.2022
 
 VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
@@ -719,33 +748,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129315   (722498) от 28.04.2017
-
-VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trammps – Disco Inferno (11:00)
-02. Chic – Everybody Dance (Edit Version)Жанр: Pop, R&B, SoulПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
 ```
 
 https://mybot314.ru/tekegram_catalog/

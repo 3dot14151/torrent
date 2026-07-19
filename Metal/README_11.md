@@ -1,3 +1,88 @@
+###  Публикация: 973670   (978936) от 09.01.2016
+
+Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakin' All Over (Johnny Kidd & The Pirates)
+02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356487   (978902) от 30.01.2020
+
+Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United
+02. Eternal Fire Burning
+03. Looking for You
+04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356493   (978901) от 30.01.2020
+
+Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio SCG 10
+2. Horror for Hire
+3. Shake the Baby Silent
+4. Like a Bee to the Honey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356252   (978623) от 30.01.2020
 
 Mulla - Mulla (2020) [MP3|320 Kbps] <Black metal>
@@ -675,93 +760,6 @@ Shok Paris - Full Metal Jacket (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26452CF72926CDBDE01E790B8E8CE747FD6C1B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358059   (970730) от 06.02.2020
-
-Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Second
-2. We Had Everything
-3. Chemical Redemption
-4. Burning Bridges(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA157992B4D819DF3F2C47BB7E3189F2E9AB3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358058   (970641) от 06.02.2020
-
-Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Isolation
-2. Means to an End
-3. Last Time
-4. Capital Enslavement(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D6F0D3438F9CBFE7A7C99DC0EEC61B4B5242E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358479   (968813) от 08.02.2020
-
-Loathe - I Let It in and It Took Everything (2020) [MP3|320 Kbps] <Progressive Metalcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme
-02. Aggressive Evolution
-03. Broken Vision Rhythm
-04. Two-Way Mirror(   Читать дальше...   )Жанр: Progressive Metalcore, Alternative MetalПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07B234E4C0A6B859E2EF120B27046A89BD3EB59
 ```
 
 https://mybot314.ru/tekegram_catalog/

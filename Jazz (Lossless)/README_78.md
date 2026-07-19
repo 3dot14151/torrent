@@ -1,119 +1,3 @@
-###  Публикация: 1277442   (785479) от 20.01.2019
-
-Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785479.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Powaii [18:48]
-02. St. Thomas [5:26]
-03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277446   (785478) от 20.01.2019
-
-Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy Free [12:07]
-02. I Love the Girl [8:48]
-03. The Uptowner [9:17]
-04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277418   (785474) от 20.01.2019
-
-Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Loves Me
-02. I've Grown Accustomed To Her Face
-03. Unforgettable
-04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204001   (785471) от 04.02.2018
-
-Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domino [04:22]
-02. Old Folks [06:44]
-03. My Little Red Nose [05:51]
-04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203990   (785465) от 04.02.2018
 
 Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -745,6 +629,122 @@ The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389744   (783948) от 12.06.2020
+
+Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783948.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Out Of The Past [6:27]
+02. Reunion [7:20]
+03. Venetian Breeze [5:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F91E39135AC69275DC5E7C75170DC3F5C9B126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389788   (783915) от 12.06.2020
+
+Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Effect
+02. Solid
+03. The Bottom Line
+04. Luna(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330F46F450D6D5DB14C4354659504B77CF41D25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205356   (783807) от 09.02.2018
+
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205492   (783554) от 10.02.2018
+
+Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canyon Passage [02:56]
+02. You're Blase [03:01]
+03. Handicap [02:56]
+04. Mo Mo [02:42](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

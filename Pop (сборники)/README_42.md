@@ -1,3 +1,32 @@
+###  Публикация: 1127806   (730868) от 22.04.2017
+
+VA - German Top 100 Single Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You 3:54
+002. Luis Fonsi - Despacito (feat. Daddy Yankee) 3:48
+003. Burak Yeter - Tuesday (feat. Danelle Sandoval) 4:02
+004. The Chainsmokers & Coldplay - Something Just Like This 4:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD13A2ABE494B536B28A4ACF49C31A7F7EBCA5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284210   (729828) от 20.02.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 6) (2019) [MP3|320 Kbps] <Pop, Rock, Pop Rock>
@@ -716,35 +745,6 @@ VA - Топовая весенняя сотня на Hit FM. Версия № 4 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B36E81DB83405E3207056DBAA9A656F3729C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128894   (724514) от 27.04.2017
-
-VA - Душевный сборник Русского радио выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tanata - Будешь Моим 2:52
-002. Банд'эрос - Эрогенная Зона 3:32
-003. Ирина Билык - Седой Старик 2:53
-004. Лоя - Соль 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4881F2DD370A691A104A405C1FF893DD80C0E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1218400   (721631) от 10.04.2018
+
+VA - Presage Of Emptiness (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avatarium - into the Fire / into the Storm
+002. Ajattara - Saatanan sinetti
+003. John Frum - Presage Of Emptiness
+004. From Eden To Exile - Gospel Untold(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A32446C0A8BF68F15932DEB747D9825193AE06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218824   (719106) от 11.04.2018
+
+VA - Русский Рок. Лучшее 2018 (2018) [MP3|320 Kbps] <Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночные Снайперы - инстаграм
+02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
+03. Александр Иванов - Боже, какой пустяк
+04. Vespercellos - Я остаюсь(   Читать дальше...   )Жанр: РокПродолжительность: 06:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35875247D6017389F6A19946BC340BD588906CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285034   (718684) от 27.02.2019
+
+VA - Vynil Rock Classic Mania (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Buffalo - Quickening
+002. Afi - Get Dark
+003. Blondie - Heart Of Glass
+004. Comisario Pantera - El Camino De La Noche(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91497423C5EC5D634127C5A5A105C2408BE2EBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531851   (718549) от 17.02.2022
 
 VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
@@ -658,93 +745,6 @@ VA - 100 Hits Rock Vol.3 (2018) [MP3|256-320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B7FAF2D168D27CB1C94AFA27FAFAAFB4BBAC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402626   (699573) от 15.08.2020
-
-VA - 100 Greatest Punk Classics (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clash - White Riot (01:56)
-02. Sex Pistols - God Save the Queen (03:20)
-03. Ramones - Blitzkrieg Bop (2001 Remaster) (02:12)
-04. The Stooges - I Wanna Be Your Dog (03:08)(   Читать дальше...   )Жанр: RockПродолжительность: 04:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0EF8061C18C4A371D9CB3C90833DED6713423F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533606   (699415) от 27.02.2022
-
-VA - Compilation Part 6 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm All Right (You Can't See
-02. Got My Life
-03. Time
-04. Love That Hurts(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DA1BBD89A7E246A3FF6F0AD5DEC3FB3CB6C61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287783   (699165) от 09.03.2019
-
-Sweet - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Me Free
-02. Fountain
-03. Little Willy
-04. Rebel Rouser(   Читать дальше...   )Жанр: Classic Rock, Glam Rock, Hard RockПродолжительность: 02:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B418844B25A65C7A862F8E102E081862D63DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

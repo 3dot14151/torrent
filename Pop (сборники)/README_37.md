@@ -1,3 +1,32 @@
+###  Публикация: 1393123   (768288) от 29.06.2020
+
+VA - Radio DFM Top D-Chart Июнь 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intelligency - August (Alex Shik & Alex One Remix) 3:35
+02. Dua Lipa - Break My Heart (Leo Burn Remix) 2:53
+03. Filatov & Karas feat. Deepest Blue - Give It Away 3:28
+04. Zivert - ЯТЛ (Kolya Dark & DJ Prezzplay Remix) 3:33(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5442BB3CFB80198A484F0FD670961291749D026C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393105   (768243) от 29.06.2020
 
 VA - Shazam Хит-парад Russia Top 100 Июнь (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -713,35 +742,6 @@ Moving Heroes - Compilation (2021) [MP3|320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4625CFF162B5EA3111FA79422D66698C62EBE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214944   (761663) от 24.03.2018
-
-VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761663.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

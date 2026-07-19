@@ -1,3 +1,87 @@
+###  Публикация: 1376727   (851739) от 22.04.2020
+
+VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851739.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Great Artists of My Heart" это спин-офф сборника01. The Unguided - Inherit The Earth (04:47)
+02. The Unguided - Inception (03:51)
+03. The Unguided - Enraged (04:23)
+04. The Unguided - Death's Sting (03:49)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 08:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D624758DE2F2EF605C6DC800637B2515ECA1F0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377643   (851637) от 22.04.2020
+
+VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - Never Say Goodbye 4:49
+02. Guns N' Roses - Don't Cry (Original) 4:45
+03. Whitesnake - Is This Love (2017 Remaster) 4:45
+04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377587   (851634) от 22.04.2020
+
+Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377546   (851632) от 22.04.2020
 
 Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
@@ -655,93 +739,6 @@ Krokus - 100% Krokus (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77B0FBE918D92C3455B97A278426D068B7D7ED0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379506   (839073) от 29.04.2020
-
-Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Crying for the Moon
-02. Passion Departed
-03. Over You
-04. What Love Can Be(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5355AAC6AF7F77F30988EE244ED69CBE215C3CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379552   (838985) от 29.04.2020
-
-Uriah Heep - Best of the Best (1970-2011) (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 03:04:48
-02-01. The Hanging Tree (1977) (03:41)
-02-02. Been Away Too Long (1977) (05:03)
-02-03. Wise Man (1977) (04:42)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D9FB1CDF4FCF48F4C2B79D50A8853F7E441470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379748   (837389) от 30.04.2020
-
-The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (Chicago Bulls Theme Song)
-02. Eye In The Sky
-03. Games People Play
-04. Don't Answer Me(   Читать дальше...   )Жанр: Progressive rock, Art rock, Progressive PopПродолжительность: 03:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

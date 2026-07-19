@@ -1,119 +1,3 @@
-###  Публикация: 1275493   (789914) от 12.01.2019
-
-Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sink
-02. Dancing On Symbols
-03. This May Bear Some Fruit
-04. Scrunch(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275530   (789905) от 12.01.2019
-
-Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumbo StationMaurizio Giammarco. 4:55
-02. Big OneElvio Ghigliordini. 6:58
-03. Narvalo. 6:19
-04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510942   (789866) от 19.11.2021
-
-Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace [10:36]
-02. I'm Gonna Laugh You Right Outta My Life [7:13]
-03. Silli in the Sky [6:52]
-04. Love Like Ours [7:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5625D943B3CAC944DFCEE361642A263D6E00CFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510944   (789857) от 19.11.2021
-
-Stephanie Nakasian with The Harris Simon Trio - Show Me The Way To Get Out Of This World (2012) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Road [4:18]
-02. So in Love [4:40]
-03. Lucky So and So [4:24]
-04. Easy Street [3:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8292F26E54450B1FA5FCA6D8DA9E77B092BB45B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202839   (789504) от 30.01.2018
 
 Chaka Khan and Rufus - Street Player (1994) 1978, MCAD [FLAC|Lossless|tracks + .cue] <Funk, Soul, Disco>
@@ -745,6 +629,122 @@ Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276401   (788220) от 16.01.2019
+
+Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ma Mama
+02. Naleki
+03. Youwile
+04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203462   (788203) от 02.02.2018
+
+Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Come To Me (4:15)
+02. Priceless Cure (4:09)
+03. Z Rozpaczy Blues (4:54)
+04. Nie Wiadomo (4:14)(   Читать дальше...   )Жанр: Jazz, Female VocalПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13654127960FADF1D97F98569BC76B8A68C632E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276477   (788156) от 16.01.2019
+
+Herbie Hancock - Then And Now (2008) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maiden Voyage [7:55]
+02. Cantaloupe Island [5:28]
+03. Wiggle Waggle [5:50]
+04. Chameleon [7:41](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54DE822EAFE4765EE1BCBC7ED3A754928D6A7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512005   (787898) от 23.11.2021
+
+Houston Person - I'm Just A Lucky So And So (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Weep for Me [8:09]
+02. Wonder Why [4:56]
+03. I Guess I'll Hang My Tears Out to Dry [5:48]
+04. I'm Just a Lucky So and So [6:59](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8886236DAB6EAEAECAE56ED5CBA6CE7C2CE37277
 ```
 
 https://mybot314.ru/tekegram_catalog/

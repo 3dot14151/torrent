@@ -1,3 +1,148 @@
+###  Публикация: 1258896   (333029) от 01.11.2018
+
+Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetized (3:56)
+ 02. Man With No Name (4:00)
+ 03. The Road Not Taken (4:59)
+ 04. You Belong To You (4:27)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597C7A1005188AB29BC10B4D76B4324CB9954161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667491   (332978) от 14.10.2019
+
+VA - The Best Pop Music Of The 20th Century: The Millenium Collection (1998) 20CD [FLAC|Lossless]<Pop, Rock, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю Вашему вниманию интереснейший проект, выполненный голландской фирмой Disky Communications Europe в конце прошлого тысячелетия. Взяв по 40 композиций от каждого пятилетия (наши пятилетки не дают никому покоя), издатель постарался по-возможности полностью охватить весь спектр популярной музыки (не pop, а именно популярной из разных жанров). За исключением (   Читать дальше...   )Список альбомов:
+01. Millennium - 1950-1954 (2CD)
+02. Millennium - 1960-1964 (2CD)
+03. Millennium - 1965-1969 (2CD)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 25:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D509BD32446FF3719BA6B0C6C2B2B35BC4236DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420392   (332601) от 01.11.2020
+
+VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Let It Snow, Let It Snow, Let It Snow (Capitol Version / Remastered 1998) (02:01)
+02. Bing Crosby - White Christmas (1947 Version) (03:05)
+03. Ella Fitzgerald - Sleigh Ride (02:55)
+04. Jackson 5 - Santa Claus Is Coming To Town (02:24)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420206   (332435) от 01.11.2020
+
+Bonnie Tyler - The Ultimate Collection (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332435.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Total Eclipse Of The Heart
+02. Holding Out For A Hero
+03. Faster Than The Speed Of Night(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 03:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AADC518161972748C92F266E1A991891D1AD546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954700   (332336) от 12.11.2015
+
+Ricky Martin - Ricky Martin (1999) [FLAC|image + .cue]<Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Livin' La Vida Loca
+2. Spanish Eyes
+3. She's All I Ever Had
+4. Shake Your Bon-Bon(   Читать дальше...   )Жанр: Pop/LatinПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BB3E4A05B33719AAB71FC8C48CDFA92903DFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580255   (332004) от 30.09.2022
 
 Bjork (Björk) - Fossora (2022) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Art Pop, Avant-Garde>
@@ -597,151 +742,6 @@ Johnny Hates Jazz - Turn Back The Clock (2018) 30th Anniversary Edition, 3CD, RE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC508C6830F76398E0EF0BA00C4FFB87807E9DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421076   (321999) от 03.11.2020
-
-Laura Branigan - Self Control (2020) 2 CD Expanded Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. The Lucky One
-02. Self Control
-03. Ti Amo(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259230   (321268) от 03.11.2018
-
-Savage Garden - Truly Madly Completely: The Best Of Savage Garden (2005) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Pop Rock, Synthpop, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You (3:54)
- 02. I Knew I Loved You (4:11)
- 03. To The Moon And Back (5:42)
- 04. Hold Me (4:53)(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, Synthpop, 90sПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA22EC7C213AC15E66F244D75D7D8527D8D409DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259452   (321261) от 03.11.2018
-
-Clodagh Rodgers - Come Back And Shake Me: The Kenny Young Years 1969-71 (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clodagh Rodgers & Kenny Young - Kenny & Clodagh Intro (00:09)
-02. Clodagh Rodgers - Come Back And Shake Me (02:37)
-03. Clodagh Rodgers - I Am A Fantasy (02:51)
-04. Clodagh Rodgers - Under The Boardwalk (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09924483F0E794DD6EEC7D1426E5E4979529B152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331682   (318356) от 18.10.2019
-
-Julio Iglesias - The Essential Julio Iglesias (2014) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop Latin Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Para Todas las Chicas (3:32)
- 02. Moralito (La Gota Fría) (Spanglish) (3:34)
- 03. All of You (3:57)
- 04. Crazy (3:15)(   Читать дальше...   )Жанр: Pop Latin Music |Продолжительность: 02:25:58 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D313F543A009EEA1CF7C63FC9905ED1DA96D9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332080   (318253) от 18.10.2019
-
-VA - BRAVO Hits 107 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу на трех лейблах -  Sony Music, Universal Music Group и Warner Music Germany выпустили этот сборник самых популярных треков за последних несколько месяцев (напомню, что предыдущий -106 сборник вышел летом этого года). Я специально внизу (в ссылках ютуба) дал всем возможность убедиться каким разнохарактерным по составу и представленным жанрам оказался этот релиз. (   Читать дальше...   )CD1:
-01. Tones And I - Dance Monkey  (3:30)
-02. DJ Snake & J Balvin &Tyga - Loco Contigo  (3:04)
-03. Lena X Nico Santos - Better  (3:21)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640BDEC8392042E2A2F98FF744D46C9CBB808DBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

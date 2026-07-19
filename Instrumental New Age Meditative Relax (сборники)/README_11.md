@@ -1,3 +1,29 @@
+###  Публикация: 548310   (466898) от 18.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 74 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2013FE4AE5C55E441A2A84DBFD42182FA7629D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940670   (466734) от 25.09.2015
 
 VA - Great Classic Guitar Songs - Best Instrumental Music to Chill (2015) [MP3|320 кб/с]<Instrumental, Downtempo, Chillout>
@@ -761,41 +787,6 @@ VA - Therapy Of The Soul: New Age Current Version (2017) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882610442E8C50C54B2AC1C8ED4DC9B1BE2A1D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552825   (443605) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 86[MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Dalilah
-02. J.Last - Concierto De Arangues
-03. Alain Musichini - La Polka Musette
-04. Armik - Gypsy Romance
-05. А.Серов - Пою тебе
-06. Arabian Night - Fantasia
-07. Ocarina - Camilleva
-08. Karunesh - Sahara Sunset
-09. А.Зацепин - Темы из кинофильмов VII
-10. Roy Etzel - Tell Laura I Love Her(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CAC7A4923B39E1C1BC21C0AE5E3C71BEB98B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

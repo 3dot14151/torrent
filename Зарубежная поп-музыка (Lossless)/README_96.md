@@ -1,3 +1,148 @@
+###  Публикация: 1705529   (63490) от 09.03.2024
+
+Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63490.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Really Sayin' Something (with Fun Boy Three) (2:42)
+02. Cruel Summer (3:35)
+03. Robert De Niro's Waiting... (7 Version) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 03:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35F5EF3B3D1AE1EAB1CC3984CB9782CB0337086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705796   (63381) от 10.03.2024
+
+Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotye – Somebody That I Used To Know (04:05)
+02. Maroon 5 – Payphone (03:52)
+03. Avicii – Wake Me Up (Radio Edit) (04:06)
+04. Katy Perry – California Gurls (03:55)(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9E9C91AB378BBC2D9697D2CA4B7CC42228E007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706263   (63161) от 12.03.2024
+
+Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation, Reissue, 2024, Cherry Pop [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот box set, содержащий 52 трека на 3-х компакт-дисках, включает в себя три студийных альбома Cutting Crew, записанных в период с 1986 по 1992 год, номинированный на Grammy дебютный альбом Broadcast (1986), получивший признание следующий альбом The Scattering (1989) и альбом для повторного открытия Compus Mentus (1992), а также B sides, remixes и demos. Cutting (   Читать дальше...   )CD1:
+01. Any Colour (4:42)
+02. One For The Mocking-bird (4:31)
+03. I’ve Been In Love Before (5:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3FA745E897B3DC39B6B84395A29B34E59310F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708509   (62218) от 21.03.2024
+
+VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - Coco Jamboo (Radio Version)                          [03:39]
+   02. Fun Factory - Don't Go Away (Radio Walk)                             [03:28]
+   03. Bluemchen - Kleiner Satellit (Piep, Piep) (Satellite In Der Luft Mix)[04:00]
+   04. Stefan Raab - Hier Kommt Die Maus (Radio Edit)                       [03:18](   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68AD1C76CF04CF15CE29BCE1726F3FE28DC9CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709348   (61941) от 24.03.2024
+
+Army Of Lovers - Sexodus (2023) [FLAC|Lossless|image + .cue] <Pop,	Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus
+02. Love Is Blue
+03. What's That Look
+04. Romanism(   Читать дальше...   )Жанр: Pop,	Europop, Synth-popПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B39853C6AE2BAD02CAE6FC78F78A2E8704503E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709394   (61915) от 24.03.2024
 
 VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,151 +745,6 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64B21F7ED0B261F02FC44AFBBF03A740A215D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741911   (47326) от 09.08.2024
-
-Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop Instrumental, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notturno Di Venezia
- 02. Gentil Tenzone
- 0. La Primavera
- 04. Anonimo Veneziano(   Читать дальше...   )Жанр: Pop Instrumental, Easy ListeningПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39967584759CC555AED68EEF849E757FE8DA8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742351   (47210) от 11.08.2024
-
-VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fito Páez - El amor después del amor (5:11)
-02. Tiago PZK - Mi corazón (2:44)
-03. Yami Safdie - El Bolero (Acústico) (3:29)
-04. Alex Ubago - A gritos de esperanza (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F5DB36EAFEE6B22205CA56077588900F1CC04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743776   (46389) от 18.08.2024
-
-Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Italiano
- 02. Soli
- 03. Voglio L'Anima
- 04. Donna Donna Mia(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80255C41C934256AEF9B6F7A52EAE1ABA522A803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744239   (46167) от 20.08.2024
-
-Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know? [00:04:09]
-02. Faith in This Colour [00:04:06]
-03. Is There Something I Should Know (Monster Mix) [00:06:44]
-04. Faith in This Colour (Alternate Slow Mix) [00:04:06]Жанр: Synth-pop, Pop RockПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744396   (46067) от 21.08.2024
-
-David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is Everybody Happy
-02. Lonely Is The Night
-03. Je T'Aime Means I Love You
-04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
 ```
 
 https://mybot314.ru/tekegram_catalog/

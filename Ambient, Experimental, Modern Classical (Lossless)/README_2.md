@@ -1,32 +1,3 @@
-###  Публикация: 1479457   (1009595) от 24.06.2021
-
-Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brainroot (05:17)
- 02. Pneuma (04:32)
- 03. Omeostasi (07:08)
- 04. The Human Vector (08:18)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Experimental, Field RecordingПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480291   (1009182) от 27.06.2021
 
 Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Post Rock, Experimental>
@@ -737,6 +708,35 @@ Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69DD10CC696F5F43168C27951FE90F1744624C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350670   (1003000) от 07.01.2020
+
+Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Field recordings>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santrauka I [08:00]
+02. Santrauka II [04:17]
+03. Santrauka III [03:46]
+04. Santrauka IV [04:00]Жанр: Ambient, Experimental, Field recordingsПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

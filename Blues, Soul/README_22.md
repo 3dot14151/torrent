@@ -1,3 +1,61 @@
+###  Публикация: 1238859   (544656) от 01.08.2018
+
+Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartache and trouble (03:50)
+02. Let your heart decide (04:37)
+03. Cry for me (03:31)
+04. Don't wait up (04:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25AEE61B2E873C815673DDF242CE221C87DF4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311205   (543533) от 28.06.2019
+
+Delgres - Mo Jodi (2018) Extended Gold Edition, 2019, Groupe Yapuka [MP3|320 Kbps] <Alternative Blues, Creole Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом трио выполнен в жанре "Creole Blues Rock" - смесь Delta Blues с карибскими напевами.01. Respecte Nou
+02. Mo Jodi
+03. The Promise
+04. Mr President(   Читать дальше...   )Жанр: Alternative Blues, Creole Blues RockПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E548D8D32F4F04FE87B746B2273579399293F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239182   (542431) от 03.08.2018
 
 The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
@@ -697,70 +755,6 @@ Hill Country Revue - H C R III (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECC675A3706648D4036B1E7E8D55F15C4E19535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241797   (518423) от 19.08.2018
-
-Nakia - Blues Grifter (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yonder Wall (03:56)
-02. Somebody's Sleeping In My Bed (04:39)
-03. Gimme Some Of Yours (03:59)
-04. Double Trouble (05:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D023A5501CB90A87985B1904BE2249D31DC3B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535366   (517943) от 15.08.2012
-
-Grant Lyle - So There (2012) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impressions
- 02. Let It Out
- 03. I Will Wait
- 04. You're Killing Me
- 05. Trouble Blues
- 06. Walk On
- 07. Cheri Ann
- 08. From the Hills
- 09. You've Got Love
- 10. Librium(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DF1BB4F55A1ECD48ED81AEFC7D1958B7E496C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

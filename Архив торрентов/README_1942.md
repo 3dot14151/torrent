@@ -1,331 +1,3 @@
-###  Публикация: 1036583   (617463) от 22.07.2016
-
-VA - A Step To Progressive Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phi Phi & Airwave -  Vanilla (Gai Barone Remix) 8:38
-02. Double Guys -  Paradise 4:37
-03. Rishi K -  The Space Between 7:18
-04. Tom Deibel -  Train to Catch 6:26(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2C5B1B48E66B17C30A344C3CE78414EE4A292B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037036   (617461) от 22.07.2016
-
-Футбол. Международный кубок чемпионов 2016. Манчестер Юнайтед (Англия) – Боруссия (Дортмунд, Германия) (22.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617461.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июля 2016, пятница. 15:00 МСК
-
-Стадион: Шанхай стэдиум (Шанхай, Китай) , вместимость: 65000
-Главный судья: Ван Ди (Китай)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Роман Нагучев и Артём Шмельков) / ИнтершумПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D88E5EC069B54A9CDE8322B2441BA7967921423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036941   (617460) от 22.07.2016
-
-VA - Global DJ Broadcast - Top 20 July (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten And Gouryella -  Neba (Original Mix) 8:17
-02. Marcus White -  Backdrop (Original Mix) 6:55
-03. Radion6 -  Salvation (Original Mix) 5:26
-04. Solid Stone & Jennifer Rene -  Pushing Up (Arkham Knights Remix) 5:57(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA0DC4A54A757206D24DDEBB6F48975BE5AC741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911191   (617454) от 22.06.2015
-
-Второй шанс / Danny Collins (2015) Blu-ray [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то песни Дэнни Коллинза обожал весь мир. Однако уже много лет он ничего не пишет, почивая на лаврах былой славы. Но однажды музыканта находит адресованное ему много лет назад письмо от …Джона Леннона. И это переворачивает всю его жизнь.Производство: США, Big Indie Pictures, ShivHans PicturesЖанр: ДрамаРежиссер: Дэн ФогельманАктеры: Аль Пачино, Аннетт Бенинг, Дженнифер Гарнер, Бобби Каннавале, Кристофер Пламмер, Мелисса Бенойст, Ник Офферман, Джош Пек, Арти Манн, Катарина ЧасПеревод: Дублированный (iTunes)Язык субтитров: Английский, испанский, французскийПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF10816C09CFB0549A701475620786465F67386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911318   (617449) от 22.06.2015
-
-OSForensics Pro 3.2 Build 1001 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617449.jpg" />
-</div>
-
-
-###  Подробнее
-
-OSForensics Pro - мощный программный пакет специализированных утилит для компьютерной экспертизы. Такие программные инструменты, в основном, используют работники спецслужб, правоохранительных органов и госструктур для выполнения своих функций по выявлению признаков незаконной деятельности на отдельно взятом или группе компьютеров, сбору улик, то есть для компьютерной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E002D956B1D27BC0C77A172B791F9DFE11F72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911367   (617443) от 22.06.2015
-
-MemTest86 6.1.0/4.3.7 Free Edition [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memtest86 - утилита предназначена для высокоэффективного тестирования оперативной памяти на компьютерах с архитектурой х86. Благодаря собственному загрузчику программа осуществляет тестирование из "чистой среды", т.е. может работать даже в том случае, если система не загружается. Memtest86 работает практически со любыми носителями (дискеты, USB, CD), а (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC874409E605382DFAB9844F9D1C11984858076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523285   (617434) от 16.07.2012
-
-Vlada Dshake - Hedonism (2012-07-13) [MP3|320 кб/с]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hedonism (Original Mix) (8:06)
-02. Youre Crazy Baby (Original Mix) (8:14)
-03. Legendary Yeti (Original Mix) (8:11)
-04. Conquer Greed (Original Mix) (8:11)
-05. We Are in Heaven (Original Mix) (8:03)
-06. Awakening (Original Mix) (7:40)Жанр: Deep HouseПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD95A12D38CC4F307A27D73329D4250563DE49B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522089   (617433) от 16.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (12.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4992x3328
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AFF04861CE2981314176F33764F0283EA5A3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522091   (617432) от 16.07.2012
-
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (12.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EBF64B2CD5ED073FF5463DFC4D3BF007CB16A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522094   (617431) от 16.07.2012
-
-[Wallpapers 16+] Gilrs Wallpaper (12.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 4990x3320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BB9B2A8BF35E774935AD3398EB94009F6E3346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523102   (617430) от 16.07.2012
-
-[EN] Записки сердечного целителя / Notes from the Heart Healer (2012) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617430.jpg" />
-</div>
-
-
-###  Подробнее
-
-A single young mom forms an unlikely friendship with author Peyton, after a desperate situation forces her to abandon her child on Peyton's doorstep.
-
-Одинокая молодая мать, в силу неблагоприятных обстоятельств оставившая своего ребенка на пороге дома миссис Пейнтон (Genie Francis), спустя некоторое время безуспешно пытается завязать с ней дружбу.Жанр: ДрамаРежиссер: Дуглас БаррАктеры: Джени Фрэнсис, Тед Макгинли и Лачи Й МайлейПеревод: ОтсутствуетПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48438C09A4576C1C7F506631F60239EC3016E344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523663   (617429) от 16.07.2012
-
-ЭкстраМен / The Extra Man (2010) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617429.jpg" />
-</div>
-
-
-###  Подробнее
-
-История драматурга-неудачника, которого только что уволили. Главный герой начинает работать в службе эскорт-услуг и с этого момента становится сопровождающим лицом для богатых вдов в Нью-Йорке.Жанр: КомедияРежиссер: Шари Спрингер Берман, Роберт ПульчиниПродюсер: Энтони Брегман, Стефани Дэвис, Джонатан Эймс, ...Актеры: Кевин Клайн, Пол Дано, Джон Си Райли, Мэриэн Селдес, Селия Уэстон, Патти Д’Арбанвиль, Дэн Хедайя, Джейсон Батлер Харнер, Алекс Барнс, Кэти Холмс ...Перевод: Многоголосый закадровый, профессиональный (НТВ+)Продолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785B9664574AB08825AC2738AF6DBA23E4099335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 352215   (617428) от 19.06.2011
 
 Пол: Секретный материальчик / Paul (2011) DVD9 [лицензия]
@@ -701,6 +373,366 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4424D724E19352867D5F35E86F5E235E29F7348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523680   (617335) от 16.07.2012
+
+Ihsahn - Eremita (2012) [MP3|320 кб/с]<Extreme Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617335.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Arrival (5:40)
+ 2. The Paranoid (4:43)
+ 3. Introspection (5:37)
+ 4. The Eagle and the Snake (8:47)
+ 5. Catharsis (4:50)
+ 6. Something out there (5:09)
+ 7. IGrief (2:21)
+ 8. The Grave (8:18)
+ 9.  Departure (7:06)
+ 10. Recollection (5:39)Жанр: Extreme Progressive MetalПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C26FCB20700743F1A8D0B7473F37253F6BD6E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523673   (617334) от 16.07.2012
+
+Nerve End - Axis (2011) [MP3|320 кб/с]<Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617334.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Venom Willow (5:41)
+2. The Squid: (4:21)
+3. Axis Of Rotation (4:23)
+4. Thrive (6:31)Жанр: Progressive MetalПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4A19E9255D49D0286F4712DB6A68BD4C54FBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523815   (617333) от 16.07.2012
+
+Журнал | Школа кулинара №14 [июль 2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BFD84584D78A349146BD0161CA8DB0F8CD0DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523439   (617331) от 16.07.2012
+
+Butterfly - Organic Synthesis Episode 001 (15.07.2012) [MP3|320 кб/с]<IDM, Ambient, Downtempo, Experimental, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ametsub -  Dimmur (Original Mix)
+02. Anywhere But Here -  You're Terribly Late (Original Mix)
+03. Known Rebel -  Taikonaut (Original Mix)
+04. Human Error -  Finite (Album Version)
+05. AstroPilot -  Earth Moon (Original Mix)
+06. Kirsty Hawkshaw & Ulrich Schnauss -  Dreaming of Now (Original Mix)
+07. Asura -  Millenium 3 (Original Mix)
+08. Bersarin Quartett -  Keine Angst (Original Mix)
+09. Bersarin Quartett -  Perlen, Honig Oder Untergang (Original Mix)
+10. Recue -  Tissit2368 (Original Mix)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, Experimental, AbstractПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42E4ECC013032F7AD60CAE1D8334F740D917E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523292   (617330) от 16.07.2012
+
+K.D. Lang - Hymns Of The 49th Parallel (2004) [MP3|320 кб/с]<Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617330.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:00) 01. After the Gold Rush (Young)
+(3:02) 02. Simple (Lang, Piltch)
+(4:15) 03. Helpless (Young)
+(5:12) 04. A Case of You (Mitchell)
+(5:31) 05. The Valley (Siberry)
+(5:01) 06. Hallelujah (Cohen)
+(3:24) 07. One Day I Walk (Cockburn)
+(2:56) 08. Fallen (Sexsmith)
+(3:45) 09. Jericho (Mitchell)
+(4:28) 10. Bird on a Wire (Cohen)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14537B7C0AA4776E8522F2DD3E933FBBA123E2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523847   (617328) от 16.07.2012
+
+Улетное видео по-русски. Новый сезон  (25-29.06-02-06.07.2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморФормат: XviDПродолжительность: ~ 00:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8453D9037F8AD6015E72B4D0AFE59C7F30F59E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522934   (617327) от 16.07.2012
+
+Sav Killz - Bangers & B-Sides (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Droppin (prod. by Savillion Beats)
+2. More Rice (prod. by Madlib)
+3. Look What I Become ft. Verse (prod. by Jazimoto)
+4. I Love You (A Tribute to Hip Hop) ft. Letia Larok (prod. by DJ Snips)
+5. Take A Moment
+6. Cappadonna - The Good Die Young ft. Sav Killz (prod. by DJ Snips)
+7. Retrospect (prod. by Cosmo Shines)
+8. Gold Chain Military - Chocolate Honeys (prod. by Thayod Ausar)
+9. DJ J-Ronin ft. Cortez, Ruste Juxx, Sav Killz and Illa Ghee - BK Takin It (prod. by DJ Snips)
+10. Incarcerated Scarfaces Freestyle ft. Planet AsiaЖанр: Rap, Hip-HopПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65BEC88FDA82DEB42A339D0F43D20A86508BFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523433   (617326) от 16.07.2012
+
+Nick Straybizer Serena - Indians: Crazy Horse Still Alive (1997) [MP3|320 кб/с]<Native American, New Age, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter's End Nature Comes to Life in Springs 9:36
+2. A New Spirit Among Ourselves 6:12
+3. Red Hawk Eye Is Looking For You 7:50
+4. Mystical Presences 7:24
+5. Hunt Ceremony 4:07
+6. Fight For Your Land 4:08
+7. Toward To The Sacred Mountain 5:07
+8. Last Dream of Crazy Horse 5:04
+9. I Remember a Little Warrior Bold And Free 3:22
+10. A New Spirit Among Ourselves (Remix) 5:47Жанр: Native American, New Age, AmbientПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A3E6A8D710B68AD9DC034CAB4D4DEB47C58A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523780   (617325) от 16.07.2012
+
+Журнал | ELLE №8 (Россия) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle - самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом. Elle - это новейшие тенденции в области lifestyle, самые горячие новости из мира моды и красоты, самые яркие звезды и самые актуальные статьи о психологии современной женщины, нацеленной на успех.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D4400D0B5A2DA95BF23D1702701CEFA80323FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632187   (617314) от 09.05.2023
+
+Google Chrome 113.0.5672.93 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75815BC53BA5CC5214616C1FBAA98F0911838750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632370   (617309) от 09.05.2023
+
+Just Color Picker 5.8 Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Just Color Picker — бесплатная программа, предназначенная для дизайнеров, дело в том, что определение типа цвета может быть очень трудным, но с этой программой, можно получить точное значение цвета любого пикселя. Программа имеет такую удобную функцию, как копирование кода цвета в буфер, что позволит облегчить работу для дизайнера. Для копирования кода поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7805F3C65743DAA5ADB5CBC123C16856AC79F6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632331   (617306) от 09.05.2023
+
+IObit Uninstaller Pro 12.4.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617306.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7451726ADC6EB4A38AB4C8CB4936EB5A1C57E7C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

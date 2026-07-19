@@ -1,119 +1,3 @@
-###  Публикация: 705683   (449376) от 30.09.2013
-
-VA - Bar Jazz (2006) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Carlos Jobim - Captain Bacardi [04:28]
- 02. Shirley Scott - Dreamsville [03:16]
- 03. Mel Torme - Moonlight Cocktail [03:03]
- 04. Kenny Burrell - Rose Room [05:32](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E98E119B72F396817414CE95A9DE854D41C8650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061496   (449297) от 10.10.2016
-
-J.J. Johnson - First Place (1957) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's Only A Paper Moon [05:04]
- 02.Paul's Pal [04:09]
- 03.For Heaven's Sake [03:07]
- 04.Commutation [05:19](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33E681A71A74649DB79286E28C93C4B80AFF797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061429   (449169) от 10.10.2016
-
-Masabumi Kikuchi - One Way Traveller (1982) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alacalder [20:39]
- 02.Sum Dum Fun [05:59]
- 03.Madjap Express [11:22]
- 04.Sky Talk [02:55]Жанр: Jazz FusionПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D37DF3AB43B81E98CD495BFBEC2D5F1A53AFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061528   (449168) от 10.10.2016
-
-Frank Strozier - The Fantastic Frank Strozier (1959,1960) 1997, Vee Jay[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.W.K. Blues [04:10]
- 02.A Starling's Theme [05:29]
- 03.I Don't Know [08:22]
- 04.Waltz Of The Demons [05:44](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102DA08FB3F8D3A0B9D741C3239BFCE35C99F9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 705688   (448921) от 30.09.2013
 
 VA - Bar Jazz Vol.2 (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
@@ -753,6 +637,133 @@ Barbara Morrison - Live at the 9:20 Special (2002) Springboard Production [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D4C83FE6BD9112B3E0DCEC1F47A2D58A444E552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550335   (446576) от 27.09.2012
+
+Newropean Jazz Quartet (Danilo Memoli Trio,Ralph Reichert) & Ruth Young - Early Autumn (2011) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got The World On A String [06:51]
+02. Early Autumn [05:16]
+03. I Thought About You (Feat. Ruth Young) [04:48]
+04. I Can't Get Started (Feat. Ruth Young) [05:05]
+05. Easy To Love [05:49]
+06. If I Had You [05:33]
+07. Speak Low [06:54]
+08. I've Got A Crush On You (Feat. Ruth Young) [03:33]
+09. Where Or When [03:46]
+10. I'm In The Mood For Love (Feat. Ruth Young) [04:08](   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706145   (446451) от 01.10.2013
+
+Midnight Serenaders - A Little Keyhole Business (2013) [FLAC|Lossless|image + .cue]<Swing, Retro Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain t She Sweet   (4:15)
+02.  St. Louis Blues   (4:27)
+03.  When I Drink Your Wine   (3:50)
+04.  My Honolulu Hula Girl   (3:19)(   Читать дальше...   )Жанр: Swing, Retro Swing, Big BandПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBA2A2871ED6A3760D83F4DC692C9F3C64D34B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551867   (446417) от 27.09.2012
+
+Chris Connor - Sings Ballads of the Sad Cafe (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Foolish Things [03:51]
+02. Bargin Day [03:31]
+03. The End Of A Love Afair [04:09]
+04. Glad To Be Unhappy [03:50]
+05. Ballad Of The Sad Cafe [05:31]
+06. Good Morning Heart Ache [04:46]
+07. Somthing I Dreamed Last Night [04:51]
+08. Lilac Wine [05:22]
+09. One For My Baby [05:21]Жанр: JazzПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163888   (446355) от 07.09.2017
+
+Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Amber [10:11]
+02. Sunshine [03:46]
+03. Two Whips [04:42]
+04. Spring Fever [03:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4FF55467B5F28AEE76B612AFB9C0681DCE70F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

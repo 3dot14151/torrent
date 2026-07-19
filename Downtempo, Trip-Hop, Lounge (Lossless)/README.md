@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1878400   (1074737) от 
+###  Публикация: 1881598   (1077074) от 
+
+VA - Lounge Relax Mood (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1077074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Mirror - Late At Night (2:01)
+02. Sean Sago - To The Beach (8:25)
+03. Finley Brückner - Materialise (3:29)
+04. Through The Mirror - Still in the Room (3:09)(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527F68EE53B437231F84FA0B072E99A91F0708BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880530   (1076206) от 07.07.2026
+
+VA - Ibiza Summer 2026 (Lounge Cocktails from the Heart) (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calmabohain - Quiet Night (04:28)
+ 02.  Marc Hartman - My Morning Sun (03:49)
+ 03.  Jaques Le Noir - Club (Radio Edit) (03:14)
+ 04.  MoShang - The Universe Flickers (02:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D86888E978A9655F82077691E6FDD2F4FE2AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878400   (1074737) от 26.06.2026
 
 VA - Calm Horizon Cafe: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1878391   (1074736) от 
+###  Публикация: 1878391   (1074736) от 26.06.2026
 
 VA - Bossa & Breeze: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -688,64 +746,6 @@ VA - The Orient Collective: Roots of the South (2026) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC245D83290E253F4052BEE77DAA990539084C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859330   (1061099) от 15.03.2026
-
-VA - The Orient Collective: Sand & Smoke (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sateyed - Burrow World (6:11)
-02. Kaisser Bouzriba - Soul of the Oasis (4:29)
-03. DaaL Su - Desert Stomping (6:05)
-04. Tranceq - We Are Power (5:30)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CDA7EF5747A9CE5CD4238A1BC97B49E732081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858291   (1060307) от 10.03.2026
-
-Lemongrass - Colors (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Land [00:01:54]
-02. Yellow Magic [00:02:17]
-03. On The Road [00:02:08]
-04. The Beach [00:02:15](   Читать дальше...   )Жанр: Lounge, Chillout, BalearicПродолжительность: 00:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DF302F11E78D3DAD5332D24BE9780E49A925CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

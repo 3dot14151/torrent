@@ -1,3 +1,61 @@
+###  Публикация: 1125248   (772093) от 14.04.2017
+
+Fvnerals - Wounds (2016) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772093.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Void
+2. Wounds
+3. Shiver
+4. Teeth(   Читать дальше...   )Жанр: post-rock, shoegaze, ambient,Продолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AD1D8960F3BA1F72ED7B4B83D189D9EE470705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125314   (772092) от 14.04.2017
+
+King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wrong
+2. King of Swords
+3. Burn
+4. Candescent SoulЖанр: shoegaze, sludge, dream-popПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32CE58AA4F99B49E53B420626A5041FE9082BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016456   (770519) от 14.05.2016
 
 Viot - Astana (2016) [MP3|320 кб/с] <Alternative, Indie Rock, Electronic>
@@ -687,64 +745,6 @@ Underoath - Erase Me (2018) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAB0E094B5C9861AE6D1C4BF75626B1D8A340E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283570   (739730) от 17.02.2019
-
-We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over Pale Waters
-02. Alone Against the World
-03. Predators
-04. Where the Mountain Stands(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AFA24FEEF0492A2B2E0F6AF084D3B91645C94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785314   (739046) от 11.05.2014
-
-Buzzcocks - The Way (2014) [MP3|320 кб/с]<Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep on Believing 2:52
-02. People are Strange Machines 3:29
-03. The Way 3:10
-04. In the Back 3:39(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C661DAC7406AB671D8FEDBA87525754B996FEE10
 ```
 
 https://mybot314.ru/tekegram_catalog/

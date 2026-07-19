@@ -1,3 +1,29 @@
+###  Публикация: 1759206   (38025) от 07.11.2024
+
+Macrorit Partition Extender 2.4.3 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Extender - утилита, доступная также в портативной версии, позволяет быстро расширять и объединять разделы жестких дисков HDD и SSD. Macrorit Partition Extender  позволяет быстро расширить раздел со свободным пространством из соседнего раздела, и автоматически объединить нераспределенное пространство в один раздел, если оно доступно на диске. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE2C333AD3736ECA78CC275B1BCB20AEF26A83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759216   (38024) от 07.11.2024
 
 Media Player Classic - Black Edition (MPC-BE) 1.8.1 Stable + Portable + Standalone Filters [Multi/Ru]
@@ -652,32 +678,6 @@ Vivaldi 7.0.3495.11 include standalone [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0846D42F26C2DA9E26A983B754F8E1DF3F77A3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759529   (37855) от 09.11.2024
-
-MediaHuman YouTube Downloader 3.9.9.96 (0711) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37855.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5DE208EF7C710AAEE0610E38AC57D04D085D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

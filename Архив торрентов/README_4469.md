@@ -1,151 +1,12 @@
-###  Публикация: 595720   (131796) от 29.12.2012
+###  Публикация: 1682318   (131678) от 06.12.2023
 
-Dead Island - Game of the Year Edition [Ru/En] (L/1.3.0/3 DLC) 2011 | 3xDVD5
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ужас. Насилие. Безумие. Бедлам. Праздничные каникулы превратились в нечто ужасное. Тропический остров наполняется хаосом после загадочного появления толп зомби. Единственный шанс выжить — это бороться насмерть, чтобы найти выход с этого острова, где вы просто-напросто отрезаны от всего остального мира.
-
-Dead Island сочетает в себе экшен с видом от первого лица с особенным вниманием к ближнему бою, развитию ваших персонажей и улучшению множества видов оружий. Действие игры происходит под пеленой темной истории, созданной под впечатлением от классических фильмов про зомби, которая поразит вас своими смелыми ходами и затягивающим действием, пройти которую, к тому же, вы сможете вместе со своими друзьями в кооперативном режиме, поддерживающем одновременную игру 4-х человек.
-
-Действие разворачивается в открытом для передвижений тропическом острове, где орды разлагающихся зомби поджидают игроков за каждым углом, пока они пытаются выполнить ряд захватывающих миссий во время своего праздничного отдыха. С небольшими запасами оружия и экипировки, игрок должен полагаться на правильное обращение с оружием ближнего боя в динамичных боях с ордами зомби для своей защиты. Разнообразные приспособления помогут превратить обычное оружие в инструмент массового уничтожения.
-
-Кроме животрепещущего действа, которое удовлетворит даже самого искушенного любителя зомби, Dead Island содержит элементы ролевой игры, которые позволяют игрокам продвигать одного из персонажей по своему пути, изучая новые способности и свежие тактические приемы во время приключений в опасных местах острова. К тому же, в любой момент к игроку сможет подключиться до 3-х других игроков и присоединиться к непрерывной борьбе с глубоко проработанным сюжетом и кооперативным режимом игры.
-
-С целиком новым движком Chrome Engine 5, на котором был создан Dead Island, игра использует все последние наработки разработчиков Techland, позволяя игрокам насладиться невиданными красотами острова, пышными лесами и проработанными городскими улочками. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DF4268450885AB8D936A893BFA8D367FAC8DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682218   (131792) от 06.12.2023
-
-Windows 11 Manager 1.3.4 Portable by FC Portables [Multi/Ru]
+NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36A5F851DF2450606108CF472C0206A19F22FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682076   (131788) от 06.12.2023
-
-reaConverter Pro 7.798 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131788.jpg" />
-</div>
-
-
-###  Подробнее
-
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A650B41E04B4EFB032C04B6662EC431DE233F7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682202   (131784) от 06.12.2023
-
-Macrorit Partition Expert 8.1.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C307D11EBE7CEDEC2CDA62AE09B0A39987E26641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682064   (131781) от 06.12.2023
-
-IceCream Ebook Reader Pro 6.43 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC90479CD1A88F8C66F45042DAF0D2FCAF4C5891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682194   (131778) от 06.12.2023
-
-NVIDIA GeForce Desktop Game Ready 546.29 WHQL + DCH [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131678.jpg" />
 </div>
 
 
@@ -155,7 +16,7 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1633DE2D178B055F5F6E2D6AED83B4E19E2FC7E1
+magnet:?xt=urn:btih:EADC8C32339EDB0CCF4210619614DB17C1D85320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +24,176 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682147   (131774) от 06.12.2023
+###  Публикация: 596345   (131675) от 30.12.2012
 
-Яндекс.Браузер 23.11.1.730 (x32) / 23.11.1.731 (x64) [Multi/Ru]
+[Wallpapers] A selection of sports wallpaper (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131675.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of sports wallpaper (30.12.12)
+Название: A selection of sports wallpaper (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C062610F5F87DCDB4FDB28965B282F57ADE175F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596329   (131673) от 30.12.2012
+
+[Wallpapers] Large collection of wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131673.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Large collection of wallpapers (30.12.12)
+Название: Large collection of wallpapers (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 4000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50069830EB3C09A319E34EAB6F3AAF4DFC60A8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596332   (131661) от 30.12.2012
+
+[Wallpapers] Beautiful nature wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131661.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Beautiful nature wallpapers (30.12.12)
+Название: Beautiful nature wallpapers (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A8D1BBCC37453AFBC38C13B25CD2CA18A758CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596172   (131659) от 30.12.2012
+
+[Wallpapers] Car wallpaper for you (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131659.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpaper for you (29.12.12)
+Название: Car wallpaper for you (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4992х3328
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD3A257A0A7A008651FDD03C95B5BED17644F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596350   (131657) от 30.12.2012
+
+[Wallpapers] Interior (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131657.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Interior (30.12.12)
+Название: Interior (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A63B48CDD7EABE8609CA75FE0EAA2C4D9AF9FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682265   (131656) от 06.12.2023
+
+Supermium 119.0.6045.192 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+Supermium форк Chromium для Windows - современный браузер с открытым исходным кодом для пользователей "устаревших" версий Windows.
+По заявлению разработчика, целью Supermium является предоставление новейших функций Chromium, поддержки рендеринга веб-страниц и исправлений безопасности для пользователей Windows Vista (extended kernel), Windows 7 и Windows (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9536962A73DE11745FE735AFD53CB251EC9C1111
+magnet:?xt=urn:btih:2D25698941515B976C873E6AD749DF028C6374B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +201,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682256   (131768) от 06.12.2023
+###  Публикация: 596344   (131655) от 30.12.2012
 
-Opera One 105.0.4970.34 + Portable [Multi/Ru]
+[Wallpapers] A selection of luxury wallpaper (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131655.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of luxury wallpaper (30.12.12)
+Название: A selection of luxury wallpaper (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1440х900 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B6CE1FC16B7404D8967D9ABC14A20AA506C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682311   (131644) от 06.12.2023
+
+Total Commander 11.02 (05.12.2023) Portable by MiG [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:358D6910C504D56618B22005208258AE3D123727
+magnet:?xt=urn:btih:988053730645BC4C0238184EEC5C787B60B73AB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +257,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682216   (131766) от 06.12.2023
+###  Публикация: 596325   (131634) от 30.12.2012
 
-Fort Firewall 3.10.3 + Portable [Multi/Ru]
+[Wallpapers] Beautiful nature (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131634.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Beautiful nature (30.12.12)
+Название: Beautiful nature (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE42B8930081D4BD40E6FFB1CBC31FF2F4D335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682331   (131631) от 06.12.2023
+
+Windows 11 Manager 1.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A76B01CBA4BE50FA2AEB97D9E85B89F10B18B7E2
+magnet:?xt=urn:btih:57A9D19305307DB6C3F3B7AA01A576082226E00C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,112 +313,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681664   (131762) от 06.12.2023
+###  Публикация: 595334   (131629) от 30.12.2012
 
-Лига городов (2023) WEBRip [H.264/1080p] (сезон 1, выпуск 12)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131762.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60412A6EF37944CE5673DADE7500789A07964340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682209   (131746) от 06.12.2023
-
-StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131746.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CC62790E0844B14A4D1774A3C32A2C2379B779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682073   (131740) от 06.12.2023
-
-Windows 11 Manager 1.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052641447CC62849F6C2E5A10111E96D6791ADB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595810   (131731) от 30.12.2012
-
-Powerage - Branded Skin (1994) [MP3|320 кб/с]<Classic Rock & Hard Rock>
+The Amenta - V01D (2011) [MP3|320 кб/с]<Industrial Experimental Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Intro
-02 - Rock 'n' Roll
-03 - Southtown
-04 - Like Hell
-05 - Rock Tonight
-06 - Take Me Home
-07 - Poison
-08 - Milk & Alcohol
-09 - Playin' In A R 'n' R Band
-10 - Get Out Of His Way(   Читать дальше...   )Жанр: Classic Rock & Hard RockПродолжительность: 00:43:02
+1. Empty (0:42)
+ 2. V01d (5:19)
+ 3. Erebus (re-recorded version) (4:07)
+ 4. Ache (3:45)
+ 5. Junky (re-recorded version) (4:50)
+ 6. Spine (re-recorded version) (3:58)
+ 7. Null (2:52)
+ 8. Vermin (re-recorded version) (4:10)
+ 9. Nihil (re-recorded version) (5:23)
+ 10. Nil (3:18)(   Читать дальше...   )Жанр: Industrial Experimental Death MetalПродолжительность: 00:58:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8972A837B79492BDFD3360B1E5351DA30FE4FDC
+magnet:?xt=urn:btih:684A6F12BA7514124BC4AE868CEA5358F49B154E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,54 +348,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596083   (131725) от 30.12.2012
+###  Публикация: 595281   (131623) от 30.12.2012
 
-Принятие террора / Adopting Terror (2012) BDRip [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Тим и Шерил Бродбенты не могут иметь своих детей, поэтому они решили удочерить Мону, симпатичную малышку, которая сразу покорила их сердца. Но их мир переворачивается, когда биологический отец начинает преследовать семейную пару. Путем запугивания и шантажа он намерен вернуть свою дочь.Жанр: Триллер, ДрамаРежиссер: Мичо РутареАктеры: Шон Эстин, Сэмэр Армстронг, Монит Мазур, Брендан Фер, Майкл Гросс, Брайан ОкесПеревод: ОтсутствуетПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E97970BC2FA1FC18138B7F30B612B2818E6F49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595884   (131721) от 30.12.2012
-
-Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atmospheric Black Metal>
+Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Djavulens Eld
-02 - Apokalypsens Vita Dimma
-03 - Genom Svarta Vatten
-04 - Nihil Sine Morte
-05 - Aska
-06 - Svavelpsalm
-07 - Orcus Labyrint
-08 - MonolitЖанр: Atmospheric Black MetalПродолжительность: 00:59:58
+01. Santa Claus Is Comin' To Town [04:11]
+02. Please Come Home For Christmas [02:48]
+03. Have Yourself A Merry Little Christmas [04:23]
+04. If Every Day Could Be Christmas [04:35]
+05. Little Drummer Boy [04:38]
+06. O Holy Night [04:53]
+07. Reason For The Season [04:02]
+08. What Child Is This [03:15]
+09. Winter Wonderland [03:19]
+10. The Christmas Song (Chestnuts Roasting On An Open Fire) [04:07](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:44:03
 
 ## Скачать торент
 ```bash
@@ -413,25 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682208   (131720) от 06.12.2023
+###  Публикация: 1682307   (131618) от 06.12.2023
 
-Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+Advanced SystemCare Pro 17.1.0.157 Portable by zeka.k [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Macrorit Disk Scanner Unlimited - инструмент для проверки жесткого диска и выявления на нем битых секторов. Такой тест полезен для оценки качества вашего винчестера, т.к. чем больше поврежденных секторов, тем больше вероятность того, что данные на диске могут потеряны.Язык интерфейса: Русский, Английский и другие
+Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7354CFB734CB3D7AA3ECFCAD7E004A24AF2383B
+magnet:?xt=urn:btih:630440704088EB4165EC9A2F76304DF9F40C6870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,29 +409,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596324   (131717) от 30.12.2012
+###  Публикация: 1682271   (131614) от 06.12.2023
 
-[Wallpapers] World of Animals (30.12.12)
+Blender 4.0.2 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] World of Animals (30.12.12)
-Название: World of Animals (30.12.12)
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B6F1C397F5B5512F0A0F92D6B675D170E6D02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596349   (131611) от 30.12.2012
+
+[Wallpapers] Beautiful nature desktop wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131611.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Beautiful nature desktop wallpapers (30.12.12)
+Название: Beautiful nature desktop wallpapers (30.12.12)
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
+Разрешение файлов: 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64FCC19343E185B816562085686EB8EDABAC59D6
+magnet:?xt=urn:btih:F95FB0482A0E309D6B62849196174F410AC66BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,99 +467,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595290   (131715) от 30.12.2012
+###  Публикация: 596346   (131608) от 30.12.2012
 
-Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Seasonings
-02. CORRUPT YOUR PINEAL, DESTROY YOUR CATS
-03. Gorilla Balls Ballistic
-04. Walmart Employee Mercilessly Sodo
-05. Persian Pimpcoat
-06. Heartless Wizard
-07. GOD IS DEAD (FULLY DEAD)
-08. Butcher, Danger, Ancient Filth
-09. Gay Nazi Ravers
-10. 600 For KoSq(   Читать дальше...   )Жанр: Breakcore, NoiseПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596079   (131714) от 30.12.2012
-
-Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Man Of The Dark
-02.  Starfire
-03.  Young Forever (new version)
-04.  Soul Of The Wind
-05.  Living With Wolves
-06.  War Of The World
-07.  Sunset Station
-08.  We Brought The Angels Down
-09.  The Inner Road
-10.  Tungur Knivur(   Читать дальше...   )Жанр: Hard`n`HeavyПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E895581A766CB4740FA406B8AE380B82514293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596326   (131709) от 30.12.2012
-
-[Wallpapers] Selection of wallpapers (30.12.12)
+[Wallpapers] Best collection of wallpapers (30.12.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Selection of wallpapers (30.12.12)
-Название: Selection of wallpapers (30.12.12)
+[Wallpapers] Best collection of wallpapers (30.12.12)
+Название: Best collection of wallpapers (30.12.12)
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38105FA88526DBE2381CA18A21039A1B3D752A7B
+magnet:?xt=urn:btih:93E2D3936D81CCC12BA9778990E47B6E7423D173
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,142 +497,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596509   (131707) от 30.12.2012
+###  Публикация: 596331   (131598) от 30.12.2012
 
-Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.2012) [MP3|320 кб/с]<Progressive Trance, Progressive House, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Trance, Progressive House, Melodic TranceПродолжительность: 00:59:59
-
-01. Myon -  Albion (Original Mix)
-02. Tilt -  Twelve (Dousk Mix)
-03. Andrew Bennett feat. Kirsty Hawkshaw -  Heaven Sent (Instrumental Mix)
-04. Yilmaz Altanhan -  Eighties (Original Mix)
-05. Mike Mikhjian -  Air Chords (Original Mix)
-06. Hawk -  You're Mine (Original Mix)
-07. Cressida -  Flowjob (Original Mix)
-08. Jonathan Martin -  Insidious (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1928B833F2A886979CFD498DC1950F07E7223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682199   (131706) от 06.12.2023
-
-AMD Radeon Software Adrenalin Edition 23.12.1 WHQL [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131706.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMD Radeon Software Adrenalin Edition представляет собой новое, современное и полностью переработанное приложение, предоставляющее пользователям полный контроль над графикой Radeon, игровыми функциями и настройками, стриминговыми сервисами и многим другим. Геймеры могут получить доступ ко всем функциям ПО прямо в игре, пользуясь таким же интерфейсом, который доступен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91133DBC25EBE2D608D151586EE0A41B90A54E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682229   (131704) от 06.12.2023
-
-AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131704.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E24142CA1152FC2EFAF1DFD947891C3EA85A20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682236   (131702) от 06.12.2023
-
-AIMP 5.30 Build 2531 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131702.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Белорусский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909233F2361A94489DEB7F6C7461440545D71F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596328   (131699) от 30.12.2012
-
-[Wallpapers] Compilation of air (30.12.12)
+[Wallpapers] Nice collection of wallpapers (30.12.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Compilation of air (30.12.12)
-Название: Compilation of air (30.12.12)
+[Wallpapers] Nice collection of wallpapers (30.12.12)
+Название: Nice collection of wallpapers (30.12.12)
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
+Разрешение файлов: 1600х1200 - 3000х2000
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9CE3F2866FF97DD88E333670C5D59048E4B0BB3
+magnet:?xt=urn:btih:4AE8CFD7DBF87A96E4918067ED4D59007B61BF56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,25 +527,234 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682212   (131698) от 06.12.2023
+###  Публикация: 596348   (131594) от 30.12.2012
 
-Psiphon 3 build 180 (05.12.2023) Portable [Multi/Ru]
+[Wallpapers] Beauty from the world of fantasy (30.12.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Beauty from the world of fantasy (30.12.12)
+Название: Beauty from the world of fantasy (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCAC8DB4B62D0CD0427BB1AC211751C104CB8B5D
+magnet:?xt=urn:btih:1E54E16D01AEB49DE5DDB077D835433DEAF188FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682068   (131585) от 06.12.2023
+
+Revo Uninstaller Pro 5.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DDA0CAE36380F817135C5CF0C7C4A3B962ECE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682182   (131575) от 06.12.2023
+
+V-Ray 6.20.00 for 3ds Max 2019-2024 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131575.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощный инструмент визуализации, нацеленный в первую очередь на фото-реалистичность. Имеет собственные камеры со схожими параметрами как и у настоящих фото-камер. Имеет собственные источники освещения и шейдеры материалов.
+Является одним из основных плагинов для архитектурной визуализации. Под V-ray "заточено" множество готовых 3d моделей и материалов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93755F600877BEE7FD2F60CF92923012631DB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682333   (131563) от 06.12.2023
+
+Adobe Illustrator 2024 28.1.0.141 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2024 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5EE604CCD90DF93BAB8C0D1AB696CDF4B35E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596484   (131545) от 30.12.2012
+
+Radioactive Man - Waits and Measures (2012) [MP3|320 kbps] < Electronic, Electro, IDM, Breaks>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wreckorder (06:01)
+02. Vitamin E (04:38)
+03. Incoming (06:19)
+04. All Along (04:32)
+05. Crosseyed And Painless (05:42)
+06. Disco Devil (05:57)
+07. Engine Room (03:08)
+08. Flying F*ck (06:09)
+09. Gugs (04:23)
+10. Pretty Ugly (06:52)(   Читать дальше...   )Жанр: Electronic, Electro, IDM, BreaksПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2388677C06642CAEF846302D864754733D9A2EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596038   (131544) от 30.12.2012
+
+Поле чудес - Новогодний выпуск! (29/12/2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131544.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эфире с 25 октября 1990 года. Первоначально ведущим был Владислав Листьев, а с 1 ноября 1991 года Леонид Якубович. Каждую пятницу он приглашает игроков в студию... отгадывать слова. Правила игры весьма просты: в трех турах участвуют по три человека в каждом, победители туров соревнуются в финальной игре, и ее победитель, если выиграет суперигру, получает главный приз. Стать участником игры "Поле чудес" очень просто - для этого нужно прислать в редакцию программы какой-нибудь оригинальный кроссворд. В игру играют и взрослые, и дети, пожарные, доярки, милиционеры, учителя, ветераны войны, артисты - все, кто знает русские буквы и слова. В съемках принимают участие игроки со всей России и ближнего Зарубежья. Проект Владислава Листьева. Название "позаимствовано" из сказки о Буратино.Жанр: ТелепередачаПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F93B379E2DB9E6467EE8DD1016FC0228AB2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596108   (131532) от 30.12.2012
+
+Николай Раков | Охота на охотников [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война с Империей гаюнов вступает в свою завершающую фазу. Генеральное сражение флотов может начаться в ближайшие несколько дней, но не принесет победы ни одной из сторон.
+ Коварный враг начал свою охоту. Он ждет взаимного уничтожения противоборствующих сил, чтобы, добив ослабевших противников, захватить планеты и Союза, и Империи.
+ Тайна становится известна Шаману, пытающемуся добыть секрет нуль-пространственной транспортировки. Враг не знает, что его замысел раскрыт.
+ Превратить охотников в дичь. Нанести ему неожиданный смертельный удар, не оставив ни одного шанса на успех, - вот задача, поставленная перед собой группой диверсантов Управления специальных операций Вооруженных сил Союза.
+ Нетрацы начинают охоту на охотников, раскрывая секрет врага и используя его в своих целях, применяя при этом знания и методы, свойственные только им, обладающим тайнами волновой энергетики.
+ 1-2 книга Сборник | Антология - Серия "Боевая фантастика" издательства ЛенИздат 273 тома [2005-2012]Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50077569E6A72F20BE673B5C2E5A18F12BE9B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595360   (131524) от 30.12.2012
+
+FleshTorture - The Stench Of Humanity (2011) [MP3|320 кб/с]<Brutal Death Grind>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Erotic Pleasure Caused To Tear Clitoris (4:13)
+ 2. Haunted By Torture (3:28)
+ 3. Romantic Sexual Relation With A Dismantled Body (3:00)
+ 4. The Stench Of Humanity (3:47)
+ 5. The Delicious Flavor Of The Rotting (3:30)
+ 6. Chapter Of Sickness (3:52)
+ 7. Crucifixion Must Hurt Like A Bitch (3:39)
+ 8. Mangled Whore Burial (3:29)
+ 9. Fatal Anal Penetration (4:27)Жанр: Brutal Death GrindПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD025EBCFB64DFF5990269249759512A4CCF9D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

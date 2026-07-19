@@ -1,32 +1,3 @@
-###  Публикация: 1168751   (404987) от 25.09.2017
-
-VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Nighty – Mental Holiday (70’s Classic Disco mix) (03:44)
-02. Jean Claude Project – Partial Transition (Le Disco mix) (03:36)
-03. Tommy Whyte – Get Up My Hands (Disco Love mix) (03:52)
-04. Doctor Rich – Between You And Me (Cocco’s Disco mix) (03:36)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562697   (404588) от 21.10.2012
 
 VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
@@ -750,6 +721,35 @@ Mark Ashley - Baby Blue (2015) Single [MP3|320 кб/с]<Dance, Eurodance, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D25BF4EC5D51910389EB9B6E49FC0CC98F3F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415568   (376860) от 12.10.2020
+
+J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernadette, Reach Out I'll Be There, Butterfly Suite  (15:37)
+02. Relationships  (5:47)
+03. Midnight Dancer  (4:56)
+04. Dance My Life Away  (6:30)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

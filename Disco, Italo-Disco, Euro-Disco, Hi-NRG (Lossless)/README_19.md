@@ -1,3 +1,90 @@
+###  Публикация: 1329962   (348001) от 07.10.2019
+
+Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Automat 15:58
+➥ 1.a (The) Rise 6:08
+➥ 1.b (The) Advance 4:05
+➥ 1.c (The) Genus 6:35(   Читать дальше...   )Жанр: Disco, ElectroПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FF9A9860156531985E59EE0988DAA9B865D218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329928   (347863) от 07.10.2019
+
+Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (4:28)
+02. Radioactivity (From The Ucraine) (6:41)
+03. Ultra Warp (Armaged Don Mix) (5:15)
+04. Theme From Knight Rider (6:23)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8845EB7322C942F3CBAFC7E65264C2F65BF0C2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580538   (342462) от 25.11.2012
+
+Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если перевести с итальянского название диска, то оно звучит как "Только Челентано". В отличии от 3-х боксового сета 2006 года с таким же названием, в сборнике 2011 года лишь один диск. Я бы назвал его "Unicamente Super-Celentano"01. C'e Sempre Un Motivo    [0:05:25]
+02. Io Sono Un Uomo Libero    [0:05:48]
+03. Le Stesse Cose    [0:05:42]
+04. L'Emozione Non Ha voce (Io Non So Parlar D'Amore)    [0:04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419189   (342041) от 27.10.2020
 
 Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -661,93 +748,6 @@ VA - Disco 80's Rare & Special Versions Vol. 1 (2016) Compilation [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98CF702695EAB94E36B91D0F1A37B2471C4FA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078936   (297808) от 02.12.2016
-
-Silicon Dream  - Greatest Hits (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Beat, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Machine (6:00)
- 02. Jimmy Dean Loved Marilyn-Film Ab (The Hollywood-Age) (3:40)
- 03. Corleone Speaking (4:50)
- 04. Holiday In St. Tropez (4:22)(   Читать дальше...   )Жанр: Synth-pop, New Beat, DiscoПродолжительность: 01:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC834AE177F11EF721C59F0D2727F2A4392CACCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184328   (297030) от 19.11.2017
-
-Boney M. - Worldmusic For Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Holiday, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birthday Jesus (Intro) - 0:24
-02. Carol Of The Bells (For One And All) (feat. Liz Mitchell) - 2:33
-03. Ave Maria - 3:20
-04. White Mountains (Spanish Romance) - 4:05(   Читать дальше...   )Жанр: Christmas, Holiday, Pop, Disco, Pop ReggaeПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F104DC084E5EA882834F12C92F2440C7C03470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333816   (296656) от 28.10.2019
-
-Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance To Desire (Vocal Version) (7:54)
-02. Vampires (Swedish Remix) (6:25)
-03. Aliens (Swedish Remix) (5:41)
-04. Yeti (Special Remix) (7:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, 80s |Продолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25142BC99C2FC0B4E459C0399E5A930C8FF1B700
 ```
 
 https://mybot314.ru/tekegram_catalog/

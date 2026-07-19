@@ -1,3 +1,29 @@
+###  Публикация: 924932   (542991) от 05.08.2015
+
+FastStone Image Viewer 5.4 Final Corporate RePack (&Portable) by VIPol [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542991.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - вьювер, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD42D7C8405B8E01EDC92FC024C0D5F4832478CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924924   (542919) от 05.08.2015
 
 Telegram Desktop 0.8.45 Stable + Portable [Multi]
@@ -646,32 +672,6 @@ Norton Security Premium (ранее Norton Security with Backup) - компле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56FA6B05EF3F259E02659E61431A4FD23AF92804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925011   (542375) от 05.08.2015
-
-Microsoft Toolkit 2.6 BETA 1 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Toolkit - это набор инструментов для управления лицензирования и активации Microsoft Office и Windows. Microsoft Toolkit после запуска проверяет какая операционная система или офис установлены на компьютере и подбирает оптимальный вариант для активации. В случае возникновения ошибки во время активации активатор автоматом попытается устранить проблему и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F43158909F53CB97A11D4DCA5AF6220DFAF10F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

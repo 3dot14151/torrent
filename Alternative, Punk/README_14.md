@@ -1,3 +1,61 @@
+###  Публикация: 1228387   (637382) от 31.05.2018
+
+Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanarchy (Blue Stahli Remix)
+02. Neurachem (Voicians Remix)
+03. Contagion (Sebastian Komor Remix)
+04. Hive Mind (The Anix Remix)(   Читать дальше...   )Жанр: Electronic, Industrial MetalПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6778AD1DA2E7AA00C402505B9862B83C6579CC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541391   (636957) от 07.04.2022
+
+Группа Саша и Сирожа - Куй (2022) [MP3|320 Kbps] <Comedy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кап-кап (2:23)
+02. Надоело (2:17)
+03. Рыбалка (2:00)
+04. Не успел (2:15)(   Читать дальше...   )Жанр: Comedy RockПродолжительность: 00:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119DAFE6982F4B6A901A7ACA8B4A5F6515AFE89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908018   (636165) от 13.06.2015
 
 Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
@@ -685,79 +743,6 @@ Cancer Bats - Psychic Jailbreak (2022) [MP3|320 Kbps] <Post-Hardcore, Southern R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B7C945D9D8A4768BC44C647A1544435E3C2190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523505   (616612) от 16.07.2012
-
-Nine Inch Nails - Greatest Hits (2 CD) /Russian Release/ (2008) [MP3|320 кб/с]<Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616612.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1| Продолжительность: 01:19:31
-01. Down In It
-02. Head Like a Hole
-03. Sin
-04. Terrible Lie
-05. Something I Can Never Have
-06. Pinion
-07. Wish
-08. Gave Up
-09. Happines In Slavery(   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:18:49
-01. The Perfect Drug
-02. The Day The World Went Away
-03. We're In This Together
-04. Into The Void
-05. Starfuckers, Inc
-06. Where Is Everybody
-07. The Fragile
-08. Deep
-09. And All That Could Have Been(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DAB44689CBC826D04BA58C10BE7B1F2176FE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911381   (616441) от 23.06.2015
-
-Oh Mercy - When We Talk About Love (2015) [MP3|320 кб/с]<Indie, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Without You (4:17)
-2. I Don't Really Want To Know (2:57)
-3. Sandy (3:52)
-4. Lady Eucalyptus (4:23)(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD57DCEA4DB2B447B53FFC749B7950AE420B428A
 ```
 
 https://mybot314.ru/tekegram_catalog/

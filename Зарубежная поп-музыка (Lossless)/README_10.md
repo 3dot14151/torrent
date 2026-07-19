@@ -1,3 +1,206 @@
+###  Публикация: 1474128   (1013222) от 01.06.2021
+
+VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect (4:23)
+02. Lianne La Havas - Paper Thin (4:58)
+03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
+04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474718   (1012890) от 03.06.2021
+
+Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stasera Che Sera (3:23)
+02. Per Un'Ora D'Amore (3:59)
+03. Cavallo Bianco (4:57)
+04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474639   (1012881) от 03.06.2021
+
+Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day In Your Life (4:17)
+02. Rockin Robin (2:33)
+03. People Make The World Go Round (3:14)
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474932   (1012727) от 04.06.2021
+
+VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Sweat$ - At My Worst (2:50)
+02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
+03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
+04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475251   (1012439) от 06.06.2021
+
+Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muñequita Linda
+02. Solamente Una Vez (con Israel Fernández)
+03. Esta tarde vi llover (feat. Rusowsky)
+04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475703   (1012111) от 08.06.2021
+
+Michael Bolton - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012111.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. How Am I Supposed To Live Without You (4:16)
+02. How Can We Be Lovers (3:56)
+03. When I'm Back On My Feet Again (3:49)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EA1FDE087520C8E0EAD7E44272DD5140AB198D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476098   (1011844) от 10.06.2021
+
+Pastel Coast - Hovercraft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eau (2:09)
+02. Always (3:44)
+03. Aquarius (3:55)
+04. La Nuit (4:46)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF96B97A6B422F65605C8CDB3EA64F433F1D7F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477636   (1010831) от 16.06.2021
 
 Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -543,209 +746,6 @@ VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483485   (1006771) от 14.07.2021
-
-Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sliding Doors (00:03:10)
-02 - 1961 (00:03:42)
-03. Aftermath (00:03:46)
-04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484777   (1005821) от 22.07.2021
-
-Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break My Heart Myself (feat. Travis Barker)
-02. Sabotage
-03. Trust Fall
-04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485049   (1005708) от 23.07.2021
-
-VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trinidad Cardona - Dinero (02:40)
-02. OneRepublic - Apologize (03:28)
-03. Imagine Dragons - Believer (03:24)
-04. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (04:49)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485447   (1005292) от 26.07.2021
-
-VA - Disco Summer (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SG Lewis - Time (4:19)
-02. ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (4:52)
-03. The Trammps - Disco Inferno (3:33)
-04. Disclosure, Gwen McCrae - Funky Sensation (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F1DBDF4EE818FFC5948F6CA5062B87D6589BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349675   (1004266) от 02.01.2020
-
-Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Winter Wonderland
-02. Merry Xmas Everybody (feat. Jamie Cullum)
-03. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350264   (1003518) от 05.01.2020
-
-Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'ultima luna - 05:40
-02. Stella di mare - 05:54
-03. La Signora - 03:55
-04. Milano - 03:29(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040BE5272C480DE1F78C83B3EA723CB4CF5F39DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350145   (1003445) от 05.01.2020
-
-VA - 100 Greatest American Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince And The Revolution - Purple Rain
-02. Ben E King - Stand by Me (2012 Collection Remaster)
-03. The Notorious B.I.G. - Hypnotize (2007 Remaster)
-04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459F23A430CB2692DC9B9FF5EDC9F0D0F26F7B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

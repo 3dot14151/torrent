@@ -201,32 +201,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 333200   (694715) от 07.05.2011
-
-VA - Весенний фестиваль хитов 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_694715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4621C1C2B2FB284641D2D9CF6F30DF8BC6F3C849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027718   (694700) от 20.06.2016
 
 VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
@@ -430,32 +404,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 333197   (693975) от 07.05.2011
-
-VA - Лучшая подборка майских хитов Europa Plus (2011) [MP3|320 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_693975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 06:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A8BDE6D40A07A3D8E745F571672BF0E687D0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288668   (693412) от 12.03.2019
 
 VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
@@ -478,32 +426,6 @@ VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC09F257508FE4811228E9C01CF0BBC074ECDB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333225   (693385) от 07.05.2011
-
-VA - Дискотека В Стиле Modern Talking Часть 3 (2011) [MP3|256 kbps]<Disco/Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_693385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco/PopПродолжительность: 12:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EC4FF835928CAEE04DAF1BE69E88C44FD6B5ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -736,6 +658,93 @@ VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134218   (690883) от 14.05.2017
+
+VA - Back In Disco (2017) [MP3|320 Kbps] <Electronic, Disco>
+
+>>След.
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gilla - Zieh Mich Aus (4:18)
+02. 'M' - Pop Muzik (4:54)
+03. Adolf Stern - More...I Like It (4:48)
+04. Amii Stewart - Jealousy (6:42)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03166784990FD38BE9F519F41E8AFB5539FF332B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288949   (689804) от 14.03.2019
+
+VA - Shazam Хит-парад Russia Top 100 Март (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_689804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zivert - Life
+002. Artik & Asti Feat. Артем Качер - Грустный Дэнс
+003. Ilkay Sencan - Do It
+004. Ariana Grande - 7 Rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B3677FC572AB9388EC0426372306A3210B3AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221893   (689310) от 27.04.2018
+
+VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Price Of Love (3:58)
+02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
+03. Afric Simone - Todo Pasara Maria (3:16)
+04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1465899   (1018802) от 28.04.2021
+
+VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок — это путь. Это такая тропинка. Через тьму, через страх, через твои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь эту музыку — ты выводишь ее в мир и выводишь себя к свету!001. Daka - Just Friends
+002. Champagne Colored Cars - Cache Memory
+003. Chris Garneau - Old Code
+004. Accidents - Cuando El Dia Llegue(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBB9E6FFB77DFC8316F6D808BA057C44ED0B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465901   (1018681) от 28.04.2021
+
+VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ценитель качественной музыки? У вас в наушниках постоянно звучат мелодичные гитарные рифы? Тогда вы очутились здесь не случайно! Старое, доброе, настоящее и милое сердцу! - Это девиз музыкального сборника «The Best Pop Rock Ballads 2000s». На лонгплее, кроме всеми признанных музыкальных шедевров, звучат и малоизвестные композиции андерграундной сцены.001. Daniel Schuhmacher - Why
+002. Zella Day - The Outlaw Josey Wales
+003. Brandon Heath - Sunrise
+004. Alex Lloyd - Bring It On(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C4A16FCA22E4C43E7CAA3D1F13D11A1FE31D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466404   (1018393) от 30.04.2021
+
+VA - Beast Mode Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Ricochet (3:09)
+02. The Prodigy - Firestarter (4:39)
+03. Sixx A.M. - Rise (3:53)
+04. Bush - Machinehead (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89EF3CE75FD5482E4D1C1B749DDD178629FA2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467169   (1017910) от 03.05.2021
 
 VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -658,93 +745,6 @@ VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482080   (1007715) от 07.07.2021
-
-VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nirvana - The Man Who Sold The World (4:21)
-02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart (3:30)
-03. Jeff Beck, Johnny Depp - Isolation (5:14)
-04. Halestorm - Get Lucky (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482682   (1007409) от 09.07.2021
-
-VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 1975 – The Sound (04:08)
-02. Grimes – Kill V. Maim (04:06)
-03. Foals – Mountain at My Gates (04:04)
-04. Arctic Monkeys – Do I Wanna Know? (04:32)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 06:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483444   (1006883) от 13.07.2021
-
-VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pale Waves - Wish U Were Here
-002. The Natvral - Sylvia, The Cup Of Youth
-003. That Handsome Devil - Punch In The Face
-004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
 ```
 
 https://mybot314.ru/tekegram_catalog/

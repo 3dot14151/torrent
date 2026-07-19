@@ -1,3 +1,145 @@
+###  Публикация: 1742230   (105585) от 10.08.2024
+
+Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide Down the Wall [00:02:23]
+02. It's Nice to Feel This Way Again [00:02:25]
+03. Beautiful Eyes [00:02:49]
+04. Gone [00:02:17](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1AF1F580C59183B0D742B2D59252CAC087F3E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743322   (105471) от 15.08.2024
+
+VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wale, Rihanna - Bad (Remix)Жанр: PopПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744846   (105229) от 23.08.2024
+
+Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls on Film (AIR Studio Version - Early Demo) [00:04:00]
+02. Tel Aviv (AIR Studio Version) [00:06:03]
+03. Anyone out There (Manchester Square Demo) [00:04:11]
+04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 2 CD, 02:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264C3FA326FF032D7B64F9FD87D550A7A4E59635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745004   (105199) от 24.08.2024
+
+Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reflex (Single Version) [00:04:26]
+02. The Reflex (Album Version) (2010 Remaster) [00:05:29]
+03. Make Me Smile (Come up and See Me) (Live) [00:04:58]
+04. The Reflex (Dance Mix) [00:06:34](   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D327F184C535CFDBD97DC21F5329A18D4C85EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745011   (105179) от 24.08.2024
+
+Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <New-Wave, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet Earth (Single Version) [00:04:02]
+02. Late Bar [00:02:57]
+03. Planet Earth (Night Version) [00:06:18]
+04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New-Wave, Synth-pop, DiscoПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7F55982875440633B1F3D2742F8E54DFC6ADEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745013   (105173) от 24.08.2024
 
 Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
@@ -601,151 +743,6 @@ Alison Moyet, полное имя - Geneviève Alison Jane Moyet.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEA5FC833CD16561FD4836A03AD6FDDF7B27FB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754096   (103758) от 08.10.2024
-
-Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Wolf [00:03:08]
-02. Did It Again [00:03:12]
-03. Long Time [00:02:56]
-04. Why Wait [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A22819EECE5447726E8071F56BB6914EB9E8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754833   (103695) от 12.10.2024
-
-Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Not For You (Remastered 2022) [00:02:53]
-02. Banks Of The Ohio (Remastered 2022) [00:03:18]
-03. Love Song (Remastered 2022) [00:03:46]
-04. Take Me Home Country Roads (Remastered 2022) [00:03:22](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754821   (103689) от 12.10.2024
-
-Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (Remastered 2022) [00:03:45]
-02. If (Remastered 2022) [00:02:26]
-03. Banks Of The Ohio (Remastered 2022) [00:03:15]
-04. In A Station (Remastered 2022) [00:03:07](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FD470819F1D00B56FE8B545B1F7065C5363A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759797   (103251) от 10.11.2024
-
-Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor Che Muovi Il Sole
-02. Una Come Te
-03. Just Breathe
-04. Sailing(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067610092508485C49251B341E33133DCF333702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759782   (103213) от 10.11.2024
-
-Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Йога или спирт
-02. Гоа
-03. Зелена фея
-04. Качели летящие вверх (Сообщение)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606212EDBDE8F4A8B6E42C3572ED62374153DB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

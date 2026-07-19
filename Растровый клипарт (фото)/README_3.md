@@ -1,29 +1,3 @@
-###  Публикация: 1207203   (780819) от 17.02.2018
-
-Растровый клипарт - Wedding Cakes 20 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебный торт, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x3992-8000x5333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D44B9EDD5DE60B510B9D1B9DC3DA451A74AFF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207573   (780559) от 18.02.2018
 
 Растровый клипарт - Fotolia - Young couple relaxing by the sea [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D182B8059B01EB5367A6C7C6467FB8B28AB4A99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210924   (778112) от 05.03.2018
+
+Растровый клипарт - Fotolia - Architectural landscape night city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архитектурный пейзаж ночного города с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3426x3426-7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E6534A817159AA5833ED73EEEBBA6560B07D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

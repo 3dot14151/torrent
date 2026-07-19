@@ -1,29 +1,3 @@
-###  Публикация: 1180873   (337206) от 05.11.2017
-
-Растровый клипарт - Fotolia - Beautiful bride woman [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебный портрет красивой невесты с вьющимися волосамиФормат: JPGРазрешение файлов: 3840x5760
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E89BF7B5CCF737E65691E70E49E45A0F76BE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182088   (319098) от 09.11.2017
 
 Растровый клипарт - Fotolia - Beautiful different kinds of parrots [JPG]
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3964856C6DAFAC3543418749562997CB9E162491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186260   (287803) от 24.11.2017
+
+Растровый клипарт - Fotolia - Christmas Holiday Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественский праздникФормат: JPGРазрешение файлов: 5500x3802-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33C64926F8610700122B60054A31903C7C31368
 ```
 
 https://mybot314.ru/tekegram_catalog/

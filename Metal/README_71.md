@@ -1,3 +1,90 @@
+###  Публикация: 1573791   (408809) от 02.09.2022
+
+Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hunab K'u (Live At Paradiso) [00:01:58]
+02 - Dance Of Fate (Live At Paradiso) [00:05:47]
+03 - Sensorium (Live At Paradiso) [00:04:58]
+04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573675   (408739) от 02.09.2022
+
+Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliver Us From Evil (5:22)
+02. Damnation (5:21)
+03. Secrets Of The American Gods (7:29)
+04. Violent Shadows (4:18)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9033725380052311A9A711E8C0A8A51CDD3C059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573691   (408578) от 02.09.2022
+
+Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sick, The Dying… And The Dead! (5:04)
+02. Life In Hell (4:12)
+03. Night Stalkers (6:38)
+04. Dogs Of Chernobyl (6:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA87E9011A10DEF78B55F7B9F30AF20EE63E551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948969   (408267) от 22.10.2015
 
 Arrant Saudade - The Peace Of Solitude (2015) [MP3|320 кб/с]<Funeral Doom, Doom-Death Metal>
@@ -722,103 +809,6 @@ West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46478557DDDEA7927BD2CC3CF35D365D9E36F051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569670   (392225) от 03.11.2012
-
-Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick-Off (Intro) 01:17
- 02. Delete Humanity 04:37
- 03. Collector Of Dead Souls 03:40
- 04. Behind A Life Side 04:11
- 05. Rev.6:13-14 01:44
- 06. Creation Of The New World 03:58
- 07. Madness Of Eternity 03:31
- 08. Mechanization Of Heavenly Light 03:30Жанр: Death MetalПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0B9246B6222B0976B5043A51E5EA1AAB31E8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569707   (392222) от 03.11.2012
-
-Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Red Dawn Rises
-2. Wings Of Chaos
-3. Maelstrom Of Black Light
-4. The Great Cosmic Serpent
-5. Infected
-6. A Requiem For A Lost Universe
-7. Crystal Blue
-8. Repulsion
-9. Ragnarok Sunset
-10. Enter The Realm Of The Doppelganger(   Читать дальше...   )Жанр: Industrial/Symphonic Black MetalПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C891B757C406A97374309538E20F877C4AF3B896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570723   (390337) от 05.11.2012
-
-Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shine
-2. Room Winter
-3. Without Movement
-4. TranscendenceЖанр: Atmospheric Black/Doom MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6E3217E549212EC713A6CA4D4B64B3208164C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

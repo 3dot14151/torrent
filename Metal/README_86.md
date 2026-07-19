@@ -1,3 +1,96 @@
+###  Публикация: 1835082   (250604) от 04.11.2025
+
+Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Takes Two To Tango (04:41)
+ 02. Babylon (06:10)
+ 03. Hellbreaker (05:07)
+ 04. Time To Listen (03:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24255921591A0C2C7659B0E454E311BAB5CC3FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617452   (250264) от 07.03.2023
+
+Warrior Pope - 3 Albums (2017-2023) [MP3|320 Kbps] <Drone-doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - Anchorite
+2020 - Mellified Man
+2020 - The Voices Said Empty, Hollow and ThudЖанр: Drone-doomПродолжительность: 3 CD, 01:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B23F0957310746CBB37707C75D4DA387708F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493147   (248817) от 08.05.2012
+
+FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248817.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reminder
+ 2. The Chosen One
+ 3. Marooned
+ 4. Battle Cries
+ 5. Dirge For The Planet
+ 6. Under Cover Of Night
+ 7. Stranger's Prophecy
+ 8. Angel's Revelation
+ 9. Abysmal Temple Trek
+ 10. The Outcome Descends2005Жанр: Progressive Melodic DeathПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE50D1462A1C1C03C290EBD378ED240153C74F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833983   (248551) от 03.11.2025
 
 Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Metal, Heavy-Metal>
@@ -665,93 +758,6 @@ Djevel - Naa Skrider Natten Sort (2022) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E849CE12D346BABEA1591A10E451A921CB90F736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289518   (244530) от 16.03.2019
-
-Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Illborn Augury
-2. Sovereign Sacrifices
-3. Alchemic Web Of Deceit
-4. A Suit Of My Flesh(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705C0F4AB7818FAD32C9B841B293B60AD32A5125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609763   (244519) от 05.02.2023
-
-Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Sorcery [00:06:27]
-02. The Cursed Crown [00:05:40]
-03. The Legend of the Demon's Cry [00:06:21]
-04. Assault on the Castle [00:04:43](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 2 CD, 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A81EE261DD548EBFB203F0F47302E296318B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625502   (244510) от 10.04.2023
-
-Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Act (05:33)
-02. Alliance Ov Snakes (04:03)
-03. Belial (04:03)
-04. Darkbringer (03:37)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9387C4B06D163AF7CD5BD30FDD89EEE76EC32127
 ```
 
 https://mybot314.ru/tekegram_catalog/

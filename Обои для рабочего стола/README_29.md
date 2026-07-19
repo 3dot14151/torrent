@@ -1,29 +1,3 @@
-###  Публикация: 1291012   (674198) от 22.03.2019
-
-Обои - Desktop Wallpapers Full HD. Part (401) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A45F0572E298E7107F9CB5E7F81B7ABC8447701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291022   (674197) от 22.03.2019
 
 Обои - Desktop Wallpapers Full HD. Part (405) [JPG]
@@ -672,6 +646,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86556A840D01FDE8FF0295DF5745310A07C26D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031008   (670080) от 02.07.2016
+
+Обои - Computer Desktop Wallpapers Collection 1522-1527 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 1522-1527.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B38650D70D2F8CA059FCC627FC07AE463AB3925
 ```
 
 https://mybot314.ru/tekegram_catalog/

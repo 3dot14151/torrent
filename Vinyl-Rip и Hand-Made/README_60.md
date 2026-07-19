@@ -1,25 +1,25 @@
-###  Публикация: 1555578   (158834) от 12.11.2023
+###  Публикация: 1680643   (133951) от 30.11.2023
 
-Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Doro (Dorothee Pesch) — немецкая певица, экс-вокалистка хэви-метал-группы Warlock, в настоящее время занимается сольной карьерой. Доро начала карьеру в 1980-е и стала одной из первых женщин, прославившихся в тяжёлой музыке, за что получила от фанатов прозвище «Metal Queen».1984 - Burning The Witches
-1985 - Hellbound
-1986 - True As Steel
-1987 - Triumph And Agony(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 16:35:23
+A1 Ra-Ta-Ta
+A2 Suona Orchestra (Cinta Orchestra)
+A3 Lui E Cosi (Asa E El)
+A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
+magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433242   (157954) от 20.12.2020
+###  Публикация: 1680786   (133939) от 30.11.2023
 
-The Beatles - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Beat, Pop Rock>
+Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Michelle (Rubber Soul)
-A2 Girl (Rubber Soul)
-A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:11:12
+Deliverance
+A. Wreath (11:13)
+B. Deliverance (13:39)
+C1. A Fair Judgement (10:23)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:45:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
+magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600402   (157538) от 27.12.2022
+###  Публикация: 1680819   (133897) от 30.11.2023
 
-At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-At the Gates — шведская мелодик-дэт-метал-группа, образовалась в Гётеборге в 1990 году. Является прародителем метал-сцены Гётеборга и музыкального стиля мелодичный дэт-метал.1992 - The Red In The Sky Is Ours
-1993 - With Fear I Kiss The Burning Darkness
-1994 - Terminal Spirit Disease
-1995 - Slaughter of the Soul(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 05:48:17
+Them - немецко-американская хэви-метал группа, образованная в 2008 году.2016 - Sweet Hollow
+2018 - Manor Of The Se7en Gables
+2020 - Return to Hemmersmoor
+2022 - Fear CityЖанр: Heavy/Power MetalПродолжительность: 03:38:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
+magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540441   (156942) от 13.11.2023
+###  Публикация: 1681215   (133116) от 02.12.2023
 
-Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Psychobilly, Rockabilly, Punk>
+Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Психобилли», или, как правильно произносится название этого музыкального жанра, «сайкобилли», — жанр рок-музыки, сочетающий экспрессию и агрессивность панк-рока с мелодикой кантри и рокабилли. Жанр появился в 1975 г.
-В 1986 году голландаская фирма грамзаписи "Kix 4 U" выпускает первый сборник из серии "Psycho Attack Over Europe!". Он объединяет (   Читать дальше...   )1991 - Psycho Attack Over Europe! (part 1)
-1992 - Psycho Attack Over Europe! (part 2)
-1994 - Psycho Attack Over Europe! (part 3)Жанр: Psychobilly, Rockabilly, PunkПродолжительность: 03:25:36
+A1 Krach
+A2 Gorace Telefony
+A3 China Boy
+Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
+magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 967301   (156915) от 23.12.2015
+###  Публикация: 1681651   (132742) от 03.12.2023
 
-VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Blues>
+Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Бум-Бум-Бум. Boom Boom Boom. (Джон Ли Хукер)
-A2 - Чего ты хочешь? Baby What Yoy Want Me To Do. (Джимми Рид)
-A3 - Уезжай отсюдаю Leave This Neighborhood. (Эдди Тейлор)
-A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:49
+Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
+2008 - Ten Broken Codes
+2010 - Jehovirus
+2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
+magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676276   (156887) от 13.11.2023
+###  Публикация: 1681443   (132720) от 03.12.2023
 
-The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|Vinyl-Rip] <Classic Rock>
+Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A.1 Angry
-A.2 Get Close
-A.3 Depending on You
-A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:48:30
+A1 The Show Must Go On
+A2 Friends
+A3 Stallion In The Dawn
+A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
+magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,26 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676254   (156454) от 13.11.2023
+###  Публикация: 592967   (132568) от 28.12.2012
 
-VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Funk, Hard Rock, Rock-n-Roll>
+Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip)] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Архив популярной музыки — серия пластинок, выпущенных фирмой грамзаписи «Мелодия» в 1988—1989 годах. Каждый диск представлял собой сборник песен одного из наиболее известных представителей англо-американской поп- и рок-музыки 1950-х—1970-х годов.
-Данная серия начала своё существование с выпуска в 1987 г. менее известной серии «Рок-архив», состоявшей всего из трёх (   Читать дальше...   )Жанр: Rock, Funk, Hard Rock, Rock-n-RollПродолжительность: 08:03:17
+Жанр: power metal, heavy metalПродолжительность: 6:18:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 853948   (156257) от 27.12.2014
+###  Публикация: 1682358   (131508) от 07.12.2023
 
-Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Fire Of Unknown Origin (4:12)
-A2. Burnin' For You (4:32)
-A3. Veteran Of The Psychic Wars (4:50)
-A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:09
+Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
+2006 - Legend Of The Bone Carver
+2008 - Immortal
+2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
+magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,34 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 738250   (155993) от 24.12.2013
+###  Публикация: 1682844   (131186) от 08.12.2023
 
-Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Disco>
+Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поговорим о любви 1
-1. Любимая (Cheri Cheri Lady) 3:46
-2. Немного любви (With A Little Love) 3:33
-3. Бурные воды (Wild Wild Water) 4:18
-4. Ты - мое сердце, ты - моя душа (You're My Heart, You're My Soul) 5:32
-5. Как ангел (Just Like An Angel) 3:14
-Поговорим о любви 2
-1. Небеса будут знать (Heaven Will Know) 4:02
-2. Любовь здесь больше не живет (Love Don't Live Here Anymore) 4:22
-3. Почему именно сегодня? (Why Did You Do It Just Tonight?) 4:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:14:32
+01. The Dream Sequencer
+02. My House On Mars
+03. 2084
+04. One Small Step(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
+magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,34 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 738039   (155971) от 24.12.2013
+###  Публикация: 1682573   (131167) от 08.12.2023
 
-Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock & Roll, Disco>
+Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-Группа Stars on 45  15:52
-Сторона 2
-1. Группа Stars on 45  8:08
-2. Long Tall Ernie And The Shakers  4:35
-3. Long Tall Ernie and The Shakers  4:33
-Сторона 3
-Рок-н-роллы 15:54
-Сторона 4
-Песни Стива Уандера и других 14:44Жанр: Rock & Roll, DiscoПродолжительность: 01:03:46
+01. The New Real
+02. Pink Beatles In A Purple Zeppelin
+03. Parental Procreation Permit
+04. When I'm A Hundred Sixty-Four(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
+magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 968277   (155725) от 23.12.2015
+###  Публикация: 1682671   (131165) от 08.12.2023
 
-Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth-Pop>
+Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Interstellaires (3:11)
-02. Stolen Car (en duo avec Sting) (3:23)
-03. A rebours (4:10)
-04. C'est pas moi (3:41)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:40:09
+01. Welcome To The New Dimension
+02. Isis And Osiris
+03. Amazing Flight
+04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
+magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677142   (153594) от 16.11.2023
+###  Публикация: 1620165   (130690) от 09.12.2023
 
-Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. In Mist She Was Standing (14:10)
-A2. Under the Weeping Moon (09:51)
-B1. Silhouette (03:10)
-B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
+«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
+2011 - Письмо из Трансильвании
+2012 - Тайна кривых зеркал
+2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
+magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347227   (153359) от 22.12.2019
+###  Публикация: 1682999   (129862) от 09.12.2023
 
-Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upconvert]
+Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Drummer Boy 4:23
-02. White Christmas 3:59
-03. Feliz Navidad 3:07
-04. Jingle Bells 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:44:30
+A1 Oh No Not My Baby
+A2 Whenever You're Near
+A3 Many Rivers To Cross (Live From The Mirage)
+A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
+magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,28 +372,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 968539   (153215) от 24.12.2015
+###  Публикация: 1525536   (129209) от 21.01.2022
 
-Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Alternative Rock, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart Turns To Stone (4:34)
-02. Can't Wait (4:32)
-03. Say You Will (4:16)
-04. I Don't Want To Live Without You (4:55)(   Читать дальше...   )Производство: Atlantic Recording - 781 808-1Жанр: RockПродолжительность: 00:44:48
+Suburban Tribe — рок-группа из Финляндии. Группа примечательна тем, что в ее состав входят участники двух самых известных финских трэш-метал-групп Stone и Airdash. Басист Янне Йоутсенниеми играл в группе Stone, а гитарист Руп Сирен играл в Airdash.
+В марте 2011 года было объявлено о  роспуске группы.1994 - Primitive
+1995 - Purity
+1997 - Panorama
+1998 - Elektro 57Жанр: Alternative Rock, Alternative Metal, Nu MetalПродолжительность: 09:24:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
+magnet:?xt=urn:btih:5176F3BFD3765BAFF54447851939BF157DE39BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,28 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 854276   (152320) от 28.12.2014
+###  Публикация: 1824499   (128872) от 15.10.2025
 
-Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|image + .cue] <Jazz, Rock, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Take Me Away (4:32)
-A2. Eyes On Fire (3:56)
-A3. Shooting Shark (7:10)
-A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:12
+A1 В Ритме «Леткисс»
+А2 Суоми-Леткисс
+А3 Один Поцелуй
+А4 Бутылка Шампанского(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 00:21:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
+magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672832   (152209) от 17.10.2025
+###  Публикация: 1824494   (128871) от 15.10.2025
 
-Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Experimental/Extreme Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Carach Angren — нидерландская симфо-блэк-метал-группа, образованная в 2003 году. Отличительной особенностью коллектива является концептуальность каждого студийного альбома, где лирическая составляющая основывается на хоррор-тематике: легендах о призраках, различных мифах, сказках и рассказах.2008 - Lammendam
-2010 - Death Came Through A Phantom Ship
-2012 - Where The Corpses Sink Forever
-2015 - This Is No FairytaleЖанр: Symphonic Black MetalПродолжительность: 05:19:25
+Ihsahn - Вегард Сверре Твейтан — норвежский композитор, гитарист, бас-гитарист, клавишник и вокалист. Более известен как вокалист, гитарист и клавишник группы Emperor2006 - The Adversary
+2008 - Angl
+2010 - After
+2012 - EremitaЖанр: Experimental/Extreme Progressive MetalПродолжительность: 08:08:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
+magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +460,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086353   (152171) от 24.12.2016
+###  Публикация: 1824485   (128870) от 15.10.2025
 
-Демис  Руссос - Большой успех Демиса Руссоса (1980) 2 LP [WavPack|192/32|tracks|Vinyl-Rip] <Pop>
+Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Someday, Somewhere (Когда-то, где-то)  3:00
-02. Forever And Ever (Навсегда, навсегда)  3:36
-03. Velvet Mornings (Бархатные утра)  3:34(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:48
+Bloodywood - индийская метал-группа из Нью-Дели, образованная в 2016 году. Они начинали как пародийный коллектив, выкладывающий каверы на поп-песни на YouTube, но позже стали писать собственный оригинальный материал. Среди музыкальных источников вдохновения для группы значатся Linkin Park, Rage Against the Machine, System of a Down, Alter Bridge и Limp Bizkit.2022 - Rakshak
+2025 - Nu DelhiЖанр: Folk Metal, Nu MetalПродолжительность: 01:20:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
+magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +487,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086523   (151863) от 24.12.2016
+###  Публикация: 1824589   (128807) от 15.10.2025
 
-Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Blinded By The Light (7:09)
-A2. Singing The Dolphin Through (8:21)
-A3. Waiter Theres A Yawn In My Ear (5:40)
-B1. The Road To Babylon (6:53)(   Читать дальше...   )Производство: Bronze - 27 870 XOTЖанр: Progressive RockПродолжительность: 00:39:59
+The Hu - монгольская фолк-метал группа, образованная в 2016 году в Улан-Баторе. Используя традиционные монгольские музыкальные инструменты, такие как морин хуур, товшуур и горловое пение, группа называет свой музыкальный стиль «хунну-рок».2020 - The Gereg
+2022 - Rumble of ThunderЖанр: Folk MetalПродолжительность: 03:01:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
+magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,28 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677184   (150607) от 17.11.2023
+###  Публикация: 1577393   (128583) от 14.10.2025
 
-Ария - Студийные альбомы (10 релизов) (1995-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ария» — советская и российская хеви-метал-группа. Одна из самых успешных российских рок-групп, при этом — это одна из немногих российских метал-групп, достигших серьёзного коммерческого и творческого успехов и популярности за пределами поклонников хэви-метала. Лауреат премии Fuzz 2007 года как лучшая live-группа. Её бывшими участниками были образованы многие другие (   Читать дальше...   )1995 - Ночь Короче Дня
-1998 - Генератор Зла
-2001 - Химера
-2003 - Крещение ОгнёмЖанр: Heavy MetalПродолжительность: 10:13:07
+Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
+2006 - Ascendancy
+2006 - The Crusade
+2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
+magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +543,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 589035   (150358) от 14.12.2012
+###  Публикация: 1683357   (128547) от 10.12.2023
 
-Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Moscow Calling вышел 29 марта 1993 года. Во многих странах, в том числе и в России он вышел под названием Gorky Park 2. Альбом не попал в американские чарты, но завоевал немалую популярность, продавшись в мире тиражом в полмиллиона копий. Бешеную популярность диск получил в Дании, получив там платиновый статус. В Европе этот диск представляла фирма BMG, в Скандинавии (   Читать дальше...   )Жанр: Hard RockФормат: Vinyl, LP, AlbumПродолжительность: 00:47:42
+Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
+1997 - Under Moonlight We Kiss
+1999 - Fallen Angel's Symphony
+2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
+magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +572,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271121   (150169) от 23.12.2018
+###  Публикация: 1683242   (128544) от 10.12.2023
 
-Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classics. Classic songs, sketches and previously unreleased material. Producer George Martin) (1990) [FLAC 2.0|48/24|image+ ...
+Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cassette One
-Side One:
-01. Any Old Iron
-02. A Hard Days Night(   Читать дальше...   )Жанр: Non-Music, ComedyПродолжительность: 02:06:21
+01. Chaos
+02. Dawn Of A Million Souls
+03. Journey On The Waves Of Time
+04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
+magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,28 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271140   (149995) от 23.12.2018
+###  Публикация: 1683758   (128247) от 12.12.2023
 
-VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
+System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Alternative Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1:
-01. Dan Seals - My Baby's Got Good Timing
-02. Anne Murray - Just Fall In Love Again
-03. Michael Martin Murphey - What'sForever For(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:40:22
+A1 Suite-Pee
+A2 Know
+A3 Sugar
+A4 Suggestions(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
+magnet:?xt=urn:btih:66DDB1E1E7991FAE93250C97B386BF7627145CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,28 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271135   (149983) от 23.12.2018
+###  Публикация: 1683807   (128220) от 12.12.2023
 
-The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
+Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dancin' Shoes
-A2 Keeping The Love Alive
-A3 Once You Get The Feel Of It
-A4 Still Holdin' On(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:24
+01. Age Of Shadows (Incl. We Are Forever)
+02. Comatose
+03. Liquid Eternity
+04. Connect The Dots(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:41:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
+magnet:?xt=urn:btih:DCE0EE88A1B5B91E0A28514DA77D9F3DF3B549D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271133   (149939) от 23.12.2018
+###  Публикация: 1683710   (128215) от 12.12.2023
 
-Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock & Roll>
+Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Little Marie
-A2 Our Little Rendezvous
-A3 No Particular Place To Go
-A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:32:01
+01. Day One: Vigil
+02. Day Two: Isolation
+03. Day Three: Pain
+04. Day Four: Mystery(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
+magnet:?xt=urn:btih:2FAA9527A96EC5AABE98385542B61DE872305AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,34 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 738801   (149897) от 26.12.2013
+###  Публикация: 1683868   (128097) от 13.12.2023
 
-Оркестр Олега Лундстрема - В сочных тонах, В наше время (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Big Band, Swing>
+System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сочных тонах 1
-1. Блюз в до мажоре (C-jam Blues) - D. Ellington  8:50
-2. Звёздная пыль (Stardust) - H. Carmichae  4:50
-3. В сочных тонах (In A Mellotone) - D. Ellington  6:04
-В сочных тонах 2
-1. Четыре брата (Four Brothers) - J. Giuffre  2:36
-2. Стелла при свете звезд (Stella By Starlight) - V. Young  8:20
-3. Четыре плюс два (Four Plus Two) - O. Nelson  7:30
-В наше время 1
-1. Любви дороги (Love Roads) - О. Лундстрем  5:03(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:25
+A1 Chic 'N' Stu
+A2 Innervision
+A3 Bubbles
+A4 Boom!(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:43:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
+magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -736,28 +717,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271128   (149848) от 23.12.2018
+###  Публикация: 1684101   (127986) от 14.12.2023
 
-Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, House>
+Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года (1990) Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Classic ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-01. I Still Believe (The Kings Mix)
-02. Honey (Classic Mix)
-03. When You Believe (Featuring – Whitney Houston)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:12:54
+Из кинофильма "Потому, что ты моя"Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
+magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1346224   (164640) от 18.12.2019
-
-Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haze (with Masahiko Togashi) [11:33]
-02. Free Point (with Steve Potts) [9:32]
-03. Epistrophy (with Mal Waldron) [7:57]
-04. Train Going By (with Irene Aebi) [3:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB866FED459B423B63F92FCF2C9DB488B107550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516881   (164636) от 13.12.2021
-
-Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Moon And Empty Arms [3:18]
-02. Frantonality [2:56]
-03. If I Loved You [2:48]
-04. For You [2:59](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346126   (164631) от 18.12.2019
-
-Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haru-No-Umi [7:17]
-02. Stone Garden of Ryoan Temple [14:27]
-03. Tonight [6:13]
-04. Something's Coming [2:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673708   (164600) от 02.11.2023
-
-Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kappa Torai no Chi [4:19]
-02.Mokuhi no Yotabi [4:07]
-03.Bourei no Numa [3:46]
-04.Ougi Denjushiki [2:54](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8657060E2D80E978D1A31CA24585EBA623E639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346222   (164588) от 18.12.2019
 
 Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychedelic Rock>
@@ -745,6 +629,122 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:885D46013642BCF729DB66BDCA86B074B7FD08E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432794   (162237) от 19.12.2020
+
+Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [5:25]
+02. Between The Devil And The Deep Blue Sea [5:02]
+03. I Could Have Danced All Night [2:46]
+04. Just One Of Those Things [2:30](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438B9FFE1C3AB0A0026C64FB05F6F8F17ED6BC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598683   (162181) от 20.12.2022
+
+Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R-Vingt six [2:30]
+02. How High the Moon [2:37]
+03. Lover Man [3:20]
+04. Blue Lou [2:23](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D423F8E58609C0F3301D33B4F22AC9C11A44FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433005   (161866) от 19.12.2020
+
+Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|image + .cue]<Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Off the Search (3:25)
+ 02. Crawling Up a Hill (3:25)
+ 03. The Closest Thing to Crazy (4:12)
+ 04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333BB49EF3CBDCEB148991EC5A6BD2BDBE111CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517823   (161738) от 17.12.2021
+
+Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erroll-A-Garner [2:40]
+02. Stars Fell On Alabama [2:25]
+03. Laura [2:48]
+04. Lavande (Little Girl) [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 974386   (976934) от 11.01.2016
+
+PDF Expert 1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976934.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - многофункциональная утилита для работы с PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 января 2016Разработчик: Readdle Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942B2FBD071B6FBBF977D5AC1B496DE38ED2219B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613226   (976908) от 09.02.2013
 
 VA - Enhanced Progressive: The Collection Series Volume Two (2012) [MP3|320 кб/с]<Progressive House>
@@ -740,35 +769,6 @@ Timeline упрощает процесс, чтобы проиллюстриро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877EE65CBB80D163241E70E1818441403A42E6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356813   (976775) от 01.02.2020
-
-Ralph Myerz & The Jack Herren Band - Discography 14 Releases (2003-2018) Emperor Norton, Virgin [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, Future Jazz, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Oh! (feat. Teddy Touch) (04:00)
- 02. Bacc 2 School (feat. Teddy Touch) (05:22)
- 03. Midnight Magic (feat. MRIA) (03:07)
- 04. Dark Matter (feat. Therese Lunde & MRIA) (03:55)Тип издания: CD, WebЖанр: Downtempo/Future Jazz/Europop/HouseПродолжительность: 07:11:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D4EC90B01C557D2A030F03DB00355BAFC231F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

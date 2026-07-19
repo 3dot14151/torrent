@@ -1,423 +1,3 @@
-###  Публикация: 1197161   (817298) от 06.01.2018
-
-Тайна 7 сестер / Seven Sisters (2017) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях — каждая в свой день. Но однажды Понедельник пропадает…Производство: Великобритания, Франция, БельгияЖанр: Фантастика, боевик, триллер, драма, криминал, детектив, приключенияРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара РидПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5DC3D9BC933027239F672168DAC9DAAA3535DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382812   (817247) от 12.05.2020
-
-Небо измеряется милями  (2019) WEBRip [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817247.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни и судьбе легендарного советского конструктора вертолетов Михаила Леонтьевича Миля.Производство: Россия / RB ProductionЖанр: Военный, историяРежиссер: Константин БусловАктеры: Евгений Стычкин, Марьяна Спивак, Андрей Мерзликин, Максим Битюков, Алексей Розин, Евгений Пеккер, Петр Кислов, Петар Зекавица, Мария Шумакова, Александр РапопортПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271C95E62213FEA9213CB0C297EE143BE254174D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882594   (817238) от 29.03.2015
-
-Сердце дракона 3: Проклятье чародея  / Dragonheart 3: The Sorcerer's Curse (2015) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817238.jpg" />
-</div>
-
-
-###  Подробнее
-
-В условной, мифологической Британии идет война между рыцарями, охраняющими южные земли и кельтскими племенами с севера. Их разделяет знаменитый Адрианов Вал. Когда на землю падает звезда, юный и отважный воин Гарет решает отправиться на ее поиски. Ведь согласно легендам, там, куда упала звезда, хранятся несметные сокровища. Он перелезает через стену и оказывается в таинственном северном лесу, населенном колдунами, девами-воительницами и драконами…Производство: СШАЖанр: Фэнтези, приключенияРежиссер: Колин ТигАктеры: Бен Кингсли, Джулиан Моррис, Тэмзин Мёрчант, Джасса Ахлувалиа, Джонджо О’Нил, Джэйк Каррен, Доминик Мафэм, Кристофер Фэйрбэнк, Ozama Oancea, Гарри СмитПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F0E13227A6493BCEFA8D41047C8E21E6167A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791410   (816936) от 12.05.2020
-
-Ария - Игра с огнем (1989) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что Вы Сделали С Вашей Мечтой?
-02. Раскачаем Этот Мир
-03. Раб Страха
-04. Искушение(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3247CD62488E4F65B0959AFE02CE91A3064E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791412   (816844) от 12.05.2020
-
-Ария - Ночь короче дня (1995) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рабство Иллюзий
-02. Паранойя
-03. Ангельская Пыль
-04. Уходи, И Не Возвращайся!(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84FF993225607A1210672102A286B65FE609A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791408   (816842) от 12.05.2020
-
-Ария - Мания величия (1985) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это Рок
-02. Тореро
-03. Волонтёр
-04. Бивни Чёрных Скал(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0EEE411015B92A78FFBD830D2C5E1B895E8C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791416   (816841) от 12.05.2020
-
-Ария - Армагеддон (2006) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последний Закат
-02. Меченый Злом
-03. Страж Империи
-04. Новый Крестовый Поход(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AF0BECE1425879E86540D063ED2D130F258DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791411   (816837) от 12.05.2020
-
-Ария - Кровь за кровь (1991) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай, Норфолк!
-02. Зомби
-03. Антихрист
-04. Не Хочешь, Не Верь Мне(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BB914EDB875B6CD0C8F17262A90512B1AB73B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117367   (816794) от 23.03.2017
-
-Дэйв Волвертон | Становление силы (2017) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оби-Ван в отчаянии: он еще не научился сдерживать свой гнев и страх. Именно поэтому великий звездный рыцарь Куай-Гон не хочет взять его в ученики. Но судьба сводит великого джедая и воспитанника Храма звездных рыцарей на звездолете, держащем свой путь к опаснейшей планете Бендомир. Неожиданно на звездолет нападают космические пираты. Куай-Гон и двенадцатилетний мальчик (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 04:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDA2A571ECC1C46F95A7DA2582301DAE4B1AEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791414   (816709) от 12.05.2020
-
-Ария - Химера (2001) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Химера
-02. Небо Тебя Найдёт
-03. Я Не Сошёл С Ума
-04. Вампир(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A340A449E4D705DA7D12CF02CFBE4F5587868CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882733   (816622) от 29.03.2015
-
-Вселенная Стивена Хокинга / The Theory of Everything (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816622.jpg" />
-</div>
-
-
-###  Подробнее
-
-История отношений между известным физиком Стивеном Хокингом и его женой.Производство: ВеликобританияЖанр: Драма, мелодрама, биографияРежиссер: Джеймс МаршАктеры: Эдди Редмэйн, Фелисити Джонс, Чарли Кокс, Дэвид Тьюлис, Эмили Уотсон, Максин Пик, Саймон МакБерни, Эбигейл Круттенден, Гарри Ллойд, Майкл Маркус МорганПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 02:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A5B6DEAF61B956403B0C9BFB06604EEA431FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503883   (816136) от 21.10.2021
-
-VA - Sacred Journey, Vol. 1 (2021) [AAC|~300 Kbps] <Electronic, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemela Grando - Tejat Prior (3:02)
-02. Zed Furud - Meditation in Blue (2:31)
-03. Teslikus - Expansion (2:28)
-04. Sarala Rati - The Pleiads (3:53)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BBA214AA89488362D6B85933D5FAE784B42950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503873   (816135) от 21.10.2021
-
-VA - Chill House Vibes Vol 2: Ultimate Chill House Collection (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMTunes - Love That Feeling (Original Mix) (4:29)
-02. Darles Flow, Marga Sol - Alive (Original Mix) (5:23)
-03. Beamy - Twisted Soul (Jero Nougues Organic Sunset Mix) (6:44)
-04. Nenad J. - Island Memories (Original Mix) (6:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6C68CC105420A327B78CAD682D6DCA0F1F5916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503884   (816134) от 21.10.2021
-
-VA - Sacred Journey, Vol. 2 (2021) [AAC|~297 Kbps] <Electronic, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunplena - Paqal (2:29)
-02. Poseidon - Sound of Agharti (2:36)
-03. Ruga Giganto - Zaurak the First (2:35)
-04. Kasita Vero - Esus (3:02)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE82E1CA60F8F7EC0E4A7EE3BFCDBE97EC398339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503878   (816129) от 21.10.2021
-
-VA - New Power Eurodance Hits 2021: Workout Collection (2021) [AAC|~343 Kbps] <Eurodance, Euro-House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxxima - No Regrets (Airplay Mix) (3:16)
-02. Eurotronic, Timi Kullai, Zooom - Here I Go (Mykotank Eurodance Radio Mix) (4:25)
-03. Loft - Mallorca 2k21 (Bmonde Radio Mix) (3:56)
-04. B.G. The Prince Of Rap, Timi Kullai, Chrizz Morisson - Sugar (Newborn 90s Remix) (4:05)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E789AD79CC82554B822B7240854FD97497DE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503931   (816063) от 21.10.2021
 
 Zivert - Vinyl #1 (2019) [AAC|~335 Kbps] <Pop>
@@ -703,6 +283,429 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A37E280E09CE8878AF1E561225675EF97EEA6BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117936   (814636) от 24.03.2017
+
+Гуляй, Вася!  (2016) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедный Митя влип по полной: случайно сделал предложение, а отец девушки, как будто только этого и ждал — тут же назначил дату свадьбы. Все бы ничего, да только Митя... уже женат! Он возвращается в свой город, чтобы экстренно развестись. Но Василиса (или просто Вася), с которой они давно не живут, — циничная стерва, и за развод придется побороться. Простейший способ (   Читать дальше...   )Производство: РоссияЖанр: KомедияРежиссер: Роман КаримовАктеры: Ефим Петрунин, Любовь Аксенова, Роман Курцын, Софья Райзман, Борис Дергачев, Сергей Аброскин, Светлана Степанковская, Вера Панфилова, Наталья Тетенова, Давид Петросян, Станислав ТляшевПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CF53E6C558100DF06717131F5A6CE0D31171E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117705   (814560) от 24.03.2017
+
+Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DLRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который предал ее.Производство: СШАЖанр: Ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Тобайас Мензис, Лара Пулвер, Чарльз Дэнс, Джеймс Фолкнер, Петер Андерссон, Клементайн Николсон, Брэдли Джеймс, Дэйзи Хэд, Оливер СтаркПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B341F7ECA1BC43F230CF16931099F839AA90E116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117688   (814495) от 24.03.2017
+
+Гуляй, Вася  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедный Митя влип по полной: случайно сделал предложение, а отец девушки, как будто только этого и ждал — тут же назначил дату свадьбы. Все бы ничего, да только Митя... уже женат! Он возвращается в свой город, чтобы экстренно развестись. Но Василиса (или просто Вася), с которой они давно не живут, — циничная стерва, и за развод придется побороться. Простейший способ (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Роман КаримовАктеры: Ефим Петрунин, Любовь Аксенова, Роман Курцын, Софья Райзман, Борис Дергачев, Сергей Аброскин, Светлана Степанковская, Вера Панфилова, Наталья Тетенова, Давид Петросян, Станислав ТляшевПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C21C5BCC08588DD4C42CD07423B17AA0733CD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883083   (814394) от 30.03.2015
+
+Спартак: Боги арены / Spartacus: Gods of the Arena (2011) BDRip [1080p] ATV (Сезон 2, 6 серий из 6)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам показывается время, когда Батиат взял у своего отца узды правления в свои руки. Он активно тренирует гладиаторов, стремясь принести славу своему дому. Со своей красивой и коварной женой Лукрецией он не остановится ни перед чем, пытаясь занести свое имя в историю.Батиат сосредотачивает свои усилия на плутоватом гладиаторе Ганнике, человеке, умение которого обращаться с мечом непревзойденно. Он всегда сражается так, как будто это его последний бой...Производство: США / © 2010 Starz Entertainment, LLC. All Rights Reserved.Жанр: боевик, драма, приключения, биография, историяРежиссер: Рик ДжейкобсонАктеры: Джон Ханна, Ману Беннетт, Питер Менса, Дастин Клер, Ник Тарабэй, Люси Лоулесс, Крэйг Уолш Райтсон, Лесли-Энн Брандт, Антонио Те Майохо, Стивен ЛоваттПеревод: Многоголосый закадровый, профессиональный, ДублированныйОзвучка / Автор перевода: (LostFilm), (Рен ТВ)Язык субтитров: Русский, АнглийскийПродолжительность: 00:59:47+00:55:11+00:53:46+00:52:48+01:08:59+00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4B0B63A7D71B703EB5755BCA527CE52DEE3200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504236   (814237) от 22.10.2021
+
+Milano 84 - Monochromatic (2021) [AAC|~336 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814237.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Milano 84, Vanessa Elly - Fanatic (Extended Version) (5:20)
+1.02. Milano 84, Eleonora Cardellini, Gianluca Divirgilio - Suspiria on TV (4:31)
+1.03. Milano 84, Killme Alice - Awesome (3:47)
+1.04. Milano 84, Laura Serra - Play (4:30)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A1234E9C6436FB928C662960EB003BA987D17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504064   (814231) от 22.10.2021
+
+VA - Electronic Lounge Collection, Vol. 4 (2021) [AAC|~332 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karen Gibson Roc - Through the Storm (Original Mix) (3:25)
+02. Patrick James - Afro Style (Original Mix) (9:05)
+03. Stuce The Sketch - Mawazo (Original Mix) (5:32)
+04. Mazelo Nostra - Oriental Lounge (Original Mix) (3:14)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013E045BA83232869EE46EA3BA9047E51D2C5508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504044   (814230) от 22.10.2021
+
+Nino Nardini & Roger Roger - Jungle Obsession (2000) [AAC|~367 Kbps] <Easy Listening, Exotica, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle Obsession (3:41)
+02. Murmuring Leaves (2:55)
+03. Mowgli (2:38)
+04. Bagheera (2:19)(   Читать дальше...   )Жанр: Easy Listening, Exotica, LoungeПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7D9908FA0C8F15E2CDA7016C49A55A3EDDD908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504121   (814224) от 22.10.2021
+
+VA - Helsinki Orange: Urban Chillout Music (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Colours of the World (5:21)
+02. Martin Hiska - You're My Thrill (6:21)
+03. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+04. Roberto Bronco, Tenor Turner - Atlantis (Original Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE87F9F4EE909C4A84C7AC0C69A07998E2F81A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504117   (814222) от 22.10.2021
+
+VA - Nice Orange: Urban Chillout Music (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Infinite Beauty (Original Mix) (4:54)
+02. Beamy - Azure Waters (Chillout Mix) (5:24)
+03. Matt Sour - Unknown Future (Original Mix) (3:50)
+04. The Soul Crusaders - When the Night Comes Down (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BE9D7C53A19B35898262E36B0F10D381329AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504116   (814221) от 22.10.2021
+
+VA - Marseille Orange: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
+02. Pep Lladó - Vespre (5:39)
+03. Gary B, Ken Fan - Volar (4:54)
+04. Steen Thottrup - Cala Contigo (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600C7F8C9404C2DE7246416673DAAF8B251B51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504115   (814195) от 22.10.2021
+
+VA - Canary Islands Orange: Urban Chillout Music (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B, Ken Fan - Volar (4:54)
+02. Jesús Mondéjar - Esencia De Mar (Original Mix) (4:30)
+03. Leo de la Rosa - Como Mi Cuerpo a Tu Piel (Original Mix) (5:00)
+04. Martin Liege - Chillin in La (Original Mix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6563770554760D66A5BC1ABE0CD016A4A9B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504118   (814191) от 22.10.2021
+
+VA - Saint-Tropez Orange: Urban Chillout Music (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Patiotic - Welcome to the Infinite Sense (2:21)
+03. Simon Le Grec - Here Was an Angel (Original Mix) (5:55)
+04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FFD09D2AA816427D67F3B9161558AB6FC2424B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504027   (814187) от 22.10.2021
+
+Kirill Karabits, Ernst‐Senff‐Chor, Staatskapelle Weimar - Prokofiev: Cantata for the 20th Anniversary of October Revolution, Op. 74 (2017) [AAC|~304 Kbps] <Classical>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Prelude. ''A spectre is haunting Europe, the spectre of Communism''. Moderato - Allegro (2:27)
+02. II The Philosophers. Andante Assai (2:19)
+03. III Interlaude. Allegro - Andante - Adagio (1:19)
+04. IV 'A Tight Little Band'. Allegretto (2:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE634C4B8DEFE5F9CF60B4F8C37063023F4EF956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504168   (814174) от 22.10.2021
+
+VA - Urban Orange Music 6: Downtempo Experience (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - This Old Rollercoaster (Original Mix) (5:10)
+02. Patiotic - First Leaves (2:39)
+03. Beamy - Moonglow (3:32)
+04. Martin Hiska - Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198FE6E62B889F8DD4F6AD99A29884B2D6C179AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504165   (814171) от 22.10.2021
+
+VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
+02. Beamy - Reflections (4:07)
+03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
+04. Simply Chill - Jennifer Heartbeat (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B348E54C62066D555176315A484753C138C507
 ```
 
 https://mybot314.ru/tekegram_catalog/

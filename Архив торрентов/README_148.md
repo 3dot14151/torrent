@@ -1,3 +1,29 @@
+###  Публикация: 1460154   (1022758) от 04.04.2021
+
+Allavsoft Video Downloader Converter 3.23.4.7762 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D48AAF235919B38963287A499C39CA31FE4825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460315   (1022757) от 04.04.2021
 
 Memento Database Pro 4.10.0 Mod by Balatan [Ru/En]
@@ -657,32 +683,6 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E4148CF22D9B525833AA821997D163FD832E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460501   (1022636) от 05.04.2021
-
-Valentina Studio Pro 11.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 31.03.2021Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B45CFC4801D9AF3A08216AAF3288558FCB863D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

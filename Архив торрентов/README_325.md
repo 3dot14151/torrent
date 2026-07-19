@@ -1,3 +1,30 @@
+###  Публикация: 608959   (992308) от 27.01.2013
+
+Nitrous Oxide - 3 Singles (2006, 2007, 2012) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiburon (original mix) (7:30)
+02. Tiburon (Sunny Lax remix) (6:25)Жанр: TranceПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609631   (992303) от 27.01.2013
 
 Wallpapers - Car wallpapers (27.01.13) [JPG]
@@ -647,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2006A5B044AD888C307102ACCB4E6C44E9FE59AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609708   (992098) от 27.01.2013
-
-Wallpapers - Computer Desktop Wallpapers Collection 597 [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересная подборка креативных обоев в высоком разрешении.Разрешение файлов: 1680X1050 - 8576X5696Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FEEB82A4B2EF0E2CD4F4852368C330FA0E504C
 ```
 
 https://mybot314.ru/tekegram_catalog/

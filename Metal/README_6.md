@@ -1,3 +1,90 @@
+###  Публикация: 1462755   (1021030) от 15.04.2021
+
+Infinite & Divine - Silver Lining (2021) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Alive (03:53)
+ 02. Infinite & Divine (03:54)
+ 03. Keep On Moving (04:11)
+ 04. Not Too Late (04:32)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D776D92370F4E6EB0F88AB701533AC72BBFE668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465232   (1019326) от 25.04.2021
+
+Eleine (Madeleine Liljestam) - 4 Albums (2015-2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemies [00:05:22]
+02. Dancing in Hell [00:05:07]
+03. Ava of Death [00:04:06]
+04. Crawl from the Ashes [00:04:02](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 4 CD, 02:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17B4B35449CA72E4B1BA091D2151EE9A3E5DA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465592   (1019169) от 26.04.2021
+
+Bad Absalom - Bad Absalom (2021) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Captain Caveman's Unhealthy Habit [00:02:31]
+02 - Greys [00:03:21]
+03 - Don't Talk To Strangers [00:04:18]
+04 - Bullet [00:03:37](   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3358F2F206015EFB3F2E8B0D80620381C0752759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465821   (1018992) от 27.04.2021
 
 Profecia - Renacer (2021) [MP3|320 Kbps] <Heavy Meatal, Power Metal>
@@ -658,93 +745,6 @@ Germano Dieni - Per il mio nome (2021) [MP3|320 Kbps] <Power, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF4187AB70F98528F3569B4A6DE95E0A0571A8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471927   (1014857) от 22.05.2021
-
-Brethren Hogg - Brethren Hogg (2021) [MP3|320 Kbps] <Southern Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Egypt [00:03:15]
-02 - All Fours [00:05:06]
-03 - Greed [00:04:46]
-04 - Put To Waste [00:02:00](   Читать дальше...   )Жанр: Southern Metal, Doom MetalПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019F2140AF8278FF244B46BB61F988C219E01FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471882   (1014840) от 22.05.2021
-
-Black Magick SS - Rainbow Nights (2020) [MP3|320 Kbps] <Psychedelic Rock, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Endless Hallucinations [00:06:00]
-02 - Rainbow Nights [00:04:55]
-03 - Get Out [00:05:01]
-04 - Kali [00:05:17](   Читать дальше...   )Жанр: Psychedelic Rock, Black MetalПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BDB1E10B1FB7EA3B4B2442A2406D3214C21029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471884   (1014838) от 22.05.2021
-
-Borgne - Temps morts (2021) [MP3|320 Kbps] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Cut the Flesh and Feel Nothing but Stillness [00:05:50]
-02 - The Swords of the Headless Angels [00:09:31]
-03 - L’Écho de mon Mal [00:08:11]
-04 - Near the Bottomless Precipice I Stand [00:08:01](   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F702942CDCDBBE21B7BFD9C0E70959F70AE654
 ```
 
 https://mybot314.ru/tekegram_catalog/

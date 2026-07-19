@@ -1,32 +1,3 @@
-###  Публикация: 1577943   (350054) от 21.09.2022
-
-E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	E-Type–	True Believer	3:40
-02. 	E-Type–	The Tide	3:57
-03.	E-Type–	Eurofighter	3:47
-04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259025   (332815) от 01.11.2018
 
 VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
@@ -745,6 +716,35 @@ VA - Поехали (Мелодии и ритмы для пространств 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73EB7A887C56D21E36C64932976CBEE75CEA2EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587720   (192333) от 01.11.2022
+
+VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi D'Agostino - L'amour Toujour (Original Mix)
+02. Robin S. - Show Me Love (StoneBridge Radio Edit)
+03. Fragma - Toca Me (Radio Cut)
+04. Mauro Picotto - Iguana (On Air Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:56:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
 ```
 
 https://mybot314.ru/tekegram_catalog/

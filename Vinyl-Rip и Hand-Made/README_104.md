@@ -1,25 +1,25 @@
-###  Публикация: 1679598   (10175) от 27.07.2025
+###  Публикация: 1818659   (2144) от 18.09.2025
 
-Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Э́лис Ку́пер (англ. Alice Cooper, при рождении Ви́нсент Дэ́ймон Фурнье́ (или Фёрни́эр — англ. Vincent Damon Furnier; род. 4 февраля 1948, Детройт) — американский рок-певец и автор песен. Купер был одним из первых шок-рокеров и стал, как отмечает All Music Guide, королём этого жанра, своей новаторской деятельностью радикально расширив (   Читать дальше...   )2000 - Brutal Planet
-2001 - Dragontown
-2003 - The Eyes Of Alice Cooper
-2005 - Dirty DiamondsЖанр: Hard RockПродолжительность: 09:23:02
+Fear My Thoughts - немецкая метал-группа из Райнфельдена, существовавшая с 1998 по 2010 год.2001 - 23
+2002 - Vitriol
+2004 - The Great Collapse
+2005 - Hell Sweet HellЖанр: Hardcore/Metalcore, Melodic Death MetalПродолжительность: 04:32:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
+magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808843   (10012) от 29.07.2025
+###  Публикация: 1818670   (2141) от 18.09.2025
 
-Агата Кристи - Полное Собрание Сочинений. Том I, Том II, Том III (2013-2015) [DSD 128|tracks|Vinyl-Rip] <Rock>
+Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country, Polka>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Агата Кристи» - советская и российская рок-группа, одна из наиболее популярных в стране в середине и во второй половине 1990-х годов. Основана в 1985 году в Свердловске Вадимом Самойловым, Александром Козловым и Петром Маем под названием ВИА «РТФ УПИ», официально же история группы отсчитывается с концерта 20 февраля 1988 года. Во время записи альбома «Второй фронт» (   Читать дальше...   )Агата Кристи - Полное Собрание Сочинений. 2013 Том I
-Агата Кристи - Полное Собрание Сочинений. 2015 Том II
-Агата Кристи - Полное Собрание Сочинений. 2015 Том IIIЖанр: RockПродолжительность: 00:46:22
+A1 Stesti Na Rozcesti
+A2 Hej, Panimamo
+A3 Skrivanek Zpival
+A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk, Country, PolkaПродолжительность: 00:32:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
+magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808739   (10007) от 29.07.2025
+###  Публикация: 1578274   (2110) от 19.09.2025
 
-Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Electronic, synthpop, new wave>
+Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Yello (Йеллo) — швейцарская электронная группа, образованная в 1978 году в Цюрихе. В те времена в состав группы входили композитор-аранжировщик Бoрис Бланк (Boris Blank, родился 15 января 1952) (клавишные, сэмплинг, ресэмплинг, перкуссия, бэк-вокал,) и Карлос Перон, покинувший группу в 1983. В 1979 в группу в качестве вокалиста и автора песен был приглашен Дитер (   Читать дальше...   )1983 You Gotta Say Yes To Another Excess (LP, DSD, Germany, Vertigo - 812 166-1Q)
-1985 Stella (LP, DSD, Germany, Vertigo # 822 820-1Q)
-1987 One Second (LP, DSD, Germany, Mercury # 830 956-1)
-1988 Flag (LP, DSD, USA, Mercury # 836 426-1)Жанр: Electronic, synthpop, new waveПродолжительность: 08:56:58
+Paradise Lost  — метал-группа из Великобритании, основанная в 1988 году. Наряду с Anathema и My Dying Bride считаются основателями стиля дэт-дум и готик-метал. Paradise Lost также повлияли на музыкальное становление таких групп, как Katatonia и The Gathering.1990 - Lost Paradise
+1991 - Gothic
+1993 - Icon
+1993 - Shades Of GodЖанр: Doom/Death Metal, Gothic MetalПродолжительность: 18:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
+magnet:?xt=urn:btih:0BA298A1C235004C788CBF26E74AC348E715FC56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809185   (9951) от 29.07.2025
+###  Публикация: 1749442   (2007) от 19.09.2025
 
-VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth-pop, Kayokyoku>
+I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-hardcore, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 高橋洋子 - 残酷な天使のテーゼ / Yoko Takahashi - Cruel Angel's Thesis
-A2 高橋洋子 - 無限抱擁 / Yoko Takahashi - Infinite Embrace
-A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать дальше...   )Жанр: J-pop, Synth-pop, KayokyokuПродолжительность: 01:19:11
+I Prevail — американская метал-группа, созданная в Саутфилд, штат Мичиган, в 2014 году.2014 - Heart Vs. Mind (EP)
+2016 - Lifelines
+2019 - Trauma
+2022 - True Power(   Читать дальше...   )Жанр: Post-hardcore, MetalcoreПродолжительность: 03:30:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
+magnet:?xt=urn:btih:6DB6C047AEBE1A3FEA74794078084A9B767B0ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809415   (9859) от 30.07.2025
+###  Публикация: 1747622   (1995) от 19.09.2025
 
-Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
+Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Крис Ри - Кристофер Энтон Риа (Christopher Anton Rea). Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, а также с последующим альбомом «Auberge» (1991). Свой первый контракт в качестве сольного исполнителя Крис Ри подписал (   Читать дальше...   )1979 - Deltics(UK, MAGL 5028 LP)
-1980 - Tennis (UK, MAGL 5032 LP)
-1981 - Chris Rea (Germany, 713016 LP)
-1983 - Water Sign (Germany, 823 077-1 LP)Жанр: RockПродолжительность: 00:58:38
+Novembers Doom - американская дум/дэт-метал группа из Чикаго, Иллинойс.1995 - Amid It's Hallowed Mirth
+1999 - Of Sculptured Ivy And Stony Flowers
+2000 - The Knowing
+2002 - To Welcome The FadeЖанр: Melodic Doom/Death MetalПродолжительность: 11:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
+magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +143,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809512   (9777) от 31.07.2025
+###  Публикация: 1783456   (1988) от 19.09.2025
 
-Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
+Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chilly - западногерманская диско-группа, получившая наибольшую популярность в конце 70-х — начале 80-х годов. В 1978 году молодой 32-летний продюсер Бернт Мёрле (Bernt Mohrle) при участии аранжировщиков Кристиана Колоновица и Штэфана Клинкхаммера, известных по работе с такими звёздами как Boney M., Eruption, Supermax, Silver Convention и другими, приступил к созданию (   Читать дальше...   )1978 - For Your Love (Germany, Polydor - 2417 122)
-1979 - Come To L.A. (Germany, Polydor - 2417 124)
-1980 - Showbiz (Germany, Polydor - 2417 137)
-1982 - Secret Lies (Germany, Polydor - 2372 086)Жанр: Disco, soul, funkПродолжительность: 00:40:55
+Ravager - метал-группа из Германии, г. Вальсроде, Нижняя Саксония2017 - Eradicate... Annihilate... Exterminate...
+2019 - Thrashletics
+2021 - The Third AttackЖанр: Thrash MetalПродолжительность: 02:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
+magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +171,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809657   (9767) от 31.07.2025
+###  Публикация: 1818885   (1950) от 19.09.2025
 
-Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
+Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Boney M. (Бони Эм.) — диско-группа, созданная в 1975 году в ФРГ. Франк Фариан, экспериментируя с новым стилем диско, записывает необычную композицию Baby Do You Wanna Bump? в конце 1974 и публикует её под псевдонимом Boney M., по имени героя популярного тогда австралийского детективного сериала. В композиции он использовал исключительно свой голос, записав в многоканальном (   Читать дальше...   )1976 - Take The Heat Off Me (Hansa International - 27 573 OT, Germany)
-1977 - Love For Sale (Carrere - 67.193, France)
-1978 - Nightflight To Venus (Hansa International - 26 026 OT, Germany)
-1979 - Oceans Of Fantasy (Hansa International - 200 888-320 , Germany)Жанр: Disco, soul, funkПродолжительность: 00:48:50
+Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
+2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
+magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,29 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810108   (9547) от 02.08.2025
+###  Публикация: 1819303   (1586) от 21.09.2025
 
-Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disco, funk, reggae, electronic, rock>
+Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Supermax» — музыкальный проект австрийского композитора Иогана Курта Хауэнштайна (1949—2011), созданный в сотрудничестве с продюсером Петером Хауке на студии «Europasounds Studio» (Франкфурт-на-Майне, ФРГ) в 1976 году. Пик популярности проекта пришелся на период 1977-83 гг., период активного студийного развития на 1977-93 гг. Недостаточный объём достоверной информации (   Читать дальше...   )1977 - Don't Stop The Music (Germany, Atlantic – ATL 50 325)
-1977 - World Of Today (Germany, Atlantic – ATL 50 423)
-1979 - Fly With Me (Germany, Elektra – ELK 52 128)
-1980 - Types Of Skin (Germany, Elektra – ELK 52 253)Жанр: Disco, funk, reggae, electronic, rockПродолжительность: 00:41:29
-Источник/релизер:
+A1 Sailor (Your Home Is The Sea)
+A2 La Luna (The Moon)
+A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
+A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
+magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810155   (9424) от 03.08.2025
+###  Публикация: 1750516   (1469) от 22.09.2025
 
-Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft rock, pop rock, jazz, new wave>
+Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стинг (англ. Sting; настоящее имя — Гордон Мэттью Томас Самнер (англ. Gordon Matthew Thomas Sumner); родился 2 октября 1951, Уоллсенд (англ.)русск.) — британский музыкант-мультиинструменталист, певец и автор песен, актёр, общественный деятель и филантроп. Лидер группы The Police в 1976—1984 годах. С 1984 года выступает сольно. На протяжении своей музыкальной карьеры (   Читать дальше...   )1985 - The Dream Of The Blue Turtles (Germany, A&M Records – 393 750-1)
-1987 - ...Nothing Like The Sun (Germany, A&M Records – 393912-1)
-1991 - The Soul Cages (UK, A&M Records – 396 405-1)
-1993 - Ten Summoner's Tales (UK, A&M Records – 540 075-1)Жанр: Soft rock, pop rock, jazz, new waveПродолжительность: 00:48:48
+Imminence — шведская металкор-группа из Мальмё и Треллеборга, основанная в 2009 году.2013 - Return to Helios (EP)
+2014 - I
+2017 - This Is Goodbye
+2019 - Turn the Light OnЖанр: MetalcoreПродолжительность: 07:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
+magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810505   (9276) от 05.08.2025
+###  Публикация: 1819440   (1412) от 22.09.2025
 
-Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-Rip] < Progressive rock, psychedelic rock, alternative rock, jazz rock>
+Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pink Floyd — одна из самых великих групп в истории рок-музыки, знаменитая своими философскими текстами, акустическими экспериментами, инновациями в оформлении альбомов и грандиозными шоу. Является одной из влиятельных и наиболее успешных групп в рок-музыке — 74,5 млн проданных альбомов в США (седьмое место), в мире же было продано около 300 млн (не считая сольных (   Читать дальше...   )1967 - The Piper At The Gates Of Dawn, PFRLP1, Germany, 2016,
-1968 - A Saucerful Of Secrets, PFRLP2, Germany, 2016,
-1969 - Soundtrack From The Film "More", PFRLP3,
-1969 - Ummagumma, 2LP, PFRLP4,Жанр: Progressive rock, psychedelic rock, alternative rock, jazz rockПродолжительность: 01:00:21
+Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
+2017 - Self Supremacy
+2022 - Malicious Inten
+2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
+magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810345   (9258) от 05.08.2025
+###  Публикация: 1819434   (1410) от 22.09.2025
 
-Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1983) [DSD 128|tracks|Vinyl-Rip] <Jazz, Vocal, Ballad, Swing>
+The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фрэнк Синатра (Frank Sinatra) - легендарный американский певец, актёр и одна из наиболее выдающихся фигур в музыкальной индустрии 20 века. Родился 12 декабря 1915 года в Хобокене, Нью-Джерси, и ушёл из жизни 14 мая 1998 года в Лос-Анджелесе, Калифорния. Синатра стал известным благодаря своему потрясающему голосу, уникальному стилю исполнения и широкому музыкальному (   Читать дальше...   )LP1, Swing Easy/ Songs for Young Lovers, MFSL 1-130, (mono)
-LP2, In The Wee Small Hours, MFSL 1-131, (mono)
-LP3, Songs For Swingin' Lovers, MFSL 1-146, (mono)
-LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродолжительность: 00:33:00
+The Crown - метал-группа из Тролльхеттана, Швеция, действует с 1990 года.1995 - The Burning
+1997 - Eternal Death
+1998 - Hell Is Here
+2000 - Deathrace KingЖанр: Melodic Death/Thrash MetalПродолжительность: 11:54:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
+magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741971   (8892) от 08.08.2025
+###  Публикация: 1819583   (1284) от 23.09.2025
 
-Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chaos Magic - хэви-метал проект, созданный Катериной Никс и Тимо Толкки.2015 - Chaos Magic
-2019 - Furyborn
-2020 - Desert Rose (EP)
-2022 - EmergeЖанр: Symphonic MetalПродолжительность: 03:03:05
+A1 Superstar
+A2 Fool If You Think It's Over
+A3 Givin' It Up For Your Love
+A4 Sunshine After The Rain(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
+magnet:?xt=urn:btih:EC71F4018CF52BD899E1A139848C763DECBB3B0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515607   (8865) от 09.08.2025
+###  Публикация: 1819751   (1123) от 24.09.2025
 
-Evanescence - Дискография (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Nu Metal, Symphonic Metal>
+Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Evanescence («исчезание», «мимолётность») — американская рок-группа, основанная в г. Литл-Рок, штат Арканзас, в 1995 году.1998/1999 - Evanescence/Sound Asleep (EP)
-2000 - Origin
-2003 - Fallen
-2006 - The Open DoorЖанр: Gothic Rock, Nu Metal, Symphonic MetalПродолжительность: 11:25:51
+Thy Art Is Murder — австралийская дэткор-группа, образованная в Сиднее в 2006 году.2008 - Infinite Death (EP)
+2010 - The Adversary
+2012 - Hate
+2015 - Holy WarЖанр: DeathcoreПродолжительность: 04:40:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
+magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +372,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643464   (8784) от 09.08.2025
+###  Публикация: 1819744   (1120) от 24.09.2025
 
-Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
+VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
-2008 - The Lost Art of Time Travel
-2011 - Invisible Places
-2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 06:15:21
+Встречайте яркого нового таланта - VEXED. Мощный вокальный натиск несокрушимой вокалистки Меган Таргетт подкреплён безупречной техникой участников группы. Отточенные риффы в стиле звёзд жанра Meshuggah и таких исполнителей, как Periphery и Vildhjarta.2021 - Culling Culture
+2023 - Negative EnergyЖанр: Metalcore, DeathcoreПродолжительность: 01:30:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
+magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,29 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518693   (8707) от 10.08.2025
+###  Публикация: 1646462   (864) от 26.09.2025
 
-Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Industrial Metal>
+Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Motograter — американская метал-группа, образована в 1995 году Брюсом Батлером (известным как Grater), в Санта Барбаре, Калифорния.
-Основное отличие Motograter от других групп в том, что они используют так называемый «мотогрэйтер» — инструмент собственного производства, составленный из промышленного кабеля и частей электрогитары, выдающий очень глубокие басовые звуки. (   Читать дальше...   )2000 - Indy
-2003 - Motograter
-2009 - Pre-Release (EP)
-2017 - DesolationЖанр: Nu Metal, Industrial MetalПродолжительность: 02:05:14
+Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
+1986 - Reign Of Fear
+1987 - Execution Guaranteed
+1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
+magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626818   (8517) от 30.09.2025
+###  Публикация: 1633139   (858) от 26.09.2025
 
-Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Shylina
-A2 Back Stage
-A3 Midnight Blues
-A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
+Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
+1989 - Heresy
+2000 - Collision Course
+2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
+magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811675   (8441) от 11.08.2025
+###  Публикация: 1820085   (763) от 26.09.2025
 
-Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Deathcore, Djent>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Leah - (Leah McHenry) Лиа МакГенри, известная под псевдонимом Лиа — канадская исполнительница хэви-метала. Её иногда называют "Enya of heavy metal", поскольку она исполняет музыку, сочетающую симфонический и кельтский метал с фолком и этнической музыкой.2012 - Of Earth & Angels
-2013 - Otherworld (EP)
-2015 - Kings & Queens
-2018 - The Quest(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 06:40:07
+Vildhjarta — шведская метал-группа из Худиксвалля, образованная в 2005 году. Группа играет в стиле джент, вдохновлённом Meshuggah, используя сильно пониженные гитары, минорные гармонические аккорды, резкие стаккато-риффы и наслоения реверберирующих гитар и атмосферных эффектов.2009 - Omnislash (EP)
+2011 - Masstaden
+2013 - Thousands of Evils (EP)
+2021 - Masstaden Under Vatten(   Читать дальше...   )Жанр: Progressive Metal, Deathcore, DjentПродолжительность: 03:58:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
+magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +486,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811592   (8383) от 11.08.2025
+###  Публикация: 1638474   (615) от 27.09.2025
 
-My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Doom, Death Metal, Gothic, Doom Metal>
+Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Kneel Till Doomsday
-A2 - The Poorest Waltz
-B1 - A Tapestry Scorned
-B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Doom MetalПродолжительность: 01:03:39
+Revocation — американская метал-группа из Бостона, штат Массачусетс. Была основана в 2000 году как Cryptic Warning. В 2006 сменила название на Revocation.2008 - Empire Of The Obscene
+2009 - Existence Is Futile
+2011 - Chaos Of Forms
+2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 08:50:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
+magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +515,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811758   (8350) от 11.08.2025
+###  Публикация: 1686726   (591) от 27.09.2025
 
-Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
+Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am The Black Wizards (06:26)
-02. Wrath Of The Tyrant (04:15)
-03. Night Of The Graveless Souls (03:15)
-04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
+Mors Principium Est - мелодик-дэт-метал группа с участниками из Финляндии и Великобритании. Основана в 1999 году.2003 - Inhumanity
+2005 - The Unborn
+2007 - Liberation = Termination
+2012 - ...And Death Said LiveЖанр: Melodic Death MetalПродолжительность: 07:30:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
+magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +544,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811891   (8248) от 12.08.2025
+###  Публикация: 1571320   (155) от 29.09.2025
 
-Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
+Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dragony — пауэр-метал группа из Вены, Австрия, основана в 2010 году.2012 - Legends
-2015 - Shadowplay
-2017 - Lords Of The Hunt
-2018 - Masters Of The MultiverseЖанр: Melodic/Symphonic Power MetalПродолжительность: 05:13:35
+Manowar — американская хэви-метал-группа из Оберна, штат Нью-Йорк, основана в 1980 году.
+Группа известна воинской тематикой и эстетикой своих песен, приверженностью «истинному металу» (true metal) и частым обращением к скандинавской мифологии.1982 - Battle Hymns
+1983 - Into Glory Ride
+1984 - Hail To England
+1984 - Sign Of The Hammer(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 13:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
+magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811904   (8231) от 12.08.2025
+###  Публикация: 1548439   (140) от 29.09.2025
 
-DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DragonForce — британская пауэр-метал-группа из Лондона, образованная в 1999 году. Они известны своими длинными и быстрыми гитарными соло, текстами в стиле фэнтези и звучанием, вдохновлённым ретро-видеоиграми. Сами участники группы называют свою музыку «экстремальным пауэр-металом».2003 - Valley Of The Damned
-2004 - Sonic Firestorm
-2006 - Inhuman Rampage
-2008 - Ultra Beatdown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 11:44:56
+Motörhead — британская рок-группа, образованная в июне 1975 года басистом, певцом и автором песен Иэном Фрейзером Килмистером (1945–2015). Группу часто считают одним из первых участников NWOBHM, которая вдохнула новую жизнь в хэви-метал в конце 1970-х — начале 1980-х годов.1977 - Motörhead
+1979_1 - Overkill
+1979_2 - Bomber
+1979_3 - On ParoleЖанр: Heavy MetalПродолжительность: 17:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
+magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,28 +603,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812142   (8106) от 13.08.2025
+###  Публикация: 1776093   (102) от 29.09.2025
 
-VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House, Italodance>
+Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Technical Death Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-01. Pearl feat.Zaradika - Celebrate
-02. Maxx - Power Of Love
-03. Odyssey - Winter Night(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:48:39
+Between the Buried and Me - прогрессив-метал группа из города Роли, штат Северная Каролина, США; сформирована в 2000 году.2002 - Between The Buried And Me
+2003 - The Silent Circus
+2005 - Alaska
+2006 - The Anatomy OfЖанр: Progressive Metal, Technical Death Metal, MetalcoreПродолжительность: 16:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
+magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,27 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812118   (8044) от 13.08.2025
+###  Публикация: 1820850   (18) от 29.09.2025
 
-Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Industrial Metal>
+Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - Studio Albums (10 releases) (1989-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, H ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rave The Reqviem - индастриал-метал группа из Швеции, образована в 2011 году.2014 - Rave The Reqviem
-2016 - The Gospel of Nil
-2018 - FVNERALЖанр: Electronic, Industrial MetalПродолжительность: 03:31:20
+Дарио Молло — итальянский гитарист и музыкальный продюсер, наиболее известный, тремя альбомами "The Cage", которые он записал с бывшим вокалистом Black Sabbath Тони Мартином, а также работой в группе "Voodoo Hill" с бывшим вокалистом и басистом Deep Purple Гленном Хьюзом.Crossbones
+EZoo
+The Cage
+Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность: 09:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6555E68979BBAF3A9ECAC0CBBA86D5A6F560EE7
+magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,26 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812139   (7999) от 13.08.2025
+###  Публикация: 1820836   (12) от 29.09.2025
 
-A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Hard Rock>
+Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A-Z - проект Рэя Алдера и Марка Зондера, участников группы Fates Warning2022 - A-Z
-2025 - A2Z²Жанр: Progressive Metal, Hard RockПродолжительность: 01:39:39
+Arabs In Aspic - норвежская группа, играющая прогрессивный рок, была основана в Тронхейме в 1997 году. Музыкальные корни коллектива уходят в золотую эру рока. Их звучание — это смесь громких, тяжёлых гитар и барабанов, двенадцатиструнной акустики, фанкового баса и перкуссии, пронзительных органов Hammond, мягких Fender Rhodes, меллотронов и синтезаторов 1970-х.2003 - Progeria (EP)
+2004 - Far out in Aradabia
+2011 - Strange Frame Of Mind
+2013 - Pictures in a DreamЖанр: Progressive RockПродолжительность: 05:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D35C4026A560D39D6FAB5A289F0452106F74B6C
+magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,57 +690,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812333   (7836) от 14.08.2025
+###  Публикация: 1820868   (4) от 29.09.2025
 
-Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
-2012 - Right In The Guts
-2016 - The Devil Rides Out
-2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812528   (7636) от 15.08.2025
-
-Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Redemption — американская прогрессив-метал-группа, созданная в 2001 году в городе Лос-Анджелес2003 - Redemption
-2005 - The Fullness Of Time
-2007 - The Origins Of Ruin
-2009 - Snowfall on Judgement DayЖанр: Progressive MetalПродолжительность: 10:22:40
+Siege Of Power - метал-группа с участниками из США и Нидерландов, основана в 2017 году.2018 - Warning Blast
+2023 - This Is TomorrowЖанр: Death/Thrash MetalПродолжительность: 01:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40C991FE5192E0444494B3D78ECF0AC1BFA29E65
+magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
 https://mybot314.ru/tekegram_catalog/

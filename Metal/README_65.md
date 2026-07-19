@@ -1,3 +1,90 @@
+###  Публикация: 964289   (482112) от 21.08.2017
+
+Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482112.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:44] 01. Manifesto
+[05:56] 02. Stomp The Haunted Crown
+[05:11] 03. Boundless
+[07:19] 04. The Masked Ball(   Читать дальше...   )Жанр: Experimental Progressive Metal, InstrumentalПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15EC8DE8B99DB4F5D226079D42D909A649DBD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938356   (481603) от 18.09.2015
+
+Annihilator - Suicide Society (2015) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadlock
+02. Set The World On Fire
+03. Knight Jumps Queen
+04. Ambush(   Читать дальше...   )Жанр: Thrash Metal |Продолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBDE5F23B89A10738F6C7C52B1DBA08F5F0A4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405845   (481497) от 31.08.2020
+
+Triumvir - Triumvir (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imperium Et Gloria (02:00)
+ 02. Sons of the Wolf (03:03)
+ 03. The History of Rome (03:42)
+ 04. Cartago Delenda Est (04:59)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490260860DEB7F23DEAC568B19102CE670EB83F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382482   (480308) от 07.09.2011
 
 W.A.S.P. - 13 Albums + 7 Live + 4 Compilations + 20 Singles + Demos + Projects Ex-W.A.S.P (1976-2010) [MP3|320 kbps]<Heavy Metal>
@@ -652,93 +739,6 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DB5BCBDB0F6352DF4F1736007B22A3D63D37CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407208   (468735) от 06.09.2020
-
-Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal Death, Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abandoned Homes (2:14)
-2. Creation Weeps (3:12)
-3. Subsequent Abuse (3:04)
-4. Dragged Through the Mud (3:32)(   Читать дальше...   )Жанр: Brutal Death, Slamming Brutal Death MetalПродолжительность: 2 CD: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653D111307D1B55E9BBAD4400767669DEF79D1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940812   (467190) от 25.09.2015
-
-Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You
-2. Momentary
-3. The Departure
-4. March Incomplete(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFF6D673566BC8FB86A05CB5390E74BF559F900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940755   (467036) от 25.09.2015
-
-Летаргия - Эпоха Зла (2015) [MP3|320 кб/с]<Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467036.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Эпоха Зла
-3. Непокорность
-4. Привкус Мести(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B177D7D906475214D3CA4DE8DB45A6825BC28FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

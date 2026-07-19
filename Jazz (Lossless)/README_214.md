@@ -1,119 +1,3 @@
-###  Публикация: 1419464   (340125) от 28.10.2020
-
-Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capricorn Moon [22:30]
-02. Mephistopheles [18:16]
-03. Juba Lee [12:36]
-04. Iditus [12:22]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0936A8D005C307971C5E090379D4E9396C5C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419349   (339872) от 28.10.2020
-
-Karen Souza - Velvet Vault (2017) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fall In Love Too Easily
-02. Don't Let The Sun Go Down On Me
-03. I'm Beginning To See The Light
-04. Valerie(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2DA8F8F5C029A1FC8E74246568BA518B2C7ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330587   (339112) от 11.10.2019
-
-Jimmy Rushing - Four Classic Albums Plus (1952 - 1960) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339112.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Akansas Blues [2:44]
-02. Down Hearted Blues [3:29]
-03. How Come You Do Me Like You Do [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69946DE28E586BA505D15C3BA54495E66289AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258662   (339072) от 15.11.2010
-
-Nicki Parrott - Black Coffee (2010) [APE|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Eyes
-02. Black Coffee
-03. Why Don't You Do Right
-04. Alright Okay You Win(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074435   (339032) от 19.11.2016
 
 Larry Bartley & Just Us! - Beauty In The Hideous (2014) [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -759,6 +643,122 @@ Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65EA4E232248E9D8181CA389DCA2B96507FA1B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955366   (335416) от 10.11.2015
+
+Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue N' Boogie [04:25]
+ 02.Nature Boy [04:27]
+ 03.Melancholy Baby [05:11]
+ 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331000   (335116) от 13.10.2019
+
+Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335116.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Russian Lullaby [9:23]
+02. Jeepers Creepers [12:07]
+03. I Cover The Waterfront [8:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDADCE16E88AAE7847909D9423929594F994FF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331089   (334990) от 13.10.2019
+
+Soul Ballet - 2019 (2009) [FLAC|Lossless|image + .cue] <Trip Hop, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom! It's On!
+02. Sly Girl
+03. 2019
+04. She Is Infinite(   Читать дальше...   )Жанр: Trip Hop, Smooth JazzПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD8F417A528F9FD7B3F34CA7DE6D77159F99AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257494   (334713) от 31.10.2018
+
+Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nevertheless, She Persisted [6:15]
+02. Little Did She Know [4:10]
+03. She Needed A Hero, So That's What She Became [6:07]
+04. Females Are Strong As Hell [3:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1355969   (980885) от 28.01.2020
+
+Avira Phantom VPN Pro 2.29.2.24183 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CA5DBF02B5E75E9C2B42802FC91A5863FE285C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613696   (980884) от 05.02.2013
 
 Джанго / Django (1966) [H.264] BDRip
@@ -696,33 +722,6 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136019BE6F944648199F193CCADF8C6902338CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973016   (980710) от 07.01.2016
-
-Audio - Now The Future / Drop It Human (2015) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now The Future
-02. Drop It HumanЖанр: Drum & BassПродолжительность: 00:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECFA6CC32D1D81AAB2F82959F719DADBAB8788B
 ```
 
 https://mybot314.ru/tekegram_catalog/

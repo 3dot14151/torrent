@@ -1,119 +1,3 @@
-###  Публикация: 1670574   (171961) от 21.10.2023
-
-Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Time Goes By [5:04]
-02. Stardust [5:36]
-03. I Didn't Know What Time It Was [4:14]
-04. The Very Thought of You [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670558   (171958) от 21.10.2023
-
-Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song One (Seven-Four) [9:33]
-02. Song Two (Ballad) [5:38]
-03. Song Three (Nine-Eight Blues) [7:52]
-04. Song Four (Waltz In Four-Four) [7:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670576   (171956) от 21.10.2023
-
-Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Come Back to Me [3:28]
-02. I'm Getting Sentimental Over You [5:05]
-03. Like Someone In Love [5:43]
-04. My Funny Valentine [3:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719983F099B4164A0C46035F3891DC8202AF65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670572   (171955) от 21.10.2023
-
-Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Song for You [3:06]
-02. Undecided [4:17]
-03. What Are You Doing the Rest of Your Life? [6:15]
-04. Exactly Like You [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22C526217F91B793BBEBC74ED9C4E5764054BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670569   (171954) от 21.10.2023
 
 Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -745,6 +629,122 @@ Mike Richmond - Blue In Green (1992) SteepleChase [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D803F4CCEFE9E6AEB7D966F8229A090988E9103E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671294   (171429) от 24.10.2023
+
+VA - 30 Midnight Love Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Kiss & Dance (4:44)
+02. eJazz Artistry - I Can't Stop Loving You (4:22)
+03. Love Suggestions - Clarity (4:36)
+04. Chillaxonic - Serenity (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950C8C2CEF30C7E7304E3EDAF464AC31B98D4E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671296   (171418) от 24.10.2023
+
+VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
+02. Kool&Klean - I Can Only Imagine (4:55)
+03. Chillaxonic - Oasis (4:58)
+04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 02:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671377   (171407) от 24.10.2023
+
+Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greatest Part of You
+02. Montecarlo
+03. My Love Is True
+04. I'm Letting Go (Tenderly)(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91E12C3BFE2C0DADCF8F94795CD9C07622C8920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671561   (171271) от 25.10.2023
+
+Sonny Clark - Quintets (1957, 1958) 2000, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Flush [9:03]
+02. Lover [7:02]
+03. Minor Meeting [6:53]
+04. Eastern Incident [8:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB860253F746F1F398370EC8897CAC2D337599C
 ```
 
 https://mybot314.ru/tekegram_catalog/

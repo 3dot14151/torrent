@@ -1,3 +1,120 @@
+###  Публикация: 1412815   (409858) от 03.10.2020
+
+PVRIS - Use Me (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gimme a Minute 3:29
+2. Dead Weight 3:27
+3. Stay Gold 4:01
+4. Good to Be Alive 3:17(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B082A3B0D5ABCDCDC7A1FD79FD6BBBDEAD79EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413266   (409848) от 03.10.2020
+
+Blue Stahli - Quartz (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO.S3M [00:01:04]
+02. Crimewave [00:02:42]
+03. Eat the Light [00:04:48]
+04. Anchor [00:04:15](   Читать дальше...   )Жанр: Alternative Metal, Industrial, Electronic RockПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44C0A6372C321EB151BB71C1F3DDC97EC471EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559434   (409682) от 12.10.2012
+
+Cocteau Twins - 9 альбомов (1982 - 1996) [FLAC|Lossless]<Post-Punk, Ethereal, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocteau Twins - музыкальный коллектив из Шотландии. Группа была создана в 1982-м году, а название позаимствовано из одноименной песни Simple Minds.
+В этом же году на лейбле 4AD вышел дебютный альбом, который попал в британские чарты независимой музыки и привлек внимание слушателей к творчеству Cocteau Twins.1982 - Garlands
+1983 - Head Over Heels & Sunburst And Snowblind
+1984 - Treasure
+1986 - The Moon And The Melodies(   Читать дальше...   )Жанр: Post-Punk, Ethereal, Dream PopПродолжительность: 06:18:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399336   (409591) от 12.10.2012
+
+The Birthday Massacre - 2 альбома (2011, 2012) [FLAC|Lossless]<Gothic, Synth-Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Tonight (03:29)
+02. Down (03:47)
+03. Play With Fire (03:47)
+04. Need (03:31)(   Читать дальше...   )Жанр: Industrial, Gothic, Synth-Rock |Продолжительность: 01:07:41 |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252098   (409210) от 05.10.2018
 
 Leech - For Better or for Worse (2018) [FLAC|Lossless|tracks + .cue] <Post Rock>
@@ -627,122 +744,6 @@ Alchemists - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CBFF5C16068C8E2866B193B687221B2A150405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574738   (381659) от 07.09.2022
-
-Mirror To The Moon - Fluorescent Glow (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Boxes (00:04:20)
-02 - Wit's End (00:04:29)
-03 - Son of Ammitai (00:04:07)
-04 - Astray (00:05:13)(   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CF9C36BFBB22CED24D8C44D7678D0CDF688F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574731   (381648) от 07.09.2022
-
-Flight Paths - American Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381648.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paper Tiger
-2. Breaking Free
-3. Shadow of Ourselves
-4. Back to Life(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915838519C418D660079B4ACADCFF6827B801804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414746   (381591) от 10.10.2020
-
-Motionless In White - Creatures (2010) Deluxe Edition, Remaster, 2020, Fearless Records [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immaculate Misconception [00:03:54]
-02. We Only Come Out At Night [00:03:23]
-03. London In Terror [00:03:41]
-04. Abigail [00:02:52](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Industrial MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F32B2C489D3D899997F213A79CF2DE3D5EC4BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175021   (381257) от 17.10.2017
-
-Plunk Tone - Комплекс Мессии (2009) [FLAC|Lossless|tracks + .cue] <Alternative, Metalcore, Chaotic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (03:44)
-02. Комплекс Мессии (04:05)
-03. Утка Ищет Вулкан (07:38)
-04. Реалити=Шоу (03:47)(   Читать дальше...   )Жанр: Alternative, Metalcore, ChaoticПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8AEAD410D9DD6992EFCA063CB565C5BE4D63F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

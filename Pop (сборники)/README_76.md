@@ -1,108 +1,3 @@
-###  Публикация: 531615   (542600) от 05.08.2012
-
-VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lykke Li - I Follow Rivers [04:41]
- 02. Asaf Avidan & The Mojos - One Day / Reckoning Song [03:33]
- 03. Gusttavo Lima - Balada (Tche Tcherere Tche Tche) [03:23]
- 04. Tacabro - Tacate [03:31]
- 05. Loreen - Euphoria [03:02]
- 06. Carly Rae Jepsen - Call Me Maybe [03:14]
- 07. Lana Del Rey - Summertime Sadness [04:25]
- 08. Flo Rida - Whistle [03:45]
- 09. Cro - Du [02:54]
- 10. Triggerfinger - I Follow Rivers [03:37](   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 06:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F2201ED7B6A7B150BD67E10B879E15D2059853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531298   (542596) от 05.08.2012
-
-VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Delta pro. - Наше лето
-02 Mike Indigo - Bam Baram (Original Radio Edit)
-03 Dan Balan - Не любя
-04 Sean Paul feat. Pitbull - She Doesn't Mind
-05 Бьянка - Весна-Лето 3 (Про Зою)
-06 Jennifer Lopez feat. Flo Rida - Goin' In
-07 SPACE4 и Антон Зацепин - Невозможно Не Любить
-08 Linkin Park - Burn It Down
-09 Слава - Sex не любовь
-10 Nelly Furtado - Big Hoops (Bigger The Better) (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531650   (542441) от 05.08.2012
-
-VA - Главная дискотека августа (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ева Польна - Весь мир на ладони моей
-02 Наталья Подольская Интуиция
-03 ВегаS - Слезы
-04 Юлия Савичева - Юлия
-05 Дмитрий Колдун - Ничего
-06 Николай Басков и Валерия - Сохранив любовь
-07 Алсу - Ссора
-08 Митя Фомин - Хорошая Песня
-09 Ирина Дубцова - Ешь, молись, люби
-10 Денис Любимов - Любви больше нет(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6409414CFFF3AFB3B8D94E71CF410EEBA7119828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049839   (542255) от 06.09.2016
 
 VA - Лето в кайф. Часть 9 (2016) [MP3|256 Kbps] <Pop>
@@ -787,6 +682,93 @@ VA - Звездный Хит - Парад. Русский Выпуск (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050961   (534652) от 10.09.2016
+
+VA - Танцевальная хитовая дискотека. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Good Lyfe & Vermosa Feat. Brkln - After Midnight
+002. Florrie - Real Love
+003. Robin Schulz & M-22 Feat. Aleesia - Love Me Loud
+004. Felix Jaehn Feat. Polina - Book Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050944   (534556) от 10.09.2016
+
+VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Major Lazer Feat. Justin Bieber & Mo - Cold Water
+002. Dido & Dj Mrid - Без Тебя
+003. Uppermost Feat. Jessica Gabrielle - Whisper
+004. Анжелика Пушнова - Всей Моей Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAE5C412B761429FF52E333AF2EA081C552E479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558251   (531872) от 20.06.2022
+
+VA - June EDC Radio: Exclusive Mixed (2022) [MP3|320 Kbps] <EDC, Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rеnе Rоdrigеzz - Thе Stоrу Abоut Lifе
+002. Lvа - Whеn In Iроh
+003. Cоаrbу - If Yоu Wаnt Mе
+004. Dоn Diаblо - Thrоugh Thе Stоrm(   Читать дальше...   )Жанр: EDC, Dance, Club, HouseПродолжительность: 11:25:10 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DC1E0EC943AAD2ED503E7C19CAE78F49D0DCE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

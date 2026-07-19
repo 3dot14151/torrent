@@ -1,112 +1,3 @@
-###  Публикация: 840301   (335132) от 12.11.2014
-
-Векторный клипарт - Бактерии и Вирусы / Bacteria & Viruses [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бактерии и Вирусы
-(страшности - людей пугать  :wink: )Формат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB693B19F6194408C1BAA26256B65F225A3618E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958461   (323767) от 21.11.2015
-
-Векторный клипарт - Vintage christmas post cards [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторные шаблоны для дизайна. Новогодние открытки в стиле ретро.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCF6EFB9046664541265AA579962BA90E090CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958447   (323527) от 21.11.2015
-
-Векторный клипарт - Design elements, borders and ornaments vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элементы для дизайна, орнаменты и бордюры в векторе.
-19 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF6A8E8E48DBC2E821E861779D87C4F1AA2CD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181508   (323505) от 07.11.2017
-
-Векторный клипарт - Floral Borders Elements Set 55 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Элементы цветочных бордюров
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EA614AF5A7E7644B7E0617DAC610423D11C809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421203   (322010) от 03.11.2020
 
 Векторный клипарт - Advertising orange juice and tasty ice cream realistic design [EPS]
@@ -712,6 +603,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DF933C4308DE2303A2FA7047252B9AEE3655CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182983   (312349) от 12.11.2017
+
+Векторный клипарт - Cards with ribbons [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Карты с ленточками
+15 AI + prewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183006   (312210) от 12.11.2017
+
+Векторный клипарт - Creative Christmas Trees Set 8 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Творческий набор елок
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9D1C345197F3FEEC0028FD5ABBF0CAD0F30BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182996   (312209) от 12.11.2017
+
+Векторный клипарт - Christmas Balls Backgrounds Set 10 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественские Шары
+6 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EED272D6F59974F1A72C109E7AAA2412E09C371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183173   (312195) от 12.11.2017
+
+Векторный клипарт - Decorative pattern color patchwork design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Декоративный рисунок пэчворк
+10 EPS+ jpeg prewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C9FC0BB7B7C3DC3102651B0C4376915012ADAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

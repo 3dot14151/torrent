@@ -1,3 +1,32 @@
+###  Публикация: 965116   (227597) от 13.12.2015
+
+VA - New Age Style - Enigmatic 23 (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terry Oldfield - Reach Out (4:00)
+02. Age Of Echoes - Spirit of Adventure (6:56)
+03. Age Of Echoes - Sea of Voices (8:16)
+04. Wim - Morning Mist (5:46)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 02:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EB1AF692A4E1D0B4FB9E5088DD9D6F5C3F5E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965619   (224269) от 15.12.2015
 
 VA - Romantic Piano Classics: Classical and Modern Masterpieces (2015) [MP3|320 кб/с] <Instrumental, Downtempo, Chillout>
@@ -716,35 +745,6 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF001B891F07C3BDC28DA7F821B35AE5EB8DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598077   (161263) от 21.12.2022
-
-Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Among Us
-02. Breathe
-03. Calling (Feat Sophie Barker)
-04. Desert Sun(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

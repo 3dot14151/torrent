@@ -1,82 +1,3 @@
-###  Публикация: 1224190   (667113) от 09.05.2018
-
-Картинки - Сборник почтовых открыток СССР 7-15 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почтовые открытки СССР
-7-15 сборокФормат: JPGРазрешение файлов: 551x810-3345x1060
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E6CFDEA449EAD9B2BE8E6C4CE1F3CB9045F708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340003   (664604) от 22.05.2011
-
-Фотография - Альбом фотографий Второй мировой войны [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом фотографий Второй мировой войны.Формат: JPGРазрешение файлов: 500х800 - 800х800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE165FAAF683118BBD61DA82B99CEB07947B8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223856   (664056) от 19.03.2022
-
-Картинки - Blizzard art [JPG, PNG, BMP, GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы Blizzard'овских художников Samwise, Metzen, Twincruiser, Thammer, Raneman, Drawgoon, Red Knuckle, Glowei и других. Набор официального арта, концепт-арта, обоев, скетчей игр,Формат: JPG, PNG, BMP, GIFРазрешение файлов: 209х275 - 11812х7904
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A74183583E15DAC001C020A05E952F0E59FBE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224746   (663907) от 12.05.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 278 [JPG]
@@ -679,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3712539248CF984DF45AC0D857F90770B1CF6EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138573   (658662) от 03.06.2017
+
+Иллюстрации - Art of Alphonse Mucha [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы известного художника-иллюстратора Альфонса Мариа Муха.Формат: JPG, PNGРазрешение файлов: 246x640 - 3572x1934
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD992ECA386ABAE626E3CB57D0D4A149EBF9D1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225678   (658602) от 17.05.2018
+
+Обои - Desktop Wallpapers Full HD. Part (211) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82FC7D74E771486B34489D6FF8964833CB9A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225707   (658588) от 17.05.2018
+
+Иконки - Creative Market - 400 Places Line Icons - 2321829 [AI, CDR, EPS, JPG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки - чёрно-белые контурные в векторе и не только.
+Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 1024 x 1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
 ```
 
 https://mybot314.ru/tekegram_catalog/

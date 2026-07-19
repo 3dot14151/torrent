@@ -1,3 +1,32 @@
+###  Публикация: 928993   (519544) от 19.08.2015
+
+VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Give Me A Reason (P!nk Ft. Nate Ruess) [04:04]
+02. Beneath Your Beautiful (Labrinth Ft. Emeli Sande) [03:58]
+03. Impossible (James Arthur) [03:29]
+04. Who You Are (Jessie J) [03:51](   Читать дальше...   )Жанр: PopПродолжительность: 03:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B2E574F60EB5EA29A9A8B5A7F2E92F30551B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314427   (519370) от 14.07.2019
 
 VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <Dance, Disco>
@@ -740,35 +769,6 @@ Disc-1Жанр: PopПродолжительность: 01:19:54
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73E119A07109631EFFEB2BA4A82DDAF030B57636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932484   (509275) от 29.08.2015
-
-Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blast It!
-02. Dance or Die
-03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
-04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

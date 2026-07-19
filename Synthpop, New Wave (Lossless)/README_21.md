@@ -1,32 +1,3 @@
-###  Публикация: 1835352   (250953) от 06.11.2025
-
-AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argonouts (3:54)
-02. Runners (4:52)
-03. Hornet (4:14)
-04. Star Horizon (5:26)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14C528FC004587724A766DF0F15FF5881A80E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618799   (249879) от 13.03.2023
 
 Fever Ray - Radical Romantics (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Experimental>
@@ -745,6 +716,35 @@ Depeche Mode - Ultra (1997) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1BBE83A3734AC396E8CA58A666034AB032F0D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513336   (225357) от 28.11.2021
+
+VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder - Chase (3:51)
+02. U2 - New Year's Day (3:57)
+03. Vangelis - Pulstar (3:51)
+04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E47E44865036DF70CD0F0C86875751CA865D02
 ```
 
 https://mybot314.ru/tekegram_catalog/

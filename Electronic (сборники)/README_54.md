@@ -1,3 +1,238 @@
+###  Публикация: 1507288   (798453) от 04.11.2021
+
+VA - Beatport Organic House: Sound Pack #361 (2021) [MP3|320 Kbps] <Organic, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Internal Deep - Circle Path
+002. Last Bar - I Can't Lie
+003. Loka Deep - Bass Up
+004. Max Tenrom - Armenia(   Читать дальше...   )Жанр: Organic, Deep HouseПродолжительность: 12:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCD74A7BFDC7929CB2BF58C60543D7372638D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507271   (798444) от 04.11.2021
+
+VA - Beatport Electro Pop: Sound Pack #364 (2021) [MP3|320 Kbps] <Electro Pop, Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fede Cabral - Bomba
+002. Methyl Ethel - Neon Cheap
+003. Laurence-Anne - Strange Feeling
+004. Lusine - Not Alone(   Читать дальше...   )Жанр: Electro Pop, Synthpop, DanceПродолжительность: 07:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37299FEBF59A9E603BE04E3ED4B9901BC11AD3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507528   (798440) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 21 (2021) by Gertrudda [MP3|192-320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxnickel - Night'er (3:39)
+02. LostSckare - Programmed For Love (Gertrudda Edit) (5:54)
+03. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)
+04. LA Nights - Voice Flashback (Gertrudda Edit) (5:52)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A1CB7D48AFBAE5948C2393CB5083806E1E0A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507302   (798438) от 04.11.2021
+
+VA - Herbal Ambient Sounds (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Decato - Transmissions
+002. Paul Oednom - Flux
+003. Forest Robots - Meditation Vii
+004. Audio Obscura - The Quiet Night(   Читать дальше...   )Жанр: Ambient, Relax, MeditationПродолжительность: 09:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D622E7F7C78B20B3B5ACC328A73D9F783E40B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506365   (798414) от 04.11.2021
+
+VA - SVS Collection vol. 3 by MR.DJ (2019) [MP3|255-320 Kbps] <Deep House, Disco House, Electro House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Mase & Sharliz - Плохая Девочка
+002. A-Mase - New Life (Original Mix)
+003. Abriviatura IV & TeckSound - In the Moment (Niado Remix)
+004. Abriviatura IV, TeckSound - In the Moment(   Читать дальше...   )Жанр: Deep House, Disco House, Electro House, OtherПродолжительность: 16.05.17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38AE1A45275E00163C58EFA0B3179368A9C03DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507677   (798233) от 05.11.2021
+
+VA - SVS Collection vol. 4 by MR.DJ (2019) [MP3|192-320 Kbps] <Deep House, D'n'B, Electro House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Mase  Sharliz - Зимняя Вишня (Deep Radio Mix)
+002. A-Mase & Sharliz - Nobody's Home (Cover Radio Mix)
+003. A-Mase feat. Rinat Bibikov - Lit De Parade (Original Mix)
+004. A. Rassevich - The Red Space (QRVZH Remix)(   Читать дальше...   )Жанр: Deep House, D'n'B, Electro House, OtherПродолжительность: 12.11.56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A9B86ED1B96F02D3310EB735F0A1960403857F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427199   (798032) от 06.11.2021
+
+VA - TOP Non-Stop Deep House 2000-2009 (2020) [MP3|192-320 Kbps] <Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonique - Mexican Sunrise (7:01)
+02. Jimpster - The Last Tape (4:47)
+03. An-2 (Andrei A. Zakharov) - Alma Del Mundo (4:18)
+04. Audiowhores - Nekoosa (4:52)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 09:03:41
+01. Botz & Flydrums - Celtic Rain (Gothek DC 'Solar' remix) (7:31)
+02. Steve Lawler - Sleepwalking (Will Saul & Tam Cooper remix) (6:46)
+03. Schmoov! - Spirits ('Lights Out' mix) (3:40)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C662716DEE69200B7B8997AA8CADCA6A3BAB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508224   (797989) от 07.11.2021
+
+VA - Synth of Waves 9 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight Boy - Tonight (Gertrudda Edit) (4:37)
+02. Deeo - In Desperation (4:11)
+03. The Last Concorde - Last Call (Gertrudda Edit) (6:31)
+04. REVIUS - Fight (2:27)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209AC5E698145617AD18C366F29096604DAA7A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385359   (797876) от 24.05.2020
 
 VA - Beatport Uplifting Trance: Electro Sound Pack #95 (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -513,238 +748,6 @@ VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200156   (797008) от 19.01.2018
-
-VA - The Best Of Progressive Trance (2018) [MP3|320 Kbps] <Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andre Visior & Daniel Kandi - Freedom (Original Mix)
-002. Alizera - Galaxy
-003. Paul Hawcroft - Your Eyes (Original Mix)
-004. Hoof - Heart and Zeal (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 09:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5B7AB5902914687E8DE7BFF98A157074BA9460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011358   (796994) от 27.04.2016
-
-VA - Ibiza 2015. Soulful Deep-House. Vol.1 На пляже (2015) [MP3|256-320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankman - Sunrise  06:03
-02. Jose Padilla - Day One  06:23
-03. Kaleb Traxx - Astura  04:51
-04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix)  06:33(   Читать дальше...   )Жанр: HouseПродолжительность: 05:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11541FFD205F32BEB1357C6EC96B4DACB4C8E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200022   (796987) от 19.01.2018
-
-VA - Vibrancy Of Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bes & Meret - Flying High (Extended Mix)
-002. Terry Lee Brown Junior - Outback
-003. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover)
-004. Poenitsch & Jakopic - Beautiful (Tom Appl Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097B8E0035C956B7F85182201C6746083290AF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011380   (796982) от 27.04.2016
-
-Turbotronic - Extended Mix (2016) [MP3|320 кб/с] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booty Shake (Original Mix) (04:37)
-02. Bba Ra Bam (Extended Mix) (04:26)
-03. To The Party (Extended Mix) (04:45)
-04. Boom Boom Boom (Turbotronic Extended Mix) (04:43)(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED66E9DF11455C0F382244C9E42B38227804323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200177   (796952) от 19.01.2018
-
-VA - Best of Tigerskin \ Dub Taylor (2017) [MP3|192-320 Kbps] <Deep House, Tech House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tigerskin - Carlos Thoughts [7:39]
-02. Tigerskin - Voodoo [7:38]
-03. Tigerskin - The Nite People [4:58]
-04. Ronald Christoph feat. Idvet - Say You Want Me Now (Tigerskin remix) [7:57](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200155   (796901) от 19.01.2018
-
-VA - Лучшие клубные новинки Vol.9 (2018) [MP3|320 Kbps] <House, Electro House, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase, Stash & Spider - Inspiration (Breaks Mix) 6:54
-02. Abe Kor & SIIK - Mor (Original Mix) 3:52
-03. Adaptiv & Max Fail - Right Here 2:43
-04. Aelyn - Water & Fire (Original Mix) 4:06(   Читать дальше...   )Жанр: House, Electro House, Vocal TranceПродолжительность: 21:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985D7B112E93F98F5F06E0A81BBD973051A17319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011592   (796447) от 28.04.2016
-
-VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
-02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
-03. Karanda -  Agony - Shawn Mitiska Remix  7:08
-04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011600   (796443) от 28.04.2016
-
-VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
-02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
-03. TIA Milano -  Wizard (Dirty Mix)  4:38
-04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

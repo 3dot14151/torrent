@@ -1,3 +1,29 @@
+###  Публикация: 1152628   (758052) от 04.02.2019
+
+Dreamfall Chapters (2017) [Ru/Multi] (5.7.8) License GOG [The Final Cut]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters – профинансированное через Kickstarter и горячо ожидаемое продолжение знаменитых приключенческих игр The Longest Journey и Dreamfall: The Longest Journey. Dreamfall Chapters – приключенческая игра с захватывающим сюжетом, состоящая из эпизодов и посвященная теме выбора и его последствийТип издания: LicenseРазработчик: Red Thread Games, Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский и НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADE09351392FAAABC7D301F6E3517FAFA3AB6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336860   (757999) от 07.01.2022
 
 The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
@@ -641,32 +667,6 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBA5391E56DE5C8CE21B79489E2EABE09EF6A3E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399450   (733299) от 31.07.2020
-
-Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733299.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Into A Dream вы просыпаетесь в загадочном лесу. Вы не помните, кто вы такой, и единственная весточка из реального мира – аудиокассета с посланием. Из записи вы узнаете, что ваш разум подсоединили к разуму Люка Уильямса, человека с серьезной депрессией. Вы – последняя надежда Люка, и только вы можете не дать ему… угаснуть. Погрузитесь в сны Люка, где сплавлены воедино (   Читать дальше...   )Тип издания: RepackРазработчик: Filipe F. ThomazЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПортугальскийЯзык интерфейса: Русский, Английский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2FA2E23302168314CECCB5E4FD60D1A87F9755
 ```
 
 https://mybot314.ru/tekegram_catalog/

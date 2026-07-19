@@ -1,119 +1,3 @@
-###  Публикация: 952815   (353669) от 02.11.2015
-
-Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.(I Like It When You) Smile [03:34]
- 02.(I Do) Like We Do [03:48]
- 03.Tryin' To Matter [04:25]
- 04.Songwriter [03:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952818   (353660) от 02.11.2015
-
-Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Bright Size Life		04:52
-02.	Phase Dance		08:22
-03.	New Chautauqua		05:18
-04.	Airstream		06:21(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E8BF7A5A8EAF7BC0C6A3989FE93C1A2F496E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952537   (353656) от 02.11.2015
-
-VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure Drop – Unify (ripped)
-02. Truby Trio – Donaueschingen
-03. As One – The Hideout
-04. Tosca – Ocean Beat(   Читать дальше...   )Жанр: Future JazzПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F05BC4CC9A5A227621BC9AB7389C4C0981BA079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178831   (353558) от 29.10.2017
-
-Gregory Porter - Nat King Cole & Me (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mona Lisa
-02. Smile
-03. Nature Boy
-04. L-O-V-E(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB0C649D89EC9CD0DA9D5404F60A89F44D078C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417850   (353534) от 22.10.2020
 
 Dave Koz - A New Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -751,6 +635,122 @@ Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 37377   (351037) от 03.11.2015
+
+(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_351037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ностальгия (Nostalgie)
+02. Башня из Слоновой Кости (Ivory Tower)
+03. Тайна (Mystery)
+04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578022   (350395) от 21.09.2022
+
+Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey Sho' Can Talk [3:41]
+02. Brethren [5:10]
+03. Crib Theme [10:16]
+04. The Burner [10:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329650   (350285) от 06.10.2019
+
+Wes Montgomery - Back On Indiana Avenue: The Carroll DeCamp Recordings (1950-e) 2CD, 2019, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350285.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Four on Six [4:48]
+02. Mr. Walker [3:47]
+03. 'Round Midnight [7:14](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE84CD36D856042F98D4CB928D4B6FBF2B28E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072910   (350135) от 14.11.2016
+
+Sonny Rollins - Global Warming (1998) Milestone Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Island Lady [09:12]
+ 02.Echo-Side Blue [07:17]
+ 03.Global Warming [06:32]
+ 04.Mother Nature's Blues [11:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE8CA1AE96CF0A5980126DE36344636A0AF9EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

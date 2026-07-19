@@ -1,119 +1,3 @@
-###  Публикация: 911675   (616442) от 23.06.2015
-
-Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skies Of America [02:50]
-02. Native Americans [01:11]
-03. The Good Life [01:34]
-04. Birthdays And Funerals [03:14](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60D479841ACF9AE4B558733919811D615D14288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146086   (616351) от 28.06.2017
-
-Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Do It
-02. My Heart Belongs To Daddy
-03. C'est Si Bon (It's So Good)
-04. A Woman Wouldn't Be A Woman(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 02:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FA1BBF24C91A991D950D886A69EFD3644D7585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037061   (615743) от 23.07.2016
-
-Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smiles for Serious People (7:36)
-02. Cyclone (2:12)
-03. Child's Mood (7:51)
-04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037045   (615742) от 23.07.2016
-
-Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More I See You (4:53)
-02. Like A Lover (6:42)
-03. Oh Gee (4:13)
-04. Dem Bones (6:55)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4590F1E3B3C0071BF6D3B7BFF0BC3CB38B40CA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230255   (615709) от 12.06.2018
 
 Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
@@ -748,6 +632,122 @@ The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DF667C09EDCAE9C6E5DFE4868E661C5E1F4898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146912   (613080) от 30.06.2017
+
+Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J & B (4:15)
+02. Sophisticated Lady (3:26)
+03. You Turned The Tables On Me (5:42)
+04. Passionova (4:48)(   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00: 37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5EA2460C258D85191EBD567F52401336ABA5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146931   (613078) от 30.06.2017
+
+Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Source [04:27]
+02. My Funny Valentine [06:32]
+03. Better Days [05:28]
+04. Mi Vida [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1B438CDEA25A212761B767DCFBA4335AAF2387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545345   (612897) от 20.04.2022
+
+Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Sleepy [3:10]
+02. Isn't It Romantic [3:17]
+03. Mad at the World [3:30]
+04. East of the Sun [4:05](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912300   (612895) от 25.06.2015
+
+Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcement [00:26]
+02. Oh Baby [04:18]
+03. Keepin' Out Of Mischief Now [04:02]
+04. Sugar [03:54](   Читать дальше...   )Жанр: Jazz, New Orleans Jazz, Dixieland, SwingПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E6522F17C522BBA71B4C07A8469933708FEC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

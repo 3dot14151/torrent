@@ -1,3 +1,32 @@
+###  Публикация: 1398479   (735548) от 26.07.2020
+
+VA - Лето на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Клава Кока, NILETTO - Краш (2:51)
+2. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)
+3. Dua Lipa - Break My Heart (3:41)
+4. twocolors - Lovefool (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3E046395692EA51D9ACDEE7387605686C6A3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528215   (734941) от 01.02.2022
 
 Группа Парад - Раз, Два, Три! (1989) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Весенние заводные хиты. Сборник № 6 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D47E4AFBDE5DDB878C76BE63AF2DBDB2456A4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127806   (730868) от 22.04.2017
-
-VA - German Top 100 Single Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730868.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You 3:54
-002. Luis Fonsi - Despacito (feat. Daddy Yankee) 3:48
-003. Burak Yeter - Tuesday (feat. Danelle Sandoval) 4:02
-004. The Chainsmokers & Coldplay - Something Just Like This 4:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD13A2ABE494B536B28A4ACF49C31A7F7EBCA5CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

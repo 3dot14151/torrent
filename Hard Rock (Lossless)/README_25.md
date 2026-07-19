@@ -1,3 +1,438 @@
+###  Публикация: 1503111   (821443) от 18.10.2021
+
+Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 05:08
+02. Only Devil Knows 04:12
+03. Heat Of The Night 04:05
+04. Lost Souls 04:51(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4373B8B4F6E86F138DA5AEA575A0CA6C48F98300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116818   (821044) от 21.03.2017
+
+Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Vertigo  (03:23) 
+02| Never Look Back  (03:20) 
+03| Killing Me  (03:46) 
+04| The Downfall Of Eden  (04:21) (   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B302CC6D1F0C5A3DF92CA352375425889A88AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196830   (820521) от 04.01.2018
+
+David Coverdale & Whitesnake - Best Ballads (2018) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Many Tears
+02. Don't Fade Away
+03. Soldier Of Fortune
+04. Sail Away(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52C294A49973A212DCB972DC723A3ED5603A035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503233   (819494) от 19.10.2021
+
+Fallen Angels - Otherside (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Sequence (Intro) (01:57)
+02. Desert Way (06:13)
+03. Merchant in the Middle (04:52)
+04. The Envy (05:03)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4610B1D0971936B11B2369D5E621A3C5B2E12ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503259   (819492) от 19.10.2021
+
+The Wildhearts - 21st Century Love Songs (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21st Century Love Songs
+02. Remember These Days
+03. Splitter
+04. Institutional Submission(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8F480A3FBE874B38B3640C1A9C71F03A62D08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196904   (819063) от 05.01.2018
+
+Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Fall
+02. Nothing Ever Changed
+03. Hostile Street
+04. The Losing Side(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007966   (818009) от 17.04.2016
+
+Trancemission - Paranoia (2015) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Holle Rache Kocht In Meinem Herzen    00:31
+02. Queen Of The Night    03:24
+03. Killer    04:22
+04. Make My Day    03:33(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080EADCFFD16C341480C4C6210CB6D9F7154EFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197240   (817724) от 06.01.2018
+
+Agent Cooper - Beginner's Mind (2005) [FLAC|Lossless|image + .cue] <Hard Rock,  Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Indian Sun (5:35)
+02. Shallow Disease (4:01)
+03. ...In The Bottle (3:53)
+04. Taipei (3:52)(   Читать дальше...   )Жанр: Hard Rock,  Progressive RockПродолжительность: 00: 46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E091A67F129202124E97786C06DFACC99D50508F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117943   (815490) от 24.03.2017
+
+Derwood - Renegade (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away (3:49)
+02. Cold Blooded (3:48)
+03. Did My Best (3:57)
+04. Reckless (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885750434AB4A157BEBAE7DCF1E04685952DFE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117964   (815477) от 24.03.2017
+
+Sweet Mary Jane - Winter In Paradise (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Your Eyes (4:34)
+02. No Retreat, No Surrender (3:16)
+03. Winter In Paradise (5:00)
+04. Madeleine (2:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20556B36577DAAF24EA9D8A6A817679F6BE00716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504142   (814199) от 22.10.2021
+
+Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even Up The Score
+02. Big Day
+03. Sign Of The Times
+04. Bloody Typical(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D1A48D55A6A78A06E5FE23E84D3388D3578956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504199   (812367) от 23.10.2021
+
+Osukaru - Starbound (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbound
+02. Rise Of The Underdog
+03. Tainted Heart
+04. Somewhere Sometime Somehow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885A2A3BF692D959CD34F97B8B681985204071B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504171   (812306) от 23.10.2021
+
+Alcatrazz - V (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel 05:19
+02. Nightwatch 04:52
+03. Sword of Deliverance 03:38
+04. Turn of the Wheel 05:25(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8417EABED12B0746323E7524590B57467BBD85E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504145   (812286) от 23.10.2021
+
+Jeff Scott Soto - The Duets Collection, Vol. 1 (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' The Life (with Erik Martensson)
+02. Don't Let It End (with Dino Jelusick)
+03. Mysterious (with Eric Martin)
+04. Believe In Me (with Nathan James)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9C845C679838036CD689A9A28006202847062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008638   (812058) от 20.04.2016
+
+DeWolff - Roux-Ga-Roux (2016) [FLAC|Lossless|image + .cue] <Psychedelic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roux-Ga-Roux (0:51)
+02. Black Cat Woman (5:02)
+03. Sugar Moon (4:18)
+04. Baby's Got A Temper (4:54)(   Читать дальше...   )Жанр: Psychedelic Hard RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB322E7F8EE1523BF61B0FCFF374EB9957D5BA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009019   (811928) от 20.04.2016
 
 Imperium - Dreamhunter (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -315,440 +750,6 @@ Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BBEC0224FC56663C22DD99462348EC5119DB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505455   (802942) от 28.10.2021
-
-Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wake up America (00:04:56)
-02 - Coltan Wars (00:05:34)
-03 - Burn the Ships (00:04:31)
-04 - The Rope (00:04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198265   (802716) от 14.01.2018
-
-Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stairway To The Stars (3:04)
-02. Why Don't You Do It To Me (3:12)
-03. Funk It Up (Disco Mix) (5:28)
-04. A Distinct Lack Of Ancient (4:06)(   Читать дальше...   )Жанр: Rock, Glam-RockПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3A090B22833D2C6ACC6AC26AB7A730DEE38ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506002   (801741) от 29.10.2021
-
-Hardline - Heart, Mind And Soul (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuel To The Fire
-02. Surrender
-03. If I Could I Would
-04. Like That(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B99C45CE956F6E7556FFDDFA7605E90ECC07F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505950   (801736) от 29.10.2021
-
-King Company - Trapped (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финский Hard Rock коллектив King Company был основан в 2014 году барабанщиком Миркой «Лека» Рантаненом (Raskasta joulua , Warmen , ex- Thunderstone , ex- Kotipelto и др.).
-Первый альбом "One for the Road" был записан в 2016 году, с певцом Паси Рантанен. Но в дальнейшем у него случилась проблема с голосом и второй альбом "Queen of Hearts" 2018 (   Читать дальше...   )01. I Will Be Here
-02. Trapped In Heart
-03. Stephanie
-04. Dangerous Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4B272FB7FB0EE24BEF854B284F206F67252796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502838   (799881) от 31.10.2021
-
-Creedence Clearwater Revival - 39 albums, 1 Box sets, 95CD (1968-2021) [FLAC|Lossless|image + .cue | tracks + .cue ] <Classic Rock, Country>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creedence Clearwater Revival (CCR) — американская рок-группа, образовавшаяся в 1967 году и за пять лет существования добившаяся всемирного успеха и признания критиками. CCR, возникшие в Сан-Франциско, с самого начала находились под влиянием свомп-блюза. В ранних песнях («Born On The Bayou» и др.) CCR создали своего рода легенду «простых парней со старого доброго (   Читать дальше...   )--------------------------
-
-01. Born On The Bayou (5:33)
-02. Green River (3:16)(   Читать дальше...   )Жанр: Roots Rock, Swamp Rock, Southern Rock, Classic Rock, Country |Продолжительность: 80:02:49 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506809   (799560) от 01.11.2021
-
-The Feckers - Courage of Conviction, Pt. I: Picking up the Pieces (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinners & Saints (05:53)
-02. Moments in Time (08:07)
-03. No Hard Feelings (05:52)
-04. Fall into Line (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8EDB112902A56E911B1118AA6CC027F58FF91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506765   (799530) от 01.11.2021
-
-Pearlz - Feel Fine (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang (03:34)
-02. Feel Fine (04:07)
-03. Crystalline Soul (03:33)
-04. Empty Cask (04:57)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C583DCF4970DB40E41FEB5676C18978DC44D4615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506771   (799525) от 01.11.2021
-
-Soul Rash - The Covid Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Child's Eyes 03:32
-02. The Other Side Of Midnight 03:53
-03. Welcome Home 05:56
-04. Raising Cain 03:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC2AF2EDC99EF34C5568975E6A49D3260BB3AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506907   (799099) от 02.11.2021
-
-Osukaru - Starbound (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbound
-02. Rise Of The Underdog
-03. Tainted Heart
-04. Somewhere Sometime Somehow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69672A60A47E54616860E90DFAB3AD40BC015787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122194   (798821) от 05.04.2017
-
-Shakra - Life Tales: The Ballads (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Be There
-02. Anything
-03. Love Will Find A Way
-04. Why(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E1EA84A9F6E8B474A94D540CD73BBAA661C88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273840   (798770) от 04.01.2019
-
-Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Birth Of The Universe (Instrumental) [01:40]
-2. Moonchild [04:50]
-3. Surveillance Society [04:39]
-4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273794   (798769) от 04.01.2019
-
-Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half-Live I (19:49)
-02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273785   (798767) от 04.01.2019
-
-Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Your Love (5:33)
-02. Surrender To Me (5:33)
-03. Livin' For You (4:57)
-Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507742   (798286) от 05.11.2021
-
-Eclipse - Wired (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roses On Your Grave (3:23)
-02. Dying Breed (3:11)
-03. Saturday Night (Hallelujah) (3:15)
-04. Run For Cover (5:09)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA2BC0A9C823448D48D588F88F90ACE016FC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508323   (797998) от 07.11.2021
-
-Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Those Eyes
-02. My Oh My (Get What You Need)
-03. I Like it
-04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

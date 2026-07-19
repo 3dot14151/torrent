@@ -1,25 +1,25 @@
-###  Публикация: 1800753   (15557) от 05.06.2025
+###  Публикация: 1804090   (13278) от 27.06.2025
 
-Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ain't No Bad Boy (3:21)
-02.  Spot On! (4:06)
-03.  Sometimes, Somedays, Somewhere (4:45)
-04.  The Bee (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:40
+01. Hotel Grand Moondial
+02. Overjoked
+03. Serenade To Go
+04. My Turntable Is Unable(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE534CCC220CAEFA846AE584758792A03683BB41
+magnet:?xt=urn:btih:5767AA5AC2A9671EF400BD659E68BD018257240C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800749   (15555) от 05.06.2025
+###  Публикация: 1804117   (13265) от 27.06.2025
 
-Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
+Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Avalanche (3:39)
-02.  Unstoppable (3:34)
-03.  Maine to Mississippi (4:07)
-04.  Cold (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:13
+01 - Blind Idols [5:40]
+02 - The Circle [3:41]
+03 - Outsider [3:32]
+04 - Fractures [4:17](   Читать дальше...   )Жанр: Post-Groove MetalПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56CD0F6690292DD5B233F0C9B95A0B7DEDD2141C
+magnet:?xt=urn:btih:E76BBF481FA149FD0EE66423DF978F255679C6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800738   (15552) от 05.06.2025
+###  Публикация: 1804049   (13263) от 27.06.2025
 
-3rd Rock Studios - None of Your Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  The Ballad of the Chupachup (3:03)
-02.  Trivia Night (Remastered) (2:30)
-03.  Karaoke Night (Remastered) (3:32)
-04.  Singles (Remastered) (3:12)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:54
+01 - Heavens Throat [2:11]
+02 - Transmigration [5:13]
+03 - Only Once In A Lifetime [3:52]
+04 - Shadows Of Mine [5:16](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
+magnet:?xt=urn:btih:493ED6A47EE10D8E5CE70E8837298BB79AFF19B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800757   (15551) от 05.06.2025
+###  Публикация: 1804050   (13260) от 27.06.2025
 
-When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Addicted To You (3:53)
-02.  Break Free (3:32)
-03.  Still Standing (3:35)
-04.  Coming Up For Air (4:12)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:16
+01 - Keinen Schritt zurück [4:37]
+02 - Schweineherbst [3:17]
+03 - Eisenkopf [3:51]
+04 - Destroy Fascism (Too Good to Steal from Edition) [1:59]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:04:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
+magnet:?xt=urn:btih:5A816EC79D0D0C3240653296FDF60D3AA8509D83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800751   (15541) от 05.06.2025
+###  Публикация: 1804161   (13254) от 27.06.2025
 
-Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Let It All Hang Out (2:49)
-02.  For You Blue (1:41)
-03.  Built For Speed (2:34)
-04.  Bark But No Bite (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:52
+01. The Sky Is Falling
+02. Let Sleeping Dogs Lie
+03. Good Morning Vietnam
+04. For Whom The Bell Tolls(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95310105F8C81B1C49D664B4B3BF3DE91D41A029
+magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800741   (15535) от 05.06.2025
+###  Публикация: 1804027   (13253) от 27.06.2025
 
-Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
+Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ride Home (3:41)
-02.  Falling (3:22)
-03.  Racing Cars (3:48)
-04.  Breathe (3:21)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:45:25
+01. Sorry I'm Here For Someone Else [00:02:36]
+02. Mr Electric Blue [00:03:10]
+03. Man In Me [00:03:48]
+04. Mystical Magical [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDDC928CE3FC00D5785BB71E0C4F84476A51C4EF
+magnet:?xt=urn:btih:A93CC70B4F0706BC0C107EC5E6D126CB5099043C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800756   (15534) от 05.06.2025
+###  Публикация: 1804100   (13245) от 27.06.2025
 
-WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  No Time To Bleed (2:32)
-02.  Bucket List (3:04)
-03.  Sunshine Sometimes (3:09)
-04.  Murderers (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:28
+01 - I'm Not Sleeping [3:38]
+02 - Idiot's Delight [3:35]
+03 - Another Thin Line [4:47]
+04 - The Great Depression [3:48](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 05:20:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D78B6D99D6A07539FEDF301CE41C2B217E31091
+magnet:?xt=urn:btih:BB3A4D9688A951A81E4FD0B839DD99934BE36F2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800817   (15467) от 06.06.2025
+###  Публикация: 1804598   (12961) от 30.06.2025
 
-Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Modern Electric Blues, Blues-Rock>
+Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, Reissue, 2014, Verve Reissues [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hold Of My Heart
-02. All The Things I Said
-03. Black & Gold
-04. Who’s Gonna Love Me Now(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:12
+01 - What A Wonderful World [2:20]
+02 - Cabaret (Single Version) [2:47]
+03 - The Home Fire [3:18]
+04 - Dream A Little Dream Of Me [3:18](   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
+magnet:?xt=urn:btih:59FEB494311E3532F13D2A3BEA2246D7A6DB5899
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800819   (15464) от 06.06.2025
+###  Публикация: 1804505   (12950) от 30.06.2025
 
-Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jazz>
+Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bella Ciao
-02. Pourquoi tu vis
-03. Aspettami
-04. DestinoЖанр: Pop-JazzПродолжительность: 00:17:21
+01. Der Lenz ist da! [00:04:50]
+02. Europa [00:05:31]
+03. Rosen auf den Weg gestreut [00:04:53]
+04. Die Mäuler auf! [00:04:58](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:47:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
+magnet:?xt=urn:btih:52D780D85244B011764A4FF4F7D87361D0E923C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801058   (15356) от 07.06.2025
+###  Публикация: 1804587   (12946) от 30.06.2025
 
-Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Ambient, Modern-Classical>
+Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matador [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Milky Sleep [00:03:18]
-02. Hopelessly At Ease [00:03:41]
-03. My Lovely Days [00:04:43]
-04. Play On [00:05:55](   Читать дальше...   )Жанр: Ambient, Modern-ClassicalПродолжительность: 2 CD, 01:50:03
+01 - Rent I Pay [3:10]
+02 - Inside Out [5:02]
+03 - Rainy Taxi [3:59]
+04 - Do You [3:33](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:13:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1E5A3867BE3B8B7279C0EC75DCB46CB61A7A75D
+magnet:?xt=urn:btih:B7CDE0CBF725D968676C16F4D1B6994445B2A4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800988   (15350) от 07.06.2025
+###  Публикация: 1804508   (12943) от 30.06.2025
 
-Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge>
+Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futurepop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blank & Jones – Sunrise
-02. Anders Ponsaing – Baker Street (feat. Michael Rune, Troels Hammer & Mads Hammer)
-03. Blank & Jones – Love Will Save the Day (feat. Zoe Durrant)
-04. Dune People – Always Green(   Читать дальше...   )Жанр: Electronic, Chillout, LoungeПродолжительность: 01:18:25
+01. Dna Slaves_Redux [00:03:23]
+02. Forever_Redux [00:05:10]
+03. Promised Land Blues_Redux [00:05:39]
+04. War is Over_Redux [00:04:44](   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:49:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CF1141004A837F38618CAF8B3D2EA8DD4E81516
+magnet:?xt=urn:btih:E955DB453B7A2A03CA53D0C8A8CE96331540D339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801285   (15147) от 09.06.2025
+###  Публикация: 1804572   (12941) от 30.06.2025
 
-Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Chewing Gum on Ecstasy (2:00)
-02.  Dont take this the wrong way (2:05)
-03.  You and I (2:01)
-04.  Do You Know What Is Strange (2:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:17
+01 - Supremacy [4:56]
+02 - Madness [4:40]
+03 - Panic Station [3:05]
+04 - Prelude [0:58](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:53:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21667D99954C3A7BA17BE907A9E573F9436D60F2
+magnet:?xt=urn:btih:98E431B92B01F7AB790A16008880194F76FEA89F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801245   (15146) от 09.06.2025
+###  Публикация: 1805242   (12568) от 04.07.2025
 
-Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+Cerrone & Christine and the Queens - Catching feelings (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  5 n Dime (4:45)
-02.  Best Intrests (3:26)
-03.  Toad Township (3:12)
-04.  Quarter in a Ditch (2:57)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:36:01
+01. Catching feelings
+02. Last One
+03. Give it to me
+04. Supernature MMXXV (Purple Disco Machine Remix)Жанр: DiscoПродолжительность: 00:17:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D5A577CC62BD9E892CDE5F4FAE6B8C770E174FE
+magnet:?xt=urn:btih:1059FECB131E615E6AF346293265D3FD6E34AB94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801290   (15144) от 09.06.2025
+###  Публикация: 1805632   (12118) от 08.07.2025
 
-Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Celtic Punk, Rock, Oi! Punk band from Boston>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Impress to Express (4:05)
-02.  Fire & Ash (5:08)
-03.  What about us (4:34)
-04.  Drowning (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:56
+01. Who'll Stand With Us? [00:03:51]
+02. Longshot (feat. The Scratch) [00:03:27]
+03. The Big Man [00:02:53]
+04. Chesterfields and Aftershave [00:04:30](   Читать дальше...   )Жанр: Celtic Punk, Rock, Oi! Punk band from BostonПродолжительность: 00:43:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
+magnet:?xt=urn:btih:96393E0E2F38B087FCCBD3307620B412D7C46F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801257   (15143) от 09.06.2025
+###  Публикация: 1805804   (12111) от 08.07.2025
 
-Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Hitch A Ride (5:11)
-02.  Solid Ground (3:19)
-03.  Tell Me I'm a Lover (4:03)
-04.  Dream Machine (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
+• 01. Blown Away (6:58)
+• 02. Mess Around (4:14)
+• 03. Mysterious (2025 Remastered Version) (4:41)
+• 04. Alone (4:57)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:59:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1423C0112844F3B827AE0CD7CA1AC08BB639CA25
+magnet:?xt=urn:btih:AFD58FB1EF15E7F2E9ED354807D5F0016DD92D23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801283   (15142) от 09.06.2025
+###  Публикация: 1806141   (11942) от 10.07.2025
 
-Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Laguna - The Ghost Of Katrina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Shake (2:44)
-02.  Bring It On Home to Me (3:59)
-03.  Another Saturday Night (2:37)
-04.  That's Where It's At (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:43
+01 - Intro Katrina (01:46)
+ 02 - Ghost Behind The Mask (05:13)
+ 03 - Living On The Line (03:40)
+ 04 - Punk Boy (03:49)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:457502B29F9A10031881310C0FE68B679ECDDC18
+magnet:?xt=urn:btih:2F4D7E6540B993C8FC9D295C7B11A4F1EC6539E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801246   (15141) от 09.06.2025
+###  Публикация: 1806113   (11932) от 10.07.2025
 
-Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+Chris Rea - New Light Through Old Windows (1988) Reissue, Remastered, 2025, Rhino [FLAC 24/44.1;24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Thank You Mr. Gov’t (3:34)
-02.  Do You Like My Cologne? (3:33)
-03.  Perfectly (4:17)
-04.  I Took A Pill (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:00
+01. Let's Dance (2025 Remaster) (4:17)
+02. Working on It (2025 Remaster) (4:27)
+03. Ace of Hearts (2025 Remaster) (4:55)
+04. Josephine (2025 Remaster) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:52:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2860A1796D7364335D4AC19AE04A3280CD1781A
+magnet:?xt=urn:btih:C0AB260EC32DFF79A942390B1E019AF6D87A128C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801292   (15139) от 09.06.2025
+###  Публикация: 1806130   (11924) от 10.07.2025
 
-Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Stygian Fair - The Hidden Realm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Space Cowboy (4:13)
-02.  Cosmic Funeral (4:14)
-03.  My Little Cowboy (3:26)
-04.  Peanut Planet (2:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+01 - The Hidden Realm (04:02)
+ 02 - Abide Your Master (03:59)
+ 03 - Into The Well (05:22)
+ 04 - Peel The Layers Off (04:17)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5067DBEC98CF1361CDD9834D8C067B45082276DA
+magnet:?xt=urn:btih:5987C0D19B91D8BCBAC0A9DA29E482D890517201
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801294   (15138) от 09.06.2025
+###  Публикация: 1806139   (11921) от 10.07.2025
 
-LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Madhouse - Plead The Fifth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  The Fever (3:11)
-02.  The Circling (3:24)
-03.  The Black Sheep (2:30)
-04.  The Highness (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:32
+01 - Midnite Fever (03:36)
+ 02 - We Run Riot (03:48)
+ 03 - Bring On The Night (03:36)
+ 04 - Shotgun Rider (03:19)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:50:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A28FDADEEE9E9968EB2CCAF69D7FDB67DD44208E
+magnet:?xt=urn:btih:7AD026877536800CE837495D03C14D662539D69B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801286   (15137) от 09.06.2025
+###  Публикация: 1806133   (11920) от 10.07.2025
 
-Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Front Row Warriors - Running Out Of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  When You Go (4:26)
-02.  Milk & Honey (4:03)
-03.  Whiskey on the Workbench (2:25)
-04.  Fluorescent Lights (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:10
+01 - Turn The Tide (04:07)
+ 02 - Theory Of Mind (01:05)
+ 03 - The Holy (05:38)
+ 04 - Cast A Spell (04:51)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0C6BC9F96AED5D36093C6E22EC485BFEA3DC071
+magnet:?xt=urn:btih:BD3FB8BE0724F8669500574645B4C29C3E6044D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801291   (15136) от 09.06.2025
+###  Публикация: 1806124   (11919) от 10.07.2025
 
-J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Eternal Idol - Behind A Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal, Prog Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  The 25th Hour (2:52)
-02.  Chains and Mercy (3:33)
-03.  Devil Woman (3:12)
-04.  Hold Me In Your Hollow Hands (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:05
+01 - Amnesia (04:13)
+ 02 - The Enemy Is Me (03:17)
+ 03 - Empire Of One (03:25)
+ 04 - Vampire (03:23)(   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Prog MetalПродолжительность: 00:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7022234AA0C213AC889D292A24949934D0244BE4
+magnet:?xt=urn:btih:757F05814239BC6D72B07E1F694920515533AB05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801267   (15132) от 09.06.2025
+###  Публикация: 1806122   (11916) от 10.07.2025
 
-Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Big Band>
+Double Vision - Double Vision (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбом содержит песни в аранжировках Фрэнка Синатры, которые певец собирался исполнить, но так и не успел.01. Give Me The Simple Life
-02. I Never Felt This Way Before
-03. Lush Life
-04. Flying Down To Rio(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:37:37
+01 - Prison Of Illusion (03:36)
+ 02 - No Fool For Love (03:47)
+ 03 - The Man You Make Me (03:53)
+ 04 - I Know The Way (03:04)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CB91A4BB31DDD6626E62240431CA3EE535E30F4
+magnet:?xt=urn:btih:C5D37F07CB6EB954A945550F57A4945354941B23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801444   (15043) от 10.06.2025
+###  Публикация: 1806116   (11911) от 10.07.2025
 
-King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore>
+Steve Hackett - The Lamb Stands Up Live At The Royal Albert Hall (2024)(2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rustbelt Numetal [00:02:34]
-02. Noonday Demon [00:03:22]
-03. Blue Collar Noose [00:03:00]
-04. Headshot [00:03:51](   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:28:59
+01. People of the Smoke (Live in London 2024) (4:48)
+02. Circo Inferno (Live in London 2024) (3:13)
+03. These Passing Clouds (Live in London 2024) (3:09)
+04. The Devil's Cathedral (Live in London 2024) (5:34)(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
+magnet:?xt=urn:btih:D8928F9C0443869AF5757D1D41D59034485707C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801439   (15037) от 10.06.2025
+###  Публикация: 1806108   (11909) от 10.07.2025
 
-Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+Jethro Tull - Still Living In The Past (1970-1971) Reissue, Remastered, Remix, 2025, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Carter [00:01:48]
-02. Welcome to Tha Carter [00:03:35]
-03. Bells [00:03:24]
-04. Hip-Hop [00:04:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:50
+Disc 1:
+01. A Song For Jeffrey (1971 Remix) (3:22)
+02. Love Story (1971 Remix) (3:03)
+03. A Christmas Song (1971 Remix) (3:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:49:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
+magnet:?xt=urn:btih:C9CE9B0E3115D0E4B228FF81412DB90DE678F2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801445   (15026) от 10.06.2025
+###  Публикация: 1806281   (11713) от 12.07.2025
 
-Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Why (Interlude) [00:00:41]
-02. Best For Me [00:03:27]
-03. More Than Twice [00:04:33]
-04. You First [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
+01. Why? (feat. Neil Tennant) (Superchumbo Superextended Mix)
+02. Smalltown Boy (Extended) (feat. Perfume Genius)
+03. Junk (An ElectroGenetic Extended Remix By Gareth Jones)
+04. Love And Money (RSF Metropol Italo Extended Remix)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:15:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
+magnet:?xt=urn:btih:1AD3ED369D26F67FE8C3B8581DBAFCB9B7BCB08C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,25 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801771   (14825) от 12.06.2025
+###  Публикация: 1807005   (11313) от 16.07.2025
 
-Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
+Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Und die Engel singen [00:03:27]Жанр: Industrial MetalПродолжительность: 00:03:27
+01. All I Can Take [00:04:07]
+02. Daisies [00:02:56]
+03. Yukon [00:02:43]
+04. Go Baby [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
+magnet:?xt=urn:btih:EC59917669C803551BAF671BD9EB2C7631C241D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

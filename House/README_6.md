@@ -1,3 +1,32 @@
+###  Публикация: 1088997   (953885) от 02.01.2017
+
+VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cevelon - Neurotic (Original Mix) 02:54
+2. Manu3l - Tantrum (Igness Edit) 03:31
+3. Jozef - Aim High (Original Mix) 06:00
+4. Stan Castillo - Everybody Bounce (Original Mix) 04:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981198   (951462) от 01.02.2016
 
 VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
@@ -707,35 +736,6 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092832   (937419) от 13.01.2017
-
-VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tsaho - Love in da House  3:55
-02.  E.M.C.K. - Can We Go (Club Mix)  4:40
-03.  Jeremy Bass & Rio Dela Duna - Tropicana  4:34
-04.  DJ Sign & Vince La Monica - Going Crazy  4:32(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

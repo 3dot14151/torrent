@@ -1,3 +1,32 @@
+###  Публикация: 1185132   (294888) от 20.11.2017
+
+VA - Kundalini: New Age Anthology (2017) [MP3|192-320 Kbps] <New Age, Meditation, Futuristic Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fabrice Tonnellier - Chakra racine
+002. Molly Valentine - Fantasyland
+003. beGun - Kelle
+004. Magic Ear - Circles Of Desire(   Читать дальше...   )Жанр: New Age, Meditation, Futuristic AmbientПродолжительность: 10:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C96035E7942B98112E3C463BEF9E015ADCCADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080222   (290221) от 06.12.2016
 
 VA - Cafe Mary Lounge: 100 Relax Party (2016) [MP3|320 Kbps] <Lounge, Relax, Downtempo, Chillout>
@@ -719,32 +748,6 @@ VA - :Мелодии телепередач Советского Союза (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6226562E4623C3B513E69760A5F388B62A3EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502584   (259117) от 28.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 52 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

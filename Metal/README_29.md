@@ -1,3 +1,90 @@
+###  Публикация: 1012115   (795579) от 29.04.2016
+
+Germ - Escape (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Shoegaze, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795579.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I
+2. Escape
+3. I'll Give Myself To The Wind
+4. Under Crimson Skies(   Читать дальше...   )Жанр: Atmospheric Black Metal, Shoegaze, Post Black MetalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DD4E333995DD60336BB761DA795081E5C8DD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509199   (795547) от 11.11.2021
+
+Emigrate - The Persistence of Memory (2021) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795547.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rage
+2. Always On My Mind (feat. Till Lindemann of Rammstein)
+3. Freeze My Mind
+4. I'm Still Alive(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EF40E9C67C4EB1BC21DB3C9D670D96A6DC1EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011857   (795443) от 29.04.2016
+
+Dragonforce - Killer Elite (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Fire And Flames
+02. Holding On
+03. Heroes Of Our Time
+04. Cry Thunder(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671E2DE3FF4DA7EF891DC19261228EB9B2BD969A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011693   (795398) от 29.04.2016
 
 Ivar Bjornson & Einar Selvik's Skuggsja - A Piece For Mind & Mirror (2016) Limited Edition [MP3|320 кб/с] <Dark Folk, Folk Metal>
@@ -660,93 +747,6 @@ Ghost Brigade - 4 Альбома, 1 EP, 1 Компиляция (2007-2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C02632434DD951756CEB88DFE2E3ED9FCDEA9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203878   (787696) от 03.02.2018
-
-Ocean Of Grief - Nightfall's Lament (2018) [MP3|320 Kbps] <Doom-Death Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Bleakness
-2. Eyes Of Oblivion
-3. Mourning Over Memories
-4. Fiend Of The Overlord(   Читать дальше...   )Жанр: Doom-Death Metal, Melodic MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6145C0556F67AA3C901ED7080B0F6BB70C8C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276757   (787577) от 17.01.2019
-
-Arch Enemy - Covered In Blood (2019) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout (Tears For Fears)
-02. Back To Black (Pretty Maids)
-03. Shadow On The Wall (Mike Oldfield)
-04. Breaking The Law (Judas Priest)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34F4B8109944FFAFFEF93AD6BEC36D21ABEDCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512651   (787112) от 25.11.2021
-
-Hypocrisy - Worship (2021) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worship
-02. Chemical Whore
-03. Greedy Bastards
-04. Dead World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492191384CB7D64E9C002ADA9CBE5015A9A7879B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1129599   (720806) от 29.04.2017
-
-Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Song [04:30]
-02. Mercy, Mercy, Mercy [05:19]
-03. This Here [10:14]
-04. Money In The Pocket [10:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129590   (720797) от 29.04.2017
-
-Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Popo [03:02]
-02. Over the Rainbow [03:01]
-03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024066   (720693) от 07.06.2016
-
-Stanley Turrentine - Hustlin' (1964) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Trouble (No. 2) [07:52]
- 02.Love Letters [07:40]
- 03.The Hustler [06:04]
- 04.Ladyfingers [06:26](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E71469FF9E7600D99C65272669B59FA47B4D084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024073   (720570) от 07.06.2016
-
-Mongo Santamaria - Mr. Watermelon Man & La Bamba (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Bamba [04:01]
- 02.Fat Back [03:20]
- 03.Summertime [04:46]
- 04.Manha De Carnaval (Morning Of The Carnival) (From 'Black Orpheus') [04:50](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D8A7DAE71179B20821711564A24277A55045B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024018   (720556) от 07.06.2016
 
 Ella Fitzgerald - The Best Of... (1996) Reissue, Remastered, Recordings from 1938 to 1955 [APE|Lossless|image + .cue] <Jazz, Swing>
@@ -745,6 +629,122 @@ Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED9F51167B53635A7BEDB848FC3E1FCC9D6F2C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285921   (716809) от 28.02.2019
+
+Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway
+02. It Had To Be You
+03. Over The Rainbow
+04. The Way You Look Tonight feat. Mervyn Warren(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C20B43A71DBAE1C5BE2F9518DB71D4865294D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130244   (716799) от 01.05.2017
+
+Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport Up [05:44]
+02. I Got It Bad And That Ain't Good [02:24]
+03. Tulip Or Turnip [03:00]
+04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532137   (716767) от 18.02.2022
+
+Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicken Shack Boogie [3:19]
+02. New Central Avenue Breakdown [3:12]
+03. Benson's Boogie [3:21]
+04. Hamp's Boogie Number 2 [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1200D6B29C80496B3F7D61BA8A60667CEAC28E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531943   (716763) от 18.02.2022
+
+Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Recordings [FLAC|Lossless|tracks + .cue] <Big Band, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales from the Jacquard, Part 1 [7:03]
+02. Tales from the Jacquard, Part 2 [6:31]
+03. Tales from the Jacquard, Part 3 [17:47]
+04. Blues [7:52](   Читать дальше...   )Жанр: Big Band, Contemporary Jazz, Post-BopПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14922B8B833BD5AFE819E1EC96632B103A1CBFAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

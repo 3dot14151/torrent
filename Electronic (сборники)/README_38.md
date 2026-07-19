@@ -1,3 +1,235 @@
+###  Публикация: 996746   (879406) от 14.03.2016
+
+VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Super8 & Tab feat. Julie Thompson - Patience (Club Mix) 05:34
+002. Sylvermay - Prometheus (Original Mix) 06:57
+003. Sunlounger - Sunkissed (Roger Shah Rework) 05:02
+004. Upfly & Stellarium - Noah's Ark (Original Mix) 06:46(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Emotional, Melodic, ProgressiveПродолжительность: 16:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882AD610081FB47329C47AE141229240BD9156FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104001   (879377) от 15.02.2017
+
+VA - The Best Of Trance 52 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
+02.  Estigma - Artemis (Allen & Envy Remix)  7:17
+03.  Allen Watts & Amir Hussain - Parallax (Original Mix)  6:58
+04.  Fresh Code - Supernova (Original Mix)  6:20(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Emotional, Energy, EuphoricПродолжительность: 02:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9063B0203ED7AF4FF8C5005D5953A8BF6B4D57A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996525   (879284) от 14.03.2016
+
+VA - Top 100 Workout 2 (2016) [MP3|128-320 кб/с] <House, Tech House, Deep House, Electronic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christopher S & Lecrema - Rebel's Mind (Radio Edit) (feat. Jamayl Maleek)
+002. Dan Daniels & Miss D-Star - Music (Radio Edit)
+003. Dewstuffz - Future Gallery (Radio Cut)
+004. DJ Enzo.ch - Independence K (Radio Mix) (feat. Michael Faith)(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 06:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC90D53C8D13F5DA7F2519AE9ACE928C12AB7C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996634   (879279) от 14.03.2016
+
+VA - Beatport Top 100 (12.03.2016) [MP3|320 кб/с] <House, Electro, Progressive, Techno, Indie Dance/Nu Disco, Drum & Bass, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879279.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix) 06:49
+002. Pig&Dan - Growler (Original Mix) 07:19
+003. Gershon Jackson - Take it Easy (Sonny Fodera & Mat.Joe Remix) 06:48
+004. Chocolate Puma - Listen To The Talk (Extended Mix) 04:47(   Читать дальше...   )Жанр: House, Electro, Progressive, Techno, Indie Dance/Nu Disco, Drum & Bass, TranceПродолжительность: 09:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FAD374662418D84BE37AE53B8C13AE01594B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373477   (878542) от 07.04.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #46 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Breathead - Pot & Psychedelics
+002. Elenski - Go Down To Hell
+003. Abigail Noises - Shadow Profile
+004. Alex Starsound - Made From Biohazard(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEE01F1841D1F8B0A15D7A6AE4A9F5FB41C0554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104550   (878208) от 16.02.2017
+
+VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Schweizer - Era (Original Mix)  5:15
+02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
+03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
+04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996859   (877676) от 15.03.2016
+
+VA - Velvet and Night: The Deephouse Selection (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep London Project - Say What Tell Me - Deep Phonic's House Mix
+02. Florence Cono - Deep Song of Gaia - Deep City Mix
+03. Frank Rain - Reserved for the Best People - Modell & Mercier's Night Voyage Mix
+04. Manuel Antinas - Alterego in Fashion - Downtown Elements Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7690BA8DA9099020491129846C6F2AB92AC09B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997101   (877669) от 15.03.2016
+
+VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero Vs. Sunnery James & Ryan Marciano - Underground (04:55)
+02. Friend Within - The Renegade (06:59)
+03. Benny Benassi Presents The Biz - Satisfaction (RL Grime Remix) (04:20)
+04. Underworld - Rez (Bassnectar Remix) (05:13)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997013   (877661) от 15.03.2016
 
 VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal, Tech House>
@@ -519,238 +751,6 @@ VA - Sound Of Quasicrystal (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66863600DA6B861EC7B77961889A453E5854EB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496413   (873223) от 17.09.2021
-
-VA - NRW: Ethnic Electro House (2021) [MP3|320 Kbps] <House, Electro, Ethnic Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sabo feat. Mendrix - Pobre Tulum
-002. Somalie - Rivers
-003. Nedisco - Immerce
-004. Mandruvá - Trippy Brazile(   Читать дальше...   )Жанр: House, Electro, Ethnic DanceПродолжительность: 12:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C3629E70BBA19F425B0834F75305E0E1EA077B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496403   (873219) от 17.09.2021
-
-VA - Beatport Psychedelic Trance: Sound Pack #349 (2021) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doktor Froid - Mexicadelich
-002. Organ Donors - Faux Embrace
-003. Fabio Fusco - I Bind You
-004. Ketamane - Kta Kloon(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD61B2DB14A0014492806E50C52A77E60B771C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496396   (873214) от 17.09.2021
-
-VA - Beatport Electro House: Sound Pack #347 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Reece Hodges - Letting Go
-002. J. Lopez & Vicente Roca - Enjoy
-003. Curve Pusher - Queen Of The Night
-004. Laroye - Potion For Love(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 08:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8320C4565B9536922FE9C74B59CE69FABFD9BEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496450   (873211) от 17.09.2021
-
-VA - The Time Elapsed (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873211.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Slim Steve - Everybody Is Talking
-002. Deano - Vocalize
-003. Procopis Gkouklias - Wounded History Original Mix
-004. Notnotice - Hand(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 13:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76175233DDC355EA63AC1948F08DFC641F449A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496399   (873204) от 17.09.2021
-
-VA - Beatport Drum & Bass: Sound Pack #348 (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. V.S.D. Project - Hope Dies Last
-002. Volition - Retrograde
-003. Ben Verse - Sanity
-004. Koven - Numb(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 12:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC107CB78B9758F909AB709D01B5F81F12FD1A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496406   (873202) от 17.09.2021
-
-VA - Chill House Travel Session (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Smhrs - I Belong Here
-002. Tee Zed - Retro Fifth
-003. Leftfield Funk - 1990
-004. Sam Pills - Waterfront(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 09:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63BB356CC7C41A4593ABCF626B4E13B55FF835F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496447   (873198) от 17.09.2021
-
-VA - The Herbal Chillout (2021) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Mac Dowell - Deepest Inner
-002. Peter Oehler - African Sunrise
-003. Jusscomplex - Takin' Time
-004. The Science Fiction Club - Return(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 09:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5082D1BFC6A084279C12F4F81BEF7BBD5C70CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496394   (873195) от 17.09.2021
-
-VA - A New Harmony: Experimental Electronic (2021) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tlabs - Let Loose
-002. Forty Cats - Ledokol
-003. Shay De Castro - Watching Me
-004. Bitler - Rhytmichally(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E440B3522D971474E1425AF8B4CF135DB7798E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

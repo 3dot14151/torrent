@@ -1,5 +1,208 @@
 https://t.me/izofen
-###  Публикация: 1878254   (1074648) от 
+###  Публикация: 1881729   (1076969) от 
+
+VA - Lounge Cafe (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - Disco to Disco (Radio Edit) (4:58)
+02. Johny Luv - Till The Morning (3:46)
+03. N.E.O.N - Where I Wanna Go (4:16)
+04. N.E.O.N - Body Funk (4:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782962E2CEAC9E371939597F9E2F46BBBD3B8394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880928   (1076849) от 
+
+VA - Matt Pop Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ross Alexander - I Love My Radio (Matt Pop Radio Edit) (4:24)
+02. Northernbeat - When I Call Your Name (Matt Pop Radio Edit) (4:28)
+03. Zoe - Not Over Yet (Matt Pop Radio Edit) (3:47)
+04. Boyz With Toyz - I'm Alive (Matt Pop Radio Edit) (3:55)(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi-NRGПродолжительность: 03:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4461FD9664FC35F7D48E9ECB6472BB6B72B020F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880924   (1076848) от 
+
+Ross Alexander - DiscoDrama (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade To Grey (Prelude) (Matt Pop Radio Edit) (4:21)
+02. Hold Me Now (Matt Pop Radio Edit) (4:47)
+03. Temptation (7th Heaven Radio Edit) (3:24)
+04. New Song (Matt Pop Radio Edit) (2:57)(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi-NRGПродолжительность: 02:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F884035CD9AC38E2A8F60E039137331FB77840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879004   (1076373) от 08.07.2026
+
+Belle Epoque - Miss Broadway & Bamalama (1998) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miss Broadway - 7:39
+02 - Me And You - 5:39
+03 - Losing You - 4:13
+04 - Disco Sound -- Black Is Black -- Why Don't You Lay - 14:21(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAD68DE7E910B6B786589F34320CD66CA63B033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880222   (1076371) от 08.07.2026
+
+Blue System - In The Mix (1992) Compilation, Unofficial [FLAC|Lossless|image + .cue] <EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Body Heat - 2:56
+02 - 48 Hours - 3:24
+03 - Gangster Love (Maxi Version) - 4:19
+04 - New York-Berlin-Paris - 3:52(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771CDB1DC511C315C46B427BB33F03CFAB4927C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880279   (1076370) от 08.07.2026
+
+La Bionda - High Energy & I Wanna Be Your Lover (2002) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Energy 7:23
+02. I Got Your Number 6:39
+03. Tune It Up 3:34
+04. Disco Roller 6:53(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEA22198B361C57353C7F23ACF5FEADC7141F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880280   (1076369) от 08.07.2026
+
+La Bionda - La Bionda & Bandido (2002) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One For You, One For Me 5:55
+02. Hey Woman 5:07
+03. There For Me 3:26
+04. Sandstorm 10:15(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DB1E61DB8F07AF0451E359BA406BDDB3CE1790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878254   (1074648) от 26.06.2026
 
 Amanda Lear - I Am A Photograph & Sweet Revenge (2002) Compilation, Unoffical [FLAC|Lossless|image + .cue] <Disco>
 
@@ -28,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1878256   (1074647) от 
+###  Публикация: 1878256   (1074647) от 26.06.2026
 
 Amanda Lear - Never Trust A Pretty Face & Diamonds For Breakfast (2002) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Disco>
 
@@ -402,64 +605,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605410   (1044851) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm And Energy (3:04)
-02. Blanch A Voil (3:20)
-03. Aspects Of Sport (3:23)
-04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605408   (1044846) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synchronity (3:22)
-02. Turbolights (2:10)
-03. Its Just Illusion (4:04)
-04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606361   (1044541) от 21.01.2023
 
 Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -482,64 +627,6 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606166   (1044527) от 21.01.2023
-
-RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Night In Brazil (with Andy Bell & Boy George) (4:56)
-02. Crazy Wold Of Love (with Scarlet Fantastic) (4:04)
-03. The River (with Rago & Farina) (5:43)
-04. Far From Here (4:28)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606400   (1044389) от 22.01.2023
-
-VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1044389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musique - In the Bush (3:32)
-02. Shalamar - The Second Time Around (3:41)
-03. Sharon Redd - In the Name of Love (4:10)
-04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,93 +743,6 @@ Secret Service - Secret Mission (2022) [FLAC|Lossless|image + .cue] <Euro-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4274F49CA4DF9CAA2984ED68C70BF435B58F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438978   (1040337) от 11.01.2021
-
-Alan Barry - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Vibrations (Radio Version) (3:43)
-02. Come On (Radio Version) (3:55)
-03. Ring The Bell (Radio Version) (4:21)
-04. Tell Me The Reason (ZYX Edit) (3:27)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F3DE489D2715BFACD9317273072E573828F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439146   (1040335) от 11.01.2021
-
-A La Carte - The Ultimate Best of Album (2016) Remastered [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Gimme Reggae (Remastered) (3:01)
-02. When the Boys Come Home (Remastered) (4:06)
-03. You Get Me on the Run (Remastered) (3:22)
-04. Viva Torero (Remastered) (3:56)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86EB2D4832DEBCF38B7F5E375E3286A8FB374EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439351   (1040079) от 12.01.2021
-
-Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dallas (4:25)
-02. Imagination (3:38)
-03. I'm Alive (3:06)
-04. L'lama L'amor (3:55)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, InstrumentalПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
 ```
 
 https://mybot314.ru/tekegram_catalog/

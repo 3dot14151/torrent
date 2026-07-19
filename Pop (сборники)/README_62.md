@@ -1,90 +1,3 @@
-###  Публикация: 1543682   (625774) от 13.04.2022
-
-VA - Q-Dance Presents: Hardstyle Top 40 | February (2022) [MP3|320 Kbps] <Hardstyle, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sub Zero Project - Fly With Me (Extended Mix)
-02. Vertile - On My Own (Extended Mix)
-03. Rebelion - City Lights (Extended Mix)
-04. The Elite - Falling Angels (Extended Mix)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 02:34:50 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330DA92BDA90B31108BA1CAEA8B4D2629DEE7990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294674   (625697) от 09.04.2019
-
-VA - Charme de la France Vol.01-10 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alain delorme - On danse en France 03:11
-02. Anne-Marie David - Lui 03:08
-03. Betty Mars - Casino 02:41
-04. C. Jerome - Ne M'Abandonne Pas 03:51(   Читать дальше...   )Жанр: PopПродолжительность: 23:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59D2AFD8B7BA0772A32E38A66002016B1C24800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543883   (625661) от 13.04.2022
-
-VA - Pop Sauce (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harry Styles - As It Was (2:45)
-002. Leah Kate - 10 Things I Hate About You (2:43)
-003. EMELINE - cinderella's dead (2:00)
-004. BoyWithUke, blackbear - IDGAF (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909896   (625565) от 18.06.2015
 
 VA - Полнолуние любви Самая свежая попса (2015) [MP3|320 кб/с]<Pop>
@@ -802,6 +715,93 @@ VA - 100 хитов Москва FM (2015) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50EFA53494DBF50690CB4D37B55A5655D9F44DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230449   (615624) от 12.06.2018
+
+VA - Dance Club 2018.01 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell & Ingrosso - Dreamer (4:10)
+02. Lost Frequencies, Zonderling - Crazy (2:32)
+03. Selena Gomez & Marshmello - Wolves (3:17)
+04. DJ Snake & Lauv - A Different Way (3:17)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED217D808424C1A74A4D6B67CCBED9CF694C71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230395   (615509) от 12.06.2018
+
+VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell & Ingrosso - Dreamer
+002. Miley Cyrus - Younger Now
+003. Devin Dawson - All On Me
+004. Natasha Barnes - You Don't Mean It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230468   (615415) от 12.06.2018
+
+Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собраны все синглы этой интересной диско группы, которые были выпущены авторами и продюсерами известных диско-поп исполнителей европы.01.  Don't Boogie Mr. Tango (1976) (4:34)
+02.  Slacker (1976) (4:22)
+03.  You Driving Me Crazy (1977) (4:03)
+04.  Move On Up (1977) (3:39)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

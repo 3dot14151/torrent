@@ -1,5 +1,266 @@
 https://t.me/izofen
-###  Публикация: 1878420   (1074656) от 
+###  Публикация: 1881384   (1076857) от 
+
+Vladimir Danilov - Collection (2023) [MP3|320 Kbps] <Electronic, Ambient, Space Music>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transertino (3:54)
+02. Dreamers (6:35)
+03. Feeling (4:54)
+04. Gromozeka (5:51)(   Читать дальше...   )Жанр: Electronic, Ambient, Space MusicПродолжительность: 05:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D1DBDC5A18B199D7197FA2A3B3C345654FDECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1881088   (1076530) от 
+
+VA - Vocal Trance NNM 8 (2026) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Daver - The Beauty Of The Universe (5:52)
+02. BiXX, Natalie Gioia - Bellissima (4:45)
+03. Suncatcher, Sarah Lynn - Sweet Submission (4:24)
+04. Andy Duguid, Jaren - 7even (4:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB71ED85DEAC7263810937B03156C24044D9ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1880772   (1076303) от 08.07.2026
+
+Sun Spot - Collection (2025) [MP3|320 Kbps] <Electronic, Ambient, Space Music>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1076303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk in the Rain (4:19)
+02. Hypnotic Forest (6:18)
+03. Magic Flute (3:51)
+04. Relax Your Mind (4:04)(   Читать дальше...   )Жанр: Electronic, Ambient, Space MusicПродолжительность: 04:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B391B8D66CC3CF547EC8FB782657DA6145A0AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879742   (1075580) от 03.07.2026
+
+VA - Night Rider 11 (2026) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade & BUNT. - Comes Back Around (Extended Mix) (6:02)
+02. AVAO - Bad Behaviour (Extended Mix) (4:34)
+03. KREAM - Where Are You Tonight (VIP Extended Mix) (5:20)
+04. Joey Dale & Dirty Signal - Get Up (Extended Mix) (4:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AB540B26441C6D33F7C93E8AEE0D84E36C3D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879290   (1075310) от 
+
+VA - Spacesynth Forever 10 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Marine - Altered Dimension (5:11)
+02. SeVeN KeYs - Be Mine (6:37)
+03. SZMC - Blue Moon (6:51)
+04. Night Caller - Chase Part II (5:15)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 04:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEFC76DA1EBCDBC5D9B21A1650BE34DA3B2709A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879289   (1075309) от 
+
+VA - Spacesynth Forever 9 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cybermatic - Alien Invasion (5:34)
+02. Aphelion - Another Life In The Galaxy (5:25)
+03. Pixell - Another World (5:16)
+04. Motherchip - Another World Adventures (3:49)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 04:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FEB6CB90E47394D11F5DF719833A7A2997457A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879285   (1075308) от 
+
+VA - Spacesynth Forever 8 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RawBotic - A Singing Computer (4:46)
+02. Peter W - Albedo (4:54)
+03. Marco Mc Neil - Andromeda (AirLab7 vs. George Crossfield Remix) (7:33)
+04. Atomic Space Orchestra - We're Going Back Into The Future (6:36)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 04:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EC7C271EAF18D9E72A4CD373E8DA4A77B19847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879284   (1075307) от 
+
+VA - Spacesynth Forever 7 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1075307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Marine - Alien Transmission (Part 2 A New Contact) (6:14)
+02. Oblidivm - Wrong Perception Of Reality (4:48)
+03. Wavestation - Andromeda Voices (3:34)
+04. Spiral - Artificial Time (4:04)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 04:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EA927212C3673877D2C3DBF7A107B117467F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1879111   (1074945) от 
+
+Ocean Avenue 84 - Collection (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Me Up (Synthwave Remix) (4:03)
+02. Someone You Loved (4:26)
+03. Blinding Lights (Retrowave Vocal Remix) (4:14)
+04. Closer (Retrowave Remix) (4:14)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E046A50405128F2CF1C3E934AC599CEE802B646F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878420   (1074656) от 26.06.2026
 
 VA - Celeste (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Afro House, Tribal House, Pop>
 
@@ -485,267 +746,6 @@ Fancy best (1985-2023) [MP3|320 Kbps] <electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3D985DBDD0A841087A6851F7504D9824730703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863461   (1063461) от 04.04.2026
-
-VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
-02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
-03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
-04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863687   (1063303) от 05.04.2026
-
-Adex - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Electric Dreams
-02 - Forgot to Read
-03 - When You Don’t Reply
-04 - Broken Inside(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A125730436F89225172CD317E7B70C6855B6C6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861252   (1062605) от 24.03.2026
-
-Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Galaxy
-02 - Sea
-03 - Old Love
-04 - Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792CA59B77A1D8DC66EAFE2B40887230170692FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860783   (1062128) от 22.03.2026
-
-VA - Record Super Chart 21.03.2026 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TRAP MAFIA HOUSE - Mafia Style (2:37)
-02. Loud Luxury & Emily Roberts - Love You For Life (2:45)
-03. Anyma & Ejae - Out Of My Body (2:39)
-04. Ofenbach - Miles Away (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A08EF7B527CCCFF9FECDCEFCF995503152523B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859215   (1061001) от 15.03.2026
-
-VA - 60 minutes. Old School Dance Music vol.34 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Solid Sessions - Janeiro (Armin van Buuren Mix)
-02-BT - Flaming June (BT & Paul van Dyk Remix)
-03-Pascal Device - Azure (Jane T. Extended Remix)
-04-Aly & Fila - Eye of Horus (Ronski Speed Remix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC30DC9FD39F30AE29D5D79938BF73F787890C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859024   (1060960) от 13.03.2026
-
-VA - REDISCOVER Classic Trance (2026) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Adagio For Strings (Radio Edit) (3:25)
-02. Workout Music - Heaven (Running Mix 150 BPM) (4:07)
-03. Robert Miles - Children (4:02)
-04. DJ Jean - The Launch (Radio Edit) (3:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA7586A3C49DDCEDF8AB151761FAE5936A63211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858524   (1060421) от 11.03.2026
-
-VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GeoM, Dimitris Athanasiou - Holding on - Dimitris Athanasiou Remix (6:00)
-02. Dimitris Athanasiou - Around You (5:32)
-03. Cj Borika - Lost in Dream (4:58)
-04. HazyHero - Better You Than Me (5:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857896   (1060043) от 07.03.2026
-
-VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1060043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Белолуна - Русалки (Extended Mix)
-02-Amonita - Улетай (Alexey Union & ETNE Remix)
-03-Ranta, Katya Olszewska - Сказка (Original Mix)
-04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855134   (1058041) от 21.02.2026
-
-Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love in the Echo
-02 - In My Dream Tonight
-03 - December Nights
-04 - Silent Desire(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C7A5B55FE24893BD39825A44773A7AE8DD7C16
 ```
 
 https://mybot314.ru/tekegram_catalog/

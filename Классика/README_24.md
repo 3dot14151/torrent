@@ -1,119 +1,3 @@
-###  Публикация: 1033814   (635818) от 12.07.2016
-
-Gustav Leonhardt, Alan Curtis, Helmut Hucke, Collegium Aureum - C.P.E. Bach: Concerti Wq 46, 23 & 165 (1990) [FLAC|Lossless|tracks] <Classical, Concertos>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Concerto for 2 harpsichords, 2 horns, strings & continuo
-in F major, H. 408, Wq. 46
-01.  Concerto doppio F major H410 (Wq46) - Allegro    09:57
-02.  Concerto F major H410 (Wq46) - Largo    07:22(   Читать дальше...   )Жанр: Classical, ConcertosПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033840   (635812) от 12.07.2016
-
-Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Campa - La Folia (1490-1701) 1998 [FLAC|Lossless|image + .cue] <Renaissance, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635812.jpg" />
-</div>
-
-
-###  Подробнее
-
-I. Folias Antiguas 
-01.  Folia Rodrigo Martinez (1490)    05:36
-02.  Recercada Quarta sobre la Folia (1553)    01:30
-03.  Folia Para quien crie cabellos (1557)    02:11(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91A8209237945B2AF35BA8C203D49FA1F5389FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542203   (633433) от 09.04.2022
-
-Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLAC|Lossless|image + .cue] <Classical, Overtures>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633433.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coriolan, Op. 62 (7:22)
-2. Leonore III, Op.72 (12:49)
-3. Egmont, Op. 84 (7:42)
-4. Leonore II, Op. 72a (12:44)(   Читать дальше...   )Жанр: Classical, OverturesПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144231   (629224) от 21.06.2017
-
-The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilation, Remastered [FLAC|Lossless|image + .cue] <Classical, Instrumental>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Danube Waltz (9:15)
-02. Die Fledermaus Overture (7:45)
-03. Pizzicato Polka (2:34)
-04. Perpetual Motion (3:00)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8973DD276C970F2932B4267411CAC5E92D50C10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521075   (626751) от 11.07.2012
 
 Johann Sebastian Bach–Messe h-moll Mass B Minor BWV 232: VA La Petite Bande Collegium Musicum van de Nederlandse Bachvereniging conductor Gustav Leonhardt, Authentic instruments (1985)/1990, DHM GD ...
@@ -786,6 +670,125 @@ Wolfgang Amadeus Mozart – Gran Partita K.361, Wind Pieces K.484b, K.410, K.411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AC73FBC0375FACA29D1ADB6229B8375C442626B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524302   (612930) от 18.07.2012
+
+Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1: Morning
+1 The Cathedral At Dawn [11:31]
+2 Durham Awakes [08:25]
+
+Part 2: Afternoon
+3 The Road From Lindisfarne [07:18]
+4 From Prebends Bridge [08:27]
+
+Part 3: Evening
+5 Rags & Galas [08:25](   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 220894   (612757) от 25.07.2010
+
+Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037734   (611905) от 25.07.2016
+
+Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classical, Acoustic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunes    07:48
+02. Opening The Gates    04:43
+03. The Sorrow Bird    04:09
+04. Like A Bell To A Southerly Wind    04:26(   Читать дальше...   )Жанр: Folk, Modern Classical, AcousticПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985789   (608662) от 16.06.2018
+
+Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Щелкунчик: Действие II, Картина III. Дворец сластей Конфитюренбург (3:56)
+02. Щелкунчик: Действие II, Картина III. Прибытие Мари и Щелкунчика (4:15)
+03. Щелкунчик: Действие II, Картина III. Дивертисмент (а) Шоколад: испанский танец (1:07)
+04. Щелкунчик: Действие II, Картина III. Дивертисмент (б) Кофе: арабский танец (3:04)(   Читать дальше...   )Жанр: BalletПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1055106   (490336) от 21.09.2016
+
+Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Pleasure
+2 - Palm Trees
+3 - Other Men's Girls
+4 - Police(   Читать дальше...   )Жанр: Indie Rock, Dream PopПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15191582211F8B2D9DAB177837190EA2D18B5BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319112   (488733) от 09.08.2019
+
+Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Won't Go Slowly (03:41)
+02. Chocolate (Reworked) (03:47)
+03. Crack The Shutters (Reworked) (03:16)
+04. Open Your Eyes (Reworked) (04:14)Жанр: Indie Pop, Indie RockПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9BFCC0BF1BDAE3836B33D0831EE1BD9004E564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404936   (487285) от 28.08.2020
+
+Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis [00:04:43]
+02. Gottficker [00:03:53]
+03. Blut [00:04:17]
+04. Die Krähe mit dem Schädelbauch [00:04:27](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459BBC513EDC1109E603832966D4722CDD61861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404969   (487131) от 28.08.2020
+
+From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternative Metal, Rap-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scars that I'm Hiding [00:02:55]
+02. Brick [00:03:23]
+03. What I Get [00:03:03]
+04. Blind [00:02:45](   Читать дальше...   )Жанр: Post Hardcore, Alternative Metal, Rap-RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A354D44179FAD9FD691387B85846D84202F6D37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319423   (484798) от 11.08.2019
 
 Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -629,122 +745,6 @@ Florist - Emily Alone (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA45DA40CE4769D8719CB49074C1D41896D347BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246439   (461566) от 11.09.2018
-
-Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of New Orleans (4:08)
- 02. Rewind (3:07)
- 03. Long Lost (3:41)
- 04. Normal Town (3:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968EB881028FC8142FEAF9B27CCF726006B248DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162136   (461346) от 31.08.2017
-
-Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underdog (06:09)
- 02. Bumblebee (04:33)
- 03. Shoot The Runner (03:50)
- 04. Eez-eh (03:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C425A318E59E503D52BBC9E909A67EA7CFAFDD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321380   (461218) от 23.08.2019
-
-The Night Cafe - 0151 (2019) TNC Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0151 Intro (1:54)
- 02. Finders Keepers (3:31)
- 03. Felicity (3:14)
- 04. Please (3:50)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFC0E18D8A3BA79B267F75D7837D68B53F98BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321207   (461217) от 23.08.2019
-
-Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie, Pop Punk, Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro (02:35)
-02. the view (03:25)
-03. basking in the glow (03:59)
-04. dig (04:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie, Pop Punk, EmoПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39B0DA006C860E841D4C89ED92205B884D7BF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

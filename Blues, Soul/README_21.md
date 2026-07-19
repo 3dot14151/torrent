@@ -1,3 +1,61 @@
+###  Публикация: 922163   (571794) от 27.07.2015
+
+Gladys Knight & The Pips - Les Genies du Rock - Every Beat Of My Heart (1995) [MP3|320 кб/с]<Soul,Funk,R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Every Beat Of My Heart (2:05)
+02.  Stop And Get A Hold Of Myself (2:58)
+03.  Another Love (2:45)
+04.  What Will Become Of Me (2:26)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52145702AD6EBB4993DD322C7D196662710AB360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922211   (571785) от 27.07.2015
+
+Jerry Butler - Les Genies du Rock - For Your Precious Love (1995) [MP3|320 кб/с]<Soul,Funk,R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Just for You (2:35)
+02.   Sweet Was the Wind (2:07)
+03.  He'll Break Your Heart (2:47)
+04.  Find Another Girl (2:46)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE55DFB520853C5145CD29F35FE44F5217E7BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529178   (569382) от 30.07.2012
 
 Lil' Cliff & the Cliffhangers - The Lovin' Kind (2011) [MP3|320 кб/с]<Blues / Jump Blues, Swing, Rockin' Blues>
@@ -705,64 +763,6 @@ Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FCEA4C822B5EC8E37502C5875EE6300D7E254E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238859   (544656) от 01.08.2018
-
-Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartache and trouble (03:50)
-02. Let your heart decide (04:37)
-03. Cry for me (03:31)
-04. Don't wait up (04:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25AEE61B2E873C815673DDF242CE221C87DF4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311205   (543533) от 28.06.2019
-
-Delgres - Mo Jodi (2018) Extended Gold Edition, 2019, Groupe Yapuka [MP3|320 Kbps] <Alternative Blues, Creole Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом трио выполнен в жанре "Creole Blues Rock" - смесь Delta Blues с карибскими напевами.01. Respecte Nou
-02. Mo Jodi
-03. The Promise
-04. Mr President(   Читать дальше...   )Жанр: Alternative Blues, Creole Blues RockПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E548D8D32F4F04FE87B746B2273579399293F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

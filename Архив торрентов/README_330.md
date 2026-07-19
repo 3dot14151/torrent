@@ -1,3 +1,38 @@
+###  Публикация: 607075   (991215) от 28.01.2013
+
+Chief Keef - Finally Rich (2012) (Best Buy Deluxe Edition) [MP3|320 кб/с]<Rap | Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Sosa
+2. Hallelujah
+3. I Don't Like (feat. Lil Reese)
+4. No Tomorrow
+5. Hate Bein' Sober (feat. 50 Cent & Wiz Khalifa)
+6. Kay Kay
+7. Laughin' to the Bank
+8. Diamonds (feat. French Montana)
+9. Ballin'
+10. Understand Me (feat. Young Jeezy)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A519143A1CFC076618933ED39440266BC860BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609734   (991210) от 28.01.2013
 
 Вниз по дороге / Down the Road / Nobody Gets Out Alive (2013) BDRip [EN]
@@ -664,32 +699,6 @@ Windows 8 Codecs - Набор кодеков от разработчиков Win
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609152   (991040) от 28.01.2013
-
-Фотография - Фотограф Hannah Combs [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотограф Hannah CombsРазрешение файлов: 600x700 ~3000x3895Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23790F039192CBDF5D84848AEF5A2A61C43478D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

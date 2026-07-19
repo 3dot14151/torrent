@@ -1,3 +1,203 @@
+###  Публикация: 341585   (661155) от 25.05.2011
+
+ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  OpeningЖанр: RelaxПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139527   (659994) от 02.06.2017
+
+Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. No Son Of Mine (6:40)
+A2. Jesus He Knows Me (4:16)
+A3. Driving The Last Spike (10:10)
+B1. I Can't Dance (4:01)(   Читать дальше...   )Производство: Virgin Records - GEN LP3Жанр: Progressive RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342078   (659069) от 27.05.2011
+
+BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scene 01  17:30
+02.  Scene 02  14:59
+03.  Scene 03  15:01
+04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903609   (657863) от 31.05.2015
+
+Зоопарк - Белая Полоса (1984) /1988, Мелодия/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Буги-Вуги Каждый День (2:21)
+A2. Белая Полоса (2:52)
+A3. Песня Простого Человека (2:45)
+A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Читать дальше...   )Производство: МелодияЖанр: RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139948   (657803) от 04.06.2017
+
+Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opuspocus (03:45)
+02. Positive (04:28)
+03. No Job (03:19)
+04. The Opusition (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140078   (657799) от 04.06.2017
+
+Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <IDM, Techno, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (04:41)
+ 02. Untitled (03:47)
+ 03. Untitled (03:44)
+ 04. Untitled (04:01)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226259   (656456) от 19.05.2018
+
+Paul Mauriat - Holidays & Penelope (2017) 1972-73 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penelope
+
+01. 	Penélope (L'eternel Retour)
+02. 	Melancholy Man(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE26EC7D392DF3DFF3831D917387D952402A09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538996   (656074) от 27.03.2022
 
 Cream - The Best Of Cream Live (1972) 2LP, Compilation, Reissue, Repress 1975 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
@@ -554,209 +754,6 @@ Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3D724F3FBFE71B008A608526D3D1244099F560C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682023   (633703) от 21.07.2013
-
-The Doors - Infinite (2013) 6 CD Box Set [DSD 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Changeling (4:21)
-02. Love Her Madly (3:21)
-03. Been Down So Long (4:41)
-04. Cars Hiss by My Window (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD789288C0E8DA5294FA1D2C6BA5D71172668B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228835   (633541) от 02.06.2018
-
-Henry Mancini - The Return of the Pink Panther & Symphonic Soul (2017) 1975 [DTS 4.0 CD-Audio|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633541.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Return of the Pink Panther
-
-01. The Pink Panther Theme (Mancini) Soloist: Tony Coe (Tenor Sax)    [0:03:06.06]
-02. The Greatest Gift (Mancini; David) Instrumental Version    [0:02:20.69](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543215   (631375) от 10.04.2022
-
-Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631375.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Аида Ведищева – Песенка О Медведях
-А2 Ансамбль под упр. В. Людвиковского – Дорога
-В1 Ансамбль под упр. В. Людвиковского – Встреча
-В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543465   (629373) от 11.04.2022
-
-Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сумерки Зеленые
-(А. Мажуков - Е. Митасов)
-02. Прощай, Любовь Моя
-(А. Мажуков - О. Шамхалов, перевод Н. Горохова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143821   (629152) от 21.06.2017
-
-Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twisting by the Pool (3:30)
-02. Badges, Posters, Stickers, T-Shirts (4:54)
-03. Two Young Lovers (3:23)
-04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802489   (628788) от 05.07.2014
-
-The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628788.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You Better You Bet (5:38)
-A2. Don't Let Go The Coat (3:43)
-A3. Cashe Cashe (3:56)
-A4. The Quiet One (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BBB4A420ABA0305F29469CA3488B47FDC7C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887298   (627585) от 12.04.2022
-
-Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Szállj Fel Magasra
-Written-By – Gallai Péter, Köves Miklós
-A2	Képzelet
-Written-By – Bágya András, Mészáros Ágnes(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1672594   (168223) от 29.10.2023
-
-Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...For Whom I Love So Much [6:31]
-02. Slow Hot Wind [5:19]
-03. If I Ruled the World [3:04]
-04. I Can't Escape from You [4:38](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F513D2E6BADBB2DA260021FA16D43ED254E8EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672591   (168183) от 29.10.2023
-
-Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine #1 [2:20]
-02. Over the Rainbow [3:32]
-03. Let's Get Lost [3:44]
-04. I've Never Been in Love Before [4:28](   Читать дальше...   )Жанр: CoolПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41EA78662831369D8C35D9BB4067C658E236CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672598   (168160) от 29.10.2023
-
-Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drop [3:53]
-02. Altered State [3:56]
-03. New Mexico [4:07]
-04. On the Bus [3:35](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672593   (168150) от 29.10.2023
-
-Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed the Fire [8:17]
-02. Bust-a-Move [5:06]
-03. Blossom [6:38]
-04. Pinocchio [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515958   (168012) от 09.12.2021
 
 Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -745,6 +629,122 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E9F525AFADDBDD8C3721ECD50B90083DF01BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343594   (166682) от 15.12.2019
+
+Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daahoud [8:46]
+02. Somewhere in the Night [10:09]
+03. Delilah [13:05]
+04. Brook's Idea [6:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673179   (166506) от 31.10.2023
+
+Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix [4:25]
+02. Seth Song [6:08]
+03. Collins Street [5:09]
+04. For Erroll [5:58](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673177   (166352) от 31.10.2023
+
+Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 2022, Elemental Music [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arbor Way [18:55]
+02. Strollin' [14:27]
+03. Margerine [9:53]
+04. Lament [15:15](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516427   (166257) от 11.12.2021
+
+Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaslight [10:16]
+02. Red Cross [7:27]
+03. He Pulled A Fast One (Part 1) [2:50]
+04. He Pulled A Fast One (Part 2) [3:42](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,89 +1,3 @@
-###  Публикация: 1305931   (555930) от 02.06.2019
-
-VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra & Capital Bra - Wieder Lila
-002. Juju - Vermissen (feat. Henning May)
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305977   (555873) от 02.06.2019
-
-VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moon Taxi - Now's The Time
-002. Ally Brooke feat. A Boogie Wit Da Hoodie - Lips Don't Lie
-003. Градусы - Не Уходи
-004. Jam & Spoon Feat. Plavka Vs. D - Right In The Night (Rico Bernasconi Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306247   (555829) от 03.06.2019
-
-VA - German Top 50 Party Schlager Charts 03.06.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Andrea Berg - Die geheimen Träumer
-03. Kerstin Ott - Regenbogenfarben
-04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: Pop, Schlager
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F334887E2E9291BDFD827C47DA6AC306D24DAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306198   (555799) от 03.06.2019
 
 VA - This Merry Planet - Super Rare Disco Vol.3 (2019) [MP3|320 Kbps] <Disco, Funk>
@@ -738,6 +652,93 @@ VA - Billboard Hot 100 Singles Chart 03.09. (2016) [MP3|128-320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CB5D3BE915FC25DB4A7A348B0E1EA9F73089D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309647   (550222) от 20.06.2019
+
+VA - Love Ballad (2019) [MP3|320 Kbps] <Pop, Rock, Love Ballads>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sarah Jane Morris - Promised Land
+002. Markus Feehily - Wash The Pain Away
+003. Enric Verdaguer - Not My Moment
+004. Toni Braxton - Yesterday(   Читать дальше...   )Жанр: Pop, Rock, Love BalladsПродолжительность: 09:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E9E3271E54DCE04F851373F42B679A02205E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047232   (550103) от 29.08.2016
+
+VA - Breathe We Love The 90s (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nine Inch Nails - Hurt 06:16
+02. Michael Hutchence - The Passenger 04:36
+03. Fatboy Slim - Praise You 05:23
+04. Cradle Of Love - Billy Idol 04:39(   Читать дальше...   )Жанр: Dance, Hip-Hop, RockПродолжительность: 05:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047381   (550024) от 29.08.2016
+
+VA - Хитовый бум. Сборник 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pierce Fulton - Make Me Blue
+002. Илья Гуров - Знаешь Я Скучаю
+003. Cats On Tree - Jimmy
+004. Алиса Кожикина - Мы Вместе(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390DBA4DAF3B0403AB3ABAC1FA0DAA7578B7A5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

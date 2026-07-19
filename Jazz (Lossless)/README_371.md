@@ -1,119 +1,3 @@
-###  Публикация: 1812726   (7424) от 16.08.2025
-
-Chico Hamilton - The Chico Hamilton Special (1960) 2016, Hallmark [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Lost [4:43]
-02. Autumn Leaves [4:22]
-03. New Rhumba [4:08]
-04. Way Down [5:09](   Читать дальше...   )Жанр: Hard Bop, West Coast Jazz, CoolПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8432AEC40F1D175FE68EE5AFF583D68D98ED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813020   (7217) от 17.08.2025
-
-Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eva Des Lys - Possession Obsession (Burlesque Electro Swing Version) (4:25)
-02.  Juste Bart - Bossa Lova (2:52)
-03.  Ashley Slater - Love Me, Love Me Now (Radio Version) (4:13)
-04.  Minnie Valentine - Last Night a DJ Saved My Life (3:54)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813114   (7197) от 17.08.2025
-
-Rick Habana - The Collaborations II (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kim Scott - Welcome In (2:26)
-02.  JJ Sansaverino - Voyage (4:03)
-03.  Marion Meadows - Take You Home (4:06)
-04.  Michael Lington - La Costa (4:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91E7502F5C52A3CB757E7DA7E5E512CA16BD0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813082   (7192) от 17.08.2025
-
-Chillaxonic - Summer Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ineffable (5:22)
-02.  Oasis (4:58)
-03.  Aurora (5:13)
-04.  Within Attraction (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877B3290DD8042D0CD2F5144F92776702B26D05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813080   (7181) от 17.08.2025
 
 Carlos Camilo - Allure (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, African Music>
@@ -745,6 +629,64 @@ Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067590   (129) от 29.09.2025
+
+Wes Montgomery - Movin': The Compete Verve Recordings (1964-1968) 5CD, 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Caravan [02:39]
+02.People [04:24]
+03.Movin' Wes (Part 1) [03:32](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 06:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EF25A72D9DE7A6E348DEADD5E55AF21F12365B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820707   (22) от 29.09.2025
+
+Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Definitive Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella by Starlight [2:46]
+02. Time on My Hands [2:59]
+03. 'Tis Autumn [3:16]
+04. The Way You Look Tonight [3:05](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EB3AA2D9DC5CB7ED0E7A5AD5B8C1A0D4CCC777
 ```
 
 https://mybot314.ru/tekegram_catalog/

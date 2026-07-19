@@ -1,32 +1,3 @@
-###  Публикация: 1131223   (708775) от 05.05.2017
-
-Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthquake
-02. Dystopia
-03. When Sirens Sing
-04. Razorblade(   Читать дальше...   )Жанр: Synthwave, Retrowave, Electronic RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131732   (706476) от 06.05.2017
 
 Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retrowave, Space Disco, Synthwave>
@@ -748,6 +719,35 @@ Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9455D72E6190B2DA63AEF230C68298C77B1EA51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293413   (635657) от 04.04.2019
+
+Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpology (4:19)
+02. Tierra Del Fuego (4:33)
+03. No Escape (6:09)
+04. Realism (4:13)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
 ```
 
 https://mybot314.ru/tekegram_catalog/

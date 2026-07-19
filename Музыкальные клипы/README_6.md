@@ -1,3 +1,194 @@
+###  Публикация: 618158   (967560) от 16.02.2013
+
+Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Metal RockПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76282BF0C803CF0D985B464D3B1994DABB43AF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618159   (967348) от 16.02.2013
+
+Сборник видеоклипов 2012 года / Music Video (2012) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов зарубежных исполнителей 2012 года в высоком качестве.Жанр: Музыка, клипы, PopПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CAA25BF191B56C9CB58BB686762AC0B52E89AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619645   (966183) от 17.02.2013
+
+Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rihanna, Chris Brown, Katy Perry, Mariah Carey, Flo Rida, Justin Bieber, Nicki Minaj, The wanted, Pitbull and More...Жанр: PopПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6034C727A27FD352AD21E514A25319D98A5AF782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977534   (965412) от 21.01.2016
+
+VA - Зимний марафон № 220: Зимний Снегопад Хитов (2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (20.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alai Oli ― Тлен (Премьера!) (00:03:36)
+02. Alberto Ciccarini - Clorophilla (Official Video) (00:03:46)
+03. Alexander Project - Весь мир с тобой (Премьера!) (00:04:37)
+04. All Давай - Ай как больно (Премьера!) (00:04:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Шансон, IndieПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359222   (964934) от 11.02.2020
+
+Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
+02_Боронина - Малолетка
+03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
+04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619111   (964048) от 19.02.2013
+
+BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359616   (964011) от 12.02.2020
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
+01. Def Leppard — Let’s Get Rocked
+02. Offspring — Gotta Get Away
+03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359419   (962993) от 13.02.2020
 
 Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/1080p/720p-LQ] <Symphonic Power Metal>
@@ -533,206 +724,6 @@ VH-1 Russia - российская версия легендарного евр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73AF050D9A7D5D906767FA63AB0E68828E4DBF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981479   (951414) от 01.02.2016
-
-Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Livin' La Vida Loca
-03. She's All I Ever Had
-04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981631   (951014) от 01.02.2016
-
-Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:15)
-02. You Can Win If You Want (3:53)
-03. Cheri, Cheri Lady (3:19)
-04. Brother Louie (3:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПеревод: ОтсутствуетПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB566BB26C966B78FF6C4D702F01287BAC6747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981782   (949881) от 02.02.2016
-
-VA – Fetenhits: The Real Classics (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Rhythm Nation
-02. Cameo - Word Up
-03. Kool & The Gang - Celebration
-04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624707   (948978) от 02.03.2013
-
-Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] BDRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собственный клип. Использована музыкальная композиция Little Richard Long Tall Sally
-Подробности не требуются.
-Ваши замечания будут учтены.
-Размещён на 2-х трекерах. Плагиатом раздачи с другого ресурса не является.Жанр: Фантастика, Боевик   Собственный клипРежиссер: Джон МактирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррилло, Джесси ВентураПеревод: ОтсутствуетПродолжительность: 00:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857896   (948355) от 11.01.2015
-
-Инфинити - Крылья (2014) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982441   (948132) от 03.02.2016
-
-Sade – Life Promise Pride Love (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Programme Start (0:10)
-02. Your Love Is King (3:37)
-03. Smooth Operator (Red Eye) (8:27)
-04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982327   (947991) от 03.02.2016
-
-Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Brace Yourself
-03. Billie Jean
-04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

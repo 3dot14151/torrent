@@ -1,297 +1,3 @@
-###  Публикация: 1122681   (793182) от 06.04.2017
-
-Адаптация - Radio Resistance (2017) [FLAC|lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Живой (03:58)
-02. Бищара-рай (04:07)
-03. Мой город будет стоять (03:45)
-04. Маяк над соломенным городом (03:12)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE605C7B10D51E02D0D12E28EEC0AF1E6B64F79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201352   (792808) от 24.01.2018
-
-Сруб - Скорбь (2018) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792808.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гибельные травы, которые срезают ночами черти обломками челюстей мёртвых лис, дымка над болотами, страх от прикосновения кого-то к плечу на пустой дороге через предрассветное поле, чащи, буреломы, папоротники, колючая и мокрая хвоя прямо в лицо. И смех без источника. Всё это здесь" (Всматривающаяся бездна)
-Новосибирский "Лютый славянский пост-панк" (   Читать дальше...   )01. По ягоды (5:32)
-02. Вспять (5:27)
-03. В чаще, где пал крест (5:55)
-04. Храни (5:58)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC97B7621B9D1E8B465A73047AAE033FA9CE5289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387015   (792638) от 31.05.2020
-
-Карл Хламкин - Хламкин, заткнись! (2003) [FLAC|Lossless|tracks + .cue]<Pop Rock, Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лужники
-02. Лумумба
-03. Канава
-04. Гордый сокол(   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04F69D7F54556A4DD5E3BFD4FF1621C032BDA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357181   (792295) от 31.05.2020
-
-Черный Обелиск - 14 альбомов, 3 сингла, 2 концертника, 3 сборника (1991-2009) [FLAC|Lossless]<Heavy/Thrash metal>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy/Thrash metalПродолжительность: 01:17:41
-01. Полночь (5:13)
-02. Апокалипсис (7:06)
-03. Стена (3:58)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD03CF2753BDA6AF24D660C7A42CEB4BE22C5277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274848   (792270) от 08.01.2019
-
-Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lapsenmuisto (5:32)
-02. Kasvot (7:26)
-03. Siiville Nousu (9:32)
-04. Poissa (2:24)(   Читать дальше...   )Производство: Kauan Self-released - KM001Жанр: Post Rock, Folk, Ambient, Doom MetalПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687A67C19E22129DB0C5C87ECEAA4CF66735469D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274849   (792254) от 08.01.2019
-
-Kauan - Kaiho (Instrumental Version) (2018) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Folk, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lapsenmuisto (5:32)
-02. Kasvot (Instrumental) (7:27)
-03. Siiville Nousu (Instrumental) (9:33)
-04. Poissa (2:24)(   Читать дальше...   )Жанр: Post Rock, Folk, Ambient, Doom Metal, InstrumentalПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799CFA0272E8F52509C50C202BF742B471B46E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274850   (792252) от 08.01.2019
-
-Kauan - Sorni Nai (2015) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Folk, Funeral Doom>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. akva (7:57)
-02. kit (7:08)
-03. khurum (7:50)
-04. nila (7:18)(   Читать дальше...   )Производство: Blood Music - BLOOD-127Жанр: Experimental, Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC645AA618E604497E8A2C4638FDDD35F3579C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510098   (792084) от 15.11.2021
-
-Margenta - Маги И Маглы (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
-Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
-Проект Margenta осуществляется при участии многих известных музыкантов.
-Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )CD - 1:
-01. Пророчество (1:06)
-02. Гарри Поттер (Детство Сердца И Беда!) (2:30)
-03. На Смерть Профессора Альбуса Дамбадора. Реквием (4:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0B9378D72679D394AC41CFEC73B36068417BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
-
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275067   (791701) от 09.01.2019
-
-Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (4:58)
-02. II (4:42)
-03. III (5:15)
-04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511278   (789418) от 20.11.2021
 
 Margenta - Алый Король (2020) [FLAC|Lossless|image + .cue] <Heavy metal>
@@ -755,6 +461,296 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207665   (780404) от 19.02.2018
+
+Лёд 9 - Холодная Война (2011) [FLAC|Lossless|tracks + .cue] <Rapcore, Experimental Hip-Hop, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вкл Пульт (01:07)
+ 02. Лёд Девять (01:35)
+ 03. Ад Холода (ft. Константин Кинчев)(02:30)
+ 04. Котята Один (03:22)(   Читать дальше...   )Жанр: Rapcore, Experimental Hip-Hop, PunkПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D648587A9BF4056AF4C2EDC71357B1E3834388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208446   (779913) от 22.02.2018
+
+Мумий Тролль - Восток Х СевероЗапад (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Планы
+02. Отв. за Романтику
+03. Милота
+04. Жимолость(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9926C9F0CB4AFB04937A3A098D295951A8608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209954   (778982) от 01.03.2018
+
+Александр Кутиков - Бесконечномгновенно (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё так просто
+02. Родина моя
+03. Дорогой слов и откровений
+04. Одна(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD09AEA4BDF4AFDDFA4BD32C3FB2593E712ADD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211072   (777863) от 06.03.2018
+
+Сергей Ряховский и Глеб Бровчук - Наблюдатель (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наблюдатель (3:25)
+ 02. Ловец времени (3:45)
+ 03. Гороховый шут (5:51)
+ 04. Художник (7:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D24BC0648AA2A95317B28EAF6B39B88C4AB886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211311   (777559) от 07.03.2018
+
+Электрические Партизаны - Минные Поля Свободы (2016) [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Минные поля свободы (04:29)
+02. Заблудившиеся во вселенной (03:31)
+03. На войне как на войне (04:20)
+04. Блефуску (03:20)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC73A9011BF8E9491F5F6C99A1D751E2B4B2C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212796   (775176) от 13.03.2018
+
+Медведь ШатунЪ - Погоди зверьё (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хотят ли русские войны (2:43)
+ 02. Медсестра Кораблёва (4:56)
+ 03. Звезда квартирного масштаба (2:43)
+ 04. Му*ак (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D911253A765D37CA87118417AEE640B8BDC9562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015730   (774111) от 11.05.2016
+
+НОМ - Оттепель (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра-твист
+02. Оттепель
+03. Музыка революции
+04. Гости(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AD1460523E6676F4387C0DE84029EE9A184867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263874   (768417) от 26.01.2019
+
+Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (4:46)
+2. Тропа к Весне (5:18)
+3. Вслед молодой заре (4:02)
+4. Танец цветения (5:28)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264282   (768413) от 26.01.2019
+
+Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Река (4:55)
+2. Жемчужина (4:21)
+3. Русалка (4:39)
+4. Невеста лешего (4:09)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279053   (767668) от 27.01.2019
+
+Калинов Мост - Даурия (2018) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Летят Вороны
+2. Даурия
+3. До Улет
+4. Только Здесь(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBC626BDCF55B0973AB54A954CDC38A3DF84A32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1676956   (153643) от 15.11.2023
+
+Windows 11 x64 Rus by OneSmiLe [22631.2715]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана из оригинального образа
+ru-ru_windows_11_business_editions_version_23h2_x64_dvd_bcc01258
+Удалены все модерн приложения.
+Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DB8DE4F42A3B8937BA2DC5788FA47E7FC529DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086091   (153642) от 23.12.2016
 
 DAEMON Tools Lite 10.5.0.222 Unlocked [Multi/Ru]
@@ -653,32 +682,6 @@ SUMo (Software Update Monitor) — последняя версия данной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FB0C882521F7D50A6B2ECA9804A2EC511B5B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595647   (153249) от 29.12.2022
-
-CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153249.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor Pro - расширенная версия утилиты, предназначенной для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C865EF342FC16E32E872C56E104FBAA7ED7084E
 ```
 
 https://mybot314.ru/tekegram_catalog/

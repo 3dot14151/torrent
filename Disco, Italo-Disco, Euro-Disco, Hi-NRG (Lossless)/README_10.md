@@ -1,3 +1,96 @@
+###  Публикация: 1288775   (691961) от 13.03.2019
+
+VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleph - I'm on Fire (7:29)
+02. Robert Camero - Welcome Back (7:13)
+03. Max System - You Bring the Sun (6:04)
+04. Ryan Paris - Buona Sera Dolce Vita (feat. Mauro) (7:22)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRGПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288996   (689937) от 14.03.2019
+
+Blue System - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry Little Sarah (Maxi Version)
+02. My Bed Is Too Big
+03. Laila (Maxi Version)
+04. Under My Skin (Radio Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506253   (687621) от 06.06.2012
+
+Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gloria (Version 2001)
+02.Tu (Version 2001)
+03.Te Amo
+04.Yo Caminare
+05.Claridad
+06.De Que Me Sirven Estas Manos
+07.Noche Rota
+08.Olvidate, Olvidate
+09.Dime Que No
+10.Donna Amante Mia(   Читать дальше...   )2001Жанр: Italo-popПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289622   (686625) от 16.03.2019
 
 Daddy Cool Kids  - School's Out (2008) Single [FLAC|Lossless|image + .cue] <Disco, Europop, Electronic>
@@ -663,93 +756,6 @@ VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293027   (641034) от 01.04.2019
-
-Samantha Fox - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (I Want Your Body)
-02. Wild Kinda Love
-03. You Started Something
-04. (I Can't Get No) Satisfaction(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E05C7436BE3EB1DD19A759DFEDA4BF2184A14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907671   (637630) от 12.06.2015
-
-Samantha Fox - Touch Me: The Very Best Of (2014) [FLAC|image+.cue]<Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (I Want Your Body) [3:48]
-02. Do Ya Do Ya (Wanna Please Me) [3:49]
-03. I Only Wanna Be With You [2:45]
-04. Hold On Tight [3:40](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28054FCF344EF201F78988B0AD9D6BDB3114B20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293445   (635366) от 04.04.2019
-
-VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jules - I Want To (Instrumental Version) (6:44)
-02. Webo - Magic Moment (Instrumental Version) (5:58)
-03. Facts & Fiction - Supernova (Instrumental Version) (5:22)
-04. Lime - Unexpected Lovers (Instrumental Version) (5:04)(   Читать дальше...   )Жанр: Pop, Italo-DiscoПродолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7C27D9D16E7C5A9B41B9EF7CCD2AD33227CB91
 ```
 
 https://mybot314.ru/tekegram_catalog/

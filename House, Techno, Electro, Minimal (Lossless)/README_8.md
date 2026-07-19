@@ -1,3 +1,177 @@
+###  Публикация: 1483854   (1006532) от 16.07.2021
+
+Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kawai (06:17)
+ 02. Wave Trip (07:00)
+ 03. Blofeld (06:53)
+ 04. Richocet (05:57)Жанр: Techno, Deep TechnoПродолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6FA052638630F775A483255290F88482D5569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483865   (1006525) от 16.07.2021
+
+Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech House, Acid House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cordial (07:16)
+ 02. Plastered (07:16)
+ 03. Rechord (06:50)
+ 04. Cordial (Aache's Acid Remix) (05:36)Жанр: Tech House, Acid HouseПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8683F4224AA89402F964FB45B0EE5880C396F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483861   (1006522) от 16.07.2021
+
+Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electrostatics (06:19)
+ 02. Sun Power (06:23)
+ 03. Electrodynamics (07:31)
+ 04. Retrigger (07:26)Жанр: Deep House, Tech HouseПродолжительность: 00:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D142EDE32F574B5559CBAF694AE98FCBC50DF2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483856   (1006518) от 16.07.2021
+
+Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium (07:24)
+ 02. Diffusion (07:44)
+ 03. Automotif (06:02)
+ 04. Mood Swing (06:57)(   Читать дальше...   )Жанр: Deep Techno, Ambient, Dub TechnoПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138540   (1006186) от 18.07.2021
+
+Lars Leonhard - Discography 42 Releases (2011-2021) BineMusic, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Deep House, Downtempo>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep In Space (06:56)
+ 02. Diving To Coral (07:38)
+ 03. Metamorphose (08:16)
+ 04. Sunk In Thoughts (07:56)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Deep House, Downtempo •Продолжительность: 35:51:19 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF38D1775C2B087794582A2E4F558F3FE9FC5FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485485   (1005464) от 25.07.2021
+
+Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Winter Sunday
+02. More Than I Give Them
+03. The Sun Winking at the Moon
+04. Crooked House(   Читать дальше...   )Жанр: PsyTech House, Techno, ProgressiveПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484784   (1005349) от 26.07.2021
 
 Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
@@ -562,174 +736,6 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75203886C3CF88434AFBD04F45852C87639AFCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316795   (1001981) от 11.08.2021
-
-Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Want To Sleep? (01:22)
- 02. Can You Stop It From Bleeding? (02:41)
- 03. Hurting Myself (05:13)
- 04. Blackmail (02:51)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch •Продолжительность: 23:40:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351573   (1001952) от 11.01.2020
-
-Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Deep House, ProgressiveПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351900   (1001684) от 12.01.2020
-
-VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks + .cue]<Deep, Electro, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotsome - Just A Feeling ( Franky Rizardo Remix )
-02. Emanuel Satie - Cold Sweat
-03. The New Sins - Lights Down ( Waze & Odyssey Remix )
-04. Tensnake - The Walk(   Читать дальше...   )Жанр: Deep, Electro, House, TechnoПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125104   (1001359) от 13.08.2021
-
-Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
- 02. Bing And Ruth - The How Of It Sped (05:48)
- 03. Nils Frahm - For (Max Cooper Remix) (07:06)
- 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352350   (1001086) от 14.01.2020
-
-Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eintagsfliege (07:08)
-02. Zweibrütiger Scheckenfalter (07:13)
-03. Dreizehenspecht (03:34)
-04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352888   (1000890) от 15.01.2020
-
-VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House, Neo Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Progressive House, Neo TranceПродолжительность: 03:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
